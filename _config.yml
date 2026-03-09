@@ -1,5 +1,6 @@
 title: History Listory
 description: A chronological record of major political events in modern American history.
 remote_theme: pages-themes/dinky@v0.2.0
+theme: jekyll-theme-dinky
 plugins:
 - jekyll-remote-theme
