@@ -1,67 +1,53 @@
-<!doctype html>
-<html lang="{{ site.lang | default: " en-US" }}">
-
-<head>
-    <meta charset="utf-8">
+<!DOCTYPE html>
+<html lang="en-us">
+  <head>
+    <meta charset="UTF-8">
     <meta http-equiv="X-UA-Compatible" content="IE=edge">
+    <meta name="viewport" content="width=device-width, initial-scale=1">
 
-    {% seo %}
     <link rel="stylesheet" href="{{ '/assets/css/style.css?v=' | append: site.github.build_revision | relative_url }}">
-    <script src="{{ '/assets/js/scale.fix.js' | relative_url }}"></script>
-    <meta name="viewport" content="width=device-width, initial-scale=1, user-scalable=no">
     <!--[if lt IE 9]>
-    <script src="//html5shiv.googlecode.com/svn/trunk/html5.js"></script>
+    <script src="https://cdnjs.cloudflare.com/ajax/libs/html5shiv/3.7.3/html5shiv.min.js"></script>
     <![endif]-->
-    {% include head-custom.html %}
-</head>
+    <title>{{ page.title | default: site.title }}</title>
+  </head>
+  <body>
+    <div id="container">
 
-<body>
-    <div class="container">
+      <div class="inner">
         <header>
-            <h1 class="header">{{ site.title | default: site.github.repository_name }}</h1>
-            <p class="header">{{ site.description | default: site.github.project_tagline }}</p>
-
-            <div id="content-wrapper">
-                <nav class="sidebar">
-                    <h3>Categories</h3>
-                    <ul>
-                        {% for cat in site.data.navigation.categories %}
-                        <li><a href="{{ '/' | relative_url }}#{{ cat.tag }}">{{ cat.name }}</a></li>
-                        {% endfor %}
-                    </ul>
-
-                    {% if site.data.navigation.tags %}
-                    <h3>Tags</h3>
-                    <ul class="tag-list">
-                        {% for tag in site.data.navigation.tags %}
-                        <li><a href="{{ '/' | relative_url }}#tag-{{ tag }}">#{{ tag }}</a></li>
-                        {% endfor %}
-                    </ul>
-                    {% endif %}
-                </nav>
-
-                <section id="main-content">
-                    {{ content }}
-                </section>
-            </div>
-
-            <ul>
-                {% for cat in site.data.navigation.categories %}
-                <li><a href="/{{ cat.tag }}/">{{ cat.name }}</a></li>
-                {% endfor %}
-            </ul>
-
+          <h1><a href="{{ '/' | relative_url }}">{{ site.title | default: site.github.repository_name }}</a></h1>
+          <h2>{{ site.description | default: site.github.project_tagline }}</h2>
         </header>
 
-        <section>
+        <div id="content-wrapper">
+          <nav class="sidebar">
+            <h3>Categories</h3>
+            <ul>
+              {% for cat in site.data.navigation.categories %}
+                <li><a href="{{ '/' | relative_url }}#{{ cat.tag }}">{{ cat.name }}</a></li>
+              {% endfor %}
+            </ul>
+
+            {% if site.data.navigation.tags %}
+            <h3>Tags</h3>
+            <ul class="tag-list">
+              {% for tag in site.data.navigation.tags %}
+                <li><a href="{{ '/' | relative_url }}#tag-{{ tag }}">#{{ tag }}</a></li>
+              {% endfor %}
+            </ul>
+            {% endif %}
+          </nav>
+
+          <section id="main-content">
             {{ content }}
-        </section>
+          </section>
+        </div>
 
         <footer>
-            <p><small>ZHosted on <a href="https://pages.github.com">GitHub Pages</a> using the Dinky theme</small></p>
+          <p><small>Hosted on <a href="https://pages.github.com">GitHub Pages</a> using the Dinky theme</small></p>
         </footer>
+      </div>
     </div>
-    <!--[if !IE]><script>fixScale(document);</script><![endif]-->
-</body>
-
+  </body>
 </html>

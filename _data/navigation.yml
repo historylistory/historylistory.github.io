@@ -5,3 +5,11 @@ categories:
     tag: tech
   - name: Travel
     tag: travel
+  - name: Music
+    tag: music
+
+tags:
+  - featured
+  - tutorial
+  - inspiration
+  - tools

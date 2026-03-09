@@ -1,0 +1,47 @@
+- category: Photography
+  tag: photography
+  items:
+    - title: "Amazing landscape gallery"
+      url: "https://example.com/landscapes"
+      image: "/assets/images/placeholder.jpg"
+      tags: [featured, inspiration]
+      description: "A stunning collection of landscape photos"
+
+    - title: "Street photography tips"
+      url: "https://example.com/street-photo"
+      image: "/assets/images/placeholder.jpg"
+      tags: [tutorial]
+      description: "Great guide on getting started"
+
+- category: Tech
+  tag: tech
+  items:
+    - title: "Useful developer tools"
+      url: "https://example.com/dev-tools"
+      image: "/assets/images/placeholder.jpg"
+      tags: [tools, featured]
+      description: "Curated list of handy tools"
+
+    - title: "How GPUs work"
+      url: "https://example.com/gpus"
+      image: "/assets/images/placeholder.jpg"
+      tags: [tutorial]
+      description: "Deep dive into GPU architecture"
+
+- category: Travel
+  tag: travel
+  items:
+    - title: "Hidden gems in Japan"
+      url: "https://example.com/japan"
+      image: "/assets/images/placeholder.jpg"
+      tags: [featured, inspiration]
+      description: "Off the beaten path destinations"
+
+- category: Music
+  tag: music
+  items:
+    - title: "Best synth channels"
+      url: "https://example.com/synth"
+      image: "/assets/images/placeholder.jpg"
+      tags: [inspiration]
+      description: "YouTube channels for synth lovers"
