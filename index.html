@@ -1,0 +1,34 @@
+---
+layout: default
+title: Home
+---
+
+{% for category in site.data.links %}
+<div class="category-section" id="{{ category.tag }}">
+  <h2>{{ category.category }}</h2>
+  <div class="link-grid">
+    {% for item in category.items %}
+    <div class="link-card" {% for tag in item.tags %}data-tag="{{ tag }}" {% endfor %}>
+      <a href="{{ item.url }}" target="_blank" rel="noopener">
+        {% if item.image %}
+        <img class="card-image" src="{{ item.image | relative_url }}" alt="{{ item.title }}">
+        {% endif %}
+        <div class="card-body">
+          <h4>{{ item.title }}</h4>
+          {% if item.description %}
+          <p>{{ item.description }}</p>
+          {% endif %}
+          {% if item.tags %}
+          <div class="card-tags">
+            {% for tag in item.tags %}
+            <span id="tag-{{ tag }}">#{{ tag }}</span>
+            {% endfor %}
+          </div>
+          {% endif %}
+        </div>
+      </a>
+    </div>
+    {% endfor %}
+  </div>
+</div>
+{% endfor %}
