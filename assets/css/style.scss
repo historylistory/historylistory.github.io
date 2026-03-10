@@ -3,6 +3,16 @@
 
 @import "jekyll-theme-dinky";
 
+/* ---- Fix Dinky fixed-width overflow ---- */
+
+body {
+  padding-right: 0;
+}
+
+.wrapper {
+  width: auto;
+}
+
 /* ---- Desktop only: scrollable header, content beside it ---- */
 
 @media screen and (min-width: 961px) {
@@ -12,18 +22,18 @@
     margin-top: 0;
     height: 100vh;
     box-sizing: border-box;
-    padding-top: 34px;
+    padding: 34px 15px 22px 20px;
   }
 
   section {
     float: none;
-    margin-left: 260px;
+    margin-left: 210px;
     width: auto;
   }
 
   footer {
     float: none;
-    margin-left: 260px;
+    margin-left: 210px;
     width: auto;
     position: static;
   }
