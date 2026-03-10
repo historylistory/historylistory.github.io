@@ -3,6 +3,43 @@
 
 @import "jekyll-theme-dinky";
 
+/* ---- Override Dinky theme layout ---- */
+
+.wrapper {
+  width: 100%;
+  max-width: 1000px;
+  margin: 0 auto;
+}
+
+header {
+  width: 100%;
+  float: none;
+  position: static;
+  text-align: left;
+  padding: 20px 0;
+  background: transparent;
+  border-radius: 0;
+  border-bottom: 1px solid #ddd;
+  margin-bottom: 20px;
+
+  h1 {
+    a {
+      color: #369;
+    }
+  }
+}
+
+section {
+  width: 100%;
+  float: none;
+}
+
+footer {
+  width: 100%;
+  float: none;
+  position: static;
+}
+
 /* ---- Layout: sidebar + main content ---- */
 
 #content-wrapper {
