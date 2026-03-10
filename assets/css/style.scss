@@ -3,64 +3,19 @@
 
 @import "jekyll-theme-dinky";
 
-/* ---- Override Dinky theme layout ---- */
+/* ---- Sidebar nav inside Dinky header ---- */
 
-.wrapper {
-  width: 100%;
-  max-width: 1000px;
-  margin: 0 auto;
-}
-
-header {
-  width: 100%;
-  float: none;
-  position: static;
-  text-align: left;
-  padding: 20px 0;
-  background: transparent;
-  border-radius: 0;
-  border-bottom: 1px solid #ddd;
-  margin-bottom: 20px;
-
-  h1 {
-    a {
-      color: #369;
-    }
-  }
-}
-
-section {
-  width: 100%;
-  float: none;
-}
-
-footer {
-  width: 100%;
-  float: none;
-  position: static;
-}
-
-/* ---- Layout: sidebar + main content ---- */
-
-#content-wrapper {
-  display: flex;
-  gap: 30px;
-  align-items: flex-start;
-}
-
-.sidebar {
-  flex: 0 0 200px;
-  position: sticky;
-  top: 20px;
+.sidebar-nav {
+  margin-top: 20px;
 
   h3 {
-    font-size: 14px;
+    font-size: 12px;
     text-transform: uppercase;
     letter-spacing: 1px;
-    color: #888;
-    margin-top: 20px;
-    margin-bottom: 8px;
-    border-bottom: 1px solid #ddd;
+    color: #999;
+    margin-top: 16px;
+    margin-bottom: 6px;
+    border-bottom: 1px solid #333;
     padding-bottom: 4px;
 
     &:first-child {
@@ -77,11 +32,12 @@ footer {
       margin-bottom: 4px;
 
       a {
-        font-size: 14px;
-        color: #369;
+        font-size: 13px;
+        color: #ccc;
         text-decoration: none;
 
         &:hover {
+          color: #fff;
           text-decoration: underline;
         }
       }
@@ -90,25 +46,20 @@ footer {
 
   .tag-list li {
     display: inline-block;
-    margin-right: 6px;
-    margin-bottom: 6px;
+    margin-right: 4px;
+    margin-bottom: 4px;
 
     a {
-      background: #eef;
-      padding: 2px 8px;
+      background: #333;
+      padding: 2px 6px;
       border-radius: 3px;
-      font-size: 12px;
+      font-size: 11px;
 
       &:hover {
-        background: #ddf;
+        background: #555;
       }
     }
   }
-}
-
-#main-content {
-  flex: 1;
-  min-width: 0;
 }
 
 /* ---- Intro section ---- */
@@ -204,29 +155,6 @@ footer {
 /* ---- Responsive ---- */
 
 @media (max-width: 768px) {
-  #content-wrapper {
-    flex-direction: column;
-  }
-
-  .sidebar {
-    flex: none;
-    width: 100%;
-    position: static;
-    display: flex;
-    flex-wrap: wrap;
-    gap: 20px;
-
-    h3 {
-      width: 100%;
-    }
-
-    ul {
-      display: flex;
-      flex-wrap: wrap;
-      gap: 4px 12px;
-    }
-  }
-
   .link-grid {
     grid-template-columns: 1fr;
   }
