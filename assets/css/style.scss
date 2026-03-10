@@ -5,13 +5,17 @@
 
 /* ---- Fix Dinky fixed-width overflow ---- */
 
-body {
-  padding-right: 0;
+html, body {
   overflow-x: hidden;
 }
 
-.wrapper {
+body {
+  padding-right: 0;
+}
+
+.wrapper, #container, .inner {
   width: auto;
+  max-width: 100%;
 }
 
 /* ---- Desktop only: scrollable header, content beside it ---- */
