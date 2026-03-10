@@ -3,25 +3,27 @@
 
 @import "jekyll-theme-dinky";
 
-/* ---- Fix Dinky layout ---- */
+/* ---- Desktop only: scrollable header, content beside it ---- */
 
-header {
-  overflow-y: auto;
-  height: 100vh;
-  box-sizing: border-box;
-}
+@media screen and (min-width: 961px) {
+  header {
+    overflow-y: auto;
+    height: 100vh;
+    box-sizing: border-box;
+  }
 
-section {
-  float: none;
-  margin-left: 260px;
-  width: auto;
-}
+  section {
+    float: none;
+    margin-left: 260px;
+    width: auto;
+  }
 
-footer {
-  float: none;
-  margin-left: 260px;
-  width: auto;
-  position: static;
+  footer {
+    float: none;
+    margin-left: 260px;
+    width: auto;
+    position: static;
+  }
 }
 
 /* ---- Sidebar nav inside Dinky header ---- */
@@ -173,29 +175,9 @@ footer {
   }
 }
 
-/* ---- Responsive ---- */
+/* ---- Responsive: single-column cards on small screens ---- */
 
-@media (max-width: 768px) {
-  header {
-    position: static;
-    float: none;
-    width: 100%;
-    height: auto;
-    overflow-y: visible;
-    padding: 20px;
-    border-radius: 0;
-  }
-
-  section {
-    margin-left: 0;
-    padding: 20px;
-  }
-
-  footer {
-    margin-left: 0;
-    padding: 0 20px;
-  }
-
+@media screen and (max-width: 960px) {
   .link-grid {
     grid-template-columns: 1fr;
   }
