@@ -7,6 +7,14 @@ categories:
     tag: category-c
   - name: Category D
     tag: category-d
+  - name: Category E
+    tag: category-e
+  - name: Category F
+    tag: category-f
+  - name: Category G
+    tag: category-g
+  - name: Category H
+    tag: category-h
 
 tags:
   - red
