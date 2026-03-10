@@ -3,6 +3,26 @@
 
 @import "jekyll-theme-dinky";
 
+/* ---- Fix Dinky layout ---- */
+
+header {
+  overflow-y: auto;
+  max-height: 100vh;
+}
+
+section {
+  float: none;
+  margin-left: 190px;
+  width: auto;
+}
+
+footer {
+  float: none;
+  margin-left: 190px;
+  width: auto;
+  position: static;
+}
+
 /* ---- Sidebar nav inside Dinky header ---- */
 
 .sidebar-nav {
