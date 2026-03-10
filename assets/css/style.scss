@@ -74,6 +74,24 @@
   min-width: 0;
 }
 
+/* ---- Intro section ---- */
+
+.intro {
+  margin-bottom: 32px;
+  padding-bottom: 20px;
+  border-bottom: 1px solid #ddd;
+
+  h2 {
+    margin-top: 0;
+  }
+
+  p {
+    color: #555;
+    font-size: 15px;
+    line-height: 1.6;
+  }
+}
+
 /* ---- Category sections ---- */
 
 .category-section {

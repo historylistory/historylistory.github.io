@@ -1,15 +1,17 @@
 categories:
-  - name: Photography
-    tag: photography
-  - name: Tech
-    tag: tech
-  - name: Travel
-    tag: travel
-  - name: Music
-    tag: music
+  - name: Category A
+    tag: category-a
+  - name: Category B
+    tag: category-b
+  - name: Category C
+    tag: category-c
+  - name: Category D
+    tag: category-d
 
 tags:
-  - featured
-  - tutorial
-  - inspiration
-  - tools
+  - red
+  - blue
+  - green
+  - yellow
+  - orange
+  - magenta
