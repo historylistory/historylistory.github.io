@@ -7,18 +7,19 @@
 
 header {
   overflow-y: auto;
-  max-height: 100vh;
+  height: 100vh;
+  box-sizing: border-box;
 }
 
 section {
   float: none;
-  margin-left: 190px;
+  margin-left: 260px;
   width: auto;
 }
 
 footer {
   float: none;
-  margin-left: 190px;
+  margin-left: 260px;
   width: auto;
   position: static;
 }
