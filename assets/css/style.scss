@@ -176,6 +176,26 @@ footer {
 /* ---- Responsive ---- */
 
 @media (max-width: 768px) {
+  header {
+    position: static;
+    float: none;
+    width: 100%;
+    height: auto;
+    overflow-y: visible;
+    padding: 20px;
+    border-radius: 0;
+  }
+
+  section {
+    margin-left: 0;
+    padding: 20px;
+  }
+
+  footer {
+    margin-left: 0;
+    padding: 0 20px;
+  }
+
   .link-grid {
     grid-template-columns: 1fr;
   }
