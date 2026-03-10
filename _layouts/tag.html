@@ -1,0 +1,33 @@
+---
+layout: default
+---
+
+<div class="category-section">
+  <h2>Posts tagged #{{ page.tag }}</h2>
+  <div class="link-grid">
+    {% for item in site.entries %}
+      {% if item.tags contains page.tag %}
+      <div class="link-card">
+        <a href="{{ item.url }}" target="_blank" rel="noopener">
+          {% if item.image %}
+          <img class="card-image" src="{{ item.image | relative_url }}" alt="{{ item.title }}">
+          {% endif %}
+          <div class="card-body">
+            <h4>{{ item.title }}</h4>
+            {% if item.description %}
+            <p>{{ item.description }}</p>
+            {% endif %}
+            {% if item.tags %}
+            <div class="card-tags">
+              {% for tag in item.tags %}
+              <span>#{{ tag }}</span>
+              {% endfor %}
+            </div>
+            {% endif %}
+          </div>
+        </a>
+      </div>
+      {% endif %}
+    {% endfor %}
+  </div>
+</div>

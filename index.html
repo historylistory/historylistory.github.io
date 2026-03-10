@@ -8,36 +8,3 @@ title: Home
   <p>A chronological record of major political events in modern American history. Browse by category or tag in the sidebar.</p>
   <!-- TODO: Replace with your own intro text -->
 </div>
-
-{% for cat in site.data.navigation.categories %}
-{% assign cat_entries = site.entries | where: "category", cat.name %}
-{% if cat_entries.size > 0 %}
-<div class="category-section" id="{{ cat.tag }}">
-  <h2>{{ cat.name }}</h2>
-  <div class="link-grid">
-    {% for item in cat_entries %}
-    <div class="link-card" {% for tag in item.tags %}data-tag="{{ tag }}" {% endfor %}>
-      <a href="{{ item.url }}" target="_blank" rel="noopener">
-        {% if item.image %}
-        <img class="card-image" src="{{ item.image | relative_url }}" alt="{{ item.title }}">
-        {% endif %}
-        <div class="card-body">
-          <h4>{{ item.title }}</h4>
-          {% if item.description %}
-          <p>{{ item.description }}</p>
-          {% endif %}
-          {% if item.tags %}
-          <div class="card-tags">
-            {% for tag in item.tags %}
-            <span id="tag-{{ tag }}">#{{ tag }}</span>
-            {% endfor %}
-          </div>
-          {% endif %}
-        </div>
-      </a>
-    </div>
-    {% endfor %}
-  </div>
-</div>
-{% endif %}
-{% endfor %}
