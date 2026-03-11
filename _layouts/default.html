@@ -42,15 +42,6 @@
               </ul>
             </details>
             {% endfor %}
-
-            {% if site.data.navigation.tags %}
-            <h3>Tags</h3>
-            <ul class="tag-list">
-              {% for tag in site.data.navigation.tags %}
-                <li><a href="{{ '/tags/' | append: tag | append: '/' | relative_url }}">#{{ tag }}</a></li>
-              {% endfor %}
-            </ul>
-            {% endif %}
           </nav>
         </header>
 

@@ -34,36 +34,5 @@ layout: default
   </nav>
   {% endif %}
 
-  {% for subsub in sub_data.subsubcategories %}
-    {% assign section_entries = site.entries | where: "subcategory", page.subcategory_slug | where: "subsubcategory", subsub.slug %}
-    {% if section_entries.size > 0 %}
-    <div class="subsection" id="{{ subsub.slug }}">
-      <h3>{{ subsub.name }}</h3>
-      <div class="link-grid">
-        {% for item in section_entries %}
-        <div class="link-card">
-          <a href="{{ item.url }}" target="_blank" rel="noopener">
-            {% if item.image %}
-            <img class="card-image" src="{{ item.image | relative_url }}" alt="{{ item.title }}">
-            {% endif %}
-            <div class="card-body">
-              <h4>{{ item.title }}</h4>
-              {% if item.description %}
-              <p>{{ item.description }}</p>
-              {% endif %}
-              {% if item.tags %}
-              <div class="card-tags">
-                {% for tag in item.tags %}
-                <span>#{{ tag }}</span>
-                {% endfor %}
-              </div>
-              {% endif %}
-            </div>
-          </a>
-        </div>
-        {% endfor %}
-      </div>
-    </div>
-    {% endif %}
-  {% endfor %}
+  {{ content }}
 </div>

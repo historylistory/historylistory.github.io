@@ -66,42 +66,6 @@ section {
     }
   }
 
-  /* Reset only tag list items — categories keep Dinky's red buttons */
-  .tag-list {
-    position: static;
-
-    li {
-      display: inline-block;
-      width: auto;
-      height: auto;
-      background: none;
-      border: none;
-      border-radius: 0;
-      box-shadow: none;
-      padding: 0;
-      margin-right: 4px;
-      margin-bottom: 4px;
-      line-height: 1.8em;
-
-      &:hover {
-        background: none;
-      }
-
-      a {
-        background: #333;
-        padding: 2px 6px;
-        border-radius: 3px;
-        font-size: 11px;
-        color: #ccc;
-        text-shadow: none;
-
-        &:hover {
-          background: #555;
-          color: #fff;
-        }
-      }
-    }
-  }
 }
 
 /* ---- Intro section ---- */

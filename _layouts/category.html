@@ -14,12 +14,10 @@ layout: default
 
   <div class="link-grid">
     {% for sub in cat_data.subcategories %}
-      {% assign sub_entries = site.entries | where: "subcategory", sub.slug %}
       <div class="link-card subcategory-card">
         <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">
           <div class="card-body">
             <h4>{{ sub.name }}</h4>
-            <p>{{ sub_entries.size }} entries</p>
             {% if sub.subsubcategories %}
             <div class="card-tags">
               {% for subsub in sub.subsubcategories %}
