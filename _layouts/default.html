@@ -21,11 +21,18 @@
 
           <nav class="sidebar-nav">
             <h3>Categories</h3>
-            <ul>
-              {% for cat in site.data.navigation.categories %}
-                <li><a href="{{ '/categories/' | append: cat.tag | append: '/' | relative_url }}">{{ cat.name }}</a></li>
-              {% endfor %}
-            </ul>
+            {% for cat in site.data.navigation.categories %}
+            <details class="sidebar-category"{% if page.category_slug == cat.slug %} open{% endif %}>
+              <summary>
+                <a href="{{ '/categories/' | append: cat.slug | append: '/' | relative_url }}">{{ cat.name }}</a>
+              </summary>
+              <ul class="sidebar-subcategories">
+                {% for sub in cat.subcategories %}
+                <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">{{ sub.name }}</a></li>
+                {% endfor %}
+              </ul>
+            </details>
+            {% endfor %}
 
             {% if site.data.navigation.tags %}
             <h3>Tags</h3>

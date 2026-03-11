@@ -194,6 +194,160 @@ section {
   }
 }
 
+/* ---- Collapsible sidebar categories (details/summary) ---- */
+
+.sidebar-category {
+  margin-bottom: 2px;
+
+  summary {
+    cursor: pointer;
+    list-style: none;
+    padding: 4px 0;
+    font-size: 13px;
+
+    &::-webkit-details-marker {
+      display: none;
+    }
+
+    &::before {
+      content: "\25B6";
+      display: inline-block;
+      width: 12px;
+      font-size: 9px;
+      transition: transform 0.15s ease;
+      margin-right: 4px;
+      color: #999;
+    }
+
+    a {
+      font-size: 13px;
+      color: #ccc;
+      text-decoration: none;
+
+      &:hover {
+        color: #fff;
+      }
+    }
+  }
+
+  &[open] > summary::before {
+    transform: rotate(90deg);
+  }
+
+  .sidebar-subcategories {
+    list-style: none;
+    padding-left: 16px;
+    margin: 0 0 4px 0;
+
+    li {
+      display: block;
+      width: auto;
+      height: auto;
+      background: none;
+      border: none;
+      border-radius: 0;
+      box-shadow: none;
+      padding: 0;
+      margin: 0;
+      line-height: 1.8em;
+
+      &:hover {
+        background: none;
+      }
+
+      a {
+        font-size: 12px;
+        color: #aaa;
+        text-decoration: none;
+        display: block;
+        padding: 1px 0;
+
+        &:hover {
+          color: #fff;
+        }
+      }
+    }
+  }
+}
+
+/* ---- Breadcrumb navigation ---- */
+
+.breadcrumb {
+  font-size: 13px;
+  margin-bottom: 12px;
+  color: #999;
+
+  a {
+    color: #369;
+    text-decoration: none;
+
+    &:hover {
+      text-decoration: underline;
+    }
+  }
+}
+
+/* ---- Sub-section table of contents ---- */
+
+.subsection-toc {
+  background: #f8f9fa;
+  border: 1px solid #e9ecef;
+  border-radius: 4px;
+  padding: 12px 16px;
+  margin-bottom: 24px;
+
+  ul {
+    list-style: none;
+    margin: 0;
+    padding: 0;
+    display: flex;
+    flex-wrap: wrap;
+    gap: 8px 16px;
+  }
+
+  li a {
+    font-size: 13px;
+    color: #369;
+    text-decoration: none;
+
+    &:hover {
+      text-decoration: underline;
+    }
+  }
+}
+
+/* ---- Sub-sections within subcategory pages ---- */
+
+.subsection {
+  margin-bottom: 32px;
+
+  h3 {
+    border-bottom: 1px solid #ddd;
+    padding-bottom: 4px;
+    margin-bottom: 12px;
+  }
+}
+
+/* ---- Subcategory cards on category pages ---- */
+
+.subcategory-card .card-body {
+  h4 {
+    margin-bottom: 4px;
+  }
+
+  p {
+    font-size: 12px;
+    color: #888;
+    margin-bottom: 6px;
+  }
+
+  .card-tags span {
+    font-size: 10px;
+    background: #f0f0f0;
+    color: #666;
+  }
+}
+
 /* ---- Responsive: single-column cards on small screens ---- */
 
 @media screen and (max-width: 960px) {

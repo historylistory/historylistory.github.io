@@ -1,0 +1,69 @@
+---
+layout: default
+---
+
+{% assign cat_data = nil %}
+{% assign sub_data = nil %}
+{% for cat in site.data.navigation.categories %}
+  {% if cat.slug == page.category_slug %}
+    {% assign cat_data = cat %}
+    {% for sub in cat.subcategories %}
+      {% if sub.slug == page.subcategory_slug %}
+        {% assign sub_data = sub %}
+      {% endif %}
+    {% endfor %}
+  {% endif %}
+{% endfor %}
+
+<div class="category-section">
+  <nav class="breadcrumb">
+    <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | relative_url }}">{{ cat_data.name }}</a>
+    &rsaquo;
+    <span>{{ sub_data.name }}</span>
+  </nav>
+
+  <h2>{{ page.title }}</h2>
+
+  {% if sub_data.subsubcategories.size > 1 %}
+  <nav class="subsection-toc">
+    <ul>
+      {% for subsub in sub_data.subsubcategories %}
+      <li><a href="#{{ subsub.slug }}">{{ subsub.name }}</a></li>
+      {% endfor %}
+    </ul>
+  </nav>
+  {% endif %}
+
+  {% for subsub in sub_data.subsubcategories %}
+    {% assign section_entries = site.entries | where: "subcategory", page.subcategory_slug | where: "subsubcategory", subsub.slug %}
+    {% if section_entries.size > 0 %}
+    <div class="subsection" id="{{ subsub.slug }}">
+      <h3>{{ subsub.name }}</h3>
+      <div class="link-grid">
+        {% for item in section_entries %}
+        <div class="link-card">
+          <a href="{{ item.url }}" target="_blank" rel="noopener">
+            {% if item.image %}
+            <img class="card-image" src="{{ item.image | relative_url }}" alt="{{ item.title }}">
+            {% endif %}
+            <div class="card-body">
+              <h4>{{ item.title }}</h4>
+              {% if item.description %}
+              <p>{{ item.description }}</p>
+              {% endif %}
+              {% if item.tags %}
+              <div class="card-tags">
+                {% for tag in item.tags %}
+                <span>#{{ tag }}</span>
+                {% endfor %}
+              </div>
+              {% endif %}
+            </div>
+          </a>
+        </div>
+        {% endfor %}
+      </div>
+    </div>
+    {% endif %}
+  {% endfor %}
+</div>
