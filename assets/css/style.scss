@@ -255,12 +255,31 @@ section {
         background: none;
       }
 
-      a {
+      > a {
         font-size: 12px;
         color: #aaa;
         text-decoration: none;
         display: block;
         padding: 1px 0;
+
+        &:hover {
+          color: #fff;
+        }
+      }
+    }
+  }
+
+  .sidebar-subsubcategories {
+    list-style: none;
+    padding-left: 12px;
+    margin: 0;
+
+    li {
+      line-height: 1.6em;
+
+      a {
+        font-size: 11px;
+        color: #777;
 
         &:hover {
           color: #fff;

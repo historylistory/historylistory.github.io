@@ -28,7 +28,16 @@
               </summary>
               <ul class="sidebar-subcategories">
                 {% for sub in cat.subcategories %}
-                <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">{{ sub.name }}</a></li>
+                <li>
+                  <a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">{{ sub.name }}</a>
+                  {% if sub.subsubcategories %}
+                  <ul class="sidebar-subsubcategories">
+                    {% for subsub in sub.subsubcategories %}
+                    <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: subsub.slug | relative_url }}">{{ subsub.name }}</a></li>
+                    {% endfor %}
+                  </ul>
+                  {% endif %}
+                </li>
                 {% endfor %}
               </ul>
             </details>
