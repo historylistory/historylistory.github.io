@@ -5,3 +5,6 @@ description: "This is a sample post about something interesting."
 category: "Category A"
 tags: [red, blue]
 ---
+
+#hi
+hi!
