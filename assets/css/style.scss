@@ -331,10 +331,63 @@ section {
   }
 }
 
-/* ---- Responsive: single-column cards on small screens ---- */
+/* ---- Mobile nav toggle ---- */
+
+.mobile-nav-toggle {
+  /* On desktop: always open, hide the toggle button */
+  > summary.mobile-nav-btn {
+    display: none;
+  }
+}
+
+/* ---- Responsive: tablet & mobile fixes ---- */
 
 @media screen and (max-width: 960px) {
+  /* Reset Dinky's broken absolute positioning on header ul */
+  header {
+    padding-right: 20px !important;
+  }
+
+  header ul {
+    position: static !important;
+    right: auto !important;
+    top: auto !important;
+  }
+
+  /* Show the mobile nav toggle button */
+  .mobile-nav-toggle {
+    > summary.mobile-nav-btn {
+      display: block;
+      cursor: pointer;
+      list-style: none;
+      color: #ccc;
+      font-size: 16px;
+      padding: 8px 0;
+      margin-top: 12px;
+      border-top: 1px solid #333;
+
+      &::-webkit-details-marker {
+        display: none;
+      }
+
+      &:hover {
+        color: #fff;
+      }
+    }
+
+    /* When closed, hide the nav */
+    &:not([open]) > .sidebar-nav {
+      display: none;
+    }
+  }
+
+  /* Keep cards single-column */
   .link-grid {
     grid-template-columns: 1fr;
+  }
+
+  /* Tighten up section spacing on mobile */
+  section {
+    padding: 16px 20px !important;
   }
 }
