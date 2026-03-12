@@ -234,9 +234,47 @@ section {
     }
   }
 
+  .sidebar-subcategory {
+    margin-bottom: 0;
+
+    summary {
+      cursor: pointer;
+      list-style: none;
+      font-size: 12px;
+
+      &::-webkit-details-marker {
+        display: none;
+      }
+
+      &::before {
+        content: "\25B6";
+        display: inline-block;
+        width: 10px;
+        font-size: 7px;
+        transition: transform 0.15s ease;
+        margin-right: 3px;
+        color: #666;
+      }
+
+      a {
+        font-size: 12px;
+        color: #aaa;
+        text-decoration: none;
+
+        &:hover {
+          color: #fff;
+        }
+      }
+    }
+
+    &[open] > summary::before {
+      transform: rotate(90deg);
+    }
+  }
+
   .sidebar-subsubcategories {
     list-style: none;
-    padding-left: 12px;
+    padding-left: 16px;
     margin: 0;
 
     li {
