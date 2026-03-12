@@ -17,3 +17,7 @@ The Judiciary Act of 1801, passed in the final weeks of Adams's presidency, crea
 ### Foreign Policy
 
 The XYZ Affair of 1797–1798 brought the United States to the brink of war with France after French agents demanded bribes from American diplomats. The resulting Quasi-War saw naval skirmishes in the Caribbean. Adams controversially chose diplomacy over full-scale war, sending a peace commission that negotiated the Convention of 1800. He also signed the Alien and Sedition Acts of 1798, which restricted immigration and criminalized criticism of the government.
+
+### Poop
+
+There was much poop in the world.
