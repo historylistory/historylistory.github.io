@@ -31,14 +31,25 @@
                 <ul class="sidebar-subcategories">
                   {% for sub in cat.subcategories %}
                   <li>
-                    {% if sub.subsubcategories %}
+                    {% assign sub_page = nil %}
+                    {% for p in site.pages %}
+                      {% if p.subcategory_slug == sub.slug and p.category_slug == cat.slug %}
+                        {% assign sub_page = p %}
+                      {% endif %}
+                    {% endfor %}
+                    {% assign h3_parts = sub_page.content | split: '<h3 id="' %}
+                    {% if h3_parts.size > 1 %}
                     <details class="sidebar-subcategory"{% if page.subcategory_slug == sub.slug and page.category_slug == cat.slug %} open{% endif %}>
                       <summary>
                         <a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">{{ sub.name }}</a>
                       </summary>
                       <ul class="sidebar-subsubcategories">
-                        {% for subsub in sub.subsubcategories %}
-                        <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: subsub.slug | relative_url }}">{{ subsub.name }}</a></li>
+                        {% for part in h3_parts %}
+                          {% unless forloop.first %}
+                            {% assign h3_id = part | split: '"' | first %}
+                            {% assign h3_name = part | split: '">' | last | split: '</h3>' | first %}
+                            <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: h3_id | relative_url }}">{{ h3_name }}</a></li>
+                          {% endunless %}
                         {% endfor %}
                       </ul>
                     </details>

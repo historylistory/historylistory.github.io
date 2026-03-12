@@ -14,14 +14,24 @@ layout: default
 
   <div class="link-grid">
     {% for sub in cat_data.subcategories %}
+      {% assign sub_page = nil %}
+      {% for p in site.pages %}
+        {% if p.subcategory_slug == sub.slug and p.category_slug == cat_data.slug %}
+          {% assign sub_page = p %}
+        {% endif %}
+      {% endfor %}
       <div class="link-card subcategory-card">
         <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">
           <div class="card-body">
             <h4>{{ sub.name }}</h4>
-            {% if sub.subsubcategories %}
+            {% assign h3_parts = sub_page.content | split: '<h3 id="' %}
+            {% if h3_parts.size > 1 %}
             <div class="card-tags">
-              {% for subsub in sub.subsubcategories %}
-              <span>{{ subsub.name }}</span>
+              {% for part in h3_parts %}
+                {% unless forloop.first %}
+                  {% assign h3_name = part | split: '">' | last | split: '</h3>' | first %}
+                  <span>{{ h3_name }}</span>
+                {% endunless %}
               {% endfor %}
             </div>
             {% endif %}

@@ -4,70 +4,23 @@ categories:
     subcategories:
       - name: Washington Administration
         slug: washington-administration
-        subsubcategories:
-          - name: Cabinet
-            slug: cabinet
-          - name: Foreign Policy
-            slug: foreign-policy
-          - name: Domestic Policy
-            slug: domestic-policy
       - name: Adams Administration
         slug: adams-administration
-        subsubcategories:
-          - name: Cabinet
-            slug: cabinet
-          - name: Judiciary
-            slug: judiciary
-          - name: Foreign Policy
-            slug: foreign-policy
-          - name: Poop
-            slug: poop           
       - name: Jefferson Administration
         slug: jefferson-administration
-        subsubcategories:
-          - name: Louisiana Purchase
-            slug: louisiana-purchase
-          - name: Domestic Policy
-            slug: domestic-policy
-          - name: Foreign Policy
-            slug: foreign-policy
 
   - name: Wars & Conflicts
     slug: wars-and-conflicts
     subcategories:
       - name: Revolutionary War
         slug: revolutionary-war
-        subsubcategories:
-          - name: Key Battles
-            slug: key-battles
-          - name: Political Impact
-            slug: political-impact
-          - name: International Alliances
-            slug: international-alliances
       - name: Civil War
         slug: civil-war
-        subsubcategories:
-          - name: Key Battles
-            slug: key-battles
-          - name: Political Leaders
-            slug: political-leaders
-          - name: Reconstruction
-            slug: reconstruction
 
   - name: Legislation
     slug: legislation
     subcategories:
       - name: Constitutional Amendments
         slug: constitutional-amendments
-        subsubcategories:
-          - name: Bill of Rights
-            slug: bill-of-rights
-          - name: Reconstruction Amendments
-            slug: reconstruction-amendments
       - name: Major Acts
         slug: major-acts
-        subsubcategories:
-          - name: Economic Policy
-            slug: economic-policy
-          - name: Civil Rights
-            slug: civil-rights

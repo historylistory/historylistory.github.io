@@ -3,15 +3,9 @@ layout: default
 ---
 
 {% assign cat_data = nil %}
-{% assign sub_data = nil %}
 {% for cat in site.data.navigation.categories %}
   {% if cat.slug == page.category_slug %}
     {% assign cat_data = cat %}
-    {% for sub in cat.subcategories %}
-      {% if sub.slug == page.subcategory_slug %}
-        {% assign sub_data = sub %}
-      {% endif %}
-    {% endfor %}
   {% endif %}
 {% endfor %}
 
@@ -19,16 +13,21 @@ layout: default
   <nav class="breadcrumb">
     <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | relative_url }}">{{ cat_data.name }}</a>
     &rsaquo;
-    <span>{{ sub_data.name }}</span>
+    <span>{{ page.title }}</span>
   </nav>
 
   <h2>{{ page.title }}</h2>
 
-  {% if sub_data.subsubcategories.size > 1 %}
+  {% assign h3_parts = content | split: '<h3 id="' %}
+  {% if h3_parts.size > 2 %}
   <nav class="subsection-toc">
     <ul>
-      {% for subsub in sub_data.subsubcategories %}
-      <li><a href="#{{ subsub.slug }}">{{ subsub.name }}</a></li>
+      {% for part in h3_parts %}
+        {% unless forloop.first %}
+          {% assign h3_id = part | split: '"' | first %}
+          {% assign h3_name = part | split: '">' | last | split: '</h3>' | first %}
+          <li><a href="#{{ h3_id }}">{{ h3_name }}</a></li>
+        {% endunless %}
       {% endfor %}
     </ul>
   </nav>
