@@ -20,6 +20,8 @@ categories:
             slug: judiciary
           - name: Foreign Policy
             slug: foreign-policy
+          - name: Poop
+            slug: poop           
       - name: Jefferson Administration
         slug: jefferson-administration
         subsubcategories:
