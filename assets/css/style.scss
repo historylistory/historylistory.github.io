@@ -45,9 +45,9 @@ section {
     position: static;
   }
 
-  /* On desktop, always show the nav regardless of details open/closed state */
-  .mobile-nav-toggle .sidebar-nav {
-    display: block !important;
+  /* On desktop, make the details wrapper transparent so nav always shows */
+  .mobile-nav-toggle {
+    display: contents;
   }
 }
 
