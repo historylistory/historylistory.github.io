@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Farm Food Safety
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: farm-food-safety
-permalink: /categories/devilsinthedetails/farm-food-safety/
+permalink: /categories/agriculture/farm-food-safety/
 ---
 
 ### 2025 April

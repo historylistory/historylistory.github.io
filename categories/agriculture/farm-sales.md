@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Farm Sales
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: farm-sales
-permalink: /categories/devilsinthedetails/farm-sales/
+permalink: /categories/agriculture/farm-sales/
 ---
 
 ### 2025 September

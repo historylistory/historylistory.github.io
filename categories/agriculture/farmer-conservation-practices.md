@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Farmer Conservation Practices
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: farmer-conservation-practices
-permalink: /categories/devilsinthedetails/farmer-conservation-practices/
+permalink: /categories/agriculture/farmer-conservation-practices/
 ---
 
 ### 2018

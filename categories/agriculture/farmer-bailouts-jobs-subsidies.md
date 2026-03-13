@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Farmer Bailouts, Jobs & Subsidies
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: farmer-bailouts-jobs-subsidies
-permalink: /categories/devilsinthedetails/farmer-bailouts-jobs-subsidies/
+permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
 ---
 
 ### 2020

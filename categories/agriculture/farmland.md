@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Farmland
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: farmland
-permalink: /categories/devilsinthedetails/farmland/
+permalink: /categories/agriculture/farmland/
 ---
 
 ### 2021

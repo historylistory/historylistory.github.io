@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Department of Agriculture v. SNAP
-category_slug: devilsinthedetails
+category_slug: agriculture
 subcategory_slug: department-of-agriculture-v-snap
-permalink: /categories/devilsinthedetails/department-of-agriculture-v-snap/
+permalink: /categories/agriculture/department-of-agriculture-v-snap/
 ---
 
 ### 2025 November
