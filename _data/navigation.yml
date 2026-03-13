@@ -1,4 +1,22 @@
 categories:
+  - name: Agriculture
+    slug: agriculture
+    subcategories:
+      - name: Farmer Conservation Practices
+        slug: farmer-conservation-practices
+      - name: Farmer Bailouts, Jobs & Subsidies
+        slug: farmer-bailouts-jobs-subsidies
+      - name: Farm Sales
+        slug: farm-sales
+      - name: Farm Labor (in progress)
+        slug: farm-labor-in-progress
+      - name: Farm Food Safety
+        slug: farm-food-safety
+      - name: Farmland
+        slug: farmland
+      - name: Department of Agriculture v. SNAP
+        slug: department-of-agriculture-v-snap
+
   - name: Presidents
     slug: presidents
     subcategories:
