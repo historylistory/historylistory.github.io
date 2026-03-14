@@ -129,6 +129,11 @@ section {
   }
 }
 
+/* Offset anchor targets so they clear the sticky header */
+.category-section h3[id] {
+  scroll-margin-top: 160px;
+}
+
 /* ---- Link cards ---- */
 
 .link-grid {
