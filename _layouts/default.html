@@ -45,7 +45,8 @@
                         {% for part in h3_parts %}
                           {% unless forloop.first %}
                             {% assign h3_id = part | split: '"' | first %}
-                            {% assign h3_name = part | split: '">' | last | split: '</h3>' | first %}
+                            {% assign h3_after_id = part | split: '">' %}
+                            {% assign h3_name = h3_after_id[1] | split: '</h3>' | first %}
                             <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: h3_id | relative_url }}">{{ h3_name }}</a></li>
                           {% endunless %}
                         {% endfor %}
