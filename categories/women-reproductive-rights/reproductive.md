@@ -68,7 +68,7 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://19thnews.org/2022/05/supreme-court-justice-samuel-alito-abortion-economy/](https://19thnews.org/2022/05/supreme-court-justice-samuel-alito-abortion-economy/)
 
-[https://www.youtube.com/watch?v=kQbpxvpaK_s&list=WL&index=8](https://www.youtube.com/watch?v=kQbpxvpaK_s&list=WL&index=8)
+{% include youtubePlayer.html id="kQbpxvpaK_s" %}
 
 2022-06-24 After the Trump administration overturned Roe v. Wade, the ability to ban contraception was returned to the States. This left several health organizations afraid to offer contraception for fear of breaking the law. One Attorney General nominee even compared birth control to fentanyl. 
 
@@ -168,7 +168,7 @@ The ban was supported by **ADF International legal communications director Elyss
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
-[https://www.youtube.com/watch?v=BMTSGFzr4OE](https://www.youtube.com/watch?v=BMTSGFzr4OE)
+{% include youtubePlayer.html id="BMTSGFzr4OE" %}
 
 2025-09-10 In effort **to ensure safety for both patients and providers**, California considered a law to omit names from abortion pill bottles.
 

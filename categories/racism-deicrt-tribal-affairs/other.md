@@ -28,7 +28,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 2024-06-22 During a Faith & Freedom conference in Washington D.C., Trump floated the idea of a "**migrant UFC**" fight.
 
-[https://www.youtube.com/watch?v=bZvTStL5GB8](https://www.youtube.com/watch?v=bZvTStL5GB8)
+{% include youtubePlayer.html id="bZvTStL5GB8" %}
 
 ### 2025 February
 

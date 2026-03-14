@@ -38,7 +38,7 @@ permalink: /categories/conspiracies/dei/
 
 2025-01-30 During a press conference, Trump blamed DEI, Biden and Pete Buttigieg for the Potomac place crash. During that same press conference Trump listed off disabilities, claiming those disabilities were threatening safe air operations as though the FAA did not properly vet its employee pool. After his address he signed an executive order demanding an end to DEI hiring practices.
 
-[https://www.youtube.com/watch?v=yHcezmGzi_o](https://www.youtube.com/watch?v=yHcezmGzi_o)
+{% include youtubePlayer.html id="yHcezmGzi_o" %}
 
 ### 2025 February
 

@@ -48,7 +48,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 2025-05-01 Stephen Miller claimed that Biden imported a "terrorist army", that the media covers up rape-torture-and-murder, and blamed due process for the killing of a woman.
 
-[https://www.youtube.com/watch?v=4oxDvepj7H0](https://www.youtube.com/watch?v=4oxDvepj7H0)
+{% include youtubePlayer.html id="4oxDvepj7H0" %}
 
 ### 2025 September
 

@@ -10,7 +10,7 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 1982-01-01 Leonard Leo, a **financial backer of Project 2025**, helped found the Federalist Society to select and groom law students and promote conservative values. For more information please review the topics below.   
 
-[https://www.youtube.com/watch?v=n6Y51b4XqwQ&list=WL&index=7](https://www.youtube.com/watch?v=n6Y51b4XqwQ&list=WL&index=7)
+{% include youtubePlayer.html id="n6Y51b4XqwQ" %}
 
 **Federalist Society**
 
@@ -68,7 +68,7 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 [https://en.wikipedia.org/wiki/Moral_Majority#:~:text=Falwell%20offered%20an%20optimistic%20public,now%20in%20for%20the%20duration.%22](https://en.wikipedia.org/wiki/Moral_Majority)
 
-[https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10](https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10)
+{% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
 ### 1998
 
@@ -160,9 +160,10 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 ### 2025 August
 
-2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:[https://www.youtube.com/watch?v=5qxWKVIflyo&list=WL&index=24&t=550s](https://www.youtube.com/watch?v=5qxWKVIflyo&list=WL&index=24&t=550s)
+2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:
+{% include youtubePlayer.html id="5qxWKVIflyo" %}
 
-[https://www.youtube.com/watch?v=kSAGUjY2HIs](https://www.youtube.com/watch?v=kSAGUjY2HIs)
+{% include youtubePlayer.html id="kSAGUjY2HIs" %}
 
 [https://www.nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html](https://www.nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html)
 

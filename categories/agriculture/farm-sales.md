@@ -26,7 +26,7 @@ permalink: /categories/agriculture/farm-sales/
 
 2025-10-16 **Recommended video:**Rob Sand was interviewed on The Takeout with Major Garett and discussed trade, economics, and agriculture.
 
-[https://www.youtube.com/watch?v=oTeJduk-zeM&list=WL&index=8&t=26s](https://www.youtube.com/watch?v=oTeJduk-zeM&list=WL&index=8&t=26s)
+{% include youtubePlayer.html id="oTeJduk-zeM" %}
 
 2025-10-24 Trump announced plans to buy beef from Argentina. For context, Trump had just bailed Argentina out with $20 BILLION in American taxpayer funds a week prior   (unrelated note: American meat processing plants also profit from things like byproducts, leather, and glue).
 

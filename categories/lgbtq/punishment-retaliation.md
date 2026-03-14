@@ -18,7 +18,7 @@ permalink: /categories/lgbtq/punishment-retaliation/
 
 2025-11-27 An Oklahoma State University student wrote an opinion-based essay assignment about gender, quoting her religious beliefs. When her professor graded her paper with an F for not citing factual sources or meeting the criteria for the assignment, the student took her dispute to Turning Point USA. From there, the professor was placed on administrative leave.
 
-[https://www.youtube.com/watch?v=nEbLHPpgq3c&list=WL&index=5](https://www.youtube.com/watch?v=nEbLHPpgq3c&list=WL&index=5)
+{% include youtubePlayer.html id="nEbLHPpgq3c" %}
 
 [https://www.oklahoman.com/story/news/politics/2025/12/04/samantha-fulnecky-ou-essay-graduate-students-want-apology-protection-teacher/87605225007/](https://www.oklahoman.com/story/news/politics/2025/12/04/samantha-fulnecky-ou-essay-graduate-students-want-apology-protection-teacher/87605225007/)
 

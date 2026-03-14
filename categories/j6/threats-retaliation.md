@@ -18,13 +18,13 @@ permalink: /categories/j6/threats-retaliation/
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010](https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010)
 
-[https://www.youtube.com/watch?v=pUlhwr_1BFw](https://www.youtube.com/watch?v=pUlhwr_1BFw)
+{% include youtubePlayer.html id="pUlhwr_1BFw" %}
 
  
 
 2025-11-09 Trump threatened to sue the BBC for $1B over an edit of his January 6th remarks, accusing the BBC of giving the wrong impression that Trump called for violence. Both Director General Tim Davie and news CEO Deborah Turness quit, which Trump posted on social media about later.
 
-[https://www.youtube.com/watch?v=UX_dX61arPY&list=WL&index=7](https://www.youtube.com/watch?v=UX_dX61arPY&list=WL&index=7)
+{% include youtubePlayer.html id="UX_dX61arPY" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115521695808009888](https://truthsocial.com/@realDonaldTrump/posts/115521695808009888)
 

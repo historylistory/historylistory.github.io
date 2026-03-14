@@ -18,7 +18,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.lcabulldogs.com/](https://www.lcabulldogs.com/)
 
-[https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10](https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10)
+{% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
 ### 2021 June
 
@@ -38,7 +38,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2021-09-17 During an interview on Jack Murphy Live, JD Vance shared a number of loaded opinions with listeners "we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws…" and continued to say very few leaders are willing to teach "true" civics and American history. He attacked CRT, ranted that “wokeism” was assimilation, and tied woke in with his own experience of being "assimilated" in higher education. He later called on conservatism as a counter-revolutionary force.
 
-[https://www.youtube.com/watch?v=PMq1ZEcyztY](https://www.youtube.com/watch?v=PMq1ZEcyztY)
+{% include youtubePlayer.html id="PMq1ZEcyztY" %}
 
 ### 2021 October
 
@@ -48,7 +48,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.pbs.org/newshour/education/so-much-buzz-but-what-is-critical-race-theory](https://www.pbs.org/newshour/education/so-much-buzz-but-what-is-critical-race-theory)
 
-[https://www.youtube.com/watch?v=_gdxrkwpPKc](https://www.youtube.com/watch?v=_gdxrkwpPKc)
+{% include youtubePlayer.html id="_gdxrkwpPKc" %}
 
 [https://slate.com/news-and-politics/2008/08/racism-is-the-only-reason-obama-might-lose.html](https://slate.com/news-and-politics/2008/08/racism-is-the-only-reason-obama-might-lose.html)
 
@@ -90,7 +90,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2025-01-30 During a press conference, **Trump blamed DEI, Biden and Pete Buttigieg for the Potomac place crash**. During that same press conference Trump listed off disabilities, claiming those disabilities were threatening safe air operations as though the FAA did not properly vet its employee pool. After his address he signed an executive order **demanding an end to DEI hiring practices**.
 
-[https://www.youtube.com/watch?v=yHcezmGzi_o](https://www.youtube.com/watch?v=yHcezmGzi_o)
+{% include youtubePlayer.html id="yHcezmGzi_o" %}
 
 ### 2025 February
 
@@ -146,19 +146,19 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2025-08-19 Trump sent out a social media post calling museums in Washington "WOKE", writing, "Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was". In his post, Trump instructed his attorneys to "go through the Museums and start the exact same process that has been done with Colleges and Universities...". He also tweeted "We have the HOTTEST Country in the World, and we want people to talk about it, including in our Museums".
 
-[https://www.youtube.com/watch?v=tJSbGOyYlUY&list=WL&index=18](https://www.youtube.com/watch?v=tJSbGOyYlUY&list=WL&index=18)
+{% include youtubePlayer.html id="tJSbGOyYlUY" %}
 
 ### 2025 September
 
 2025-09-17 The Trump administration ordered the National Park Service to remove or censor exhibits at Harpers Ferry West Virginia, including the Civil War Museum and John Brown's Fort (a key site in an 1859 abolitionist raid).
 
-[https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2](https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2)
+{% include youtubePlayer.html id="4ywN-W-EWHQ" %}
 
 ### 2025 November
 
 2025-11-12 Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit. In that speech, he compared the current moment in history as a “1939 type moment or hopefully a 1981 moment” (context: 1939 is the year Adolf Hitler began his reign of terror). He talked about readiness, stating that means, “no more social justice, no more political correctness, no more toxic ideological garbage that infected the department”. He further stated, “No more identity months, no more DEI offices, no more dudes in dresses”. He went on to say “no more climate change worship, no more division, no more delusions, gender delusions or quotas, no more distraction. As the chairman of the joint chiefs puts it: Pete you’re clearing out the debris.
 
-[https://www.youtube.com/watch?v=s2undI6MmQs&list=WL&index=9&t=15s](https://www.youtube.com/watch?v=s2undI6MmQs&list=WL&index=9&t=15s)
+{% include youtubePlayer.html id="s2undI6MmQs" %}
 
 [https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/](https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/)
 
@@ -170,9 +170,9 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2025-12-03 A Colorado Springs teacher was indefinitely suspended after posting her school district’s changes in curriculum that will include censorship of elements of science and elements of anti-slavery activism such as the efforts of Franklin Douglas.
 
-[https://www.youtube.com/watch?v=DA8QoAJhOdM&list=WL&index=13](https://www.youtube.com/watch?v=DA8QoAJhOdM&list=WL&index=13)
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
 
-[https://www.youtube.com/watch?v=DA8QoAJhOdM](https://www.youtube.com/watch?v=DA8QoAJhOdM)
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
 
 [https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
 

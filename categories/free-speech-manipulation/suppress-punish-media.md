@@ -90,7 +90,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075](https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075)
 
-[https://www.youtube.com/watch?v=t8mtmQc7vuM](https://www.youtube.com/watch?v=t8mtmQc7vuM)
+{% include youtubePlayer.html id="t8mtmQc7vuM" %}
 
 [https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/](https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/)
 
@@ -112,7 +112,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 2025-09-17 During an interview on The Benny Johnson podcast, Brendan Carr stated, "When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, **we can do this the easy way or the hard way**. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there's gonna be additional war for the FCC ahead".
 
-[https://www.youtube.com/watch?v=ved5hVb4yfM](https://www.youtube.com/watch?v=ved5hVb4yfM)
+{% include youtubePlayer.html id="ved5hVb4yfM" %}
 
 2025-09-17 Sinclair Broadcasting issued a press release on their Investor Relations page demanding that FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
 
@@ -124,7 +124,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 2025-09-19 During his podcast "The Verdict with Ted Cruz", Cruz stated "If the government gets in the business of saying…'we're going to ban you from the airwaves if you don't say what we like,' that will end up bad for conservatives".
 
-[https://www.youtube.com/watch?v=gQD9P6Wa7W0](https://www.youtube.com/watch?v=gQD9P6Wa7W0)
+{% include youtubePlayer.html id="gQD9P6Wa7W0" %}
 
 [https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/](https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/)
 
@@ -156,7 +156,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 2025-09-24 During a press conference in Concord NC, JD Vance responded to a free speech question about Kimmel, "I'm pretty sure that Jimmy Kimmel was back on the air last night, and to the extent that he's not back on the air it's because he's not funny and has terrible ratings. This is not a federal government problem...", proceeded downgraded the FCC post as a joke, and asserts he “just found out yesterday” the Biden administration was censoring media of its opponents. It is unclear if he was talking about the 2024 attempts to eliminate dangerous misinformation.
 
-[https://www.youtube.com/watch?v=mMWAl2pboY8](https://www.youtube.com/watch?v=mMWAl2pboY8)
+{% include youtubePlayer.html id="mMWAl2pboY8" %}
 
 ### 2025 October
 
@@ -176,7 +176,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story](https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story)
 
-[https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8](https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8)
+{% include youtubePlayer.html id="0MDLruLgsQI" %}
 
 2025-12-25 Trump posted over 100 times during Christmas, including posts calling to remove licenses from any news station that negatively reported about his presidency.
 
@@ -200,7 +200,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/](https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/)
 
-[https://www.youtube.com/watch?v=hZtNjijS5bo](https://www.youtube.com/watch?v=hZtNjijS5bo)
+{% include youtubePlayer.html id="hZtNjijS5bo" %}
 
 2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
 

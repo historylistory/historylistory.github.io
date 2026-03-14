@@ -54,13 +54,13 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 2025-08-07 CNN Pamela Brown interviewed Doug Wilson with Christ Church. The interview is very enlightening because he made several misogynist remarks about women including but not limited to “**women are people other people come out of**” and that having babies doesn’t take skill.  Summed up, **he claimed that women should not vote, and they should not hold leadership positions** because the bible says they shouldn’t. The interview featured two other church leaders with the same set of beliefs. For context, Doug Wilson erected a church in Washington D.C., helped co-author Project 2025, and is followed by Pete Hegseth.
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 [https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho](https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho)
 
 [https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid](https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid)
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 [https://en.wikipedia.org/wiki/Project_2025](https://en.wikipedia.org/wiki/Project_2025)
 
@@ -96,13 +96,13 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 [https://www.usatoday.com/story/news/politics/2025/11/16/young-women-leave-us-gallup-poll-trump/87306513007/](https://www.usatoday.com/story/news/politics/2025/11/16/young-women-leave-us-gallup-poll-trump/87306513007/)
 
-[https://www.youtube.com/watch?v=0pkhQx5OK9o&list=WL&index=2](https://www.youtube.com/watch?v=0pkhQx5OK9o&list=WL&index=2)
+{% include youtubePlayer.html id="0pkhQx5OK9o" %}
 
 ### 2025 December
 
 2025-12-17 During a confirmation hearing for judicial nominees, Senators grilled Justin Olson about his past sermons where he allegedly stated that disabled people should not marry and that wives should be subject to their husbands. He was asked, “You said that God – quote – has called wives to be subject to their husbands – end quote – and to – quote – serve the good of your husband and support his calling – close quote”. To which he responded, “I think I recall saying something along those lines”. When asked what he meant by that, he replied, “So in Christian marriage as explained by the apostles, I was describing our church’s understanding of what Christian marriage ought to look like”. 
 
-[https://www.youtube.com/watch?v=f1PEAlM0bLw&list=WL&index=9](https://www.youtube.com/watch?v=f1PEAlM0bLw&list=WL&index=9)
+{% include youtubePlayer.html id="f1PEAlM0bLw" %}
 
 [https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/](https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/)
 
@@ -144,4 +144,4 @@ Also out of left field, one conservative commentator praised the win as a show o
 
 [https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026#:~:text=Jack%20Hughes%20is%20the%20poster,at%20Santaguilia%20Arena%20on%20Sunday](https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026).
 
-[https://www.youtube.com/watch?v=fOdTHhQ1xY0](https://www.youtube.com/watch?v=fOdTHhQ1xY0)
+{% include youtubePlayer.html id="fOdTHhQ1xY0" %}

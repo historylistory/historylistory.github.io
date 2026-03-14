@@ -20,9 +20,9 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 1992-08-17 During an interview on Face the Nation, Pat Buchanan was asked about a racist memo against Jewish, Black, and Gay Americans. He replied he wrote “tough” memos and would not “apologize for any of them.
 
-[https://www.youtube.com/watch?v=y1rQKnTWEDQ](https://www.youtube.com/watch?v=y1rQKnTWEDQ)
+{% include youtubePlayer.html id="y1rQKnTWEDQ" %}
 
-[https://www.youtube.com/watch?v=qBm7SZ_WjYY](https://www.youtube.com/watch?v=qBm7SZ_WjYY)
+{% include youtubePlayer.html id="qBm7SZ_WjYY" %}
 
 ### 2002
 
@@ -88,7 +88,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 2018-10-23 Fox news host Megyn Kelly had to publicly apologize for insensitive comments she made about black face.
 
-[https://www.youtube.com/watch?v=gztuD1p_BKo](https://www.youtube.com/watch?v=gztuD1p_BKo)
+{% include youtubePlayer.html id="gztuD1p_BKo" %}
 
 [https://www.cbsnews.com/news/megyn-kelly-blackface-backlash-nbc-source-disputes-reports/](https://www.cbsnews.com/news/megyn-kelly-blackface-backlash-nbc-source-disputes-reports/)
 
@@ -114,13 +114,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.bbc.com/news/world-asia-china-57268111](https://www.bbc.com/news/world-asia-china-57268111)
 
-[https://www.youtube.com/watch?v=dl78PQGJpiI](https://www.youtube.com/watch?v=dl78PQGJpiI)
+{% include youtubePlayer.html id="dl78PQGJpiI" %}
 
 ### 2021
 
 2021-05-20 On multiple occasions Trump referred to the COVID virus as "Chinese virus", "China virus", "Wuhan virus" and "Kung Flu".
 
-[https://www.youtube.com/watch?v=dl78PQGJpiI](https://www.youtube.com/watch?v=dl78PQGJpiI)
+{% include youtubePlayer.html id="dl78PQGJpiI" %}
 
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
@@ -134,7 +134,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
 
-[https://www.youtube.com/watch?v=KFPzD50ErFU](https://www.youtube.com/watch?v=KFPzD50ErFU)
+{% include youtubePlayer.html id="KFPzD50ErFU" %}
 
 2023-12-23 Charlie Kirk **called Martin Luther King "awful"**and**"not a good person”**and stated, "**We made a huge mistake when we passed the Civil Rights Act in the 1960s**".
 
@@ -144,13 +144,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 2024-04-12 Right wing podcaster and Christian Nationalist Pastor Shane Vaughn said that Justice Jackson "**talks monkey talk**" and "**belongs in the jungle**".
 
-[https://www.youtube.com/watch?v=uRIAvADv2AM](https://www.youtube.com/watch?v=uRIAvADv2AM)
+{% include youtubePlayer.html id="uRIAvADv2AM" %}
 
 ### 2024 June
 
 2024-06-14 Republican Anthony Hudson posted a deepfake of MLK Jr. endorsing him.
 
-[https://www.youtube.com/watch?v=8gXU3sXRzeA](https://www.youtube.com/watch?v=8gXU3sXRzeA)
+{% include youtubePlayer.html id="8gXU3sXRzeA" %}
 
 [https://www.fox2detroit.com/news/michigan-gop-congressional-candidate-posts-deepfake-mlk-jr-endorsing-him](https://www.fox2detroit.com/news/michigan-gop-congressional-candidate-posts-deepfake-mlk-jr-endorsing-him)
 
@@ -158,7 +158,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 2024-07-31 During a National Association of Black Journalists interview, Trump was asked about his racist commentary and attacks on minorities. News outlets also reported that The National Association of Black Journalists interview was delayed because Trump had concerns about fact-checking, which he later tweeted out blaming the delay on equipment.
 
-[https://www.youtube.com/watch?v=KLtq9PFem94](https://www.youtube.com/watch?v=KLtq9PFem94)
+{% include youtubePlayer.html id="KLtq9PFem94" %}
 
 [https://www.msnbc.com/top-stories/latest/trump-nabj-interview-fact-check-delay-rcna164845](https://www.msnbc.com/top-stories/latest/trump-nabj-interview-fact-check-delay-rcna164845)
 
@@ -174,7 +174,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 
-[https://www.youtube.com/watch?v=d5qoaj3YndQ](https://www.youtube.com/watch?v=d5qoaj3YndQ)
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 2024-09-12 Springfield OH received bomb threats after the Trump administration made baseless claims about Haitian migrants. The Ohio governor had to bring in State Troopers and bomb dogs.
 
@@ -252,9 +252,9 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 2025-10-15 After 2000+ pages of antisemitic and racist slurs were discovered from the Young Republican website, JD Vance downplayed it by stating, “kids do stupid things”. For context, the Young Republicans is primarily made up of adults ages 18 to 44.
 
-[https://www.youtube.com/watch?v=s0tiFfkp1q8](https://www.youtube.com/watch?v=s0tiFfkp1q8)
+{% include youtubePlayer.html id="s0tiFfkp1q8" %}
 
-[https://www.youtube.com/watch?v=aSxCTa1Hfec](https://www.youtube.com/watch?v=aSxCTa1Hfec)
+{% include youtubePlayer.html id="aSxCTa1Hfec" %}
 
 [https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645](https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645)
 
@@ -300,7 +300,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
-[https://www.youtube.com/watch?v=NobIxw0Q3Hg](https://www.youtube.com/watch?v=NobIxw0Q3Hg)
+{% include youtubePlayer.html id="NobIxw0Q3Hg" %}
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
@@ -334,7 +334,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 2026-02-10 On Piers Morgan, Megyn Kelly was outraged about Bad Bunny performing at the Superbowl in Spanish, stating “who gives a damn that we have 40 million Spanish speakers in the United States?” and, “this is supposed to be a unifying event for the country, not for the Latinos, not for a small group, but for the country. We don’t need a black national anthem”. She went on to say multiple racist things, then attacked Piers Morgan’s home country by stating “This is why you in Great Britain have lost your culture. You seeded your culture to a bunch of radical Muslims….”. So she basically attacked any non-white group in under 3 minutes over a Superbowl halftime show being performed in Spanish. Very telling.
 
-[https://www.youtube.com/watch?v=ZPZoVwgfK84](https://www.youtube.com/watch?v=ZPZoVwgfK84)
+{% include youtubePlayer.html id="ZPZoVwgfK84" %}
 
 ### 2026 March
 
@@ -342,4 +342,4 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.miamiherald.com/news/politics-government/article314928484.html](https://www.miamiherald.com/news/politics-government/article314928484.html)
 
-[https://www.youtube.com/watch?v=7-T7-kyatao&list=WL&index=2](https://www.youtube.com/watch?v=7-T7-kyatao&list=WL&index=2)
+{% include youtubePlayer.html id="7-T7-kyatao" %}

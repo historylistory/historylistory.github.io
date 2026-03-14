@@ -26,13 +26,13 @@ permalink: /categories/economy-labor-poverty/housing/
 
 [https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/](https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/)
 
-[https://www.youtube.com/watch?v=ANuGHbXa9QE&list=WL&index=2&t=497s](https://www.youtube.com/watch?v=ANuGHbXa9QE&list=WL&index=2&t=497s)
+{% include youtubePlayer.html id="ANuGHbXa9QE" %}
 
 ### 2025 June
 
 2025-06-22 Due to the affordability crisis, more Americans opted to convert $14K sheds into living spaces. What initially started out as “tiny home living” became a necessity, and shed companies started marketing to that.
 
-[https://www.youtube.com/watch?v=6NBBMAT8lpU](https://www.youtube.com/watch?v=6NBBMAT8lpU)
+{% include youtubePlayer.html id="6NBBMAT8lpU" %}
 
 [https://www.nytimes.com/2025/12/09/us/california-backyard-housing-rent-storage-unit.html](https://www.nytimes.com/2025/12/09/us/california-backyard-housing-rent-storage-unit.html)
 

@@ -56,7 +56,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
 
-[https://www.youtube.com/watch?v=REh1ulbyoY4](https://www.youtube.com/watch?v=REh1ulbyoY4)
+{% include youtubePlayer.html id="REh1ulbyoY4" %}
 
 [https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump](https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump)
 
@@ -72,7 +72,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 2025-07-01 (although uncertain of date - video was derived from YouTube as commentary) Video of Charlie Kirk getting schooled by a Cambridge student about same-sex marriage.
 
-[https://www.youtube.com/watch?v=xiZ18yazj14](https://www.youtube.com/watch?v=xiZ18yazj14)
+{% include youtubePlayer.html id="xiZ18yazj14" %}
 
 2025-07-17 The 988 suicide and crisis line specifically for LGBTQ+ was shut down permanently in effort to roll back DEI.
 
@@ -106,7 +106,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 2026-02-11 The White House removed a rainbow Pride Flag from the Stonewall National Monument in New York City.
 
-[https://www.youtube.com/watch?v=be5rlva0ss0&list=WL&index=3](https://www.youtube.com/watch?v=be5rlva0ss0&list=WL&index=3)
+{% include youtubePlayer.html id="be5rlva0ss0" %}
 
 [https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775](https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775)
 

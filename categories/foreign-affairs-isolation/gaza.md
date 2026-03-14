@@ -32,9 +32,9 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war#:~:text=Bridges%20Partners%20is%20a%20Christian%20public%20relations,become%20the%20source%20of%20an%20online%20meme](https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war).
 
-[https://www.youtube.com/watch?v=p_AC3Q1RZFE](https://www.youtube.com/watch?v=p_AC3Q1RZFE)
+{% include youtubePlayer.html id="p_AC3Q1RZFE" %}
 
-[https://www.youtube.com/watch?v=krDrm24xW6Y&t=43s](https://www.youtube.com/watch?v=krDrm24xW6Y&t=43s)
+{% include youtubePlayer.html id="krDrm24xW6Y" %}
 
 [https://responsiblestatecraft.org/israel-influencers/](https://responsiblestatecraft.org/israel-influencers/)
 
@@ -54,9 +54,9 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
 
-[https://www.youtube.com/watch?v=emuKlnqwlcc](https://www.youtube.com/watch?v=emuKlnqwlcc)
+{% include youtubePlayer.html id="emuKlnqwlcc" %}
 
-[https://www.youtube.com/watch?v=DkjzEAmFXeo](https://www.youtube.com/watch?v=DkjzEAmFXeo)
+{% include youtubePlayer.html id="DkjzEAmFXeo" %}
 
 2024-10-07 Pro Israel groups like **Canary Mission** peddled conspiracies on social media that Columbia University student and pro-Palestinian activist Mahmoud Khalil helped plan Hamas attacks. White House press secretary Karoline Leavitt also alleged Khalil distributed fliers with a Hamas logo. On March 8 2025 the Trump administration arrested him and shipped him to Louisiana.
 
@@ -86,7 +86,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
-[https://www.youtube.com/watch?v=PslOp883rfI](https://www.youtube.com/watch?v=PslOp883rfI)
+{% include youtubePlayer.html id="PslOp883rfI" %}
 
 ### 2025 May
 
@@ -128,15 +128,15 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 2025-09-09 Two global Sumud flotillas came under fire by Israeli drone strike when the flotillas attempted to get aid into Gaza.
 
-[https://www.youtube.com/watch?v=96Mlan_IaTY&list=WL&index=33](https://www.youtube.com/watch?v=96Mlan_IaTY&list=WL&index=33)
+{% include youtubePlayer.html id="96Mlan_IaTY" %}
 
 2025-09-09 During a Chatham House summit in Israel, President Issaac Herzog stated the war was aimed at preserving Western values.
 
-[https://www.youtube.com/watch?v=96Mlan_IaTY&list=WL&index=33](https://www.youtube.com/watch?v=96Mlan_IaTY&list=WL&index=33)
+{% include youtubePlayer.html id="96Mlan_IaTY" %}
 
 2025-09-11 After their return from a fact-finding mission, Democratic Senators Chris Van Holland and Jeff Merkley released a report accusing Israel of collective punishment and ethnic cleansing.
 
-[https://www.youtube.com/watch?v=KQ7C5EOf274&list=WL&index=3](https://www.youtube.com/watch?v=KQ7C5EOf274&list=WL&index=3)
+{% include youtubePlayer.html id="KQ7C5EOf274" %}
 
 2025-09-15 Top U.N. expert Francesca Albanese told reporters in Geneva “"Israel is bombing using unconventional weapons ... it is trying to forcibly evacuate Palestinians. Why? This is the last piece of Gaza that needs to be rendered unlivable before advancing the ethnic cleansing of that piece of land".
 
@@ -150,7 +150,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 2025-09-15 (context) Marco Rubio headed to Qatar to engage in talks with the Prime Minister.
 
-[https://www.youtube.com/watch?v=12nZY4soBHk](https://www.youtube.com/watch?v=12nZY4soBHk)
+{% include youtubePlayer.html id="12nZY4soBHk" %}
 
 [https://www.aljazeera.com/news/2025/9/16/rubio-en-route-to-qatar-warns-of-short-window-to-secure-gaza-ceasefire](https://www.aljazeera.com/news/2025/9/16/rubio-en-route-to-qatar-warns-of-short-window-to-secure-gaza-ceasefire)
 
@@ -160,13 +160,13 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
 
-[https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL](https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL)
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
 2025-09-21 Britain, Canada, Australia, and Portugal formally recognized Gaza as a State.
 
-[https://www.youtube.com/watch?v=5TscTySTsFE&list=WL&index=1](https://www.youtube.com/watch?v=5TscTySTsFE&list=WL&index=1)
+{% include youtubePlayer.html id="5TscTySTsFE" %}
 
 2025-09-22 The Trump administration made plans to send $6B in arms sales to Israel including 30 Apache helicopters.
 
@@ -206,9 +206,9 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.bbc.com/news/topics/c2vdnvdg6xxt](https://www.bbc.com/news/topics/c2vdnvdg6xxt)
 
-[https://www.youtube.com/watch?v=jOF0Fd7aKqk](https://www.youtube.com/watch?v=jOF0Fd7aKqk)
+{% include youtubePlayer.html id="jOF0Fd7aKqk" %}
 
-[https://www.youtube.com/watch?v=tsCvhIrAL-w](https://www.youtube.com/watch?v=tsCvhIrAL-w)
+{% include youtubePlayer.html id="tsCvhIrAL-w" %}
 
 [https://www.aljazeera.com/news/2026/1/6/israel-kills-two-in-gaza-as-palestinians-call-for-rafah-crossing-to-open#:~:text=Israeli%20forces%20bomb%20a%20tent,truce%20to%20at%20least%20422.&text=Israel%20has%20launched%20intense%20artillery,according%20to%20Gaza%20health%20authorities](https://www.aljazeera.com/news/2026/1/6/israel-kills-two-in-gaza-as-palestinians-call-for-rafah-crossing-to-open)
 

@@ -10,15 +10,15 @@ permalink: /categories/immigration-militarization-terror/terror-deport-to-foreig
 
 2025-04-14 Pam Bondi asserted that Abrego-Garcia was MS13 and that it was not up to the US to return him. In the same press conference, Stephen Miller claimed that the media was arrogant for telling El Salvador how to handle their citizens, and El Salvador president Bukele said he couldn’t "smuggle a terrorist" back into the US.
 
-[https://www.youtube.com/watch?v=jMtGXSB8tlU](https://www.youtube.com/watch?v=jMtGXSB8tlU)
+{% include youtubePlayer.html id="jMtGXSB8tlU" %}
 
 2025-04-30 The White House shared a digitally altered image of "M-S-1-3" on Abrego Garcia's hand. Most Americans quickly realized it was simply text typed over a photo of his hand and not actually tattoos. However, Trump repeatedly insisted the picture was real during an interview.  It is unclear if the photo intends to depict the meaning behind each tattoo.
 
-[https://www.youtube.com/watch?v=H0Z-Ver2K9c](https://www.youtube.com/watch?v=H0Z-Ver2K9c)
+{% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 
 2025-05-04 During a Meet the Press interview, Trump did not deny the Abrego Garcia arrest was an administrative error but said that the president of El Salvador would have to decide if Garcia could come back to the US or not.
 
-[https://www.youtube.com/watch?v=aoNxKK2IJII](https://www.youtube.com/watch?v=aoNxKK2IJII)
+{% include youtubePlayer.html id="aoNxKK2IJII" %}
 
 2025-08-25 DHS detained Kilmar Abrego Garcia. They gave him an ultimatum: **plead guilty and we will deport you to Costa Rica. Don’t plead guilty and we will deport you to Uganda**.
 
@@ -32,7 +32,7 @@ permalink: /categories/immigration-militarization-terror/terror-deport-to-foreig
 
 [https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181](https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181)
 
-[https://www.youtube.com/watch?v=tVU8R0Nv9bk](https://www.youtube.com/watch?v=tVU8R0Nv9bk)
+{% include youtubePlayer.html id="tVU8R0Nv9bk" %}
 
 [https://x.com/nayibbukele/status/1901238762614517965?lang=en](https://x.com/nayibbukele/status/1901238762614517965?lang=en)
 
@@ -72,7 +72,7 @@ permalink: /categories/immigration-militarization-terror/terror-deport-to-foreig
 
 2025-11-14 ICE deported Purple Heart veteran with PTSD Jose Barco in Florence Arizona.
 
-[https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6](https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6)
+{% include youtubePlayer.html id="bVPSSf43okY" %}
 
 [https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported](https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported)
 

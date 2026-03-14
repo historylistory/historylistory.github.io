@@ -26,23 +26,23 @@ permalink: /categories/climate-change/windmills-clean-energy/
 
 2025-07-25 During a visit to Scotland, Trump objected to windmills ruining the view of his golf course and ordered leadership to "stop the windmills, you're ruining your countries. I really mean it”.
 
-[https://www.youtube.com/watch?v=GkiKpMDEREE](https://www.youtube.com/watch?v=GkiKpMDEREE)
+{% include youtubePlayer.html id="GkiKpMDEREE" %}
 
 2025-07-27 During a meeting with the President of the European Commission, Trump complained about windmills, calling them a "very ugly energy" and asserting "wind is the most expensive form of energy and it destroys the beauty of your fields and your plains and your waterways".
 
-[https://www.youtube.com/watch?v=1Asznj3uWKA](https://www.youtube.com/watch?v=1Asznj3uWKA)
+{% include youtubePlayer.html id="1Asznj3uWKA" %}
 
 ### 2025 August
 
 2025-08-26 During a press conference, Trump denounced windmills after having just cancelled a nearly complete offshore wind project ( Revolution Wind in RI and CT) and announced his plans to "drill-baby-drill" stating, "We don't call it coal, we call it clean coal, and even very very clean coal".
 
-[https://www.youtube.com/watch?v=sp97kSwaBfQ](https://www.youtube.com/watch?v=sp97kSwaBfQ)
+{% include youtubePlayer.html id="sp97kSwaBfQ" %}
 
 ### 2025 October
 
 2025-10-02 In a retaliatory move during the government shutdown, Trump pulled $8B in clean energy products from Democratic states.
 
-[https://www.youtube.com/watch?v=MYM40nNxN1M](https://www.youtube.com/watch?v=MYM40nNxN1M)
+{% include youtubePlayer.html id="MYM40nNxN1M" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115302268694968810](https://truthsocial.com/@realDonaldTrump/posts/115302268694968810)
 

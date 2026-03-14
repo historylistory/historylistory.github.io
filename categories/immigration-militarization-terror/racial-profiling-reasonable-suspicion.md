@@ -10,7 +10,7 @@ permalink: /categories/immigration-militarization-terror/racial-profiling-reason
 
 1920-01-01 If you pay attention to the eugenics movement, Americans considered whites "the right people".  Charles Davenport proposed building a wall too, to "keep out the cheaper races" as he put it. If a history lesson doesn’t make clear the racist implications of not welcoming migrants, keep in mind news outlets began to report in October 2025 how the Trump administration began work to overhaul the refugee system so it would favor white people.
 
-[https://www.youtube.com/watch?v=vmRb-0v5xfI&list=WL&index=1&t=3363s](https://www.youtube.com/watch?v=vmRb-0v5xfI&list=WL&index=1&t=3363s)
+{% include youtubePlayer.html id="vmRb-0v5xfI" %}
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
 
@@ -24,7 +24,7 @@ permalink: /categories/immigration-militarization-terror/racial-profiling-reason
 
 2025-06-14 News outlets reported an increase in racial profiling as ICE detained people solely based on their skin color and language.
 
-[https://www.youtube.com/watch?v=m0uynHtk7zU](https://www.youtube.com/watch?v=m0uynHtk7zU)
+{% include youtubePlayer.html id="m0uynHtk7zU" %}
 
 ### 2025 July
 
@@ -36,4 +36,4 @@ permalink: /categories/immigration-militarization-terror/racial-profiling-reason
 
 [https://www.nbcnews.com/news/us-news/immigration-officials-cant-detain-people-based-race-speaking-spanish-l-rcna218400](https://www.nbcnews.com/news/us-news/immigration-officials-cant-detain-people-based-race-speaking-spanish-l-rcna218400)
 
-[https://www.youtube.com/watch?v=1o8iijXt6sI](https://www.youtube.com/watch?v=1o8iijXt6sI)
+{% include youtubePlayer.html id="1o8iijXt6sI" %}

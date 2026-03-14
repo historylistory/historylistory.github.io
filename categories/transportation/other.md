@@ -56,7 +56,7 @@ permalink: /categories/transportation/other/
 
 [https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/](https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/)
 
-[https://www.youtube.com/watch?app=desktop&v=9pf4HHuszN8](https://www.youtube.com/watch?app=desktop&v=9pf4HHuszN8)
+{% include youtubePlayer.html id="9pf4HHuszN8" %}
 
 2026-02-20 Transportation Secretary Sean Duffy announced CDL drivers would have to take their commercial drivers tests in English, citing it would increase safety. 
 

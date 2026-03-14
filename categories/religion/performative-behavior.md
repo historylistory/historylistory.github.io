@@ -42,7 +42,7 @@ permalink: /categories/religion/performative-behavior/
 
 2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt statis if leaders “say something bad about him”. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
 
-[https://www.youtube.com/watch?v=7hmzdUBt0M4&list=WL&index=1](https://www.youtube.com/watch?v=7hmzdUBt0M4&list=WL&index=1)
+{% include youtubePlayer.html id="7hmzdUBt0M4" %}
 
 [https://clericalwhispers.blogspot.com/2026/02/trump-says-he-will-revoke-church-tax.html](https://clericalwhispers.blogspot.com/2026/02/trump-says-he-will-revoke-church-tax.html)
 

@@ -16,7 +16,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine/
 
 2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
 
-[https://www.youtube.com/watch?v=b8gmxT8qj8Y](https://www.youtube.com/watch?v=b8gmxT8qj8Y)
+{% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285](https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285)
 
@@ -56,7 +56,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine/
 
 2025-07-01 Trump repeatedly issued an ultimatum to Russia to end the war, yet Trump never followed through, and Russia continued attacks on Ukraine.
 
-[https://www.youtube.com/watch?v=MqevTvd3v5g](https://www.youtube.com/watch?v=MqevTvd3v5g)
+{% include youtubePlayer.html id="MqevTvd3v5g" %}
 
 [https://www.reuters.com/world/europe/putin-doubts-potency-trumps-ultimatum-end-war-sources-say-2025-08-05/](https://www.reuters.com/world/europe/putin-doubts-potency-trumps-ultimatum-end-war-sources-say-2025-08-05/)
 
@@ -108,7 +108,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine/
 
 2025-09-23 Trump stated Kiev could "win all of Ukraine back from Russia". The White House posted "Putin and Russia are in BIG Economic trouble, and this is the time for Ukraine to act".
 
-[https://www.youtube.com/watch?v=K5KVFrbb-tY](https://www.youtube.com/watch?v=K5KVFrbb-tY)
+{% include youtubePlayer.html id="K5KVFrbb-tY" %}
 
 [https://www.bbc.com/news/articles/c07vm35rryeo](https://www.bbc.com/news/articles/c07vm35rryeo)
 
@@ -122,7 +122,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine/
 
 [https://www.reuters.com/world/europe/us-holds-secret-russia-ukraine-peace-talks-abu-dhabi-ft-reports-2025-11-25/](https://www.reuters.com/world/europe/us-holds-secret-russia-ukraine-peace-talks-abu-dhabi-ft-reports-2025-11-25/)
 
-[https://www.youtube.com/watch?v=LVT8VRQETo0](https://www.youtube.com/watch?v=LVT8VRQETo0)
+{% include youtubePlayer.html id="LVT8VRQETo0" %}
 
 [https://www.cnn.com/2025/11/21/europe/peace-proposal-russia-ukraine-annotated-intl-vis](https://www.cnn.com/2025/11/21/europe/peace-proposal-russia-ukraine-annotated-intl-vis)
 

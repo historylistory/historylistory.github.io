@@ -68,7 +68,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 [https://www.bbc.com/news/articles/c1rw8d0p2j7o](https://www.bbc.com/news/articles/c1rw8d0p2j7o)
 
-[https://www.youtube.com/watch?v=L2Laod74bLs](https://www.youtube.com/watch?v=L2Laod74bLs)
+{% include youtubePlayer.html id="L2Laod74bLs" %}
 
 ### 2024 December
 

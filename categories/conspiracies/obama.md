@@ -38,7 +38,7 @@ permalink: /categories/conspiracies/obama/
 
 [https://www.npr.org/2016/08/11/489607788/trump-attacks-obama-as-the-founder-of-isis](https://www.npr.org/2016/08/11/489607788/trump-attacks-obama-as-the-founder-of-isis)
 
-[https://www.youtube.com/watch?v=HHPGaS5gU1Y](https://www.youtube.com/watch?v=HHPGaS5gU1Y)
+{% include youtubePlayer.html id="HHPGaS5gU1Y" %}
 
 ### 2025 July: Obama is guilty of treason
 

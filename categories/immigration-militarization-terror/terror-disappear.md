@@ -10,4 +10,4 @@ permalink: /categories/immigration-militarization-terror/terror-disappear/
 
 2025-09-25 News outlets reported that the **detainees formerly kept at Alligator Alcatraz have come up missing** and nobody knows where they are.
 
-[https://www.youtube.com/watch?v=NwPbnsZ_XqU](https://www.youtube.com/watch?v=NwPbnsZ_XqU)
+{% include youtubePlayer.html id="NwPbnsZ_XqU" %}

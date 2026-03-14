@@ -146,9 +146,9 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 2022-08-08 The FBI seized more than 11,000 government documents  at Mar-a-Lago. The case was dropped February 10, 2025 after Republicans took control of the House.
 
-[https://www.youtube.com/watch?v=r5_8d474iv0](https://www.youtube.com/watch?v=r5_8d474iv0)
+{% include youtubePlayer.html id="r5_8d474iv0" %}
 
-[https://www.youtube.com/watch?v=r5_8d474iv0](https://www.youtube.com/watch?v=r5_8d474iv0)
+{% include youtubePlayer.html id="r5_8d474iv0" %}
 
 ### 2022 December
 
@@ -176,7 +176,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case#:~:text=Share%20on%20Twitter-,Judge%20imposes%20$364%20million%20penalty%20in%20Trump's%20New%20York%20civil,setback%20for%20the%20former%20president](https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case).
 
-[https://www.youtube.com/watch?v=NfiMna_u204](https://www.youtube.com/watch?v=NfiMna_u204)
+{% include youtubePlayer.html id="NfiMna_u204" %}
 
 ### 2024 April
 

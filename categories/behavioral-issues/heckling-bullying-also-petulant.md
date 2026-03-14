@@ -26,25 +26,25 @@ permalink: /categories/behavioral-issues/heckling-bullying-also-petulant/
 
 2018-10-06 Trump heckled ABC reporters.
 
-[https://www.youtube.com/watch?v=BwOpjEvWm3s](https://www.youtube.com/watch?v=BwOpjEvWm3s)
+{% include youtubePlayer.html id="BwOpjEvWm3s" %}
 
 2018-11-07 Trump heckled ABC reporters.
 
-[https://www.youtube.com/watch?v=sClHZtZrL00](https://www.youtube.com/watch?v=sClHZtZrL00)
+{% include youtubePlayer.html id="sClHZtZrL00" %}
 
 ### 2020
 
 2020-03-20 Trump heckled NBC reporters.
 
-[https://www.youtube.com/watch?v=Qw0T9RK0GrA](https://www.youtube.com/watch?v=Qw0T9RK0GrA)
+{% include youtubePlayer.html id="Qw0T9RK0GrA" %}
 
 2020-03-29 Trump heckled PBS reporters.
 
-[https://www.youtube.com/watch?v=1uWT_L58MGc](https://www.youtube.com/watch?v=1uWT_L58MGc)
+{% include youtubePlayer.html id="1uWT_L58MGc" %}
 
 2020-04-22 Trump heckled CNN reporters.
 
-[https://www.youtube.com/watch?v=UM08ca2IUR4](https://www.youtube.com/watch?v=UM08ca2IUR4)
+{% include youtubePlayer.html id="UM08ca2IUR4" %}
 
 ### 2024 August
 
@@ -80,7 +80,7 @@ permalink: /categories/behavioral-issues/heckling-bullying-also-petulant/
 
 2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
 
-[https://www.youtube.com/watch?v=b8gmxT8qj8Y](https://www.youtube.com/watch?v=b8gmxT8qj8Y)
+{% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285](https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285)
 
@@ -178,7 +178,7 @@ permalink: /categories/behavioral-issues/heckling-bullying-also-petulant/
 
 [https://www.azcentral.com/story/entertainment/media/2025/11/19/who-is-catherine-lucy/87352910007/](https://www.azcentral.com/story/entertainment/media/2025/11/19/who-is-catherine-lucy/87352910007/)
 
-[https://www.youtube.com/watch?v=Sc_eWOtjUTM](https://www.youtube.com/watch?v=Sc_eWOtjUTM)
+{% include youtubePlayer.html id="Sc_eWOtjUTM" %}
 
 2025-11-26 Trump verbally attacked New York Times reporter Katie Rogers, calling her “ugly” after she published a story about Trump’s health.
 
@@ -190,7 +190,7 @@ permalink: /categories/behavioral-issues/heckling-bullying-also-petulant/
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-female-reporter-insult-mri-results-b2875360.html](https://www.the-independent.com/news/world/americas/us-politics/trump-female-reporter-insult-mri-results-b2875360.html)
 
-[https://www.youtube.com/watch?v=C2C0pTh7x9o](https://www.youtube.com/watch?v=C2C0pTh7x9o)
+{% include youtubePlayer.html id="C2C0pTh7x9o" %}
 
 2025-11-28 Trump announced plans to revoke all executive orders Biden signed with an autopen.
 

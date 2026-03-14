@@ -58,6 +58,6 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 2025-12-17 Representative AOC called out corruption on Trump’s Executive Order to ban States from regulating AI.
 
-[https://www.youtube.com/watch?v=5NdndeDNkws&list=WL&index=10](https://www.youtube.com/watch?v=5NdndeDNkws&list=WL&index=10)
+{% include youtubePlayer.html id="5NdndeDNkws" %}
 
 [https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts](https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts)

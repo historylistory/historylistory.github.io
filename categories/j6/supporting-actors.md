@@ -62,9 +62,9 @@ permalink: /categories/j6/supporting-actors/
 
 2023-05-11 Trump called the J6 Insurrection a "beautiful day".
 
-[https://www.youtube.com/watch?v=w7Bg5_-7e00](https://www.youtube.com/watch?v=w7Bg5_-7e00)
+{% include youtubePlayer.html id="w7Bg5_-7e00" %}
 
-[https://www.youtube.com/watch?v=CJuNHI2KP5w](https://www.youtube.com/watch?v=CJuNHI2KP5w)
+{% include youtubePlayer.html id="CJuNHI2KP5w" %}
 
 2023-12-06 During a campaign rally in Texas, Trump referred to the J6 prisoners as “hostages”.
 

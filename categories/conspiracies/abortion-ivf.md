@@ -12,7 +12,7 @@ permalink: /categories/conspiracies/abortion-ivf/
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
-[https://www.youtube.com/watch?v=BMTSGFzr4OE](https://www.youtube.com/watch?v=BMTSGFzr4OE)
+{% include youtubePlayer.html id="BMTSGFzr4OE" %}
 
 ### 2024 September
 

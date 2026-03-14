@@ -36,7 +36,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 2018-11-07 During a statement in the White House, Trump used the language "invasion" when referring to immigration at the border. It is important to keep this in mind because **Habeas Corpus has a suspension clause dependent upon any “rebellion or invasion”**.
 
-[https://www.youtube.com/watch?v=gXd8vdrhtfg](https://www.youtube.com/watch?v=gXd8vdrhtfg)
+{% include youtubePlayer.html id="gXd8vdrhtfg" %}
 
 [https://immigrantjustice.org/press-release/trump-asylum-ban-2-0-blocks-nearly-all-migrants-seeking-u-s-protection/](https://immigrantjustice.org/press-release/trump-asylum-ban-2-0-blocks-nearly-all-migrants-seeking-u-s-protection/)
 
@@ -70,7 +70,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 [https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border](https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border)
 
-[https://www.youtube.com/watch?v=wFPMzknVYLY](https://www.youtube.com/watch?v=wFPMzknVYLY)
+{% include youtubePlayer.html id="wFPMzknVYLY" %}
 
 ### 2025
 
@@ -82,4 +82,4 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 [https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698](https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698)
 
-[https://www.youtube.com/watch?v=HyGLWYgdBLw](https://www.youtube.com/watch?v=HyGLWYgdBLw)
+{% include youtubePlayer.html id="HyGLWYgdBLw" %}

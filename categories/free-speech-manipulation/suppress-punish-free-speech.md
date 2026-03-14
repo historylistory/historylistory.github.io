@@ -66,7 +66,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.msn.com/en-us/news/politics/all-9-justices-against-maga-censorship-if-abc-defends-kimmel-1st-am-attorney-melber-s-report/vi-AA1MVs1X?cvid=68ce87ba091b464f86f4aa8b58adc954](https://www.msn.com/en-us/news/politics/all-9-justices-against-maga-censorship-if-abc-defends-kimmel-1st-am-attorney-melber-s-report/vi-AA1MVs1X?cvid=68ce87ba091b464f86f4aa8b58adc954)
 
-[https://www.youtube.com/watch?v=YaI7cRobEj4](https://www.youtube.com/watch?v=YaI7cRobEj4)
+{% include youtubePlayer.html id="YaI7cRobEj4" %}
 
 2025-09-25 An Austin Peay State University professor was fired over a post about Charlie Kirk the school deemed too insensitive.
 
@@ -76,9 +76,9 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 2025-10-28 A Tennessee man was arrested and jailed for over 30 days for posting an online meme quoting President Trump. One day after a local news outlet reported on the incarceration, Perry County dropped the charges and released the man.
 
-[https://www.youtube.com/watch?v=W2cMNhfCZHo&list=WL&index=6](https://www.youtube.com/watch?v=W2cMNhfCZHo&list=WL&index=6)
+{% include youtubePlayer.html id="W2cMNhfCZHo" %}
 
-[https://www.youtube.com/watch?v=zgcuAHjcrkk&list=WL&index=5](https://www.youtube.com/watch?v=zgcuAHjcrkk&list=WL&index=5)
+{% include youtubePlayer.html id="zgcuAHjcrkk" %}
 
 ### 2026 February
 

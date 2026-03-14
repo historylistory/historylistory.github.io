@@ -18,7 +18,7 @@ permalink: /categories/education/anti-learning-anti-growth/
 
 2016-02-24 During a speech in Las Vegas, Trump told the crowd, "I love the poorly educated".
 
-[https://www.youtube.com/watch?v=Vpdt7omPoa0](https://www.youtube.com/watch?v=Vpdt7omPoa0)
+{% include youtubePlayer.html id="Vpdt7omPoa0" %}
 
 ### 2018
 

@@ -246,7 +246,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 **November 4, 2024 video:**
 
-[https://www.youtube.com/watch?v=SfZmwYyBSoo](https://www.youtube.com/watch?v=SfZmwYyBSoo)
+{% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
 ### 2017 Kushner Conflict of Interest
 
@@ -294,7 +294,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 **November 4, 2024 video:**
 
-[https://www.youtube.com/watch?v=SfZmwYyBSoo](https://www.youtube.com/watch?v=SfZmwYyBSoo)
+{% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
 ### 2020 Trump Ordered Assassination
 
@@ -332,7 +332,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 **November 4, 2024 video:**
 
-[https://www.youtube.com/watch?v=SfZmwYyBSoo](https://www.youtube.com/watch?v=SfZmwYyBSoo)
+{% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
 ### 2025 June
 
@@ -378,7 +378,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
 
-[https://www.youtube.com/watch?v=iWq2lAFoEa8](https://www.youtube.com/watch?v=iWq2lAFoEa8)
+{% include youtubePlayer.html id="iWq2lAFoEa8" %}
 
 [https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/](https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/)
 
@@ -538,7 +538,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 2026-03-08 The son of Ayatollah Ali Khamenei, Mojtaba Khameni, took over as supreme leader of Iran. Trump told Time Magazine, “I’m not going through this to end up with another Khamenei. I want to be involved in the selection”. Republican Senator Lindsey Graham said, “I believe it’s just a matter of time before he meets the same fate as that of his father – one of the most evil men on the planet”.
 
-[https://www.youtube.com/watch?v=It82aDieUZE&list=WL&index=7&t=147s](https://www.youtube.com/watch?v=It82aDieUZE&list=WL&index=7&t=147s)
+{% include youtubePlayer.html id="It82aDieUZE" %}
 
 [https://www.aljazeera.com/news/2026/3/9/trump-slams-mojtaba-khameneis-appointment-as-iran-projects-defiance](https://www.aljazeera.com/news/2026/3/9/trump-slams-mojtaba-khameneis-appointment-as-iran-projects-defiance)
 
@@ -548,9 +548,9 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 2026-03-08 During an interview on 60 Minutes, Pete Hegseth answered the question “Will there be boots on the ground in Iran”. He smirked and said, “I wouldn’t tell you that if we did.” The interviewer said the only reason he asked was because earlier in the week Hegseth said there would not be boots on the ground and he wanted to know if that was still the answer., Pete Hegseth responded, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
 
-[https://www.youtube.com/watch?v=bDPk2jtlXfU&list=WL&index=1&t=410s](https://www.youtube.com/watch?v=bDPk2jtlXfU&list=WL&index=1&t=410s)
+{% include youtubePlayer.html id="bDPk2jtlXfU" %}
 
-[https://www.youtube.com/watch?v=CA73grSSk8E](https://www.youtube.com/watch?v=CA73grSSk8E)
+{% include youtubePlayer.html id="CA73grSSk8E" %}
 
 2026-03-09 After US strikes on oil facilities in Iran, toxic “black rain” fell over Tehran, shrouded the city in toxic smoke clouds, and rendered air quality toxic to health and environment.
 
@@ -590,21 +590,21 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 2026-03-10 In under two weeks, the US soldier death toll in Iran reached approximately 170 soldiers.
 
-[https://www.youtube.com/watch?v=xs0EusItBYM&t=1s](https://www.youtube.com/watch?v=xs0EusItBYM&t=1s)
+{% include youtubePlayer.html id="xs0EusItBYM" %}
 
 [https://www.wired.com/video/watch/trump-wrongly-claims-iran-has-tomahawk-missiles-when-asked-about-iran-school-strike](https://www.wired.com/video/watch/trump-wrongly-claims-iran-has-tomahawk-missiles-when-asked-about-iran-school-strike)
 
 [https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks#:~:text=At%20least%201%2C332%20people%20have,of%20war%20on%20February%2028](https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks).
 
-[https://www.youtube.com/watch?v=xs0EusItBYM&t=1s](https://www.youtube.com/watch?v=xs0EusItBYM&t=1s)
+{% include youtubePlayer.html id="xs0EusItBYM" %}
 
 2026-03-10 In under two weeks, 700,000 Lebanese people had been displaced. Israel launched an attack on the capital and struck civilians in an apartment building.
 
 [https://www.nytimes.com/2026/03/10/world/middleeast/lebanon-evacuations-israel-strikes-bombing.html](https://www.nytimes.com/2026/03/10/world/middleeast/lebanon-evacuations-israel-strikes-bombing.html)
 
-[https://www.youtube.com/watch?v=V-xORg11CFo](https://www.youtube.com/watch?v=V-xORg11CFo)
+{% include youtubePlayer.html id="V-xORg11CFo" %}
 
-[https://www.youtube.com/watch?v=TknXiEnQk14](https://www.youtube.com/watch?v=TknXiEnQk14)
+{% include youtubePlayer.html id="TknXiEnQk14" %}
 
 [https://www.haaretz.com/israel-news/security-aviation/2026-03-10/ty-article-magazine/.premium/northern-war-widens-700-000-lebanese-displaced-1-million-israelis-in-shelters/0000019c-d705-d8f4-a7de-f725987d0000](https://www.haaretz.com/israel-news/security-aviation/2026-03-10/ty-article-magazine/.premium/northern-war-widens-700-000-lebanese-displaced-1-million-israelis-in-shelters/0000019c-d705-d8f4-a7de-f725987d0000)
 

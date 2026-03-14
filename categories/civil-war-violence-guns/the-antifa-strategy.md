@@ -28,7 +28,7 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 [https://www.bbc.com/news/articles/ced5gqn0p6jo](https://www.bbc.com/news/articles/ced5gqn0p6jo)
 
-[https://www.youtube.com/watch?v=3gRwXbeRizQ&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=3gRwXbeRizQ&list=WL&index=1&t=9s)
+{% include youtubePlayer.html id="3gRwXbeRizQ" %}
 
 2025-09-25 Trump signed a National Security Presidential Memorandum (NSPM-7) labelling beliefs like anti-Christian as terrorism indicators. The language leaves precedence to label anyone who doesn’t align with one specific religion a terrorist.
 
@@ -42,7 +42,7 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 [https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/](https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/)
 
-[https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2](https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2)
+{% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
 2025-09-29 Multiple news outlets outed Fox News for **using viral riot footage from 2020** to sensationalize a small peaceful protest in Portland.
 
@@ -58,11 +58,11 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 2025-10-08 Trump claimed during a press conference that one characteristic of “Antifa” was, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
 
-[https://www.youtube.com/watch?v=nDjjFYsCAUE&list=WL&index=2](https://www.youtube.com/watch?v=nDjjFYsCAUE&list=WL&index=2)
+{% include youtubePlayer.html id="nDjjFYsCAUE" %}
 
 2025-10-08 During an interview with Newsmax, Senator Roger Marshall claimed that the No Kings protest of October 18th would be a “paid-for protest” by “professional protesters”, stating, “This is where the agitators show up…we’ll have to get the National Guard out. Hopefully it will be peaceful, but I doubt it”. Mike Johnson fanned the flames, calling it the “Hate America Rally”.
 
-[https://www.youtube.com/watch?v=nDjjFYsCAUE&list=WL&index=2](https://www.youtube.com/watch?v=nDjjFYsCAUE&list=WL&index=2)
+{% include youtubePlayer.html id="nDjjFYsCAUE" %}
 
 2025-10-10 On Fox News Mike Johnson slammed Democrats for the upcoming No Kings protest, calling it a “Hate America rally”.
 

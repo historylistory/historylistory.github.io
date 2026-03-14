@@ -22,7 +22,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.bbc.com/news/world-us-canada-45853364](https://www.bbc.com/news/world-us-canada-45853364)
 
-[https://www.youtube.com/watch?v=V_7bD3D2f6c](https://www.youtube.com/watch?v=V_7bD3D2f6c)
+{% include youtubePlayer.html id="V_7bD3D2f6c" %}
 
 [https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit](https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit)
 
@@ -30,13 +30,13 @@ permalink: /categories/behavioral-issues/soulless/
 
 2024-06-22 During a Faith & Freedom conference in Washington D.C., Trump floated the idea of a "**migrant UFC**" fight.
 
-[https://www.youtube.com/watch?v=bZvTStL5GB8](https://www.youtube.com/watch?v=bZvTStL5GB8)
+{% include youtubePlayer.html id="bZvTStL5GB8" %}
 
 ### 2024 August
 
 2024-08-05 Footage surfaced about RFK confessing to leaving a dead bear in Central Park because he thought it would be "amusing".
 
-[https://www.youtube.com/watch?v=cSd7hKGfCZU](https://www.youtube.com/watch?v=cSd7hKGfCZU)
+{% include youtubePlayer.html id="cSd7hKGfCZU" %}
 
 ### 2025 June
 
@@ -82,7 +82,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 2025-02-18 Right-wing podcaster Benny Johnson took a trip to DC to celebrate and take a selfie in front of the shut-down USAID headquarters.
 
-[https://www.youtube.com/watch?v=tU8S13xYJNM&list=WL&index=1](https://www.youtube.com/watch?v=tU8S13xYJNM&list=WL&index=1)
+{% include youtubePlayer.html id="tU8S13xYJNM" %}
 
 ### 2025 March
 

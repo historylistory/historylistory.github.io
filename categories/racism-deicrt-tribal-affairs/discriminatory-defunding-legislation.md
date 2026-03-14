@@ -86,7 +86,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 2025-09-17 The Trump administration ordered the National Park Service to remove or censor exhibits at Harpers Ferry West Virginia, including the Civil War Museum and John Brown's Fort (a key site in an 1859 abolitionist raid).
 
-[https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2](https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2)
+{% include youtubePlayer.html id="4ywN-W-EWHQ" %}
 
 ### 2025 November
 

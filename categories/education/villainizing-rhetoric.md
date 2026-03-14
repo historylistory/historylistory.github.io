@@ -30,7 +30,7 @@ permalink: /categories/education/villainizing-rhetoric/
 
 2021-11-02 During a National Conservatism conference, JD Vance delivered a very long speech to the crowd, covering a huge array of different topics. One of the topics was his assertion that "we are giving our children over to our enemies" in the education system. He also referred to taking the "red pill" like in the Matrix movie, complained about subsidizing universities to "control" how we think, called Richard Nixon a great prophet, and called National Conservatism a movement.
 
-[https://www.youtube.com/watch?v=0FR65Cifnhw](https://www.youtube.com/watch?v=0FR65Cifnhw)
+{% include youtubePlayer.html id="0FR65Cifnhw" %}
 
 ### 2025 September
 
@@ -38,9 +38,9 @@ permalink: /categories/education/villainizing-rhetoric/
 
 [https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/](https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/)
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
 2025-09-14 Laura Loomer posted on social media "It's time to defund American universities. You don't need to go to college. Charlie Kirk didn't go to college. @HarmeetKDhillon".
 

@@ -40,7 +40,7 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 2025-03-12 During an Oval office press conference, Trump stated his administration "did a lot of things" that got the egg prices down substantially, cited that oil was down to $65 a barrel, and that inflation was "way down". He also claimed that his administration had virtually no inflation for 4 years during his last term.
 
-[https://www.youtube.com/watch?v=J7aJ-zM78AQ](https://www.youtube.com/watch?v=J7aJ-zM78AQ)
+{% include youtubePlayer.html id="J7aJ-zM78AQ" %}
 
 ### 2025 April
 
@@ -68,7 +68,7 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 2025-08-05 Trump made several claims about trillions in US income, paying off the debt in large quantities, and issuing dividends to the people.
 
-[https://www.youtube.com/watch?v=Fb7yKvOQE_c](https://www.youtube.com/watch?v=Fb7yKvOQE_c)
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 
 ### 2025 September
 
@@ -104,7 +104,7 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 2025-12-17 Trump decided to hold an 18-minute televised press conference fixating on Biden, deflecting affordability concerns, and touting a great economy that Americans were not seeing or feeling.
 
-[https://www.youtube.com/watch?v=Mjzh_lghnq4&list=WL&index=2](https://www.youtube.com/watch?v=Mjzh_lghnq4&list=WL&index=2)
+{% include youtubePlayer.html id="Mjzh_lghnq4" %}
 
 [https://www.npr.org/2025/12/18/nx-s1-5647515/trump-tried-to-ease-economic-anxieties-with-his-primetime-address-did-it-work](https://www.npr.org/2025/12/18/nx-s1-5647515/trump-tried-to-ease-economic-anxieties-with-his-primetime-address-did-it-work)
 

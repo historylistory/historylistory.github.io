@@ -14,11 +14,11 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 
 2024-04-26 Trump praised Minister of Hungary Viktor Orban again.
 
-[https://www.youtube.com/watch?v=UQUuuYgFQoE](https://www.youtube.com/watch?v=UQUuuYgFQoE)
+{% include youtubePlayer.html id="UQUuuYgFQoE" %}
 
 2024-09-10 Trump praised Minister of Hungary Viktor Orban during a presidential candidate debate.
 
-[https://www.youtube.com/watch?v=4LxWg1n58CE](https://www.youtube.com/watch?v=4LxWg1n58CE)
+{% include youtubePlayer.html id="4LxWg1n58CE" %}
 
 2025-11-08 Trump met with his idol Viktor Orban to discuss granting Hungary an exemption on Russian oil and gas sanctions.
 
@@ -46,7 +46,7 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 
 [https://www.bbc.com/news/articles/c8xrqxk9p4xo](https://www.bbc.com/news/articles/c8xrqxk9p4xo)
 
-[https://www.youtube.com/watch?v=hTKr6MN1bIE](https://www.youtube.com/watch?v=hTKr6MN1bIE)
+{% include youtubePlayer.html id="hTKr6MN1bIE" %}
 
 ### Benjamin Netanyahu (Israel)
 
@@ -58,7 +58,7 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
 
-[https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL](https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL)
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 

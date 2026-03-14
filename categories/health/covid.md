@@ -14,13 +14,13 @@ permalink: /categories/health/covid/
 
 [https://www.bbc.com/news/world-us-canada-52407177](https://www.bbc.com/news/world-us-canada-52407177)
 
-[https://www.youtube.com/watch?v=zicGxU5MfwE](https://www.youtube.com/watch?v=zicGxU5MfwE)
+{% include youtubePlayer.html id="zicGxU5MfwE" %}
 
 ### 2021
 
 2021-05-20 A civil rights group sued Trump for referring to COVID as "**Chinese Virus**", "**China Virus**", "**Wuhan Virus**", and "**Kung Flu Virus**". Former White House Press Secretary Ari Fleischer tweeted out in frustration "Wait a minute…After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it."
 
-[https://www.youtube.com/watch?v=dl78PQGJpiI](https://www.youtube.com/watch?v=dl78PQGJpiI)
+{% include youtubePlayer.html id="dl78PQGJpiI" %}
 
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
@@ -30,7 +30,7 @@ permalink: /categories/health/covid/
 
 2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking is all about control and the worst thing about masking was kids not being able to see other children’s faces. He further asserted that children would see other children as "vectors of disease".
 
-[https://www.youtube.com/watch?v=PMq1ZEcyztY](https://www.youtube.com/watch?v=PMq1ZEcyztY)
+{% include youtubePlayer.html id="PMq1ZEcyztY" %}
 
 ### 2023
 

@@ -32,7 +32,7 @@ permalink: /categories/bully-threaten-sue-fire/serious-accusations/
 
 2025-09-26 After Trump alleged Portland ICE facilities were under siege by Antifa, city leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
 
-[https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2](https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2)
+{% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
 ### 2025 October
 

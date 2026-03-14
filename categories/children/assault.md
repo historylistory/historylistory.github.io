@@ -48,7 +48,7 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 
 [https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
 
-[https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2](https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2)
+{% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
 [https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
 

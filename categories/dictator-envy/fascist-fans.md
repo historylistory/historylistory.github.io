@@ -22,7 +22,7 @@ permalink: /categories/dictator-envy/fascist-fans/
 
 2025-05-12 During an interview Steve Bannon declared this as the Era of Trump "like it or not", referenced the "steal of 2020", and stated there are multiple workarounds to serving a third term.
 
-[https://www.youtube.com/watch?v=6KfUXpmtprc&list=WL&index=23](https://www.youtube.com/watch?v=6KfUXpmtprc&list=WL&index=23)
+{% include youtubePlayer.html id="6KfUXpmtprc" %}
 
 ### 2025 July
 
@@ -40,4 +40,4 @@ permalink: /categories/dictator-envy/fascist-fans/
 
 [https://theconversation.com/elon-musks-speech-to-far-right-rally-should-have-us-all-thinking-about-the-power-social-media-companies-hold-over-our-democracies-263074](https://theconversation.com/elon-musks-speech-to-far-right-rally-should-have-us-all-thinking-about-the-power-social-media-companies-hold-over-our-democracies-263074)
 
-[https://www.youtube.com/watch?v=FZWFcIEToKk&list=WL&index=8](https://www.youtube.com/watch?v=FZWFcIEToKk&list=WL&index=8)
+{% include youtubePlayer.html id="FZWFcIEToKk" %}

@@ -10,7 +10,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 2025-11-27 Trump posted on social media, claiming that “hundreds of thousands of refugees from Somalia are completely taking over the once great State of Minnesota. Somalian gangs are roving the streets looking for “prey” as our wonderful people stay locked in their apartments and houses hoping against hope that they will be left alone”. He also made similar posts roughly a week prior. As part of this post, Trump made it a point to attack Governor Tim Walz, calling Minnesota a “hub of money laundering”. During an interview on CNN, Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
 
-[https://www.youtube.com/watch?v=lOlZlti8bUA&list=WL&index=2](https://www.youtube.com/watch?v=lOlZlti8bUA&list=WL&index=2)
+{% include youtubePlayer.html id="lOlZlti8bUA" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
 
@@ -26,7 +26,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
-[https://www.youtube.com/watch?v=NobIxw0Q3Hg](https://www.youtube.com/watch?v=NobIxw0Q3Hg)
+{% include youtubePlayer.html id="NobIxw0Q3Hg" %}
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
@@ -54,7 +54,7 @@ It is also important to note – for context – that the Heritage Foundation Pr
 
 [https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
 
-[https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4](https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4)
+{% include youtubePlayer.html id="_z47VqygrQw" %}
 
 [https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
 

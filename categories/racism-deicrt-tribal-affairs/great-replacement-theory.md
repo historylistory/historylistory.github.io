@@ -44,7 +44,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 2023-04-09 Marjorie Taylor Greene openly embraced the Great Replacement Theory during a rally.
 
-[https://www.youtube.com/watch?v=R-aIBdFRErc](https://www.youtube.com/watch?v=R-aIBdFRErc)
+{% include youtubePlayer.html id="R-aIBdFRErc" %}
 
 ### 2023 October
 

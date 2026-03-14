@@ -10,7 +10,7 @@ permalink: /categories/military-veterans/detention/
 
 2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
 
-[https://www.youtube.com/watch?v=Y-iTn5xgLck](https://www.youtube.com/watch?v=Y-iTn5xgLck)
+{% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
  
 
@@ -32,7 +32,7 @@ permalink: /categories/military-veterans/detention/
 
 2025-09-30 During an MSNBC interview, Senator Tammy Duckworth stated, “**Our troops did not sign up to be on the streets to intimidate our neighbors**".
 
-[https://www.youtube.com/watch?v=46bOyMz5kqo&list=WL&index=8&t=135s](https://www.youtube.com/watch?v=46bOyMz5kqo&list=WL&index=8&t=135s)
+{% include youtubePlayer.html id="46bOyMz5kqo" %}
 
 ### 2025 October
 
@@ -44,7 +44,7 @@ permalink: /categories/military-veterans/detention/
 
 2025-11-14 ICE deported Purple Heart veteran with PTSD Jose Barco in Florence Arizona.
 
-[https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6](https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6)
+{% include youtubePlayer.html id="bVPSSf43okY" %}
 
 [https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported](https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported)
 

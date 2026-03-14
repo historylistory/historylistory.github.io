@@ -10,7 +10,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 1920-01-01 If you pay attention to the eugenics movement, **Americans considered whites "the right people**".  **Charles Davenport proposed building a wall too**, to "keep out the cheaper races" as he put it. If a history lesson doesn’t make clear the racist implications of not welcoming migrants, **keep in mind** news outlets began to report in October 2025 how **the Trump administration began** work **to overhaul the refugee system so it would favor white people**.
 
-[https://www.youtube.com/watch?v=vmRb-0v5xfI&list=WL&index=1&t=3363s](https://www.youtube.com/watch?v=vmRb-0v5xfI&list=WL&index=1&t=3363s)
+{% include youtubePlayer.html id="vmRb-0v5xfI" %}
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
 
@@ -30,7 +30,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 [https://www.bbc.com/news/world-us-canada-46610642](https://www.bbc.com/news/world-us-canada-46610642)
 
-[https://www.youtube.com/watch?v=q1gtUWO2N9k](https://www.youtube.com/watch?v=q1gtUWO2N9k)
+{% include youtubePlayer.html id="q1gtUWO2N9k" %}
 
 ### 2025
 
@@ -38,6 +38,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 [https://theconversation.com/why-sydney-sweeneys-american-eagle-campaign-is-part-of-a-wider-cultural-backlash-262417](https://theconversation.com/why-sydney-sweeneys-american-eagle-campaign-is-part-of-a-wider-cultural-backlash-262417)
 
-[https://www.youtube.com/watch?v=YzVYyDehMUY](https://www.youtube.com/watch?v=YzVYyDehMUY)
+{% include youtubePlayer.html id="YzVYyDehMUY" %}
 
  

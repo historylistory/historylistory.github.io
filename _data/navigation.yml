@@ -1,8 +1,4 @@
 categories:
-  - name: Purpose
-    slug: purpose
-    subcategories:
-
   - name: Agriculture
     slug: agriculture
     subcategories:

@@ -20,7 +20,7 @@ permalink: /categories/voting-census/voter-suppression-women/
 
 Clarifying the SAVE Act: Trump had repeated that the only way Democrats would win the election is if they “cheat”, so he vowed he would stop it. That’s when he started pushing the SAVE Act, nationalizing elections, seizing voting rolls, and eliminating mail-in ballots. Voter ID is different from proof of citizenship. Americans show their ID, match it up against voter rolls, and register to vote. Some states’ drivers’ licenses – like Michigan, for example – do not show citizenship status. With the SAVE Act,  Americans (particularly women) would have to show proof of citizenship with a passport or original birth certificate in their original name (including married names). The new process is cumbersome, with the intent to kick as many people off voter rolls as possible.  
 
-[https://www.youtube.com/watch?v=LLAdmVDXx60&list=WL&index=2](https://www.youtube.com/watch?v=LLAdmVDXx60&list=WL&index=2)
+{% include youtubePlayer.html id="LLAdmVDXx60" %}
 
 [https://www.factcheck.org/2025/02/will-save-act-prevent-married-women-from-registering-to-vote/?gad_source=1&gad_campaignid=9968884756&gbraid=0AAAAADwJnqkfIqemxLZBXEStjNkrM1odA&gclid=Cj0KCQiAyP3KBhD9ARIsAAJLnnZH8hqHILmK5FBZV6F5v8AYz2EOBlENS3Al4mNumnPpOHffncQr2rIaAjLDEALw_wcB](https://www.factcheck.org/2025/02/will-save-act-prevent-married-women-from-registering-to-vote/?gad_source=1&gad_campaignid=9968884756&gbraid=0AAAAADwJnqkfIqemxLZBXEStjNkrM1odA&gclid=Cj0KCQiAyP3KBhD9ARIsAAJLnnZH8hqHILmK5FBZV6F5v8AYz2EOBlENS3Al4mNumnPpOHffncQr2rIaAjLDEALw_wcB)
 
@@ -38,13 +38,13 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 
 2025-08-07 CNN Pamela Brown interviewed Doug Wilson with Christ Church. The interview is very enlightening because he made several misogynist remarks about women including but not limited to “**women are people other people come out of**” and that having babies doesn’t take skill.  Summed up, **he claimed that women should not vote, and they should not hold leadership positions** because the bible says they shouldn’t. The interview featured two other church leaders with the same set of beliefs. For context, Doug Wilson erected a church in Washington D.C., helped co-author Project 2025, and is followed by Pete Hegseth.
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 [https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho](https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho)
 
 [https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid](https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid)
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 [https://en.wikipedia.org/wiki/Project_2025](https://en.wikipedia.org/wiki/Project_2025)
 

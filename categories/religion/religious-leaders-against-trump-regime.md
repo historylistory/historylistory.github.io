@@ -10,7 +10,7 @@ permalink: /categories/religion/religious-leaders-against-trump-regime/
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
 
-[https://www.youtube.com/watch?v=REh1ulbyoY4](https://www.youtube.com/watch?v=REh1ulbyoY4)
+{% include youtubePlayer.html id="REh1ulbyoY4" %}
 
 [https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump](https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump)
 
@@ -42,7 +42,7 @@ permalink: /categories/religion/religious-leaders-against-trump-regime/
 
 2025-05-21 Senate Bill SB10 was introduced, requiring the Ten Commandments in classrooms. State Representative James Talrico sparred with Noble and ended the debate by stating “**forcing religion down throats is not love**”.
 
-[https://www.youtube.com/watch?v=g3Na7eXsRpI](https://www.youtube.com/watch?v=g3Na7eXsRpI)
+{% include youtubePlayer.html id="g3Na7eXsRpI" %}
 
 [https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law#:~:text=built%20this%20country.%E2%80%9D-,S.B.,meet%20the%20requirements%20of%20S.B](https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law).
 

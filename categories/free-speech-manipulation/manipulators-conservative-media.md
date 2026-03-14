@@ -110,7 +110,7 @@ Remember: rage bait sells. 
 
 [https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
 
-[https://www.youtube.com/watch?v=MKHSv6XiNQY](https://www.youtube.com/watch?v=MKHSv6XiNQY)
+{% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 [https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
 
@@ -150,13 +150,13 @@ Remember: rage bait sells. 
 
 [https://www.rawstory.com/kari-lake-2673993519/](https://www.rawstory.com/kari-lake-2673993519/)
 
-[https://www.youtube.com/watch?v=2Q_GxtTpWCY](https://www.youtube.com/watch?v=2Q_GxtTpWCY)
+{% include youtubePlayer.html id="2Q_GxtTpWCY" %}
 
 [https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/](https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/)
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
 2025-09-17 Sinclair Broadcasting issued a press release on their Investor Relations page demanding that FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
 

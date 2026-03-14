@@ -10,11 +10,11 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed a 23-year-old man Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
 
-[https://www.youtube.com/watch?v=Vf7v-UF1epY&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=Vf7v-UF1epY&list=WL&index=4&t=14s)
+{% include youtubePlayer.html id="Vf7v-UF1epY" %}
 
-[https://www.youtube.com/watch?v=BjyRuCTu0YI&list=WL&index=6](https://www.youtube.com/watch?v=BjyRuCTu0YI&list=WL&index=6)
+{% include youtubePlayer.html id="BjyRuCTu0YI" %}
 
-[https://www.youtube.com/watch?v=tdIv0jB5MWI&list=WL&index=7&t=27s](https://www.youtube.com/watch?v=tdIv0jB5MWI&list=WL&index=7&t=27s)
+{% include youtubePlayer.html id="tdIv0jB5MWI" %}
 
 ### 2025 July
 
@@ -64,7 +64,7 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 [https://www.cnn.com/2026/01/09/politics/investigation-minneapolis-ice-shooting-deviates-police-shooting-playbook](https://www.cnn.com/2026/01/09/politics/investigation-minneapolis-ice-shooting-deviates-police-shooting-playbook)
 
-[https://www.youtube.com/watch?v=JPci0fAmo40](https://www.youtube.com/watch?v=JPci0fAmo40)
+{% include youtubePlayer.html id="JPci0fAmo40" %}
 
 2026-01-09 News media reported that a neighbor saw federal agents removing evidence from the home of Jonathan Ross, the ICE agent who fatally shot Nicole Good.
 
@@ -160,7 +160,7 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
-[https://www.youtube.com/watch?v=KtddP80PrWY&list=WL&index=1&t=34s](https://www.youtube.com/watch?v=KtddP80PrWY&list=WL&index=1&t=34s)
+{% include youtubePlayer.html id="KtddP80PrWY" %}
 
 [https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
 

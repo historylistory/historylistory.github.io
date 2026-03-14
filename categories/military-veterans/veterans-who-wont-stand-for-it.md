@@ -46,7 +46,7 @@ permalink: /categories/military-veterans/veterans-who-wont-stand-for-it/
 
 2026-02-05 Jake Lang was arrested in Minneapolis after destroying a sculpture the local Veteran-ran Common Defense organization bought permits to display. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”. 
 
-[https://www.youtube.com/watch?v=IZO1YzK_aEY](https://www.youtube.com/watch?v=IZO1YzK_aEY)
+{% include youtubePlayer.html id="IZO1YzK_aEY" %}
 
 [https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang](https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang)
 

@@ -10,7 +10,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2016-02-16 After the Pope condemned Trump for "building walls…not bridges", Trump ranted the Pope would "wish and pray" that he (Trump) becomes president.
 
-[https://www.youtube.com/watch?v=36qhTfCWdiw](https://www.youtube.com/watch?v=36qhTfCWdiw)
+{% include youtubePlayer.html id="36qhTfCWdiw" %}
 
 [https://www.bbc.com/news/election-us-2016-35607597](https://www.bbc.com/news/election-us-2016-35607597)
 
@@ -26,9 +26,9 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
 
-[https://www.youtube.com/watch?v=emuKlnqwlcc](https://www.youtube.com/watch?v=emuKlnqwlcc)
+{% include youtubePlayer.html id="emuKlnqwlcc" %}
 
-[https://www.youtube.com/watch?v=DkjzEAmFXeo](https://www.youtube.com/watch?v=DkjzEAmFXeo)
+{% include youtubePlayer.html id="DkjzEAmFXeo" %}
 
 ### 2025 September
 
@@ -38,7 +38,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
 
-[https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1](https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1)
+{% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
 [https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698](https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698)
 
@@ -48,11 +48,11 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2025-10-07 (more hubris than petulance) Pam Bondi sat before the Senate Judiciary committee and deflected every single question with prepared counterattacks and snarky hubris.
 
-[https://www.youtube.com/watch?v=jo5Kn_UFHOY&list=WL&index=2](https://www.youtube.com/watch?v=jo5Kn_UFHOY&list=WL&index=2)
+{% include youtubePlayer.html id="jo5Kn_UFHOY" %}
 
 2025-10-29 Katie Miller had a meltdown on the Piers Morgan show, made several meritless accusations of antisemitism, and threatened to take away citizenship from her critics. She also attacked Piers Morgan, claimed if Mamdani wins then New York will fall, and inadvertently brought up 9/11 (for context, 9/11 and terrorism is frequently brought up on X posts to troll Mamdani and his supporters). 
 
-[https://www.youtube.com/watch?v=S5MuRatp4ms](https://www.youtube.com/watch?v=S5MuRatp4ms)
+{% include youtubePlayer.html id="S5MuRatp4ms" %}
 
 2025-10-31 Nancy Mace reportedly had a meltdown at Charleston International Airport and berated TSA officers. Some news outlets have provided the official report on their websites.
 
@@ -98,7 +98,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2025-12-18 (context) Dan Bongino announced he would plan to move on from the FBI in the new year. He could talk tough and say vicious and threatening things on his show, but then he only lasted 9 months under the Trump administration. Maybe he had a change of heart – maybe he’s not as tough as he boasts.
 
-[https://www.youtube.com/watch?v=NjZ_6r4JQQU&list=WL&index=11](https://www.youtube.com/watch?v=NjZ_6r4JQQU&list=WL&index=11)
+{% include youtubePlayer.html id="NjZ_6r4JQQU" %}
 
 [https://www.bbc.com/news/articles/cvgj0p5yl92o](https://www.bbc.com/news/articles/cvgj0p5yl92o)
 
@@ -116,6 +116,6 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 2026-03-08 During an interview on 60 Minutes, Pete Hegseth answered the question “Will there be boots on the ground in Iran”. He smirked and said, “I wouldn’t tell you that if we did.” The interviewer said the only reason he asked was because earlier in the week Hegseth said there would not be boots on the ground and he wanted to know if that was still the answer., Pete Hegseth responded, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
 
-[https://www.youtube.com/watch?v=bDPk2jtlXfU&list=WL&index=1&t=410s](https://www.youtube.com/watch?v=bDPk2jtlXfU&list=WL&index=1&t=410s)
+{% include youtubePlayer.html id="bDPk2jtlXfU" %}
 
-[https://www.youtube.com/watch?v=CA73grSSk8E](https://www.youtube.com/watch?v=CA73grSSk8E)
+{% include youtubePlayer.html id="CA73grSSk8E" %}

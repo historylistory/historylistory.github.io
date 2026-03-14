@@ -42,7 +42,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 
-[https://www.youtube.com/watch?v=d5qoaj3YndQ](https://www.youtube.com/watch?v=d5qoaj3YndQ)
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 2024-11-25 In Pete Hegseth’s book The War on Warriors, he argues that the US should disregard the Geneva Convention constraints and abide by our “own rules”.
 
@@ -162,11 +162,11 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 2025-09-17 During a Judiciary Committee Hearing following the Kirk shooting, Congresswoman Jasmine Crocket grilled Patel over his mishandling of the investigation.
 
-[https://www.youtube.com/watch?v=ruzO8pTcW54&list=WL&index=3](https://www.youtube.com/watch?v=ruzO8pTcW54&list=WL&index=3)
+{% include youtubePlayer.html id="ruzO8pTcW54" %}
 
 2025-09-11 (context) Trump assigned a former NFL player to the ambassador of the Bahamas. The video of Herschel Walker stumbling through foreign policy questions from Ted Cruz about the Bahamas can be found on YouTube. On February 19th of the following year, during a press conference Trump couldn’t remember where he assigned Walker, stating, “…and now he’s going to be the ambassador of…come on, name the country, Herschel…”.
 
-[https://www.youtube.com/watch?v=08n2IItLPgE](https://www.youtube.com/watch?v=08n2IItLPgE)
+{% include youtubePlayer.html id="08n2IItLPgE" %}
 
 [https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders](https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders)
 
@@ -174,7 +174,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 2025-10-02 During a Fox interview, Leavitt was caught off guard after the Fox reporter asked her to verify claims servicemembers were not receiving pay during the shutdown just after Russell Vought stated the contrary in a previous interview.
 
-[https://www.youtube.com/watch?v=ORg7VfCYmzM&list=WL&index=6&t=199s](https://www.youtube.com/watch?v=ORg7VfCYmzM&list=WL&index=6&t=199s)
+{% include youtubePlayer.html id="ORg7VfCYmzM" %}
 
 2025-10-07 In response to the shutdown, Republican Representative Mariannette Miller-Meeks of Iowa stated she would hold town halls “when hell freezes over” and stated, “I don’t have to hold a town hall so you can come and yell at me”.
 
@@ -282,7 +282,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/](https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/)
 
-[https://www.youtube.com/watch?app=desktop&v=9pf4HHuszN8](https://www.youtube.com/watch?app=desktop&v=9pf4HHuszN8)
+{% include youtubePlayer.html id="9pf4HHuszN8" %}
 
 2026-02-27 For the second incident in February 2026, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas, proving there is an ongoing breakdown in communication between agencies.
 
@@ -298,7 +298,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
 
-[https://www.youtube.com/watch?v=iWq2lAFoEa8](https://www.youtube.com/watch?v=iWq2lAFoEa8)
+{% include youtubePlayer.html id="iWq2lAFoEa8" %}
 
 [https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/](https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/)
 

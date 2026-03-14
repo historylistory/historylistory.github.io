@@ -46,7 +46,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 2025-09-10 Before anyone had a shooter suspect, Nancy Mace declared that Democrats needed to own what happened to Charlie Kirk. A reporter asked her if the same rationale could be applied to the murder of the Minnesota senators.
 
-[https://www.youtube.com/watch?v=l6dV4y91l8Y](https://www.youtube.com/watch?v=l6dV4y91l8Y)
+{% include youtubePlayer.html id="l6dV4y91l8Y" %}
 
 [https://www.youtube.com/shorts/Tpawq6l_RxU](https://www.youtube.com/shorts/Tpawq6l_RxU)
 
@@ -90,7 +90,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 2025-09-10 On the same day Kirk was shot Fox host Jesse Watters proclaimed the Democrats were "at war" while he simultaneously attacked transgender people.
 
-[https://www.youtube.com/watch?v=0RmvOCiTJAQ](https://www.youtube.com/watch?v=0RmvOCiTJAQ)
+{% include youtubePlayer.html id="0RmvOCiTJAQ" %}
 
 2025-09-10 In a social media post Netanyahu called Charlie Kirk the "lion hearted friend of Israel".
 
@@ -110,7 +110,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075](https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075)
 
-[https://www.youtube.com/watch?v=t8mtmQc7vuM](https://www.youtube.com/watch?v=t8mtmQc7vuM)
+{% include youtubePlayer.html id="t8mtmQc7vuM" %}
 
 ### 2025 September 11
 
@@ -128,7 +128,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 2025-09-11 Fox commentator Laura Ingraham stated the left had a lot to “answer to” and, "we have warned for years that their left will lead to violence".
 
-[https://www.youtube.com/watch?v=bWRG4k9XkhI](https://www.youtube.com/watch?v=bWRG4k9XkhI)
+{% include youtubePlayer.html id="bWRG4k9XkhI" %}
 
 2025-09-11 In separate interviews on both Fox News and The Benny Show Eric Trump incorrectly asserted that "bullets are only flying one way".
 
@@ -202,7 +202,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 2025-09-12 In an interview with Fox, Trump said "radicals on the right are radical because they don't want crime" but that "radicals on the left are the problem".
 
-[https://www.youtube.com/watch?v=SxzScV6HXyk](https://www.youtube.com/watch?v=SxzScV6HXyk)
+{% include youtubePlayer.html id="SxzScV6HXyk" %}
 
 2025-09-12 On September 10th, Nancy Mace called for the death penalty in response to the Kirk shooting. However, after learning the Kirk suspect was a white conservative male, Nancy Mace toned down her rhetoric from "Democrats have to own up…" to the suspect being "lost" and that she would pray "he finds Jesus Christ".
 
@@ -266,7 +266,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://abcnews.go.com/US/attorney-general-pam-bondi-claims-left-wing-radicals/story?id=125604411](https://abcnews.go.com/US/attorney-general-pam-bondi-claims-left-wing-radicals/story?id=125604411)
 
-[https://www.youtube.com/watch?v=ggJEvIALIJQ&list=WL&index=5](https://www.youtube.com/watch?v=ggJEvIALIJQ&list=WL&index=5)
+{% include youtubePlayer.html id="ggJEvIALIJQ" %}
 
 2025-09-15 NBC reported that Attorney General Pam Bondi faced backlash from MAGA over cracking down on “hate speech”.
 
@@ -324,7 +324,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 2025-09-16 Marco Rubio announced they will be monitoring foreign social media for any offensive comments made about Charlie Kirk and deny visas accordingly as part of their retaliation campaign.
 
-[https://www.youtube.com/watch?v=F39XMfky6a8](https://www.youtube.com/watch?v=F39XMfky6a8)
+{% include youtubePlayer.html id="F39XMfky6a8" %}
 
 2025-09-16 During a hearing in Capitol Hill to investigate his mishandling of the Kirk shooting, Kash Patel asserted that the suspect subscribed to leftist ideology.
 
@@ -344,9 +344,9 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.pbs.org/newshour/politics/watch-trump-authentically-himself-for-saying-he-hates-opponents-at-kirk-funeral-white-house-says](https://www.pbs.org/newshour/politics/watch-trump-authentically-himself-for-saying-he-hates-opponents-at-kirk-funeral-white-house-says)
 
-[https://www.youtube.com/watch?v=SEcWx9VMjeg](https://www.youtube.com/watch?v=SEcWx9VMjeg)
+{% include youtubePlayer.html id="SEcWx9VMjeg" %}
 
-[https://www.youtube.com/watch?v=dPRdTEtYsKM](https://www.youtube.com/watch?v=dPRdTEtYsKM)
+{% include youtubePlayer.html id="dPRdTEtYsKM" %}
 
 ### 2025 September 25
 

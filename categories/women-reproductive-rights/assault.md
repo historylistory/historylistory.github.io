@@ -66,13 +66,13 @@ Side note: Stephen Miller called into the conservative Larry Elder show during h
 
 [https://www.bbc.com/news/articles/c1rw8d0p2j7o](https://www.bbc.com/news/articles/c1rw8d0p2j7o)
 
-[https://www.youtube.com/watch?v=L2Laod74bLs](https://www.youtube.com/watch?v=L2Laod74bLs)
+{% include youtubePlayer.html id="L2Laod74bLs" %}
 
 ### 2024 August
 
 2024-08-25 Jesse Watters stated about Kamala Harris, "**She is going to get paralyzed in the situation room while the generals have their way with her**" and refused to apologize.
 
-[https://www.youtube.com/watch?v=dddKNLwzqEc](https://www.youtube.com/watch?v=dddKNLwzqEc)
+{% include youtubePlayer.html id="dddKNLwzqEc" %}
 
 [https://www.binnews.com/content/2024-08-28-jesse-watters-declines-to-apologize-for-suggestive-kamala-harris-comments/](https://www.binnews.com/content/2024-08-28-jesse-watters-declines-to-apologize-for-suggestive-kamala-harris-comments/)
 
@@ -88,7 +88,7 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 
 [https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
 
-[https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2](https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2)
+{% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
 [https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
 

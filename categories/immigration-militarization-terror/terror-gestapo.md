@@ -24,6 +24,6 @@ permalink: /categories/immigration-militarization-terror/terror-gestapo/
 
 [https://www.cpr.org/2026/01/23/ice-ace-of-spades-death-cards-detained-immigrants/](https://www.cpr.org/2026/01/23/ice-ace-of-spades-death-cards-detained-immigrants/)
 
-[https://www.youtube.com/watch?v=6gYPGcEI8As](https://www.youtube.com/watch?v=6gYPGcEI8As)
+{% include youtubePlayer.html id="6gYPGcEI8As" %}
 
-[https://www.youtube.com/watch?v=tAq8NkMIjd8](https://www.youtube.com/watch?v=tAq8NkMIjd8)
+{% include youtubePlayer.html id="tAq8NkMIjd8" %}

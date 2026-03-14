@@ -12,7 +12,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544](https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544)
 
-[https://www.youtube.com/watch?v=PcKlPhFIE7w](https://www.youtube.com/watch?v=PcKlPhFIE7w)
+{% include youtubePlayer.html id="PcKlPhFIE7w" %}
 
 ### 2025 January
 
@@ -30,7 +30,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 2025-07-01 Trump floated the idea of a UFC fight on the White House South lawn and confirmed later in October they will be having it in June 2026.
 
-[https://www.youtube.com/watch?v=Q3QsIAjBTx8](https://www.youtube.com/watch?v=Q3QsIAjBTx8)
+{% include youtubePlayer.html id="Q3QsIAjBTx8" %}
 
 ### 2025 August
 

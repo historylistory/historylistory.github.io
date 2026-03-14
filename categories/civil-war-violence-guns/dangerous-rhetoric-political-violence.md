@@ -28,13 +28,13 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 [https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage#:~:text=Saying%20that%20%22after%20this%20shocking,More%20options](https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage)
 
-[https://www.youtube.com/watch?v=KhcDh0-_5m4](https://www.youtube.com/watch?v=KhcDh0-_5m4)
+{% include youtubePlayer.html id="KhcDh0-_5m4" %}
 
 ### 2016
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked "maybe the Second Amendment supporters should 'do' something about Hillary Clinton".
 
-[https://www.youtube.com/watch?v=58SawH2FJ4Q](https://www.youtube.com/watch?v=58SawH2FJ4Q)
+{% include youtubePlayer.html id="58SawH2FJ4Q" %}
 
 ### 2017
 
@@ -200,7 +200,7 @@ Remember: rage bait sells. 
 
 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
 
-[https://www.youtube.com/watch?v=OiUU1JLoT2E&list=WL&index=1&t=436s](https://www.youtube.com/watch?v=OiUU1JLoT2E&list=WL&index=1&t=436s)
+{% include youtubePlayer.html id="OiUU1JLoT2E" %}
 
 [https://www.mediaite.com/politics/house-republicans-and-democrats-find-common-ground-in-opposing-gop-member-hanging-a-wanted-poster-for-judges-outside-his-office/](https://www.mediaite.com/politics/house-republicans-and-democrats-find-common-ground-in-opposing-gop-member-hanging-a-wanted-poster-for-judges-outside-his-office/)
 
@@ -220,11 +220,11 @@ Violent rhetoric from posts made by Trump emboldened activists to threaten judge
 
 2025-06-16 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X. The post was captioned with "This is what happens when Marxists don't get their way" and a second post "Nightmare on Waltz Street". The posts have since been taken down but screen captures still exist on news outlets.
 
-[https://www.youtube.com/watch?v=Ot31E4JGglk](https://www.youtube.com/watch?v=Ot31E4JGglk)
+{% include youtubePlayer.html id="Ot31E4JGglk" %}
 
 2025-06-17 When the press asks Trump if he plans to call Tim Walz to express condolences for the political assassination, Trump responded, "I think the governor is so whacked out, why would I call him", "the guy doesn't have a clue, he's a mess", and "why waste time".
 
-[https://www.youtube.com/watch?v=f-POfJnbHIs](https://www.youtube.com/watch?v=f-POfJnbHIs)
+{% include youtubePlayer.html id="f-POfJnbHIs" %}
 
 ### 2025 July
 
@@ -244,9 +244,9 @@ Violent rhetoric from posts made by Trump emboldened activists to threaten judge
 
 [https://www.pbs.org/newshour/politics/watch-trump-authentically-himself-for-saying-he-hates-opponents-at-kirk-funeral-white-house-says](https://www.pbs.org/newshour/politics/watch-trump-authentically-himself-for-saying-he-hates-opponents-at-kirk-funeral-white-house-says)
 
-[https://www.youtube.com/watch?v=SEcWx9VMjeg](https://www.youtube.com/watch?v=SEcWx9VMjeg)
+{% include youtubePlayer.html id="SEcWx9VMjeg" %}
 
-[https://www.youtube.com/watch?v=dPRdTEtYsKM](https://www.youtube.com/watch?v=dPRdTEtYsKM)
+{% include youtubePlayer.html id="dPRdTEtYsKM" %}
 
 ### 2026 January
 

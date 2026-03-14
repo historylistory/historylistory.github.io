@@ -46,7 +46,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 2024-12-22 Both in a social media post and during a rally in Phoenix, Trump threatened to seize control of the Panama Canal by force. He reiterated the threat in February 2025 warning of a “powerful” U.S. action.
 
-[https://www.youtube.com/watch?v=focpbht5MAI](https://www.youtube.com/watch?v=focpbht5MAI)
+{% include youtubePlayer.html id="focpbht5MAI" %}
 
 [https://www.cnn.com/2025/02/02/americas/panama-china-belt-and-road-initiative-rubio-visits-intl-latam](https://www.cnn.com/2025/02/02/americas/panama-china-belt-and-road-initiative-rubio-visits-intl-latam)
 
@@ -102,7 +102,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
 
-[https://www.youtube.com/watch?v=5c1idp7Qzd4](https://www.youtube.com/watch?v=5c1idp7Qzd4)
+{% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
 2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
 
@@ -228,7 +228,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 2025-09-20 Trump threatened Afghanistan in a social media post, saying “bad things” would happen if the U.S. doesn’t retake Bagram Air Force Base.
 
-[https://www.youtube.com/watch?v=2wdn7tErxd4&list=WL&index=1](https://www.youtube.com/watch?v=2wdn7tErxd4&list=WL&index=1)
+{% include youtubePlayer.html id="2wdn7tErxd4" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115238745589536576](https://truthsocial.com/@realDonaldTrump/posts/115238745589536576)
 
@@ -262,7 +262,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d](https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d)
 
-[https://www.youtube.com/watch?v=MYM40nNxN1M](https://www.youtube.com/watch?v=MYM40nNxN1M)
+{% include youtubePlayer.html id="MYM40nNxN1M" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
 
@@ -276,13 +276,13 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 2025-10-09 During a White House press conference, Trump responded to a reporter question about backpay after the shutdown. He responded, “**I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way**”.
 
-[https://www.youtube.com/watch?v=k0nZfIO2B2U&list=WL&index=2](https://www.youtube.com/watch?v=k0nZfIO2B2U&list=WL&index=2)
+{% include youtubePlayer.html id="k0nZfIO2B2U" %}
 
 2025-10-10 In a retaliatory move to the government shutdown, the Trump administration began firing thousands of employees, **withholding backpay**, and cutting funds. CNN reported that the administration **fired 4000 workers**.
 
 [https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay](https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay)
 
-[https://www.youtube.com/watch?v=rybrDZjirrk&list=WL&index=3](https://www.youtube.com/watch?v=rybrDZjirrk&list=WL&index=3)
+{% include youtubePlayer.html id="rybrDZjirrk" %}
 
 2025-10-14 In response to the shutdown, RFK fired over 1000 CDC doctors and scientists.
 
@@ -296,7 +296,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
 
-[https://www.youtube.com/watch?v=w1oHKOPjf94](https://www.youtube.com/watch?v=w1oHKOPjf94)
+{% include youtubePlayer.html id="w1oHKOPjf94" %}
 
 [https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/](https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/)
 
@@ -356,7 +356,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 2025-12-30 Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
 
-[https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5](https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5)
+{% include youtubePlayer.html id="-JtgxH6hpuU" %}
 
 [https://en.wikipedia.org/wiki/Tina_Peters_(politician)](https://en.wikipedia.org/wiki/Tina_Peters_(politician))
 

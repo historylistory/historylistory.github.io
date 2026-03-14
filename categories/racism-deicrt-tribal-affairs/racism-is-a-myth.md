@@ -34,6 +34,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 
 2024-10-01 During a Kendrick Idaho meeting, representatives claimed that **discrimination doesn't exist in Idaho**. When a Nez Perc member stated the contrary, Senator Forman told Trish Carter Goodheart to **go back to where she came from** and proceeded to storm out. Senator Forman is still running for the 2026 election.
 
-[https://www.youtube.com/watch?v=PpObco-roz8](https://www.youtube.com/watch?v=PpObco-roz8)
+{% include youtubePlayer.html id="PpObco-roz8" %}
 
-[https://www.youtube.com/watch?v=5MnMqlP10lM](https://www.youtube.com/watch?v=5MnMqlP10lM)
+{% include youtubePlayer.html id="5MnMqlP10lM" %}

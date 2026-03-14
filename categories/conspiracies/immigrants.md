@@ -24,7 +24,7 @@ permalink: /categories/conspiracies/immigrants/
 
 2024-09-10 JD Vance posted on Truth Social "In the last several weeks, my office has received many inquiries from actual residents of Springfield who've said their neighbors' pets or local wildlife were abducted by Haitian migrants. It's possible, of course, that all of these rumors will turn out to be false".
 
-[https://www.youtube.com/watch?v=d5qoaj3YndQ](https://www.youtube.com/watch?v=d5qoaj3YndQ)
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 2024-09-12 Days after Trump and JD Vance provoked fear about pets being eaten, Springfield experienced several days of bomb threats made to multiple county, school, and hospital facilities. Haitian
 
@@ -34,19 +34,19 @@ permalink: /categories/conspiracies/immigrants/
 
 [https://www.cbsnews.com/news/jd-vance-ohio-haitian-immigrants-false-claims-face-the-nation/](https://www.cbsnews.com/news/jd-vance-ohio-haitian-immigrants-false-claims-face-the-nation/)
 
-[https://www.youtube.com/watch?v=oBCSCrhnfu0](https://www.youtube.com/watch?v=oBCSCrhnfu0)
+{% include youtubePlayer.html id="oBCSCrhnfu0" %}
 
 ### 2025 April
 
 2025-04-30 The White House shared a digitally altered image of "M-S-1-3" on Abrego Garcia's hand. Most Americans quickly realized it was simply text typed over a photo of his hand and not actually tattoos. However, Trump repeatedly insisted the picture was real during an interview.  It is unclear if the photo intends to depict the meaning behind each tattoo.
 
-[https://www.youtube.com/watch?v=H0Z-Ver2K9c](https://www.youtube.com/watch?v=H0Z-Ver2K9c)
+{% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 
 ### 2025 July
 
 2025-07-01 Kristi Noem peddled a claim that an immigrant tried to eat their own arm during a deportation flight. Whether the immigrant did or didn't try to injure themselves or the exact circumstance has not been known, but some fear these claims are more rhetoric to instill fear about immigrants.
 
-[https://www.youtube.com/watch?v=X5q-85Z4Z38](https://www.youtube.com/watch?v=X5q-85Z4Z38)
+{% include youtubePlayer.html id="X5q-85Z4Z38" %}
 
 [https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848](https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848)
 
@@ -72,7 +72,7 @@ It is also important to note – for context – that the Heritage Foundation Pr
 
 [https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
 
-[https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4](https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4)
+{% include youtubePlayer.html id="_z47VqygrQw" %}
 
 2025-12-27 JD Vance tweeted about Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.
 

@@ -154,7 +154,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 2025-11-12 (context) Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit. In that speech, he compared the current moment in history as a “1939 type moment or hopefully a 1981 moment” (context: 1939 is the year Adolf Hitler began his reign of terror). He talked about readiness, stating that means, “no more social justice, no more political correctness, no more toxic ideological garbage that infected the department”. He further stated, “No more identity months, no more DEI offices, no more dudes in dresses”. He went on to say “no more climate change worship, no more division, no more delusions, gender delusions or quotas, no more distraction. As the chairman of the joint chiefs puts it: Pete you’re clearing out the debris.
 
-[https://www.youtube.com/watch?v=s2undI6MmQs&list=WL&index=9&t=15s](https://www.youtube.com/watch?v=s2undI6MmQs&list=WL&index=9&t=15s)
+{% include youtubePlayer.html id="s2undI6MmQs" %}
 
 [https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/](https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/)
 
@@ -194,7 +194,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://weather.com/news/weather/news/2026-02-02-winter-storm-gianna-bomb-cyclone-aftermath](https://weather.com/news/weather/news/2026-02-02-winter-storm-gianna-bomb-cyclone-aftermath)
 
-[https://www.youtube.com/watch?v=hnPxMlGdLbw](https://www.youtube.com/watch?v=hnPxMlGdLbw)
+{% include youtubePlayer.html id="hnPxMlGdLbw" %}
 
 [https://www.cnn.com/2023/01/15/weather/falling-iguanas-cold-weather](https://www.cnn.com/2023/01/15/weather/falling-iguanas-cold-weather)
 
@@ -202,6 +202,6 @@ permalink: /categories/climate-change/climate-change-denial/
 
 2026-02-09 News agencies reported that Lake Eerie has a 100-mile crack due to increasing temperatures and can be seen from space.
 
-[https://www.youtube.com/watch?v=5Bda2NijPX8](https://www.youtube.com/watch?v=5Bda2NijPX8)
+{% include youtubePlayer.html id="5Bda2NijPX8" %}
 
 [https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size](https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size)

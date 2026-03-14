@@ -12,7 +12,7 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 [https://www.youtube.com/shorts/s-BQhXdCs8Y](https://www.youtube.com/shorts/s-BQhXdCs8Y)
 
-[https://www.youtube.com/watch?v=KgH7Lv2gQdk](https://www.youtube.com/watch?v=KgH7Lv2gQdk)
+{% include youtubePlayer.html id="KgH7Lv2gQdk" %}
 
 ### 2017
 
@@ -28,7 +28,7 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 [https://en.wikipedia.org/wiki/Trump%E2%80%93Raffensperger_phone_call](https://en.wikipedia.org/wiki/Trump%E2%80%93Raffensperger_phone_call)
 
-[https://www.youtube.com/watch?v=wjw2ekfp0oM](https://www.youtube.com/watch?v=wjw2ekfp0oM)
+{% include youtubePlayer.html id="wjw2ekfp0oM" %}
 
 [https://www.theguardian.com/us-news/2021/jan/03/trump-georgia-raffensperger-call-biden-washington-post](https://www.theguardian.com/us-news/2021/jan/03/trump-georgia-raffensperger-call-biden-washington-post)
 
@@ -116,7 +116,7 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 2025-12-30 (for context) Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
 
-[https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5](https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5)
+{% include youtubePlayer.html id="-JtgxH6hpuU" %}
 
 [https://en.wikipedia.org/wiki/Tina_Peters_(politician)](https://en.wikipedia.org/wiki/Tina_Peters_(politician))
 

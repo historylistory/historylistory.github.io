@@ -42,7 +42,7 @@ permalink: /categories/economy-labor-poverty/other/
 
 2025-11-13**Recommended Video:** Elizabeth Warren provided a video with context on how private equity firms gut American businesses and threaten American pensions. She discussed how her bill “Corporate Crimes Against Healthcare Act” is designed to stop private equity firms from this sort of activity. One example of a private equity firm would be Mitt Romney’s Bain Capital.
 
-[https://www.youtube.com/watch?v=8_A_Th4aj_0](https://www.youtube.com/watch?v=8_A_Th4aj_0)
+{% include youtubePlayer.html id="8_A_Th4aj_0" %}
 
 [https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-](https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-)
 
@@ -78,7 +78,7 @@ permalink: /categories/economy-labor-poverty/other/
 
 2026-02-11 The House Budget Committee reported findings that personal bankruptcy increased by 11% during Trump’s first year.
 
-[https://www.youtube.com/watch?v=kPDD5XTIIII&list=WL&index=6](https://www.youtube.com/watch?v=kPDD5XTIIII&list=WL&index=6)
+{% include youtubePlayer.html id="kPDD5XTIIII" %}
 
 [https://democrats-budget.house.gov/news/press-releases/boyle-releases-report-finding-personal-bankruptcies-highest-levels-years-under](https://democrats-budget.house.gov/news/press-releases/boyle-releases-report-finding-personal-bankruptcies-highest-levels-years-under)
 

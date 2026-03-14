@@ -34,13 +34,13 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 2024-07-02 During an interview on Breaking Points, RFK talked about regulatory agencies in the hands of corporations and stated, quote, "When a regulatory agency becomes captured by corporations, it also functions to widen corporate power".
 
-[https://www.youtube.com/watch?v=Ke08e2Bfz00&t=150s](https://www.youtube.com/watch?v=Ke08e2Bfz00&t=150s)
+{% include youtubePlayer.html id="Ke08e2Bfz00" %}
 
 ### 2025 January
 
 2025-01-20 Page 377 of Project 2025 outlines Trump's goal to boost the coal industry, which aligned with him signing an executive order to do so.
 
-[https://www.youtube.com/watch?v=LnGsyz4-xf4&list=WL&index=2](https://www.youtube.com/watch?v=LnGsyz4-xf4&list=WL&index=2)
+{% include youtubePlayer.html id="LnGsyz4-xf4" %}
 
 2025-01-20 Trump rescinded The Presidential Memorandum Withdrawal of Certain Areas off the United States Arctic Coast of the Outer Continental Shelf from Oil or Gas Leasing.
 
@@ -142,7 +142,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa](https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa)
 
-[https://www.youtube.com/watch?v=F6doRiySIB0&list=WL&index=6](https://www.youtube.com/watch?v=F6doRiySIB0&list=WL&index=6)
+{% include youtubePlayer.html id="F6doRiySIB0" %}
 
 ### 2025 September
 

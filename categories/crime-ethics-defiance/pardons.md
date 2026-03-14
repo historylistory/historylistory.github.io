@@ -56,13 +56,13 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 2025-05-27 Trump pardoned Todd and Julie Chrisley who were convicted of bank fraud and tax evasion in 2022. Their daughter advocated for the pardon, saying her parents were victims of a weaponized justice system because of their conservative views.
 
-[https://www.youtube.com/watch?v=f-OcMreCrE0](https://www.youtube.com/watch?v=f-OcMreCrE0)
+{% include youtubePlayer.html id="f-OcMreCrE0" %}
 
 ### 2025 September
 
 2025-09-18 During an oversight committee hearing, Representative Jasmine Crockett shed light on the extremely violent and disturbing sexual-assault offenses of multiple J6 members who were put back onto our streets by the Trump administration. Many of those sexual criminal cases involved children.
 
-[https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2](https://www.youtube.com/watch?v=n_S5sYC1nKw&list=WL&index=2)
+{% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
 ### 2025 October
 
@@ -118,7 +118,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.bbc.com/news/articles/c7vmn61l75ro](https://www.bbc.com/news/articles/c7vmn61l75ro)
 
-[https://www.youtube.com/watch?v=56w-jLFeXJQ&list=WL&index=12&t=23s](https://www.youtube.com/watch?v=56w-jLFeXJQ&list=WL&index=12&t=23s)
+{% include youtubePlayer.html id="56w-jLFeXJQ" %}
 
 ### 2025 December
 

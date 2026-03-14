@@ -22,13 +22,13 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 [https://www.bbc.com/news/world-us-canada-46610642](https://www.bbc.com/news/world-us-canada-46610642)
 
-[https://www.youtube.com/watch?v=q1gtUWO2N9k](https://www.youtube.com/watch?v=q1gtUWO2N9k)
+{% include youtubePlayer.html id="q1gtUWO2N9k" %}
 
 ### 2024
 
 2024-06-22 During a Faith & Freedom conference in Washington D.C., Trump floated the idea of a "**migrant UFC**" fight.
 
-[https://www.youtube.com/watch?v=bZvTStL5GB8](https://www.youtube.com/watch?v=bZvTStL5GB8)
+{% include youtubePlayer.html id="bZvTStL5GB8" %}
 
 ### 2025 February
 
@@ -44,7 +44,7 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 2025-05-01 Stephen Miller claimed that Biden imported a "terrorist army", that the media covers up rape-torture-and-murder, and blamed due process for the killing of a woman.
 
-[https://www.youtube.com/watch?v=4oxDvepj7H0](https://www.youtube.com/watch?v=4oxDvepj7H0)
+{% include youtubePlayer.html id="4oxDvepj7H0" %}
 
 ### 2025 June
 
@@ -56,7 +56,7 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 2025-07-01 Kristi Noem peddled a claim that an immigrant tried to eat their own arm during a deportation flight. Whether the immigrant did or didn't try to injure themselves or the exact circumstance has not been known, but some fear these claims are more rhetoric to instill fear about immigrants.
 
-[https://www.youtube.com/watch?v=X5q-85Z4Z38](https://www.youtube.com/watch?v=X5q-85Z4Z38)
+{% include youtubePlayer.html id="X5q-85Z4Z38" %}
 
 [https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848](https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848)
 
@@ -112,7 +112,7 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 2025-11-27 Trump posted on social media, claiming that “hundreds of thousands of refugees from Somalia are completely taking over the once great State of Minnesota. Somalian gangs are roving the streets looking for “prey” as our wonderful people stay locked in their apartments and houses hoping against hope that they will be left alone”. He also made similar posts roughly a week prior. As part of this post, Trump made it a point to attack Governor Tim Walz, calling Minnesota a “hub of money laundering”. During an interview on CNN, Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
 
-[https://www.youtube.com/watch?v=lOlZlti8bUA&list=WL&index=2](https://www.youtube.com/watch?v=lOlZlti8bUA&list=WL&index=2)
+{% include youtubePlayer.html id="lOlZlti8bUA" %}
 
 [https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
 
@@ -128,7 +128,7 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
-[https://www.youtube.com/watch?v=NobIxw0Q3Hg](https://www.youtube.com/watch?v=NobIxw0Q3Hg)
+{% include youtubePlayer.html id="NobIxw0Q3Hg" %}
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 

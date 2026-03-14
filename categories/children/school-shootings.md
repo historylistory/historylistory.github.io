@@ -40,13 +40,13 @@ According to Brady United, The office of Gun Violence Prevention did numerous th
 
 2025-08-27 After the shooting at a Catholic school in Minneapolis, MSNBC Jen Psaki cited the dire need to address school shootings with more than just prayer.  Republicans responded with uproar, incorrectly claiming it was an attack on their religion. Even Karoline Leavitt reframed Jean Psaki’s comments as an "attack on prayer" during a White House press conference.
 
-[https://www.youtube.com/watch?v=89Kgu8KUfIs](https://www.youtube.com/watch?v=89Kgu8KUfIs)
+{% include youtubePlayer.html id="89Kgu8KUfIs" %}
 
 [https://www.facebook.com/watch/?v=1499211274580946](https://www.facebook.com/watch/?v=1499211274580946)
 
-[https://www.youtube.com/watch?v=C_BcjujL0_w](https://www.youtube.com/watch?v=C_BcjujL0_w)
+{% include youtubePlayer.html id="C_BcjujL0_w" %}
 
-[https://www.youtube.com/watch?v=_Z1vyJFdofQ](https://www.youtube.com/watch?v=_Z1vyJFdofQ)
+{% include youtubePlayer.html id="_Z1vyJFdofQ" %}
 
 2025-08-28 During a White House press brief, right-wing influencer Brandon Tatum said the most recent school shooting was not a "gun thing", but a mental health thing. Big Charlie Kirk follower - here’s a picture of him taking the stage at a Turning Point USA conference in 2021 in Orlando.
 
@@ -58,7 +58,7 @@ According to Brady United, The office of Gun Violence Prevention did numerous th
 
 2025-08-31 Pope Leo called school shootings in America a "pandemic of arms".
 
-[https://www.youtube.com/watch?v=TmGTMt2mVmY](https://www.youtube.com/watch?v=TmGTMt2mVmY)
+{% include youtubePlayer.html id="TmGTMt2mVmY" %}
 
 ### 2052 September
 

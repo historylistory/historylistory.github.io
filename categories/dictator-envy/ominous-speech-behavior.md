@@ -10,7 +10,7 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 
 2017-04-29 **Snake Poem** 
 
-[https://www.youtube.com/watch?v=qSrOXvoNLwg](https://www.youtube.com/watch?v=qSrOXvoNLwg)
+{% include youtubePlayer.html id="qSrOXvoNLwg" %}
 
 ### 2023
 
@@ -36,7 +36,7 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 
 2024-10-23 During an interview with All Things Considered, Jeffrey Goldberg quoted Trump as having said he needed “the kind of generals Hitler had…People who were totally loyal to him, that follow orders”.
 
-[https://www.youtube.com/watch?v=bo9Z4r5olW8](https://www.youtube.com/watch?v=bo9Z4r5olW8)
+{% include youtubePlayer.html id="bo9Z4r5olW8" %}
 
 ### 2025 February
 
@@ -44,7 +44,7 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
-[https://www.youtube.com/watch?v=PslOp883rfI](https://www.youtube.com/watch?v=PslOp883rfI)
+{% include youtubePlayer.html id="PslOp883rfI" %}
 
 ### 2025 August
 

@@ -10,9 +10,9 @@ permalink: /categories/health/other/
 
 The Biden administration enforced a rule lowering the amount of formaldehyde it is safe for humans to be around. In December of 2025, the Trump administration not only rolled those safety standards back, but they also increased the amount of formaldehyde that is “safe” for humans to be around. Iowa AG Brenna Bird asked the Trump administration in 2026 to further loosen formaldehyde restrictions for farmers.
 
-[https://www.youtube.com/watch?v=BG3G-lZ5zck](https://www.youtube.com/watch?v=BG3G-lZ5zck)
+{% include youtubePlayer.html id="BG3G-lZ5zck" %}
 
-[https://www.youtube.com/watch?v=DSQETOjV898](https://www.youtube.com/watch?v=DSQETOjV898)
+{% include youtubePlayer.html id="DSQETOjV898" %}
 
 [https://www.theguardian.com/us-news/2025/dec/19/trump-epa-formaldehyde-protection-proposal](https://www.theguardian.com/us-news/2025/dec/19/trump-epa-formaldehyde-protection-proposal)
 
@@ -52,7 +52,7 @@ The Biden administration enforced a rule lowering the amount of formaldehyde it 
 
 2025-12-18 Trump signed an Executive Order reclassifying marijuana from a schedule one to a schedule three drug.
 
-[https://www.youtube.com/watch?v=DTVbPs1RoKo](https://www.youtube.com/watch?v=DTVbPs1RoKo)
+{% include youtubePlayer.html id="DTVbPs1RoKo" %}
 
 [https://www.whitehouse.gov/presidential-actions/2025/12/increasing-medical-marijuana-and-cannabidiol-research/](https://www.whitehouse.gov/presidential-actions/2025/12/increasing-medical-marijuana-and-cannabidiol-research/)
 

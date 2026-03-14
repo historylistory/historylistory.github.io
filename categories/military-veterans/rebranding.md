@@ -26,7 +26,7 @@ permalink: /categories/military-veterans/rebranding/
 
 2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
 
-[https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1](https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1)
+{% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
 [https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698](https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698)
 
@@ -42,7 +42,7 @@ permalink: /categories/military-veterans/rebranding/
 
 [https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/](https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/)
 
-[https://www.youtube.com/watch?v=4XrNsZ-fDjw](https://www.youtube.com/watch?v=4XrNsZ-fDjw)
+{% include youtubePlayer.html id="4XrNsZ-fDjw" %}
 
  
 

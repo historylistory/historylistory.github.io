@@ -46,11 +46,11 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference](https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference)
 
-[https://www.youtube.com/watch?v=6FaBinmq3Kk](https://www.youtube.com/watch?v=6FaBinmq3Kk)
+{% include youtubePlayer.html id="6FaBinmq3Kk" %}
 
 2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
 
-[https://www.youtube.com/watch?v=Y-iTn5xgLck](https://www.youtube.com/watch?v=Y-iTn5xgLck)
+{% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
 ### 2025 July
 
@@ -68,11 +68,11 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-09-16 Federal agents attacked an 80-year-old US citizen in Van Nys during a raid of that man’s business.
 
-[https://www.youtube.com/watch?v=j2gQBfP4Dhk](https://www.youtube.com/watch?v=j2gQBfP4Dhk)
+{% include youtubePlayer.html id="j2gQBfP4Dhk" %}
 
 2025-09-23 ICE agents assaulted a woman during a Chicago protest.
 
-[https://www.youtube.com/watch?v=JtnPgzdaNho&list=WL&index=3](https://www.youtube.com/watch?v=JtnPgzdaNho&list=WL&index=3)
+{% include youtubePlayer.html id="JtnPgzdaNho" %}
 
 2025-09-26 An ICE agent was relieved of duty after he was caught on camera violently shoving an immigrant's wife. In most cases, there is no footage or agents aren’t wearing body cameras.
 
@@ -90,11 +90,11 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were "**unleashed**" and stated, "**we are about to provide you with a level of support that you cannot even imagine**".
 
-[https://www.youtube.com/watch?v=gZvOJjq81cQ&list=WL&index=4](https://www.youtube.com/watch?v=gZvOJjq81cQ&list=WL&index=4)
+{% include youtubePlayer.html id="gZvOJjq81cQ" %}
 
 2025-10-02 ICE raided a Chicago apartment in the middle of the night using riot trucks, smoke grenades and helicopters. Agents used zip ties, **dragged children out naked**, and when residents asked ICE why they were zip-tying children too an agent responded, "**fuck them kids**".
 
-[https://www.youtube.com/watch?v=vOXOWAhFz0A&list=WL&index=3](https://www.youtube.com/watch?v=vOXOWAhFz0A&list=WL&index=3)
+{% include youtubePlayer.html id="vOXOWAhFz0A" %}
 
 2025-10-03 News outlets in Chicago reported that masked federal agents **threw chemical irritants** outside the Logan Square grocery store.
 
@@ -106,7 +106,7 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-10-04 ICE agents in Chicago opened fire and shot a U.S. citizen. The woman, bleeding profusely from multiple gunshot wounds, drove herself to a nearby business where workers tried to stop the bleeding and called 911. DHS alleged the woman was on their watchlist for doxxing agents online and claimed she tried to ram the vehicle of federal agents. According to news outlets, her lawyer stated footage from their body cam contradicted their accounts. In this case, agents wore body cam footage according to reports. In other cases, it has been reported that agents have not been wearing body cameras.
 
-[https://www.youtube.com/watch?v=A9kapAhTqDs&list=WL&index=2](https://www.youtube.com/watch?v=A9kapAhTqDs&list=WL&index=2)
+{% include youtubePlayer.html id="A9kapAhTqDs" %}
 
 [https://www.theguardian.com/us-news/2025/oct/10/chicago-woman-shot-by-border-patrol-indicted](https://www.theguardian.com/us-news/2025/oct/10/chicago-woman-shot-by-border-patrol-indicted)
 
@@ -128,7 +128,7 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-10-09 ICE agents in Chicago **shot a Presbyterian minister** **in the head** with a pepper ball.
 
-[https://www.youtube.com/watch?app=desktop&v=Xc6aKQHFGnQ](https://www.youtube.com/watch?app=desktop&v=Xc6aKQHFGnQ)
+{% include youtubePlayer.html id="Xc6aKQHFGnQ" %}
 
 2025-10-09 Four cemetery workers and U.S. citizens were arrested by ICE during this week while trying to help a struggling man in a local nearby river. They stated ICE agents **drew guns at them, sprayed them with mace, used excessive force, and zip tied them**.
 
@@ -140,7 +140,7 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-10-20 ICE agents surrounded, handcuffed and dragged a blind man to an ICE facility during a peaceful protest.
 
-[https://www.youtube.com/watch?v=-EipyVGQSZY](https://www.youtube.com/watch?v=-EipyVGQSZY)
+{% include youtubePlayer.html id="-EipyVGQSZY" %}
 
 2025-10-21 Federal ICE agents shot Carlitos Ricardo Parias during a targeted traffic stop, stating he allegedly tried to ram officers with his vehicle. Charges were dropped in December because agents didn’t comply with court deadlines, the defendant was not given proper access to counsel while being detained, and DHS wouldn’t release body cam footage.
 
@@ -162,7 +162,7 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 2025-11-06 During a raid at a Los Angeles Home Depot ICE arrested a US citizen then drove off in the detainee’s car with their 1-year-old in the back. News outlets reported bystanders were yelling at the agents that a child was in the backseat.
 
-[https://www.youtube.com/watch?v=6qesNahxcEE](https://www.youtube.com/watch?v=6qesNahxcEE)
+{% include youtubePlayer.html id="6qesNahxcEE" %}
 
 [https://www.latimes.com/california/story/2025-11-04/ice-border-patrol-dodger-stadium-parking-lot](https://www.latimes.com/california/story/2025-11-04/ice-border-patrol-dodger-stadium-parking-lot)
 
@@ -256,4 +256,4 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
 
-[https://www.youtube.com/watch?v=s6TrCEeJW0M&list=WL&index=1&t=129s](https://www.youtube.com/watch?v=s6TrCEeJW0M&list=WL&index=1&t=129s)
+{% include youtubePlayer.html id="s6TrCEeJW0M" %}

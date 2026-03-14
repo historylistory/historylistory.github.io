@@ -48,7 +48,7 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 
 2023-02-08 Republican Governor of Arkansas Sarah Huckabee Sanders stated, "the choice is between normal or crazy", accused the Biden administration of "woke fantasies" and asserted that Republicans "are under attack in a left-wing culture war we didn't start".
 
-[https://www.youtube.com/watch?v=1A9EZh2aVpw](https://www.youtube.com/watch?v=1A9EZh2aVpw)
+{% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
 ### 2024 February
 
@@ -80,13 +80,13 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 
 2025-09-09 Newsmax host Rob Schmidt fearmongered his listeners, stating, “For the last several years the Democrats have destabilized this country by installing agents of chaos…" and suggested Democrats are trying to "intentionally sabotage the country" and "shred faith in the system".
 
-[https://www.youtube.com/watch?v=2jJVDH0KvRk](https://www.youtube.com/watch?v=2jJVDH0KvRk)
+{% include youtubePlayer.html id="2jJVDH0KvRk" %}
 
 ### 2025 September 12
 
 2025-09-12 In an interview with Fox, Trump said "radicals on the right are radical because they don't want crime" but that "radicals on the left are the problem".
 
-[https://www.youtube.com/watch?v=SxzScV6HXyk](https://www.youtube.com/watch?v=SxzScV6HXyk)
+{% include youtubePlayer.html id="SxzScV6HXyk" %}
 
 ### 2025 September 14
 
@@ -94,17 +94,17 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 
 [https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/](https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/)
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
-[https://www.youtube.com/watch?v=hjF4GuKV3q4](https://www.youtube.com/watch?v=hjF4GuKV3q4)
+{% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
 ### 2025 September 24
 
 2025-09-24 In speech during a Concord, North Carolina event JD Vance blamed Democrats for political violence.
 
-[https://www.youtube.com/watch?v=WH1ZnfN2AgQ&list=WL&index=2](https://www.youtube.com/watch?v=WH1ZnfN2AgQ&list=WL&index=2)
+{% include youtubePlayer.html id="WH1ZnfN2AgQ" %}
 
-[https://www.youtube.com/watch?v=mMWAl2pboY8](https://www.youtube.com/watch?v=mMWAl2pboY8)
+{% include youtubePlayer.html id="mMWAl2pboY8" %}
 
 ### 2025 October
 

@@ -18,7 +18,7 @@ permalink: /categories/free-speech-manipulation/other/
 
 2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
 
-[https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2](https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2)
+{% include youtubePlayer.html id="5NecjNqL11c" %}
 
 ### 2026 January
 

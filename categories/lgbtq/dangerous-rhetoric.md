@@ -80,7 +80,7 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 2025-09-10 On the same day Kirk was shot Fox host Jesse Watters proclaimed the Democrats were "at war" while he simultaneously attacked transgender people.
 
-[https://www.youtube.com/watch?v=0RmvOCiTJAQ](https://www.youtube.com/watch?v=0RmvOCiTJAQ)
+{% include youtubePlayer.html id="0RmvOCiTJAQ" %}
 
 2025-09-13 Laura Loomer posted on X, "This is President Trump's chance to rid America of the trans movement. He can shut these people down and take away their funding and make sure none of these freaks are able to benefit from a 501c3 status”.
 

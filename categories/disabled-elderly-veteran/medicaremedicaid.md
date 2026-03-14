@@ -10,7 +10,7 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled after he warned that Republicans would make cuts to Medicare and Medicaid.
 
-[https://www.youtube.com/watch?v=1A9EZh2aVpw](https://www.youtube.com/watch?v=1A9EZh2aVpw)
+{% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
 ### 2025 January
 

@@ -66,4 +66,4 @@ Organizations were only given one week to submit an appeal.
 
 [https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf](https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf)
 
-[https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13](https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13)
+{% include youtubePlayer.html id="SQD7-foTVEw" %}

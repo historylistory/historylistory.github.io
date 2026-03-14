@@ -96,7 +96,8 @@ Rerouting $8B in national emergency funds into building the border wall.
 
 [https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/](https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/)
 
-[https://www.youtube.com/watch?v=cPx2tc3MLi4#:~:text=Supreme%20Court%20Justice%20Samuel%20Alito%20is%20addressing,and%20personally%20insulting%20language%20on%20yard%20signs](https://www.youtube.com/watch?v=cPx2tc3MLi4).
+{% include youtubePlayer.html id="cPx2tc3MLi4" %}
+.
 
 ### 2022
 
@@ -120,7 +121,7 @@ Rerouting $8B in national emergency funds into building the border wall.
 
 [https://www.dailymail.co.uk/news/article-15565739/trump-kristi-noem-corey-lewandowski-relationship.html](https://www.dailymail.co.uk/news/article-15565739/trump-kristi-noem-corey-lewandowski-relationship.html)
 
-[https://www.youtube.com/watch?v=4oVboO9cRCk&t=20s](https://www.youtube.com/watch?v=4oVboO9cRCk&t=20s)
+{% include youtubePlayer.html id="4oVboO9cRCk" %}
 
 ### 2024 March
 
@@ -222,7 +223,7 @@ Rerouting $8B in national emergency funds into building the border wall.
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
 
-[https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL](https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL)
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
@@ -320,6 +321,6 @@ Rerouting $8B in national emergency funds into building the border wall.
 
 [https://www.democracydocket.com/news-alerts/justice-department-attorneys-state-bar-investigations-newrule/](https://www.democracydocket.com/news-alerts/justice-department-attorneys-state-bar-investigations-newrule/)
 
-[https://www.youtube.com/watch?v=R2tMLxIYBNU](https://www.youtube.com/watch?v=R2tMLxIYBNU)
+{% include youtubePlayer.html id="R2tMLxIYBNU" %}
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office#:~:text=Former%20Senior%20Official%20for%20the,it%20produced%20in%20federal%20court](https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office).

@@ -40,7 +40,7 @@ permalink: /categories/immigration-militarization-terror/children/
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
 
-[https://www.youtube.com/watch?v=KFPzD50ErFU](https://www.youtube.com/watch?v=KFPzD50ErFU)
+{% include youtubePlayer.html id="KFPzD50ErFU" %}
 
 ### 2024
 
@@ -56,13 +56,13 @@ permalink: /categories/immigration-militarization-terror/children/
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
 
-[https://www.youtube.com/watch?v=REh1ulbyoY4](https://www.youtube.com/watch?v=REh1ulbyoY4)
+{% include youtubePlayer.html id="REh1ulbyoY4" %}
 
 [https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump](https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump)
 
 [https://www.pbs.org/newshour/politics/trump-demands-apology-after-bishop-asked-him-to-have-mercy-on-lgbtq-people-and-migrants](https://www.pbs.org/newshour/politics/trump-demands-apology-after-bishop-asked-him-to-have-mercy-on-lgbtq-people-and-migrants)
 
-[https://www.youtube.com/watch?v=REh1ulbyoY4](https://www.youtube.com/watch?v=REh1ulbyoY4)
+{% include youtubePlayer.html id="REh1ulbyoY4" %}
 
 ### 2025 February
 
@@ -136,4 +136,4 @@ permalink: /categories/immigration-militarization-terror/children/
 
 [https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf](https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf)
 
-[https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13](https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13)
+{% include youtubePlayer.html id="SQD7-foTVEw" %}

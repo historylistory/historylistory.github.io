@@ -10,7 +10,7 @@ permalink: /categories/voting-census/federalization-voter-information/
 
 2025-09-26 The DOJ sued several Democratic-led states over access to voter information.
 
-[https://www.youtube.com/watch?v=Kjy02hyfu0Y&list=WL&index=2](https://www.youtube.com/watch?v=Kjy02hyfu0Y&list=WL&index=2)
+{% include youtubePlayer.html id="Kjy02hyfu0Y" %}
 
 [https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182](https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182)
 

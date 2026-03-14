@@ -22,7 +22,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 2025-06-14 News outlets reported an increase in racial profiling as ICE detained people solely based on their skin color and language.
 
-[https://www.youtube.com/watch?v=m0uynHtk7zU](https://www.youtube.com/watch?v=m0uynHtk7zU)
+{% include youtubePlayer.html id="m0uynHtk7zU" %}
 
 ### 2025 July
 
@@ -34,7 +34,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 [https://www.nbcnews.com/news/us-news/immigration-officials-cant-detain-people-based-race-speaking-spanish-l-rcna218400](https://www.nbcnews.com/news/us-news/immigration-officials-cant-detain-people-based-race-speaking-spanish-l-rcna218400)
 
-[https://www.youtube.com/watch?v=1o8iijXt6sI](https://www.youtube.com/watch?v=1o8iijXt6sI)
+{% include youtubePlayer.html id="1o8iijXt6sI" %}
 
 ### 2025 September
 
@@ -92,4 +92,4 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 [https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf](https://www.capitol.tn.gov/Bills/114/Fiscal/FM0856.pdf)
 
-[https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13](https://www.youtube.com/watch?v=SQD7-foTVEw&list=WL&index=13)
+{% include youtubePlayer.html id="SQD7-foTVEw" %}

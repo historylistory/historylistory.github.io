@@ -30,7 +30,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 [https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE](https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE)
 
-[https://www.youtube.com/watch?v=Fb7yKvOQE_c](https://www.youtube.com/watch?v=Fb7yKvOQE_c)
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 
 ### 2025 June
 
@@ -58,10 +58,10 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 [https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5\](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5/)
 
-[https://www.youtube.com/watch?v=NrIovX4XgPc&list=WL](https://www.youtube.com/watch?v=NrIovX4XgPc&list=WL)
+{% include youtubePlayer.html id="NrIovX4XgPc" %}
 
 ### 2026 January
 
 2026-01-27 A whistleblower reported in an interview that members of DOGE shared sensitive data such as personally identifiable information of 1000 people via email, shared third-party data on cloud servers outside security protocols, and other data concerns. A complaint for these violations had been filed the previous summer, then that person – Chuck Borges – involuntarily resigned in August and filed a retaliation complaint after.
 
-[https://www.youtube.com/watch?v=EmcgsMg194I&list=WL&index=3&t=26s](https://www.youtube.com/watch?v=EmcgsMg194I&list=WL&index=3&t=26s)
+{% include youtubePlayer.html id="EmcgsMg194I" %}

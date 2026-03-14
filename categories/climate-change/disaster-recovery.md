@@ -50,4 +50,4 @@ permalink: /categories/climate-change/disaster-recovery/
 
 [https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton](https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton)
 
-[https://www.youtube.com/watch?v=LV-8b-gpJgg](https://www.youtube.com/watch?v=LV-8b-gpJgg)
+{% include youtubePlayer.html id="LV-8b-gpJgg" %}

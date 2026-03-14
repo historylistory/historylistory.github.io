@@ -14,7 +14,7 @@ permalink: /categories/conspiracies/health/
 
 [https://www.bbc.com/news/world-us-canada-52407177](https://www.bbc.com/news/world-us-canada-52407177)
 
-[https://www.youtube.com/watch?v=zicGxU5MfwE](https://www.youtube.com/watch?v=zicGxU5MfwE)
+{% include youtubePlayer.html id="zicGxU5MfwE" %}
 
 ### 2021
 
@@ -32,7 +32,7 @@ permalink: /categories/conspiracies/health/
 
 2025-09-29 Trump posted and then quickly deleted a social media post of an AI generated video featuring Lara Trump on Fox News promoting "Medbeds".
 
-[https://www.youtube.com/watch?v=fzM5tOauPZI&list=WL&index=3](https://www.youtube.com/watch?v=fzM5tOauPZI&list=WL&index=3)
+{% include youtubePlayer.html id="fzM5tOauPZI" %}
 
 [https://www.cnn.com/2025/09/28/politics/trump-ai-medbed-conspiracy-theory](https://www.cnn.com/2025/09/28/politics/trump-ai-medbed-conspiracy-theory)
 
@@ -40,7 +40,7 @@ permalink: /categories/conspiracies/health/
 
 2025-11-20 The CDC website was changed to promote false and unfounded claims that vaccines cause autism.
 
-[https://www.youtube.com/watch?v=0ZqvODLY7zI](https://www.youtube.com/watch?v=0ZqvODLY7zI)
+{% include youtubePlayer.html id="0ZqvODLY7zI" %}
 
 [https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/](https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/)
 

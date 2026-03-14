@@ -46,7 +46,7 @@ permalink: /categories/economy-labor-poverty/social-security/
 
 [https://www.cbpp.org/blog/setting-the-record-straight-on-social-security](https://www.cbpp.org/blog/setting-the-record-straight-on-social-security)
 
-[https://www.youtube.com/watch?v=zSa68GrWmAc](https://www.youtube.com/watch?v=zSa68GrWmAc)
+{% include youtubePlayer.html id="zSa68GrWmAc" %}
 
 ### 2025 July
 

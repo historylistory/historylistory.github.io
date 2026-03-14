@@ -58,9 +58,9 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.congress.gov/bill/119th-congress/house-bill/4405](https://www.congress.gov/bill/119th-congress/house-bill/4405)
 
-[https://www.youtube.com/watch?v=zXKbsoo6lJs](https://www.youtube.com/watch?v=zXKbsoo6lJs)
+{% include youtubePlayer.html id="zXKbsoo6lJs" %}
 
-[https://www.youtube.com/watch?v=QQ7WCIZNzxo](https://www.youtube.com/watch?v=QQ7WCIZNzxo)
+{% include youtubePlayer.html id="QQ7WCIZNzxo" %}
 
 [https://www.npr.org/2019/08/10/750172199/after-epsteins-death-political-leaders-demand-continued-investigation](https://www.npr.org/2019/08/10/750172199/after-epsteins-death-political-leaders-demand-continued-investigation)
 
@@ -94,7 +94,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 2025-07-07 During a press conference Karoline Leavitt was asked about the Epstein Files. The press quoted a previous inquiry, “John Roberts of Fox News said, ‘DOJ may be releasing the list Jeffrey Epstein’s clients, will that really happen?” to which the Attorney General responded, “It’s sitting on my desk right now to review”. Karoline Leavitt referred the media to the DOJ for any further questions.
 
-[https://www.youtube.com/watch?v=rM3xqO_KJZ8](https://www.youtube.com/watch?v=rM3xqO_KJZ8)
+{% include youtubePlayer.html id="rM3xqO_KJZ8" %}
 
 [https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department](https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department)
 
@@ -148,7 +148,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.c-span.org/program/news-conference/house-oversight-committee-democrats-on-meeting-with-jeffry-epsteins-victims/665041](https://www.c-span.org/program/news-conference/house-oversight-committee-democrats-on-meeting-with-jeffry-epsteins-victims/665041)
 
-[https://www.youtube.com/watch?v=AKMuuNxPyrg](https://www.youtube.com/watch?v=AKMuuNxPyrg)
+{% include youtubePlayer.html id="AKMuuNxPyrg" %}
 
 2025-09-03 Trump supporters ousted Republican Thomas Massie for pushing to release the Epstein files.
 
@@ -166,7 +166,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 2025-09-07 Mike Johnson walked back his former statement that Trump was an FBI informant.
 
-[https://www.youtube.com/watch?v=vnzNl0E--rI](https://www.youtube.com/watch?v=vnzNl0E--rI)
+{% include youtubePlayer.html id="vnzNl0E--rI" %}
 
  
 
@@ -190,7 +190,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 2025-09-17 An unverified and unsubstantiated video went viral, suggesting the DOJ will make heavy redactions to Republican names on the Epstein files .
 
-[https://www.youtube.com/watch?v=tx5F6llyaVw](https://www.youtube.com/watch?v=tx5F6llyaVw)
+{% include youtubePlayer.html id="tx5F6llyaVw" %}
 
 2025-09-17 Kash Patel claimed he was barred by court order from releasing thousands of Epstein documents.
 

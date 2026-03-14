@@ -24,9 +24,9 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 
 [https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war#:~:text=Bridges%20Partners%20is%20a%20Christian%20public%20relations,become%20the%20source%20of%20an%20online%20meme](https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war).
 
-[https://www.youtube.com/watch?v=p_AC3Q1RZFE](https://www.youtube.com/watch?v=p_AC3Q1RZFE)
+{% include youtubePlayer.html id="p_AC3Q1RZFE" %}
 
-[https://www.youtube.com/watch?v=krDrm24xW6Y&t=43s](https://www.youtube.com/watch?v=krDrm24xW6Y&t=43s)
+{% include youtubePlayer.html id="krDrm24xW6Y" %}
 
 [https://responsiblestatecraft.org/israel-influencers/](https://responsiblestatecraft.org/israel-influencers/)
 

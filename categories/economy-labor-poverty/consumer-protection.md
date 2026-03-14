@@ -22,7 +22,7 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 [https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/](https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/)
 
-[https://www.youtube.com/watch?v=ANuGHbXa9QE&list=WL&index=2&t=497s](https://www.youtube.com/watch?v=ANuGHbXa9QE&list=WL&index=2&t=497s)
+{% include youtubePlayer.html id="ANuGHbXa9QE" %}
 
 ### 2025 February
 

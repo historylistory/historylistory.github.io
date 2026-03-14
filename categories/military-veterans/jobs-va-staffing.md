@@ -10,13 +10,13 @@ permalink: /categories/military-veterans/jobs-va-staffing/
 
 2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
 
-[https://www.youtube.com/watch?v=ESzZHsqqHGM&list=WL&index=2](https://www.youtube.com/watch?v=ESzZHsqqHGM&list=WL&index=2)
+{% include youtubePlayer.html id="ESzZHsqqHGM" %}
 
 ### 2025 June
 
 2025-06-13 During an interview, a VA nurse cited, "there has been a long-time nursing staffing crisis…on top of that they are saying 'not only are we not going to hire and fill those positions, we're going to get rid of more staff".
 
-[https://www.youtube.com/watch?v=9387jXfdHeI&list=WL&index=2](https://www.youtube.com/watch?v=9387jXfdHeI&list=WL&index=2)
+{% include youtubePlayer.html id="9387jXfdHeI" %}
 
 ### 2025 August
 

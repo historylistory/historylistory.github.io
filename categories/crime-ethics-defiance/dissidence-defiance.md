@@ -68,7 +68,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 2025-01-28 The Trump administration began freezing funds that were already pre-approved by Congress; Eric Schmitt said on video he supported this.
 
-[https://www.youtube.com/watch?v=O7viIDwJHws](https://www.youtube.com/watch?v=O7viIDwJHws)
+{% include youtubePlayer.html id="O7viIDwJHws" %}
 
 ### 2025 February
 
@@ -96,7 +96,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181](https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181)
 
-[https://www.youtube.com/watch?v=tVU8R0Nv9bk](https://www.youtube.com/watch?v=tVU8R0Nv9bk)
+{% include youtubePlayer.html id="tVU8R0Nv9bk" %}
 
 [https://x.com/nayibbukele/status/1901238762614517965?lang=en](https://x.com/nayibbukele/status/1901238762614517965?lang=en)
 
@@ -108,15 +108,15 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 2025-05-04 Trump said he didn’t know whether he had to hold up the Fifth Amendment. When asked if he had to hold up the Constitution, he replied, “I don’t know”.
 
-[https://www.youtube.com/watch?v=aoNxKK2IJII](https://www.youtube.com/watch?v=aoNxKK2IJII)
+{% include youtubePlayer.html id="aoNxKK2IJII" %}
 
 2025-05-12 Steve Bannon called out a "Constitutional Crisis" during an interview. He said, quote, "If they can hold it together they can control the government for 50-75 years"
 
-[https://www.youtube.com/watch?v=PCe4pt5MlTo](https://www.youtube.com/watch?v=PCe4pt5MlTo)
+{% include youtubePlayer.html id="PCe4pt5MlTo" %}
 
-[https://www.youtube.com/watch?v=IGKFJPbaFLc](https://www.youtube.com/watch?v=IGKFJPbaFLc)
+{% include youtubePlayer.html id="IGKFJPbaFLc" %}
 
-[https://www.youtube.com/watch?v=6KfUXpmtprc](https://www.youtube.com/watch?v=6KfUXpmtprc)
+{% include youtubePlayer.html id="6KfUXpmtprc" %}
 
 2025-05-20 During a hearing Kristi Noem fumbled with the definition of Habeas Corpus and misinterpreted the type of approval needed to activate the suspension clause.
 

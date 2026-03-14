@@ -18,7 +18,7 @@ permalink: /categories/education/indoctrination/
 
 [https://www.lcabulldogs.com/](https://www.lcabulldogs.com/)
 
-[https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10](https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10)
+{% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
 ### 2022
 
@@ -54,7 +54,7 @@ permalink: /categories/education/indoctrination/
 
 2025-05-21 Senate Bill SB10 was introduced, requiring the Ten Commandments in classrooms. State Representative James Talrico sparred with Noble and ended the debate by stating “**forcing religion down throats is not love**”.
 
-[https://www.youtube.com/watch?v=g3Na7eXsRpI](https://www.youtube.com/watch?v=g3Na7eXsRpI)
+{% include youtubePlayer.html id="g3Na7eXsRpI" %}
 
 [https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law#:~:text=built%20this%20country.%E2%80%9D-,S.B.,meet%20the%20requirements%20of%20S.B](https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law).
 
@@ -68,7 +68,7 @@ permalink: /categories/education/indoctrination/
 
 [https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
 
-[https://www.youtube.com/watch?v=MKHSv6XiNQY](https://www.youtube.com/watch?v=MKHSv6XiNQY)
+{% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 [https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
 

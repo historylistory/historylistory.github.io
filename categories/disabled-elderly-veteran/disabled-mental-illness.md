@@ -72,7 +72,7 @@ permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
 
 2025-12-17 During a confirmation hearing for judicial nominees, Senator Kennedy grilled Justin Olson about his past sermons where he allegedly stated things such as disabled people should not marry and that wives should be subject to their husbands.
 
-[https://www.youtube.com/watch?v=f1PEAlM0bLw&list=WL&index=9](https://www.youtube.com/watch?v=f1PEAlM0bLw&list=WL&index=9)
+{% include youtubePlayer.html id="f1PEAlM0bLw" %}
 
 [https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/](https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/)
 

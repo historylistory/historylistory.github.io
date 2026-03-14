@@ -50,7 +50,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 [https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton](https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton)
 
-[https://www.youtube.com/watch?v=LV-8b-gpJgg](https://www.youtube.com/watch?v=LV-8b-gpJgg)
+{% include youtubePlayer.html id="LV-8b-gpJgg" %}
 
 2025-05-08 Trump had Librarian of Congress Carla Hayden fired on the 9th of her 10-year term as part of his DEI initiative. Carla Hayden received her termination by email from a low-level employee.
 
@@ -86,7 +86,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 2025-08-07 Brian Driscoll, Stephen Jensen and Spencer Evans were fired from the FBI by Kash Patel for no known reason.
 
-[https://www.youtube.com/watch?v=iL32wQL9KQc](https://www.youtube.com/watch?v=iL32wQL9KQc)
+{% include youtubePlayer.html id="iL32wQL9KQc" %}
 
 2025-08-27 Robert Primus was fired from the Surface Transportation Board during a Union Pacific merger with no cause except that he "didn't align" with the "America First" agenda.
 
@@ -114,7 +114,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 2025-09-09 Former FBI leaders Brian Driscoll, Stephen Jensen and Spencer Evans alleged that their firings were both illegal and politically motivated.
 
-[https://www.youtube.com/watch?v=Uo7pnK3N3hU](https://www.youtube.com/watch?v=Uo7pnK3N3hU)
+{% include youtubePlayer.html id="Uo7pnK3N3hU" %}
 
 [https://www.nbcnews.com/politics/justice-department/former-top-fbi-officials-sue-say-kash-patel-fired-stay-trumps-good-gra-rcna230369](https://www.nbcnews.com/politics/justice-department/former-top-fbi-officials-sue-say-kash-patel-fired-stay-trumps-good-gra-rcna230369)
 

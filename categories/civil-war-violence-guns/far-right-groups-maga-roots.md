@@ -18,7 +18,7 @@ permalink: /categories/civil-war-violence-guns/far-right-groups-maga-roots/
 
 1992-08-17 Pat Buchanan declared a cultural and religious war, defining his "Make America First Again" campaign.
 
-[https://www.youtube.com/watch?v=y1rQKnTWEDQ](https://www.youtube.com/watch?v=y1rQKnTWEDQ)
+{% include youtubePlayer.html id="y1rQKnTWEDQ" %}
 
 ### 2010
 

@@ -20,7 +20,7 @@ permalink: /categories/health/politicizing-health/
 
 2025-12-30 (for context) Trump vetoed a bill to fund a pipeline project **intended to bring clean drinking water to communities** on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
 
-[https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5](https://www.youtube.com/watch?v=-JtgxH6hpuU&list=WL&index=5)
+{% include youtubePlayer.html id="-JtgxH6hpuU" %}
 
 [https://en.wikipedia.org/wiki/Tina_Peters_(politician)](https://en.wikipedia.org/wiki/Tina_Peters_(politician))
 

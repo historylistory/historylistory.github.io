@@ -18,11 +18,11 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 
 [https://www.aclu.org/news/free-speech/a-letter-from-detained-journalist-mario-guevara](https://www.aclu.org/news/free-speech/a-letter-from-detained-journalist-mario-guevara)
 
-[https://www.youtube.com/watch?v=7MSc0rUGKS8&list=WL&index=2](https://www.youtube.com/watch?v=7MSc0rUGKS8&list=WL&index=2)
+{% include youtubePlayer.html id="7MSc0rUGKS8" %}
 
 2025-06-17 Brad Landers was detained by federal agents while he tried to peacefully escort a man out of immigration court in Manhattan.
 
-[https://www.youtube.com/watch?v=RDgF5KM_fGY](https://www.youtube.com/watch?v=RDgF5KM_fGY)
+{% include youtubePlayer.html id="RDgF5KM_fGY" %}
 
 ### 2025 July
 
@@ -56,7 +56,7 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 
 2025-10-03 Alderman Jessie Fuentes was arrested by ICE at Humboldt Park hospital for asking officers if they had a federal warrant. In the video you can see Alderman Fuentes was calm and cooperative.
 
-[https://www.youtube.com/watch?v=Hh9jDOP7NOM](https://www.youtube.com/watch?v=Hh9jDOP7NOM)
+{% include youtubePlayer.html id="Hh9jDOP7NOM" %}
 
 ### 2025 November
 
@@ -104,9 +104,11 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 
 [https://www.mprnews.org/story/2026/02/03/brooklyn-park-women-help-seizing-ice-agent-while-detained](https://www.mprnews.org/story/2026/02/03/brooklyn-park-women-help-seizing-ice-agent-while-detained)
 
-[https://www.youtube.com/watch?v=duzC0C9zFkI](https://www.youtube.com/watch?v=duzC0C9zFkI) NBC News 
+{% include youtubePlayer.html id="duzC0C9zFkI" %}
+ NBC News 
 
-[https://www.youtube.com/watch?v=Epme0lRYCeI](https://www.youtube.com/watch?v=Epme0lRYCeI) NBC News
+{% include youtubePlayer.html id="Epme0lRYCeI" %}
+ NBC News
 
 ### 2026 February
 

@@ -16,7 +16,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 
 2019-08-21 Trump referred to himself as "the chosen one".
 
-[https://www.youtube.com/watch?v=lzlxrPC_E_U](https://www.youtube.com/watch?v=lzlxrPC_E_U)
+{% include youtubePlayer.html id="lzlxrPC_E_U" %}
 
 ### 2024
 
@@ -44,7 +44,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
-[https://www.youtube.com/watch?v=PslOp883rfI](https://www.youtube.com/watch?v=PslOp883rfI)
+{% include youtubePlayer.html id="PslOp883rfI" %}
 
 ### 2025 May
 
@@ -82,9 +82,10 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 
 ### 2025 August
 
-2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:[https://www.youtube.com/watch?v=5qxWKVIflyo&list=WL&index=24&t=550s](https://www.youtube.com/watch?v=5qxWKVIflyo&list=WL&index=24&t=550s)
+2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:
+{% include youtubePlayer.html id="5qxWKVIflyo" %}
 
-[https://www.youtube.com/watch?v=kSAGUjY2HIs](https://www.youtube.com/watch?v=kSAGUjY2HIs)
+{% include youtubePlayer.html id="kSAGUjY2HIs" %}
 
 [https://www.nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html](https://www.nytimes.com/video/business/economy/100000010328133/trump-apple-investment.html)
 
@@ -96,7 +97,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 
 [https://thehill.com/blogs/in-the-know/5413914-kennedy-centers-opera-house-melania-trump-gop/](https://thehill.com/blogs/in-the-know/5413914-kennedy-centers-opera-house-melania-trump-gop/)
 
-[https://www.youtube.com/watch?v=KKnx0lQ_7E4](https://www.youtube.com/watch?v=KKnx0lQ_7E4)
+{% include youtubePlayer.html id="KKnx0lQ_7E4" %}
 
 [https://www.politico.com/news/2025/12/07/trump-awards-medals-to-kennedy-center-honorees-in-oval-office-ceremony-00679808](https://www.politico.com/news/2025/12/07/trump-awards-medals-to-kennedy-center-honorees-in-oval-office-ceremony-00679808)
 

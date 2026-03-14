@@ -10,7 +10,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 2012-01-01 Rush Limbaugh mocked the idea that poor families deserved high-quality food, saying, “Now it has to be the best”. According to AI in 2013, he called compassion for the poor a “part of a partisan agenda”.
 
-[https://www.youtube.com/watch?v=sE1Bhzj81Zo](https://www.youtube.com/watch?v=sE1Bhzj81Zo)
+{% include youtubePlayer.html id="sE1Bhzj81Zo" %}
 
 [https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
 
@@ -66,7 +66,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://utahnewsdispatch.com/2025/09/03/utah-homeless-campus-site-unveiled-after-secretive-search/](https://utahnewsdispatch.com/2025/09/03/utah-homeless-campus-site-unveiled-after-secretive-search/)
 
-[https://www.youtube.com/watch?v=M9fAYpFEjzo](https://www.youtube.com/watch?v=M9fAYpFEjzo)
+{% include youtubePlayer.html id="M9fAYpFEjzo" %}
 
 [https://homelesslaw.org/trumpdceo/](https://homelesslaw.org/trumpdceo/)
 
@@ -238,7 +238,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 2025-11-12 News outlets report that permanent housing solutions for the homeless will be negatively affected. The Trump administration made plans to cut Continuum of Care funding that supports permanent housing from 87% down to 30% across the country. Some outlets reported that the funds would be redirected from current housing to temporary transitional housing that requires the tenant to already have a job and get addiction treatment. The proposed plan would redirect $3.9 billion away from current programs and instead to policing encampments and making arrests. 
 
-[https://www.youtube.com/watch?v=A39EdHbpiZw&list=WL&index=12](https://www.youtube.com/watch?v=A39EdHbpiZw&list=WL&index=12)
+{% include youtubePlayer.html id="A39EdHbpiZw" %}
 
 [https://nlihc.org/resource/trump-administration-releases-coc-funding-notice-drastically-cutting-funding-permanent](https://nlihc.org/resource/trump-administration-releases-coc-funding-notice-drastically-cutting-funding-permanent)
 
@@ -248,7 +248,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.pbs.org/newshour/nation/why-clearing-encampments-doesnt-usually-solve-problems-of-homelessness](https://www.pbs.org/newshour/nation/why-clearing-encampments-doesnt-usually-solve-problems-of-homelessness)
 
-[https://www.youtube.com/watch?v=dxJHIWBxk6M&list=WL&index=13](https://www.youtube.com/watch?v=dxJHIWBxk6M&list=WL&index=13)
+{% include youtubePlayer.html id="dxJHIWBxk6M" %}
 
 [https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/](https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/)
 

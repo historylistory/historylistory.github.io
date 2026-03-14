@@ -120,7 +120,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE](https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE)
 
-[https://www.youtube.com/watch?v=Fb7yKvOQE_c](https://www.youtube.com/watch?v=Fb7yKvOQE_c)
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 
 ### 2025 September
 
@@ -136,13 +136,13 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5\](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5/)
 
-[https://www.youtube.com/watch?v=NrIovX4XgPc&list=WL](https://www.youtube.com/watch?v=NrIovX4XgPc&list=WL)
+{% include youtubePlayer.html id="NrIovX4XgPc" %}
 
 ### 2025 October
 
 2025-10-09 During a White House press conference, Trump responded to a reporter question about backpay after the shutdown. He responded, “**I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way**”.
 
-[https://www.youtube.com/watch?v=k0nZfIO2B2U&list=WL&index=2](https://www.youtube.com/watch?v=k0nZfIO2B2U&list=WL&index=2)
+{% include youtubePlayer.html id="k0nZfIO2B2U" %}
 
 2025-10-15 A US District Judge had to step in and block the Trump administration from going forward with their plans to mass-fire thousands of federal employees who had been furloughed during the shutdown.
 

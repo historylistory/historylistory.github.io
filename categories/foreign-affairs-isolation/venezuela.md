@@ -68,7 +68,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115233555445134712](https://truthsocial.com/@realDonaldTrump/posts/115233555445134712)
 
-[https://www.youtube.com/watch?v=6UOoqziNKMI&list=WL&index=2](https://www.youtube.com/watch?v=6UOoqziNKMI&list=WL&index=2)
+{% include youtubePlayer.html id="6UOoqziNKMI" %}
 
 2025-09-20 Trump posted, "We want Venezuela to immediately accept all of the prisoners, and people from mental institutions, which includes the Worst in the World Insane Asylums, that Venezuelan "Leadership" has forced into the United States of America. Thousands of people have been badly hurt, and even killed, by these "Monsters." GET THEM THE HELL OUT OF OUR COUNTRY, RIGHT NOW, OR THE PRICE YOU PAY WILL BE INCALCULABLE!" 
 
@@ -78,7 +78,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 2025-10-03 Pete Hegseth reported another lethal strike on a Venezuelan boat, killing 4 people.
 
-[https://www.youtube.com/watch?v=TZBcHH-JkD8&list=WL&index=3](https://www.youtube.com/watch?v=TZBcHH-JkD8&list=WL&index=3)
+{% include youtubePlayer.html id="TZBcHH-JkD8" %}
 
 2025-10-13 News outlets reported that some Venezuelan leaders joined US leaders to discuss investment opportunities at the IMF World Bank meeting.
 
@@ -88,7 +88,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://meetings.imf.org/en](https://meetings.imf.org/en)
 
-[https://www.youtube.com/watch?v=hQN98kIwgAk&list=WL&index=7](https://www.youtube.com/watch?v=hQN98kIwgAk&list=WL&index=7)
+{% include youtubePlayer.html id="hQN98kIwgAk" %}
 
 2025-10-14 The U.S. launched another airstrike on a Venezuelan boat, this time killing 6. By this date there had been approximately 19 strikes so far, so I will not be tallying up the strikes as they had become too excessive and frequent to track.
 
@@ -128,7 +128,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 2025-11-14 Pete Hegseth announced the military will be calling Venezuelan boat strikes “Operation Southern Spear”. By this date the death toll was up to 79. Two days later news outlets reported the USS Gerald Ford entered the Caribbean Sea.
 
-[https://www.youtube.com/watch?v=smS4dB-WlnM](https://www.youtube.com/watch?v=smS4dB-WlnM)
+{% include youtubePlayer.html id="smS4dB-WlnM" %}
 
 [https://defensescoop.com/2025/11/14/hegseth-announces-operation-southern-spear-after-20th-us-strike-against-alleged-narco-terrorists/](https://defensescoop.com/2025/11/14/hegseth-announces-operation-southern-spear-after-20th-us-strike-against-alleged-narco-terrorists/)
 
@@ -158,7 +158,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 2025-11-30 Elsie Rodriguez addressed other states in OPEC to denounce lethal US strikes and suggested those strikes are an attempt to take over Venezuela’s vast oil reserves.
 
-[https://www.youtube.com/watch?v=flcqBJSmG4M](https://www.youtube.com/watch?v=flcqBJSmG4M)
+{% include youtubePlayer.html id="flcqBJSmG4M" %}
 
 [https://tass.com/economy/2051289](https://tass.com/economy/2051289)
 
@@ -174,7 +174,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://www.pbs.org/newshour/politics/lawmakers-voice-bipartisan-support-for-congressional-reviews-of-trumps-boat-strikes](https://www.pbs.org/newshour/politics/lawmakers-voice-bipartisan-support-for-congressional-reviews-of-trumps-boat-strikes)
 
-[https://www.youtube.com/watch?v=m-pX9GGJL90](https://www.youtube.com/watch?v=m-pX9GGJL90)
+{% include youtubePlayer.html id="m-pX9GGJL90" %}
 
 [https://www.nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html](https://www.nytimes.com/2025/11/30/us/politics/trump-boat-strikes-war-crime.html)
 
@@ -196,7 +196,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://www.aljazeera.com/news/2025/12/2/hegseth-or-admiral-bradley-who-approved-the-second-venezuela-boat-strike](https://www.aljazeera.com/news/2025/12/2/hegseth-or-admiral-bradley-who-approved-the-second-venezuela-boat-strike)
 
-[https://www.youtube.com/watch?v=ZYYlg_bLnlw&list=WL&index=3](https://www.youtube.com/watch?v=ZYYlg_bLnlw&list=WL&index=3)
+{% include youtubePlayer.html id="ZYYlg_bLnlw" %}
 
 2025-12-10 The U.S. seized a Venezuelan oil tanker amidst allegations of piracy. DHS posted a content video of the seizure to the tune of “Momma Said Knock You Out”.
 

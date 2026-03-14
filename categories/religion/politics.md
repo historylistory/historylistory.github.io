@@ -28,7 +28,7 @@ permalink: /categories/religion/politics/
 
 2020-11-09 Here is the viral video of Kenneth Copeland’s maniacal laughter during a politically laden sermon. For context, Copeland is a Trump megadonor.
 
-[https://www.youtube.com/watch?v=VBkegy4aDvk](https://www.youtube.com/watch?v=VBkegy4aDvk)
+{% include youtubePlayer.html id="VBkegy4aDvk" %}
 
 [https://www.facebook.com/watch/?v=1578939962293228](https://www.facebook.com/watch/?v=1578939962293228)
 
@@ -44,7 +44,8 @@ permalink: /categories/religion/politics/
 
 [https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/](https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/)
 
-[https://www.youtube.com/watch?v=cPx2tc3MLi4#:~:text=Supreme%20Court%20Justice%20Samuel%20Alito%20is%20addressing,and%20personally%20insulting%20language%20on%20yard%20signs](https://www.youtube.com/watch?v=cPx2tc3MLi4).
+{% include youtubePlayer.html id="cPx2tc3MLi4" %}
+.
 
 ### 2023
 
@@ -56,7 +57,7 @@ permalink: /categories/religion/politics/
 
 2024-05-28 Speaker Mike Johnson hung an “An Appeal to Heaven” flag outside his office. The flag is associated with the Christian Nationalist movement.
 
-[https://www.youtube.com/watch?v=4X6iSP86NEM](https://www.youtube.com/watch?v=4X6iSP86NEM)
+{% include youtubePlayer.html id="4X6iSP86NEM" %}
 
 2024-11-05 Kenneth Copeland organized election coverage with America Stands, an organization which offers education on **how to vote** according to their biblical values.
 

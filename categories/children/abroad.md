@@ -54,7 +54,7 @@ permalink: /categories/children/abroad/
 
 2026-02-08 The New York Times reported “more than 2000 health clinics have closed in crisis zones around the world”. See article “What We Lost When We Lost U.S.A.I.D.”. France-24 reported that in just one district 29 children died in just a month’s time from malnutrition and illness; deaths which would have been avoided if funding had been maintained according to one of the coordinators of Action Against Hunger in Ituri.
 
-[https://www.youtube.com/watch?v=tU8S13xYJNM&list=WL&index=1](https://www.youtube.com/watch?v=tU8S13xYJNM&list=WL&index=1)
+{% include youtubePlayer.html id="tU8S13xYJNM" %}
 
 [https://www.nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html](https://www.nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html)
 

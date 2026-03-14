@@ -44,7 +44,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
 
-[https://www.youtube.com/watch?v=ESzZHsqqHGM&list=WL&index=2](https://www.youtube.com/watch?v=ESzZHsqqHGM&list=WL&index=2)
+{% include youtubePlayer.html id="ESzZHsqqHGM" %}
 
 2025-03-05 A military news outlet Military.com published an article speaking out on behalf of millions of Veterans who feel that privatized healthcare will rapidly eat into the VA budget.
 
@@ -66,11 +66,11 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 2025-06-13 During an interview, a VA nurse cited, "there has been a long-time nursing staffing crisis…on top of that they are saying 'not only are we not going to hire and fill those positions, we're going to get rid of more staff".
 
-[https://www.youtube.com/watch?v=9387jXfdHeI&list=WL&index=2](https://www.youtube.com/watch?v=9387jXfdHeI&list=WL&index=2)
+{% include youtubePlayer.html id="9387jXfdHeI" %}
 
 2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
 
-[https://www.youtube.com/watch?v=Y-iTn5xgLck](https://www.youtube.com/watch?v=Y-iTn5xgLck)
+{% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
 2025-06-30 A news outlet reported that DeSantis vetoed $400,000 for the Transition House Homeless Veterans Program in Osceola County.
 
@@ -112,7 +112,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 2025-09-23 Jon Stewart speaks out at a rally on behalf of veterans. Link here:
 
-[https://www.youtube.com/watch?v=-Rtr14AP13Y&list=WL&index=3](https://www.youtube.com/watch?v=-Rtr14AP13Y&list=WL&index=3)
+{% include youtubePlayer.html id="-Rtr14AP13Y" %}
 
 ### 2025 October
 
@@ -130,13 +130,13 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/](https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/)
 
-[https://www.youtube.com/watch?v=4XrNsZ-fDjw](https://www.youtube.com/watch?v=4XrNsZ-fDjw)
+{% include youtubePlayer.html id="4XrNsZ-fDjw" %}
 
  
 
 2025-11-14 ICE deported Purple Heart veteran with PTSD Jose Barco in Florence Arizona.
 
-[https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6](https://www.youtube.com/watch?v=bVPSSf43okY&list=WL&index=6)
+{% include youtubePlayer.html id="bVPSSf43okY" %}
 
 [https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported](https://www.fox10phoenix.com/news/activists-express-worries-after-az-purple-heart-combat-veteran-was-deported)
 
@@ -210,7 +210,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 2026-02-05 Jake Lang was arrested in Minneapolis after destroying a sculpture the local Veteran-ran Common Defense organization bought permits to display. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
 
-[https://www.youtube.com/watch?v=IZO1YzK_aEY](https://www.youtube.com/watch?v=IZO1YzK_aEY)
+{% include youtubePlayer.html id="IZO1YzK_aEY" %}
 
 [https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang](https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang)
 

@@ -60,6 +60,8 @@ permalink: /categories/lgbtq/bills/
 
 2026-03-10 During a press conference, Karoline Leavitt listed reasons why Trump pushed the SAVE act. She claimed Democrats were spreading false narratives that the SAVE act would make voting for married women more difficult. She also stated the SAVE act abolishes the “unsecure practice of mail in ballots” and cited that Jimmy Carter also concluded mail-in ballots were the largest source of potential fraud,  but right after this reason she diverted to discussions of transgender, stating the SAVE Act “permanently bans men from competing in women’s sports” and “bans transgender mutilation surgery for children”, stating this act was rooted in “common sense”.
 
-[https://www.youtube.com/watch?v=lAIwDU6Y2F8](https://www.youtube.com/watch?v=lAIwDU6Y2F8) (April 11, 2025)
+{% include youtubePlayer.html id="lAIwDU6Y2F8" %}
+ (April 11, 2025)
 
-[https://www.youtube.com/watch?v=f1M9sNhaEM4&t=727s](https://www.youtube.com/watch?v=f1M9sNhaEM4&t=727s)  (March 10, 2026)
+{% include youtubePlayer.html id="f1M9sNhaEM4" %}
+  (March 10, 2026)

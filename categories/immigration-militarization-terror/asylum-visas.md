@@ -78,7 +78,7 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 [https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
 
-[https://www.youtube.com/watch?v=5c1idp7Qzd4](https://www.youtube.com/watch?v=5c1idp7Qzd4)
+{% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
 2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
 

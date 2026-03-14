@@ -78,10 +78,10 @@ permalink: /categories/military-veterans/war/
 
 2026-03-10 In under two weeks, the US soldier death toll in Iran reached approximately 170 soldiers.
 
-[https://www.youtube.com/watch?v=xs0EusItBYM&t=1s](https://www.youtube.com/watch?v=xs0EusItBYM&t=1s)
+{% include youtubePlayer.html id="xs0EusItBYM" %}
 
 [https://www.wired.com/video/watch/trump-wrongly-claims-iran-has-tomahawk-missiles-when-asked-about-iran-school-strike](https://www.wired.com/video/watch/trump-wrongly-claims-iran-has-tomahawk-missiles-when-asked-about-iran-school-strike)
 
 [https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks#:~:text=At%20least%201%2C332%20people%20have,of%20war%20on%20February%2028](https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks).
 
-[https://www.youtube.com/watch?v=xs0EusItBYM&t=1s](https://www.youtube.com/watch?v=xs0EusItBYM&t=1s)
+{% include youtubePlayer.html id="xs0EusItBYM" %}

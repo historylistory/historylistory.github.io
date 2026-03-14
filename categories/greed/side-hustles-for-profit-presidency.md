@@ -102,7 +102,7 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 
 2026-03-06 Trump accused Bill Maher of having “Trump Derangement Syndrome” after Maher criticized Trump. Bill Maher responded directly to Trump on his program, stating, “I go by what George Bush said to Obama on the day he was inaugurated: ‘We want you to succeed’. I always want the American president to succeed, and I do give credit when you have. But there’s lots of stuff you do that is not my idea of success and I have every right to say so in a democracy…it’s not derangement for me to be always calling out the election denying obsession you have, or the pardons from my friends and punishment for my enemies mode of governing, or the side deals for your family that always seem to be part of everything. We see how rich you’ve all become, but the people of West Virginia don’t seem to be feeling the winning…”. **Trump’s net worth increased by $3 billion since he became president.**  
 
-[https://www.youtube.com/watch?v=Q6NLxtfZk00&list=WL&index=2](https://www.youtube.com/watch?v=Q6NLxtfZk00&list=WL&index=2)
+{% include youtubePlayer.html id="Q6NLxtfZk00" %}
 
 [https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/](https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/)
 

@@ -16,7 +16,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 2021-10-03 In a video by Forbes, JD Vance suggested using funds as leverage to strongarm universities. He said, "hundreds of billions of dollars that we send to them (meaning universities) as leverage, and say 'unless you stop indoctrinating our children, unless you stop indoctrinating our entire society, you don't get another dime of our money’”. He continued his attack on education by accusing colleges of filtering out indoctrination into society.
 
-[https://www.youtube.com/watch?v=MZistOc5g0A](https://www.youtube.com/watch?v=MZistOc5g0A)
+{% include youtubePlayer.html id="MZistOc5g0A" %}
 
 ### 2025 February
 
@@ -66,7 +66,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.nytimes.com/2025/04/14/us/politics/trump-pressure-universities.html](https://www.nytimes.com/2025/04/14/us/politics/trump-pressure-universities.html)
 
-[https://www.youtube.com/watch?v=xk94il8L820&list=WL&index=37](https://www.youtube.com/watch?v=xk94il8L820&list=WL&index=37)
+{% include youtubePlayer.html id="xk94il8L820" %}
 
 ### 2025 May
 
@@ -78,7 +78,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 2025-05-23 During a Bloomberg radio interview, Yale School of Management Executive Fellow Gautam Mukunda stated, "If they can break Harvard, then they are sending a sign that they can do it to anybody".
 
-[https://www.youtube.com/watch?v=G_uB3MgS-WI](https://www.youtube.com/watch?v=G_uB3MgS-WI)
+{% include youtubePlayer.html id="G_uB3MgS-WI" %}
 
 2025-05-27 Trump froze $3.2B in grants and contracts to Harvard.
 
@@ -88,13 +88,13 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.reuters.com/video/watch/idRW765528052025RP1/](https://www.reuters.com/video/watch/idRW765528052025RP1/)
 
-[https://www.youtube.com/watch?v=9mul5FsYh2Y](https://www.youtube.com/watch?v=9mul5FsYh2Y)
+{% include youtubePlayer.html id="9mul5FsYh2Y" %}
 
 ### 2025 June
 
 2025-06-01 During an interview with Face the Nation, Wesleyan president Michael Roth expressed concern about antisemitism claims, stating, "…this is really an act of intimidation to scare schools into towing the line of the current administration. It really has nothing to do with national security or with antisemitism. This heightened scrutiny is meant to instill fear on college campuses, and I am afraid it is working".
 
-[https://www.youtube.com/watch?v=IlCnVgd-jkc](https://www.youtube.com/watch?v=IlCnVgd-jkc)
+{% include youtubePlayer.html id="IlCnVgd-jkc" %}
 
 2025-06-18 The Trump administration froze Columbia University funds again.
 

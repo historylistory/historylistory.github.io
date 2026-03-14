@@ -32,7 +32,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 2024-09-10 JD Vance posted on Truth Social "In the last several weeks, my office has received many inquiries from actual residents of Springfield who've said their neighbors' pets or local wildlife were abducted by Haitian migrants. It's possible, of course, that all of these rumors will turn out to be false".
 
-[https://www.youtube.com/watch?v=d5qoaj3YndQ](https://www.youtube.com/watch?v=d5qoaj3YndQ)
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 2024 09 10 dogs and cats vance - post.png
 
@@ -40,7 +40,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 
-[https://www.youtube.com/watch?v=d5qoaj3YndQ](https://www.youtube.com/watch?v=d5qoaj3YndQ)
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 2024-09-12 Springfield OH received bomb threats after the Trump administration made baseless claims about Haitian migrants. The Ohio governor had to bring in State Troopers and bomb dogs.
 

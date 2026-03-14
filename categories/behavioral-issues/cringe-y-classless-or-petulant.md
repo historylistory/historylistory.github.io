@@ -12,7 +12,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://www.wired.com/story/facebook-bans-alex-jones-extremists/](https://www.wired.com/story/facebook-bans-alex-jones-extremists/)
 
-[https://www.youtube.com/watch?v=owYgF4RbNlA](https://www.youtube.com/watch?v=owYgF4RbNlA)
+{% include youtubePlayer.html id="owYgF4RbNlA" %}
 
 ### 2021
 
@@ -30,11 +30,11 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2023-09-15 Lauren Boebert was caught on video at a Beetlejuice movie vaping, taking flash photography, and getting groped. After she was ushered out, she was caught on camera flipping off the staff.
 
-[https://www.youtube.com/watch?v=Hq-DvmZsn5s](https://www.youtube.com/watch?v=Hq-DvmZsn5s)
+{% include youtubePlayer.html id="Hq-DvmZsn5s" %}
 
 2023-11-02 In an exaggerated and exasperated tone, Lauren Boebert sarcastically mocked the federal bicycle subsidy program.
 
-[https://www.youtube.com/watch?v=eOfJjcPbkRw](https://www.youtube.com/watch?v=eOfJjcPbkRw)
+{% include youtubePlayer.html id="eOfJjcPbkRw" %}
 
 ### 2024 March
 
@@ -42,13 +42,13 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://www.pbs.org/newshour/politics/read-sen-katie-britts-full-response-to-the-state-of-the-union](https://www.pbs.org/newshour/politics/read-sen-katie-britts-full-response-to-the-state-of-the-union)
 
-[https://www.youtube.com/watch?v=PQw0-AkgQGM](https://www.youtube.com/watch?v=PQw0-AkgQGM)
+{% include youtubePlayer.html id="PQw0-AkgQGM" %}
 
 ### 2024 May
 
 2024-05-17 During a U.S. House Committee meeting, Marjorie Taylor Greene decided to unnecessarily pick a catfight with Congresswoman Jasmine Crockett and make fun of the Congresswoman’s eyelashes.
 
-[https://www.youtube.com/watch?v=Y-f0t5Wk0TA](https://www.youtube.com/watch?v=Y-f0t5Wk0TA)
+{% include youtubePlayer.html id="Y-f0t5Wk0TA" %}
 
 ### 2024 August
 
@@ -90,7 +90,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://www.newyorker.com/magazine/2025/11/17/laura-loomers-endless-payback](https://www.newyorker.com/magazine/2025/11/17/laura-loomers-endless-payback)
 
-[https://www.youtube.com/watch?v=YjJXS_KOJCc&list=WL&index=1](https://www.youtube.com/watch?v=YjJXS_KOJCc&list=WL&index=1)
+{% include youtubePlayer.html id="YjJXS_KOJCc" %}
 
 ### 2024 October
 
@@ -106,13 +106,13 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2025-02-20 At the CPAC conference Elon Musk waved around a chainsaw gifted to him by the Argentina president in an embarrassing “Chainsaw of Democracy” spectacle. More like chainsaw **to** Democracy.
 
-[https://www.youtube.com/watch?v=nkMVb0RNptA](https://www.youtube.com/watch?v=nkMVb0RNptA)
+{% include youtubePlayer.html id="nkMVb0RNptA" %}
 
 [https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858](https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858)
 
 2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
 
-[https://www.youtube.com/watch?v=b8gmxT8qj8Y](https://www.youtube.com/watch?v=b8gmxT8qj8Y)
+{% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285](https://www.msnbc.com/rachel-maddow-show/maddowblog/ukrainian-gratitude-jd-vance-apparently-failed-notice-rcna194285)
 
@@ -142,7 +142,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2025-06-24 During a DOGE Committee hearing, Marjorie Taylor Greene went into a fit of repeatedly banging her gavel at Stansbury and repeating “You are not recognized”.
 
-[https://www.youtube.com/watch?v=ii8l4IUZcVA](https://www.youtube.com/watch?v=ii8l4IUZcVA)
+{% include youtubePlayer.html id="ii8l4IUZcVA" %}
 
 [https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/](https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/)
 
@@ -156,7 +156,8 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2025-08-01 Viewers speculated that Jeanine Pirro was publicly intoxicated on more than one occasion.
 
-[https://www.youtube.com/watch?v=MRAdaArgkzw](https://www.youtube.com/watch?v=MRAdaArgkzw) (timestamp 3:28)
+{% include youtubePlayer.html id="MRAdaArgkzw" %}
+ (timestamp 3:28)
 
 2025-08-10 Trump posted an AI generated video of himself dancing within the Cracker Barrel logo. Amidst the conservative uproar over a logo change, Jesse Watters of Fox News put it best when he commented that “Cracker Barrel should take a page out of Fox News’ book at **give the people what they’re used to**”.
 
@@ -194,7 +195,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2025-09-23 Trump publicly crybabied to the UN about broken escalators and prompters. Later that day Press Secretary Karoline Leavitt had a tantrum on Fox news, called the escalator incident sabotage and demanded investigations and firings.
 
-[https://www.youtube.com/watch?v=2g1wRwwfqqM&list=WL&index=2](https://www.youtube.com/watch?v=2g1wRwwfqqM&list=WL&index=2)
+{% include youtubePlayer.html id="2g1wRwwfqqM" %}
 
 [https://www.bbc.com/news/articles/c3dr0zrr1kpo](https://www.bbc.com/news/articles/c3dr0zrr1kpo)
 
@@ -218,7 +219,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
 
-[https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1](https://www.youtube.com/watch?v=zjMJK_oGkuo&list=WL&index=1)
+{% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
 [https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698](https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698)
 
@@ -314,7 +315,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 2026-01-15 During a White House press briefing Karoline Leavitt berated and humiliated a journalist for asking about comments made by Trump to cancel the 2026 mid-term elections. She stated, “…only someone like you would take that so seriously and pose it as a question in that way”. When the journalist asked if ICE agents were doing everything correctly after the killing of Nicole Good, Karoline spouted, “Oh, okay. So you’re a biased reporter with a left-wing opinion. Yeah, because you’re a left-wing hack. You’re not a reporter. You’re posing in this room as a journalist. And it’s so clear by the premise of your question. And you and the people in the media who have such biases but fake like you’re a journalist – you shouldn’t even be sitting in that seat. But you’re pretending like you’re a journalist, but you’re a left-wing activist”.
 
-[https://www.youtube.com/watch?v=qaMIDqrcM44](https://www.youtube.com/watch?v=qaMIDqrcM44)
+{% include youtubePlayer.html id="qaMIDqrcM44" %}
 
 ### 2026 February
 

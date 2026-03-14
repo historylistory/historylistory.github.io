@@ -18,7 +18,7 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 [https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa](https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa)
 
-[https://www.youtube.com/watch?v=F6doRiySIB0&list=WL&index=6](https://www.youtube.com/watch?v=F6doRiySIB0&list=WL&index=6)
+{% include youtubePlayer.html id="F6doRiySIB0" %}
 
 ### 2025 October
 

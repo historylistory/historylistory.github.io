@@ -18,7 +18,7 @@ permalink: /categories/education/whitewashing-reframing/
 
 [https://www.lcabulldogs.com/](https://www.lcabulldogs.com/)
 
-[https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10](https://www.youtube.com/watch?v=NZKGgHNq5Hc&list=WL&index=10)
+{% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
 ### 2021 June
 
@@ -38,7 +38,7 @@ permalink: /categories/education/whitewashing-reframing/
 
 2021-09-17 During an interview on Jack Murphy Live, JD Vance shared a number of loaded opinions with listeners "we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws…" and continued to say very few leaders are willing to teach "true" civics and American history. He attacked CRT, ranted that “wokeism” was assimilation, and tied woke in with his own experience of being "assimilated" in higher education. He later called on conservatism as a counter-revolutionary force.
 
-[https://www.youtube.com/watch?v=PMq1ZEcyztY](https://www.youtube.com/watch?v=PMq1ZEcyztY)
+{% include youtubePlayer.html id="PMq1ZEcyztY" %}
 
 ### 2025 January
 
@@ -84,7 +84,7 @@ permalink: /categories/education/whitewashing-reframing/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115056914674717313](https://truthsocial.com/@realDonaldTrump/posts/115056914674717313)
 
-[https://www.youtube.com/watch?v=tJSbGOyYlUY&list=WL&index=18](https://www.youtube.com/watch?v=tJSbGOyYlUY&list=WL&index=18)
+{% include youtubePlayer.html id="tJSbGOyYlUY" %}
 
 ### 2025 September
 
@@ -94,15 +94,15 @@ permalink: /categories/education/whitewashing-reframing/
 
 2025-09-17 The Trump administration ordered the National Park Service to remove or censor exhibits at Harpers Ferry West Virginia, including the Civil War Museum and John Brown's Fort (a key site in an 1859 abolitionist raid).
 
-[https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2](https://www.youtube.com/watch?v=4ywN-W-EWHQ&list=WL&index=2)
+{% include youtubePlayer.html id="4ywN-W-EWHQ" %}
 
 ### 2025 December
 
 2025-12-03 A Colorado Springs teacher was indefinitely suspended after posting her school district’s changes in curriculum that will include censorship of elements of science and elements of anti-slavery activism such as the efforts of Franklin Douglas.
 
-[https://www.youtube.com/watch?v=DA8QoAJhOdM&list=WL&index=13](https://www.youtube.com/watch?v=DA8QoAJhOdM&list=WL&index=13)
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
 
-[https://www.youtube.com/watch?v=DA8QoAJhOdM](https://www.youtube.com/watch?v=DA8QoAJhOdM)
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
 
 [https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
 

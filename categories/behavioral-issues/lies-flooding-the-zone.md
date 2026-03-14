@@ -18,12 +18,13 @@ permalink: /categories/behavioral-issues/lies-flooding-the-zone/
 
 [https://en.wikipedia.org/wiki/Flood_the_zone](https://en.wikipedia.org/wiki/Flood_the_zone)
 
-[https://www.youtube.com/watch?v=hvPwEWxQ_kQ](https://www.youtube.com/watch?v=hvPwEWxQ_kQ) **WATCH**
+{% include youtubePlayer.html id="hvPwEWxQ_kQ" %}
+ **WATCH**
 
 2024-09-10 During an ABC news presidential debate, Trump declared "I have nothing to do with Project 2025".
 
-[https://www.youtube.com/watch?v=aUnunvxzpgE](https://www.youtube.com/watch?v=aUnunvxzpgE)
+{% include youtubePlayer.html id="aUnunvxzpgE" %}
 
 2025-09-23 Trump claimed multiple times that he has ended 7-to-10 wars.
 
-[https://www.youtube.com/watch?v=xAE9__z9bTM](https://www.youtube.com/watch?v=xAE9__z9bTM)
+{% include youtubePlayer.html id="xAE9__z9bTM" %}

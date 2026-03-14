@@ -22,7 +22,7 @@ permalink: /categories/children/immigrants/
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
 
-[https://www.youtube.com/watch?v=KFPzD50ErFU](https://www.youtube.com/watch?v=KFPzD50ErFU)
+{% include youtubePlayer.html id="KFPzD50ErFU" %}
 
 [https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358](https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358)
 

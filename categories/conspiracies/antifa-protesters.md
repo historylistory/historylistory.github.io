@@ -10,9 +10,9 @@ permalink: /categories/conspiracies/antifa-protesters/
 
 2021-01-06 According to AI, following the J6 insurrection, some Republican politicians and right-wing social media influencers began falsely claiming that Antifa was involved. It also states Fox host Tucker Carlson amplified the "false flag" theory suggesting the siege was orchestrated by the FBI, and a year later the conspiracy grew into a "Ray Epps" conspiracy theory.
 
-[https://www.youtube.com/watch?v=w7Bg5_-7e00](https://www.youtube.com/watch?v=w7Bg5_-7e00)
+{% include youtubePlayer.html id="w7Bg5_-7e00" %}
 
-[https://www.youtube.com/watch?v=CJuNHI2KP5w](https://www.youtube.com/watch?v=CJuNHI2KP5w)
+{% include youtubePlayer.html id="CJuNHI2KP5w" %}
 
 ### 2024 October
 

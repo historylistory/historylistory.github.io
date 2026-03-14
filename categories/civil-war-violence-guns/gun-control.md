@@ -34,7 +34,7 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 2022-05-25 Beto O'Rourke was removed from the floor when he interrupted Greg Abbott during the Uvalde school shooting press conference to warn about the dire importance of this ignored issue. 
 
-[https://www.youtube.com/watch?v=eEIVS7TPZzA](https://www.youtube.com/watch?v=eEIVS7TPZzA)
+{% include youtubePlayer.html id="eEIVS7TPZzA" %}
 
 2022-06-23 After NYSRPA v. Bruen The Federalist Society helped to expand public carry rights. Context: According to some sources, The Federalist Society is a financial backer of Project 2025.
 
@@ -62,7 +62,7 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 2023-04-05 At the Salt Lake City campus of Awaken Church, Charlie Kirk said having a few gun deaths is a prudent price to pay for the Second Amendment.
 
-[https://www.youtube.com/watch?v=rMzr5cDKza0](https://www.youtube.com/watch?v=rMzr5cDKza0)
+{% include youtubePlayer.html id="rMzr5cDKza0" %}
 
 ### 2024 January
 
@@ -108,7 +108,7 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 2025-08-27 MSNBC Jen Psaki cited the dire need to address school shootings with more than just prayer.  Republicans responded with uproar, incorrectly claiming it was an attack on their religion.
 
-[https://www.youtube.com/watch?v=89Kgu8KUfIs](https://www.youtube.com/watch?v=89Kgu8KUfIs)
+{% include youtubePlayer.html id="89Kgu8KUfIs" %}
 
 2025-08-28 During a White House press brief, right-wing influencer Brandon Tatum said the most recent school shooting was not a "gun thing", but a mental health thing. For context, Brandon Tatum is a Charlie Kirk follower who took stage at a Turning Point USA conference in 2021 in Orlando.
 
@@ -122,13 +122,13 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 [https://www.facebook.com/watch/?v=1499211274580946](https://www.facebook.com/watch/?v=1499211274580946)
 
-[https://www.youtube.com/watch?v=C_BcjujL0_w](https://www.youtube.com/watch?v=C_BcjujL0_w)
+{% include youtubePlayer.html id="C_BcjujL0_w" %}
 
-[https://www.youtube.com/watch?v=_Z1vyJFdofQ](https://www.youtube.com/watch?v=_Z1vyJFdofQ)
+{% include youtubePlayer.html id="_Z1vyJFdofQ" %}
 
 2025-08-31 Pope Leo called school shootings in America a "pandemic of arms".
 
-[https://www.youtube.com/watch?v=TmGTMt2mVmY](https://www.youtube.com/watch?v=TmGTMt2mVmY)
+{% include youtubePlayer.html id="TmGTMt2mVmY" %}
 
 ### 2025 September
 
@@ -144,7 +144,7 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 2025-09-15 In a press conference, State Representative Justin J. Pearson of Tennessee District 86 addressed poverty, militarization, and pointed out that Republicans don't care about crime because they don't enforce gun laws.
 
-[https://www.youtube.com/watch?v=cAB4ZgSiRXs](https://www.youtube.com/watch?v=cAB4ZgSiRXs)
+{% include youtubePlayer.html id="cAB4ZgSiRXs" %}
 
 2025-09-25 Florida State residents can now “open-carry” guns after the state appealed a 40-year ban.
 

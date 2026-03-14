@@ -10,7 +10,7 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 1972-01-01 (context) Nixon said, "The press is the enemy…the establishment is the enemy…the professors are the enemy…write that on a blackboard 100 times and never forget it".
 
-[https://www.youtube.com/watch?v=5Nzfaep8c0k](https://www.youtube.com/watch?v=5Nzfaep8c0k)
+{% include youtubePlayer.html id="5Nzfaep8c0k" %}
 
 ### 2018
 
@@ -22,7 +22,7 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 [https://en.wikipedia.org/wiki/Flood_the_zone](https://en.wikipedia.org/wiki/Flood_the_zone)
 
-[https://www.youtube.com/watch?v=hvPwEWxQ_kQ](https://www.youtube.com/watch?v=hvPwEWxQ_kQ)
+{% include youtubePlayer.html id="hvPwEWxQ_kQ" %}
 
 ### 2024
 

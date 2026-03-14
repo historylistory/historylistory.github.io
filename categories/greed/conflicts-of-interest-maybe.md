@@ -66,7 +66,7 @@ permalink: /categories/greed/conflicts-of-interest-maybe/
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
 
-[https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL](https://www.youtube.com/watch?v=0_Bwix9IjOE&list=WL)
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 

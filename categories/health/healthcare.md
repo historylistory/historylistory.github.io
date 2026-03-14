@@ -10,7 +10,7 @@ permalink: /categories/health/healthcare/
 
 2014-01-01 **HIGHLY recommended video in the link below**. The Affordable Care Act was fully implemented. This Act was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans. For context, the Trump administration planned in November 2025 to eliminate Obamacare while Democrats opposed and pushed to extend ACA subsidies.
 
-[https://www.youtube.com/watch?v=xj7_wMIxHjo&list=WL&index=8&t=9s](https://www.youtube.com/watch?v=xj7_wMIxHjo&list=WL&index=8&t=9s)
+{% include youtubePlayer.html id="xj7_wMIxHjo" %}
 
 [https://www.nbcnews.com/politics/congress/health-insurance-bills-rise-republicans-seeking-obamcare-alternative-rcna243332](https://www.nbcnews.com/politics/congress/health-insurance-bills-rise-republicans-seeking-obamcare-alternative-rcna243332)
 
@@ -20,7 +20,7 @@ permalink: /categories/health/healthcare/
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled after he warned that Republicans would make cuts to Medicare and Medicaid.
 
-[https://www.youtube.com/watch?v=1A9EZh2aVpw](https://www.youtube.com/watch?v=1A9EZh2aVpw)
+{% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
 ### 2024
 
@@ -104,7 +104,7 @@ permalink: /categories/health/healthcare/
 
 2025-10-03 At a press briefing, House Minority Leader Hakeem Jeffries (D-NY) accused Republicans and President Trump of shutting down the government to try to cut healthcare for Americans.
 
-[https://www.youtube.com/watch?v=1dQ6_X2z-DA&list=WL&index=4](https://www.youtube.com/watch?v=1dQ6_X2z-DA&list=WL&index=4)
+{% include youtubePlayer.html id="1dQ6_X2z-DA" %}
 
 2025-10-21 Americans begin receiving letters stating they should expect their health insurance prices to soar, double, and even quadruple.
 

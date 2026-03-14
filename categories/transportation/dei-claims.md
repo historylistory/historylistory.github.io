@@ -10,7 +10,7 @@ permalink: /categories/transportation/dei-claims/
 
 2025-01-30 During a press conference, **Trump blamed DEI, Biden and Pete Buttigieg for the Potomac place crash**. During that same press conference Trump listed off disabilities, claiming those disabilities were threatening safe air operations as though the FAA did not properly vet its employee pool. After his address he signed an executive order **demanding an end to DEI hiring practices**.
 
-[https://www.youtube.com/watch?v=yHcezmGzi_o](https://www.youtube.com/watch?v=yHcezmGzi_o)
+{% include youtubePlayer.html id="yHcezmGzi_o" %}
 
 ### 2025 February
 
@@ -22,7 +22,7 @@ permalink: /categories/transportation/dei-claims/
 
 2025-12-18 The U.S. government announced some responsibility for the fatal midair collision between an Army helicopter and American Airlines over the Potomac in January.
 
-[https://www.youtube.com/watch?v=dmRA4INjpUk&list=WL&index=3](https://www.youtube.com/watch?v=dmRA4INjpUk&list=WL&index=3)
+{% include youtubePlayer.html id="dmRA4INjpUk" %}
 
 [https://www.wbur.org/hereandnow/2025/12/18/mid-air-collision-government](https://www.wbur.org/hereandnow/2025/12/18/mid-air-collision-government)
 

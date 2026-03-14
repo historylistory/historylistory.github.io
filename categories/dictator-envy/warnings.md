@@ -18,13 +18,13 @@ permalink: /categories/dictator-envy/warnings/
 
 [https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president](https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president)
 
-[https://www.youtube.com/watch?v=WH1ZnfN2AgQ&list=WL&index=2](https://www.youtube.com/watch?v=WH1ZnfN2AgQ&list=WL&index=2)
+{% include youtubePlayer.html id="WH1ZnfN2AgQ" %}
 
 ### 2016
 
 2016-02-28 Ted Cruz called Trump is a "charming person" who “can turn on you overnight".
 
-[https://www.youtube.com/watch?v=FcEV5pDK-aM](https://www.youtube.com/watch?v=FcEV5pDK-aM)
+{% include youtubePlayer.html id="FcEV5pDK-aM" %}
 
 2016-10-22 On his podcast, RFK compared Trump to Hitler.
 
@@ -44,7 +44,8 @@ permalink: /categories/dictator-envy/warnings/
 
 [https://en.wikipedia.org/wiki/Flood_the_zone](https://en.wikipedia.org/wiki/Flood_the_zone)
 
-[https://www.youtube.com/watch?v=hvPwEWxQ_kQ](https://www.youtube.com/watch?v=hvPwEWxQ_kQ) **WATCH**
+{% include youtubePlayer.html id="hvPwEWxQ_kQ" %}
+ **WATCH**
 
 ### 2022
 
@@ -54,7 +55,7 @@ permalink: /categories/dictator-envy/warnings/
 
 [https://ohiocapitaljournal.com/2022/04/19/americas-hitler-old-j-d-vance-message-turns-up-in-heated-senate-primary/](https://ohiocapitaljournal.com/2022/04/19/americas-hitler-old-j-d-vance-message-turns-up-in-heated-senate-primary/)
 
-[https://www.youtube.com/watch?v=IuK5v8taTfA](https://www.youtube.com/watch?v=IuK5v8taTfA)
+{% include youtubePlayer.html id="IuK5v8taTfA" %}
 
 ### 2024
 
@@ -76,7 +77,8 @@ permalink: /categories/dictator-envy/warnings/
 
 2023-12-27 Pope Francis issued a third and final warning not to enter dialogue with the devil. He passed away on April 21, 2025 after a visit from JD Vance.
 
-[https://www.youtube.com/watch?v=pbsTj8RrqsI#:~:text=In%20his%20last%20General%20Audience%20before%20the,Subscribe%20to%20our%20channel%2C%20and%20activate%20notifications](https://www.youtube.com/watch?v=pbsTj8RrqsI):
+{% include youtubePlayer.html id="pbsTj8RrqsI" %}
+:
 
 2025-02-01 Pope Francis and the church rebuked the Trump administration repeatedly for their immigration policies and cruelties, for JD Vance’s sudden switch to Christianity, and for Trump supporters boasting about Christian values they don’t live.
 

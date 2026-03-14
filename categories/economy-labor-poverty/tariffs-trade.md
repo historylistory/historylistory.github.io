@@ -10,11 +10,11 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 1987 For context, Regan warned back in the 80’s that tariffs are dangerous.
 
-[https://www.youtube.com/watch?v=Foggkeiwlp0](https://www.youtube.com/watch?v=Foggkeiwlp0)
+{% include youtubePlayer.html id="Foggkeiwlp0" %}
 
-[https://www.youtube.com/watch?v=EDGtvAYmblY](https://www.youtube.com/watch?v=EDGtvAYmblY)
+{% include youtubePlayer.html id="EDGtvAYmblY" %}
 
-[https://www.youtube.com/watch?v=gFMyB8WMuDU](https://www.youtube.com/watch?v=gFMyB8WMuDU)
+{% include youtubePlayer.html id="gFMyB8WMuDU" %}
 
 [https://www.instagram.com/reel/DIAJLh9xmp-/?hl=en](https://www.instagram.com/reel/DIAJLh9xmp-/?hl=en)
 
@@ -78,7 +78,7 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 2025-09-18 Senator Elizabeth Warren sparred with Sara Eisen about tariff policies and explained to her how making a deal to exclude some companies' items from tariffs is "greasing palms".
 
-[https://www.youtube.com/watch?v=n9xetAzaEik&list=WL&index=1&t=226s](https://www.youtube.com/watch?v=n9xetAzaEik&list=WL&index=1&t=226s)
+{% include youtubePlayer.html id="n9xetAzaEik" %}
 
 ### 2025 October
 

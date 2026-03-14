@@ -10,7 +10,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked "maybe the Second Amendment supporters should 'do' something about Hillary Clinton".
 
-[https://www.youtube.com/watch?v=58SawH2FJ4Q](https://www.youtube.com/watch?v=58SawH2FJ4Q)
+{% include youtubePlayer.html id="58SawH2FJ4Q" %}
 
 2016-11-21 Turning Point's Charlie Kirk created the "Professor Watchlist" so his followers could outwardly dox any teacher they felt was "woke".
 
@@ -48,7 +48,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2024/apr/16/trump-new-york-hush-money-criminal-trial](https://www.theguardian.com/us-news/2024/apr/16/trump-new-york-hush-money-criminal-trial)
 
-[https://www.youtube.com/watch?v=1RAUQ6g6TXU&t=4s](https://www.youtube.com/watch?v=1RAUQ6g6TXU&t=4s)
+{% include youtubePlayer.html id="1RAUQ6g6TXU" %}
 
 ### 2024 October
 
@@ -72,7 +72,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”.
 
-[https://www.youtube.com/watch?v=OiUU1JLoT2E&list=WL&index=1&t=436s](https://www.youtube.com/watch?v=OiUU1JLoT2E&list=WL&index=1&t=436s)
+{% include youtubePlayer.html id="OiUU1JLoT2E" %}
 
 [https://www.mediaite.com/politics/house-republicans-and-democrats-find-common-ground-in-opposing-gop-member-hanging-a-wanted-poster-for-judges-outside-his-office/](https://www.mediaite.com/politics/house-republicans-and-democrats-find-common-ground-in-opposing-gop-member-hanging-a-wanted-poster-for-judges-outside-his-office/)
 
@@ -88,7 +88,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference](https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference)
 
-[https://www.youtube.com/watch?v=6FaBinmq3Kk](https://www.youtube.com/watch?v=6FaBinmq3Kk)
+{% include youtubePlayer.html id="6FaBinmq3Kk" %}
 
 ### 2025 July
 
@@ -104,7 +104,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 2025-08-25 Jesse Watters stated about Kamala Harris, "**She is going to get paralyzed in the situation room while the generals have their way with her**" and refused to apologize.
 
-[https://www.youtube.com/watch?v=dddKNLwzqEc](https://www.youtube.com/watch?v=dddKNLwzqEc)
+{% include youtubePlayer.html id="dddKNLwzqEc" %}
 
 [https://www.binnews.com/content/2024-08-28-jesse-watters-declines-to-apologize-for-suggestive-kamala-harris-comments/](https://www.binnews.com/content/2024-08-28-jesse-watters-declines-to-apologize-for-suggestive-kamala-harris-comments/)
 
@@ -138,7 +138,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
 
-[https://www.youtube.com/watch?v=GmHoHsEzzBs](https://www.youtube.com/watch?v=GmHoHsEzzBs)
+{% include youtubePlayer.html id="GmHoHsEzzBs" %}
 
 [https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d](https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d)
 

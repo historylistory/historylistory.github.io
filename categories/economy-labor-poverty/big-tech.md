@@ -70,10 +70,10 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html](https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html)
 
-[https://www.youtube.com/watch?v=QrQRuhD2mAw&list=WL&index=1](https://www.youtube.com/watch?v=QrQRuhD2mAw&list=WL&index=1)
+{% include youtubePlayer.html id="QrQRuhD2mAw" %}
 
-[https://www.youtube.com/watch?v=DbjTlwpC0c0&list=WL&index=6](https://www.youtube.com/watch?v=DbjTlwpC0c0&list=WL&index=6)
+{% include youtubePlayer.html id="DbjTlwpC0c0" %}
 
 2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
 
-[https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2](https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2)
+{% include youtubePlayer.html id="5NecjNqL11c" %}

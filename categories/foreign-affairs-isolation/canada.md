@@ -16,7 +16,7 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 [https://abcnews.com/Politics/trump-talking-making-canada-51st-state/story?id=119767909](https://abcnews.com/Politics/trump-talking-making-canada-51st-state/story?id=119767909)
 
-[https://www.youtube.com/watch?v=XLC5XMqRBOk](https://www.youtube.com/watch?v=XLC5XMqRBOk)
+{% include youtubePlayer.html id="XLC5XMqRBOk" %}
 
 [https://www.nbcnews.com/politics/white-house/trumps-latest-western-hemisphere-fixation-canada-rcna254552](https://www.nbcnews.com/politics/white-house/trumps-latest-western-hemisphere-fixation-canada-rcna254552)
 
@@ -32,9 +32,9 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 [https://www.globaldispatches.org/p/mark-carneys-jaw-dropping-davos-speech](https://www.globaldispatches.org/p/mark-carneys-jaw-dropping-davos-speech)
 
-[https://www.youtube.com/watch?v=nOIHthnpcpQ](https://www.youtube.com/watch?v=nOIHthnpcpQ)
+{% include youtubePlayer.html id="nOIHthnpcpQ" %}
 
-[https://www.youtube.com/watch?v=7JgxGDccWk8](https://www.youtube.com/watch?v=7JgxGDccWk8)
+{% include youtubePlayer.html id="7JgxGDccWk8" %}
 
 ### 2026 February
 
@@ -44,4 +44,4 @@ Also out of left field, one conservative commentator praised the win as a show o
 
 [https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026#:~:text=Jack%20Hughes%20is%20the%20poster,at%20Santaguilia%20Arena%20on%20Sunday](https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026).
 
-[https://www.youtube.com/watch?v=fOdTHhQ1xY0](https://www.youtube.com/watch?v=fOdTHhQ1xY0)
+{% include youtubePlayer.html id="fOdTHhQ1xY0" %}

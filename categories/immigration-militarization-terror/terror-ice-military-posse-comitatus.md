@@ -10,7 +10,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2017-02-12 During a Face the Nation interview, Stephen Miller denounced Judiciary power, talked about immigration, and announced "a great rebuilding of the armed forces" with "unquestioned military strength".
 
-[https://www.youtube.com/watch?v=pU4RaPC3Rgg](https://www.youtube.com/watch?v=pU4RaPC3Rgg)
+{% include youtubePlayer.html id="pU4RaPC3Rgg" %}
 
 ### 2025 January
 
@@ -46,7 +46,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-07-07 During a press conference Karoline Leavitt addressed Operation Summer Heat which she stated, “has our murder rate trending in the lowest direction in United States history”.
 
-[https://www.youtube.com/watch?v=rM3xqO_KJZ8](https://www.youtube.com/watch?v=rM3xqO_KJZ8)
+{% include youtubePlayer.html id="rM3xqO_KJZ8" %}
 
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
 
@@ -62,7 +62,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-08-05 Trump threatened federal control of Washington D.C. after Edward "Big Balls" Coristine was attacked.
 
-[https://www.youtube.com/watch?v=Fb7yKvOQE_c](https://www.youtube.com/watch?v=Fb7yKvOQE_c)
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 
 [https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
 
@@ -138,7 +138,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-09-12 Trump told Fox News that the head of Union Pacific asked him to send National Guard troops to Saint Louis Missouri (loophole?).
 
-[https://www.youtube.com/watch?v=SH4EI2aHorY](https://www.youtube.com/watch?v=SH4EI2aHorY)
+{% include youtubePlayer.html id="SH4EI2aHorY" %}
 
 [https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis](https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis)
 
@@ -156,7 +156,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-09-20 Faith leaders held a prayer march in front of Naval Station Great Lakes in Chicago demanding ICE agents leave.
 
-[https://www.youtube.com/watch?v=meCcT7e5Av8&list=WL&index=2](https://www.youtube.com/watch?v=meCcT7e5Av8&list=WL&index=2)
+{% include youtubePlayer.html id="meCcT7e5Av8" %}
 
 2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney stated **they will not comply** with that law
 
@@ -168,7 +168,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 [https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/](https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/)
 
-[https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2](https://www.youtube.com/watch?v=k2wVMYCAfyc&list=WL&index=2)
+{% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
 2025-09-29 Multiple news outlets outed Fox News for **using viral riot footage from 2020** to sensationalize a small peaceful protest in Portland.
 
@@ -182,11 +182,11 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-09-29 MSNBC interviewed retired US Army Lieutenant General Mark Hertling who expressed concern about the militarized approach in U.S. cities.
 
-[https://www.youtube.com/watch?v=hTgQRv3BRfg&list=WL&index=1](https://www.youtube.com/watch?v=hTgQRv3BRfg&list=WL&index=1)
+{% include youtubePlayer.html id="hTgQRv3BRfg" %}
 
 2025-09-30 During an MSNBC interview, Senator Tammy Duckworth stated, “**Our troops did not sign up to be on the streets to intimidate our neighbors**".
 
-[https://www.youtube.com/watch?v=46bOyMz5kqo&list=WL&index=8&t=135s](https://www.youtube.com/watch?v=46bOyMz5kqo&list=WL&index=8&t=135s)
+{% include youtubePlayer.html id="46bOyMz5kqo" %}
 
 ### 2025 October
 
@@ -200,7 +200,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were "**unleashed**" and stated, "**we are about to provide you with a level of support that you cannot even imagine**".
 
-[https://www.youtube.com/watch?v=gZvOJjq81cQ&list=WL&index=4](https://www.youtube.com/watch?v=gZvOJjq81cQ&list=WL&index=4)
+{% include youtubePlayer.html id="gZvOJjq81cQ" %}
 
 2025-10-17 Tennessee leaders sued Trump for deploying the National Guard to Memphis.
 
@@ -220,7 +220,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 [https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/](https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/)
 
-[https://www.youtube.com/watch?v=my2T8H20N-I](https://www.youtube.com/watch?v=my2T8H20N-I)
+{% include youtubePlayer.html id="my2T8H20N-I" %}
 
 [https://www.wwltv.com/article/news/politics/immigration-news/immigration-enforcement/new-orleans-immigrant-community-braces-for-operation-swamp-sweep/289-23c4be83-eb8d-4b05-a3cc-beed5db5aaaf](https://www.wwltv.com/article/news/politics/immigration-news/immigration-enforcement/new-orleans-immigrant-community-braces-for-operation-swamp-sweep/289-23c4be83-eb8d-4b05-a3cc-beed5db5aaaf)
 

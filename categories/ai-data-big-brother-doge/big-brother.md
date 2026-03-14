@@ -72,7 +72,7 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
 
-[https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2](https://www.youtube.com/watch?v=5NecjNqL11c&list=WL&index=2)
+{% include youtubePlayer.html id="5NecjNqL11c" %}
 
 ### 2025 October
 
@@ -88,7 +88,7 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/](https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/)
 
-[https://www.youtube.com/watch?v=hZtNjijS5bo](https://www.youtube.com/watch?v=hZtNjijS5bo)
+{% include youtubePlayer.html id="hZtNjijS5bo" %}
 
 2026-01-27 After TikTok was forced to sell to a US company, users began noticing any material mentioning anti-Trump, ICE or Epstein files were being censored and shadow-banned.
 
@@ -130,7 +130,7 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 2026-02-26 Senator Slotkin questioned Mr. Ditlevson about the Pentagon’s use of mass surveillance of Americans.
 
-[https://www.youtube.com/watch?v=LBLYLE7KgMc&list=WL&index=2](https://www.youtube.com/watch?v=LBLYLE7KgMc&list=WL&index=2)
+{% include youtubePlayer.html id="LBLYLE7KgMc" %}
 
 2026-02-27 The Pentagon gave Anthropic a deadline to agree to the Pentagon’s terms for widespread domestic surveillance and autonomous weapons, saying if Anthropic didn’t agree to all those terms then they would label the company as a “supply chain risk” as an ultimatum. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
 

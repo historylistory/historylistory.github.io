@@ -48,4 +48,4 @@ permalink: /categories/conspiracies/positioning-for-propaganda/
 
 [https://mikejohnson.house.gov/news/documentsingle.aspx?DocumentID=2770](https://mikejohnson.house.gov/news/documentsingle.aspx?DocumentID=2770)
 
-[https://www.youtube.com/watch?v=xj7_wMIxHjo&list=WL&index=18](https://www.youtube.com/watch?v=xj7_wMIxHjo&list=WL&index=18)
+{% include youtubePlayer.html id="xj7_wMIxHjo" %}

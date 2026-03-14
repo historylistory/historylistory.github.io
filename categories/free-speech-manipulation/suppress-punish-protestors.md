@@ -64,13 +64,13 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 2024-05-01 During a rally in Waukesha Wisconsin, Trump referred to protestors as "radicals" and told his crowd to "save the universities for normal people".
 
-[https://www.youtube.com/watch?v=xk94il8L820&list=WL&index=37](https://www.youtube.com/watch?v=xk94il8L820&list=WL&index=37)
+{% include youtubePlayer.html id="xk94il8L820" %}
 
 2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
 
-[https://www.youtube.com/watch?v=emuKlnqwlcc](https://www.youtube.com/watch?v=emuKlnqwlcc)
+{% include youtubePlayer.html id="emuKlnqwlcc" %}
 
-[https://www.youtube.com/watch?v=DkjzEAmFXeo](https://www.youtube.com/watch?v=DkjzEAmFXeo)
+{% include youtubePlayer.html id="DkjzEAmFXeo" %}
 
 2024-05-02 Charlie Kirk posted on X, "Hate speech does not exist legally in America. There's ugly speech. There's gross speech. There's evil speech. And ALL of it is protected by the First Amendment. Keep America free." 
 
@@ -116,7 +116,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
 
-[https://www.youtube.com/watch?v=5c1idp7Qzd4](https://www.youtube.com/watch?v=5c1idp7Qzd4)
+{% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
 2025-03-15 Leqaa Kordia was detained for overstaying an F-1 Visa but was also involved in protests at Columbia University and may have been targeted for that. Since then, she had been detained in a Texas immigration jail for over a year. She reported having seizures, being forced to shower with chains on, and was refused contact with family or lawyers. She was released in 2026 and stated the detention facility was “built to break people and destroy their health and hope”.
 
@@ -178,7 +178,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
 
-[https://www.youtube.com/watch?v=w1oHKOPjf94](https://www.youtube.com/watch?v=w1oHKOPjf94)
+{% include youtubePlayer.html id="w1oHKOPjf94" %}
 
 [https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/](https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/)
 

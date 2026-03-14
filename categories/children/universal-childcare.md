@@ -16,7 +16,8 @@ permalink: /categories/children/universal-childcare/
 
 2025-09-13 During a hearing, Katie Porter sparred Heritage Foundation's Dr. Burke about universal childcare.  Dr. Burke asserted that universal childcare is investing with "other people’s money".  At one-point, Representative Porter asked Dr. Burke if she had children, to which Dr. Burke said she didn’t want to get her own children involved.
 
- [https://www.youtube.com/watch?v=OXwlE1SaFhc&list=WL&index=3](https://www.youtube.com/watch?v=OXwlE1SaFhc&list=WL&index=3)
+ 
+{% include youtubePlayer.html id="OXwlE1SaFhc" %}
 
 2025-09-14 Democrats in New Mexico put THEIR plan together to get the first universal childcare in THEIR State.
 
@@ -46,6 +47,6 @@ This is why I brought this up. It might not be related to universal childcare, b
 
 [https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
 
-[https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4](https://www.youtube.com/watch?v=_z47VqygrQw&list=WL&index=4)
+{% include youtubePlayer.html id="_z47VqygrQw" %}
 
 [https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)

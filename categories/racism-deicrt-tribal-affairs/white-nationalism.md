@@ -130,7 +130,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://local21news.com/news/local/outrage-sparked-after-girl-5-gets-women-for-the-kkk-card-at-mechanicsburg-parade](https://local21news.com/news/local/outrage-sparked-after-girl-5-gets-women-for-the-kkk-card-at-mechanicsburg-parade)
 
-[https://www.youtube.com/watch?v=5wAPkwqRiE0](https://www.youtube.com/watch?v=5wAPkwqRiE0)
+{% include youtubePlayer.html id="5wAPkwqRiE0" %}
 
 2025-10-15 Ohio Congressman Dave Taylor had an altered American flag on his wall featuring the swastika. Mike Johnson alleged it was vandalism, and Fox news claimed it was an “optical illusion”.
 
@@ -138,7 +138,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.pbs.org/newshour/politics/ohio-lawmaker-condemns-inappropriate-symbol-found-in-his-dc-office](https://www.pbs.org/newshour/politics/ohio-lawmaker-condemns-inappropriate-symbol-found-in-his-dc-office)
 
-[https://www.youtube.com/watch?v=GLJhdL-wV8I](https://www.youtube.com/watch?v=GLJhdL-wV8I)
+{% include youtubePlayer.html id="GLJhdL-wV8I" %}
 
 [https://www.nbcbayarea.com/news/politics/republican-ohio-rep-dave-taylor-swastika-flag-vile-investigation/3964572/](https://www.nbcbayarea.com/news/politics/republican-ohio-rep-dave-taylor-swastika-flag-vile-investigation/3964572/)
 

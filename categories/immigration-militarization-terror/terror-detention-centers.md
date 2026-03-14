@@ -30,9 +30,9 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 
 2025-07-03 Alligator Alcatraz was erected and was estimated to cost roughly **$450M** per year to maintain. **Karoline Leavitt said with a smile there's only "one road in and one flight out"**. DeSantis promises more facilities.
 
-[https://www.youtube.com/watch?v=Urvg3bCjq8Q](https://www.youtube.com/watch?v=Urvg3bCjq8Q)
+{% include youtubePlayer.html id="Urvg3bCjq8Q" %}
 
-[https://www.youtube.com/watch?v=Urvg3bCjq8Q](https://www.youtube.com/watch?v=Urvg3bCjq8Q)
+{% include youtubePlayer.html id="Urvg3bCjq8Q" %}
 
 2025-07-11 Reports came in about inhumane conditions at Alligator Alcatraz including flooding, water issues, worms in the food, and the spread of disease.
 
@@ -98,7 +98,7 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 
 [https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story](https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story)
 
-[https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8](https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8)
+{% include youtubePlayer.html id="0MDLruLgsQI" %}
 
 ### 2026 January
 
@@ -136,7 +136,7 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 
 2026-03-06 Local 911 authorities in Texas received hundreds of distressed 911 calls from the Camp Montana East ICE detention facility for multiple concerns including suicide attempts, seizures, fight injuries, malnutrition, medical neglect, overcrowding, emotional distress and pregnancy complications.
 
-[https://www.youtube.com/watch?v=mgTtQTkCrE4&list=WL&index=1](https://www.youtube.com/watch?v=mgTtQTkCrE4&list=WL&index=1)
+{% include youtubePlayer.html id="mgTtQTkCrE4" %}
 
 [https://www.motherjones.com/politics/2026/03/at-largest-ice-detention-camp-staff-bet-on-detainee-suicides-ap-reports/](https://www.motherjones.com/politics/2026/03/at-largest-ice-detention-camp-staff-bet-on-detainee-suicides-ap-reports/)
 

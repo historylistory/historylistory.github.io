@@ -22,7 +22,7 @@ permalink: /categories/religion/women/
 
 2025-08-07 CNN Pamela Brown interviewed Doug Wilson with Christ Church. The interview is very enlightening because he made several misogynist remarks about women including but not limited to “**women are people other people come out of**” and that having babies doesn’t take skill.  Summed up, **he claimed that women should not vote, and they should not hold leadership positions** because the bible says they shouldn’t. The interview featured two other church leaders with the same set of beliefs. For context, Doug Wilson erected a church in Washington D.C., helped co-author Project 2025, and is followed by Pete Hegseth.
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 2025-08-07 Pete Hegseth posted on X "All of Christ for All of Life" and included a link to Doug Wilson's interview about his Christian Nationalist crusade.
 
@@ -30,7 +30,7 @@ permalink: /categories/religion/women/
 
 2025-08-13 Doug Wilson had a church built in Washington DC which Pete Hegseth attends.
 
-[https://www.youtube.com/watch?v=u29UJtpA3x0](https://www.youtube.com/watch?v=u29UJtpA3x0)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
 ### 2025 September
 
@@ -38,4 +38,4 @@ permalink: /categories/religion/women/
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
-[https://www.youtube.com/watch?v=BMTSGFzr4OE](https://www.youtube.com/watch?v=BMTSGFzr4OE)
+{% include youtubePlayer.html id="BMTSGFzr4OE" %}

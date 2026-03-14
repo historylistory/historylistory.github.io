@@ -42,7 +42,7 @@ permalink: /categories/military-veterans/disrespect/
 
 2025-09-23 Jon Stewart speaks out at a rally on behalf of veterans. Link here:
 
-[https://www.youtube.com/watch?v=-Rtr14AP13Y&list=WL&index=3](https://www.youtube.com/watch?v=-Rtr14AP13Y&list=WL&index=3)
+{% include youtubePlayer.html id="-Rtr14AP13Y" %}
 
 ### 2026 January
 
