@@ -1,10 +1,14 @@
 categories:
+  - name: Purpose
+    slug: purpose
+    subcategories:
+
   - name: Agriculture
     slug: agriculture
     subcategories:
       - name: Farmer Conservation Practices
         slug: farmer-conservation-practices
-      - name: Farmer Bailouts, Jobs & Subsidies
+      - name: "Farmer Bailouts, Jobs & Subsidies"
         slug: farmer-bailouts-jobs-subsidies
       - name: Farm Sales
         slug: farm-sales
@@ -17,28 +21,639 @@ categories:
       - name: Department of Agriculture v. SNAP
         slug: department-of-agriculture-v-snap
 
-  - name: Presidents
-    slug: presidents
+  - name: AI - Data - Big Brother - DOGE
+    slug: ai-data-big-brother-doge
     subcategories:
-      - name: Washington Administration
-        slug: washington-administration
-      - name: Adams Administration
-        slug: adams-administration
-      - name: Jefferson Administration
-        slug: jefferson-administration
+      - name: AI Investors
+        slug: ai-investors
+      - name: "AI Safeguards & Regulation"
+        slug: ai-safeguards-regulation
+      - name: "AI Bad Behavior & Influence"
+        slug: ai-bad-behavior-influence
+      - name: AI to Manipulate Consumers
+        slug: ai-to-manipulate-consumers
+      - name: AI Environmental Impacts
+        slug: ai-environmental-impacts
+      - name: AI Job Influence
+        slug: ai-job-influence
+      - name: AI Other
+        slug: ai-other
+      - name: Big Brother
+        slug: big-brother
+      - name: DOGE
+        slug: doge
 
-  - name: Wars & Conflicts
-    slug: wars-and-conflicts
+  - name: Behavioral Issues
+    slug: behavioral-issues
     subcategories:
-      - name: Revolutionary War
-        slug: revolutionary-war
-      - name: Civil War
-        slug: civil-war
+      - name: "Lies & Flooding the Zone"
+        slug: lies-flooding-the-zone
+      - name: Cringe-y, Classless, or Petulant
+        slug: cringe-y-classless-or-petulant
+      - name: "Weird & Random"
+        slug: weird-random
+      - name: Derelict, Incompetent or Wreckless
+        slug: derelict-incompetent-or-wreckless
+      - name: Ego, Idolatry, and Renaming
+        slug: ego-idolatry-and-renaming
+      - name: "Heckling & Bullying (also petulant)"
+        slug: heckling-bullying-also-petulant
+      - name: "Hubris, Pride & Temper"
+        slug: hubris-pride-temper
+      - name: Read the Room, Asshole
+        slug: read-the-room-asshole
+      - name: Sore Losers
+        slug: sore-losers
+      - name: Soulless
+        slug: soulless
 
-  - name: Legislation
-    slug: legislation
+  - name: Bully - Threaten - Sue - Fire
+    slug: bully-threaten-sue-fire
     subcategories:
-      - name: Constitutional Amendments
-        slug: constitutional-amendments
-      - name: Major Acts
-        slug: major-acts
+      - name: CONTEXT (link)
+        slug: context-link
+      - name: "Bullying & Heckling"
+        slug: bullying-heckling
+      - name: "Fire & Purge"
+        slug: fire-purge
+      - name: Threats of RETALIATION
+        slug: threats-of-retaliation
+      - name: "Threats of VIOLENCE & DOXXING"
+        slug: threats-of-violence-doxxing
+      - name: Threats (all others)
+        slug: threats-all-others
+      - name: Serious Accusations
+        slug: serious-accusations
+      - name: Sue Everybody
+        slug: sue-everybody
+
+  - name: Children
+    slug: children
+    subcategories:
+      - name: Abroad
+        slug: abroad
+      - name: Assault
+        slug: assault
+      - name: Education
+        slug: education
+      - name: Health
+        slug: health
+      - name: Immigrants
+        slug: immigrants
+      - name: Indoctrination
+        slug: indoctrination
+      - name: Orphans and Foster
+        slug: orphans-and-foster
+      - name: School Shootings
+        slug: school-shootings
+      - name: "SNAP & Poverty"
+        slug: snap-poverty
+      - name: Trump Accounts
+        slug: trump-accounts
+      - name: Universal Childcare
+        slug: universal-childcare
+
+  - name: Civil War - Violence - Guns
+    slug: civil-war-violence-guns
+    subcategories:
+      - name: "Far Right Groups & MAGA Roots"
+        slug: far-right-groups-maga-roots
+      - name: Gun Control
+        slug: gun-control
+      - name: Politicizing to Meet Agendas
+        slug: politicizing-to-meet-agendas
+      - name: "Dangerous Rhetoric & Political Violence"
+        slug: dangerous-rhetoric-political-violence
+      - name: Hiding Truths
+        slug: hiding-truths
+      - name: The ANTIFA Strategy
+        slug: the-antifa-strategy
+      - name: Charlie Kirk Specific
+        slug: charlie-kirk-specific
+      - name: "Propaganda & Divisive Measures"
+        slug: propaganda-divisive-measures
+
+  - name: Climate Change
+    slug: climate-change
+    subcategories:
+      - name: Paris Climate Agreement
+        slug: paris-climate-agreement
+      - name: "Forest & Fire Services"
+        slug: forest-fire-services
+      - name: Climate Change Denial
+        slug: climate-change-denial
+      - name: "Windmills & Clean Energy"
+        slug: windmills-clean-energy
+      - name: Reducing Regulations to Benefit the Rich
+        slug: reducing-regulations-to-benefit-the-rich
+      - name: Drill Baby Drill
+        slug: drill-baby-drill
+      - name: Disaster Recovery
+        slug: disaster-recovery
+      - name: Endangerment
+        slug: endangerment
+
+  - name: Conspiracies
+    slug: conspiracies
+    subcategories:
+      - name: "Abortion & IVF"
+        slug: abortion-ivf
+      - name: Anti-LGBTQ Rhetoric
+        slug: anti-lgbtq-rhetoric
+      - name: "ANTIFA & Protesters"
+        slug: antifa-protesters
+      - name: Autopen
+        slug: autopen
+      - name: Bin Laden
+        slug: bin-laden
+      - name: Christmas
+        slug: christmas
+      - name: Clinton Chronicles
+        slug: clinton-chronicles
+      - name: DEI
+        slug: dei
+      - name: Drones
+        slug: drones
+      - name: Elections
+        slug: elections
+      - name: Fort Knox Gold
+        slug: fort-knox-gold
+      - name: Gaza
+        slug: gaza
+      - name: George Soros
+        slug: george-soros
+      - name: Health
+        slug: health
+      - name: Immigrants
+        slug: immigrants
+      - name: Italygate
+        slug: italygate
+      - name: J6
+        slug: j6
+      - name: Kamala Harris
+        slug: kamala-harris
+      - name: Lilith Fair is Demonic
+        slug: lilith-fair-is-demonic
+      - name: Litter Boxes
+        slug: litter-boxes
+      - name: Nikki Haley
+        slug: nikki-haley
+      - name: Obama
+        slug: obama
+      - name: Pizzagate
+        slug: pizzagate
+      - name: Political Violence
+        slug: political-violence
+      - name: Positioning for Propaganda
+        slug: positioning-for-propaganda
+      - name: Q-ANON
+        slug: q-anon
+      - name: Social Security
+        slug: social-security
+      - name: Taylor Swift
+        slug: taylor-swift
+      - name: Tinky Winky is Gay
+        slug: tinky-winky-is-gay
+      - name: Trump Derangement Syndrome
+        slug: trump-derangement-syndrome
+      - name: Weather
+        slug: weather
+
+  - name: Crime - Ethics - Defiance
+    slug: crime-ethics-defiance
+    subcategories:
+      - name: "Sexual Assault & Trafficking - Epstein"
+        slug: sexual-assault-trafficking-epstein
+      - name: "Sexual Assault & Trafficking - Other"
+        slug: sexual-assault-trafficking-other
+      - name: Ethics Issues
+        slug: ethics-issues
+      - name: Pardons
+        slug: pardons
+      - name: "Executive Orders & Amendments"
+        slug: executive-orders-amendments
+      - name: "Dissidence & Defiance"
+        slug: dissidence-defiance
+      - name: Legal Trouble - Trump
+        slug: legal-trouble-trump
+      - name: OTHER
+        slug: other
+
+  - name: Dictator Envy
+    slug: dictator-envy
+    subcategories:
+      - name: WARNINGS
+        slug: warnings
+      - name: "Ominous Speech & Behavior"
+        slug: ominous-speech-behavior
+      - name: Parallels
+        slug: parallels
+      - name: Trump Envies Evil
+        slug: trump-envies-evil
+      - name: Fascist Fans
+        slug: fascist-fans
+      - name: Tech Bro Elites
+        slug: tech-bro-elites
+
+  - name: Disabled - Elderly - Veteran
+    slug: disabled-elderly-veteran
+    subcategories:
+      - name: Disabled + Mental Illness
+        slug: disabled-mental-illness
+      - name: Elderly
+        slug: elderly
+      - name: Medicare/Medicaid
+        slug: medicaremedicaid
+      - name: Social Security + Retirement
+        slug: social-security-retirement
+      - name: Veterans
+        slug: veterans
+
+  - name: Economy - Labor - Poverty
+    slug: economy-labor-poverty
+    subcategories:
+      - name: FYI
+        slug: fyi
+      - name: Big Tech
+        slug: big-tech
+      - name: Consumer Protection
+        slug: consumer-protection
+      - name: Farming
+        slug: farming
+      - name: Housing
+        slug: housing
+      - name: "Inflation & Market Data"
+        slug: inflation-market-data
+      - name: AI Job Influence and Ghosting
+        slug: ai-job-influence-and-ghosting
+      - name: Labor
+        slug: labor
+      - name: "Mining & Drilling"
+        slug: mining-drilling
+      - name: Poverty
+        slug: poverty
+      - name: Social Security
+        slug: social-security
+      - name: "Tariffs & Trade"
+        slug: tariffs-trade
+      - name: Taxpayers
+        slug: taxpayers
+      - name: OTHER
+        slug: other
+
+  - name: Education
+    slug: education
+    subcategories:
+      - name: "Anti-Learning & Anti-Growth"
+        slug: anti-learning-anti-growth
+      - name: Disabled Children
+        slug: disabled-children
+      - name: "Dismantling Research & Science"
+        slug: dismantling-research-science
+      - name: "Funding, Retaliation & Illegal Impoundment"
+        slug: funding-retaliation-illegal-impoundment
+      - name: Indoctrination
+        slug: indoctrination
+      - name: Student Loans
+        slug: student-loans
+      - name: Villainizing Rhetoric
+        slug: villainizing-rhetoric
+      - name: Wealthy Welfare
+        slug: wealthy-welfare
+      - name: "Whitewashing & Reframing"
+        slug: whitewashing-reframing
+
+  - name: "Foreign Affairs & Isolation"
+    slug: foreign-affairs-isolation
+    subcategories:
+      - name: World Health Organization
+        slug: world-health-organization
+      - name: The UN
+        slug: the-un
+      - name: Foreign Influence in Politics
+        slug: foreign-influence-in-politics
+      - name: NATO
+        slug: nato
+      - name: USAID
+        slug: usaid
+      - name: Canada
+        slug: canada
+      - name: Cuba
+        slug: cuba
+      - name: Ecuador
+        slug: ecuador
+      - name: Gaza
+        slug: gaza
+      - name: Greenland
+        slug: greenland
+      - name: Iran
+        slug: iran
+      - name: Nigeria
+        slug: nigeria
+      - name: North Korea
+        slug: north-korea
+      - name: Syria
+        slug: syria
+      - name: Ukraine
+        slug: ukraine
+      - name: Venezuela
+        slug: venezuela
+
+  - name: "Free Speech & Manipulation"
+    slug: free-speech-manipulation
+    subcategories:
+      - name: "\"The Press is the Enemy\""
+        slug: the-press-is-the-enemy
+      - name: Purge
+        slug: purge
+      - name: Manipulators - Conservative Groups
+        slug: manipulators-conservative-groups
+      - name: Manipulators - Conservative Media
+        slug: manipulators-conservative-media
+      - name: "Suppress & Punish Media"
+        slug: suppress-punish-media
+      - name: "Suppress & Punish Protestors"
+        slug: suppress-punish-protestors
+      - name: "Suppress & Punish Free Speech"
+        slug: suppress-punish-free-speech
+      - name: Parallels
+        slug: parallels
+      - name: Other
+        slug: other
+
+  - name: Greed
+    slug: greed
+    subcategories:
+      - name: Conflicts of Interest, Maybe?
+        slug: conflicts-of-interest-maybe
+      - name: "Crypto & Bitcoin"
+        slug: crypto-bitcoin
+      - name: GoFundMe
+        slug: gofundme
+      - name: "Mega Donors & Pay to Play"
+        slug: mega-donors-pay-to-play
+      - name: "Side Hustles & For-Profit Presidency"
+        slug: side-hustles-for-profit-presidency
+      - name: Tacky
+        slug: tacky
+
+  - name: Health
+    slug: health
+    subcategories:
+      - name: Antidepressant Claims
+        slug: antidepressant-claims
+      - name: Autism
+        slug: autism
+      - name: "Child Cancer & Disease"
+        slug: child-cancer-disease
+      - name: COVID
+        slug: covid
+      - name: Dismantling the CDC
+        slug: dismantling-the-cdc
+      - name: Food
+        slug: food
+      - name: Healthcare
+        slug: healthcare
+      - name: Lifelines
+        slug: lifelines
+      - name: Measles
+        slug: measles
+      - name: Politicizing Health
+        slug: politicizing-health
+      - name: Pseudoscience
+        slug: pseudoscience
+      - name: Racist Health Views
+        slug: racist-health-views
+      - name: "Research & Treatment"
+        slug: research-treatment
+      - name: Vaccines (except measles)
+        slug: vaccines-except-measles
+      - name: World Health
+        slug: world-health
+      - name: OTHER
+        slug: other
+
+  - name: Immigration - Militarization - Terror
+    slug: immigration-militarization-terror
+    subcategories:
+      - name: "Asylum & Visas"
+        slug: asylum-visas
+      - name: "Border Wall & 'Invasion'"
+        slug: border-wall-invasion
+      - name: Children
+        slug: children
+      - name: Due Process
+        slug: due-process
+      - name: "Racial Profiling & 'Reasonable Suspicion'"
+        slug: racial-profiling-reasonable-suspicion
+      - name: "Racial Targeting: Haitians"
+        slug: racial-targeting-haitians
+      - name: "Racial Targeting: Hispanics (see all other posts)"
+        slug: racial-targeting-hispanics-see-all-other-posts
+      - name: "Racial Targeting: Muslims"
+        slug: racial-targeting-muslims
+      - name: "Racial Targeting: Native Americans"
+        slug: racial-targeting-native-americans
+      - name: "Racial Targeting: Somalians"
+        slug: racial-targeting-somalians
+      - name: Shield of the Americas
+        slug: shield-of-the-americas
+      - name: "Soulless Rhetoric & Villainizing"
+        slug: soulless-rhetoric-villainizing
+      - name: "TERROR: ICE, Military & Posse Comitatus"
+        slug: terror-ice-military-posse-comitatus
+      - name: "TERROR: Detention Centers"
+        slug: terror-detention-centers
+      - name: "TERROR: Detain (nobody is safe)"
+        slug: terror-detain-nobody-is-safe
+      - name: "TERROR: Deport (to foreign countries)"
+        slug: terror-deport-to-foreign-countries
+      - name: "TERROR: Disappear"
+        slug: terror-disappear
+      - name: "TERROR: Excessive Force"
+        slug: terror-excessive-force
+      - name: "TERROR: Executions & Deaths"
+        slug: terror-executions-deaths
+      - name: "TERROR: Gestapo"
+        slug: terror-gestapo
+      - name: "TERROR: The Real Reason is Retribution"
+        slug: terror-the-real-reason-is-retribution
+
+  - name: J6
+    slug: j6
+    subcategories:
+      - name: Fuel for Fire
+        slug: fuel-for-fire
+      - name: "Violence & Death"
+        slug: violence-death
+      - name: Impeachment
+        slug: impeachment
+      - name: Supporting Actors
+        slug: supporting-actors
+      - name: J6 Choir
+        slug: j6-choir
+      - name: Pardons
+        slug: pardons
+      - name: Peddling Conspiracy
+        slug: peddling-conspiracy
+      - name: "Threats & Retaliation"
+        slug: threats-retaliation
+      - name: Other
+        slug: other
+
+  - name: LGBTQ+
+    slug: lgbtq
+    subcategories:
+      - name: Bills
+        slug: bills
+      - name: Military
+        slug: military
+      - name: "Bully, Shame, Hate & Exclude"
+        slug: bully-shame-hate-exclude
+      - name: Dangerous Rhetoric
+        slug: dangerous-rhetoric
+      - name: Did You Know?
+        slug: did-you-know
+      - name: Erase Data
+        slug: erase-data
+      - name: Erase Education
+        slug: erase-education
+      - name: "Punishment & Retaliation"
+        slug: punishment-retaliation
+      - name: "Violence & Murder"
+        slug: violence-murder
+
+  - name: "Military & Veterans"
+    slug: military-veterans
+    subcategories:
+      - name: Disrespect
+        slug: disrespect
+      - name: Detention
+        slug: detention
+      - name: "Health & Well-Being"
+        slug: health-well-being
+      - name: Education and Benefits
+        slug: education-and-benefits
+      - name: Dangerous Incompetence
+        slug: dangerous-incompetence
+      - name: "Jobs & VA Staffing"
+        slug: jobs-va-staffing
+      - name: Rebranding
+        slug: rebranding
+      - name: "Veterans Who Won't Stand for It"
+        slug: veterans-who-wont-stand-for-it
+      - name: War
+        slug: war
+      - name: Other
+        slug: other
+
+  - name: Racism - DEI/CRT - Tribal Affairs
+    slug: racism-deicrt-tribal-affairs
+    subcategories:
+      - name: Context
+        slug: context
+      - name: Eugenics
+        slug: eugenics
+      - name: White Nationalism
+        slug: white-nationalism
+      - name: White Victimhood
+        slug: white-victimhood
+      - name: "Whitewashing, DEI & CRT"
+        slug: whitewashing-dei-crt
+      - name: Great Replacement Theory
+        slug: great-replacement-theory
+      - name: Black Lives Matter
+        slug: black-lives-matter
+      - name: "Racism is a 'Myth'"
+        slug: racism-is-a-myth
+      - name: Demonizing
+        slug: demonizing
+      - name: Racial Profiling
+        slug: racial-profiling
+      - name: "Discriminatory Defunding & Legislation"
+        slug: discriminatory-defunding-legislation
+      - name: Tribal Affairs
+        slug: tribal-affairs
+      - name: "Racist Commentary & Posts"
+        slug: racist-commentary-posts
+      - name: Other
+        slug: other
+
+  - name: Religion
+    slug: religion
+    subcategories:
+      - name: Context
+        slug: context
+      - name: Heritage Foundation
+        slug: heritage-foundation
+      - name: Declaring Christian Superiority
+        slug: declaring-christian-superiority
+      - name: Religious Leaders Against Trump Regime
+        slug: religious-leaders-against-trump-regime
+      - name: Performative Behavior
+        slug: performative-behavior
+      - name: School
+        slug: school
+      - name: Politics
+        slug: politics
+      - name: Women
+        slug: women
+      - name: Manifest Destiny
+        slug: manifest-destiny
+      - name: Other
+        slug: other
+
+  - name: Transportation
+    slug: transportation
+    subcategories:
+      - name: DEI Claims
+        slug: dei-claims
+      - name: Budget Cuts, Freezing Funds, Reducing Staff
+        slug: budget-cuts-freezing-funds-reducing-staff
+      - name: Air Collisions 2025
+        slug: air-collisions-2025
+      - name: Other
+        slug: other
+
+  - name: "Voting & Census"
+    slug: voting-census
+    subcategories:
+      - name: Endless Election Fraud Claims
+        slug: endless-election-fraud-claims
+      - name: "Interference & MAGA Fraud"
+        slug: interference-maga-fraud
+      - name: Voter Suppression - Black Americans
+        slug: voter-suppression-black-americans
+      - name: Voter Suppression - Native Americans
+        slug: voter-suppression-native-americans
+      - name: Voter Suppression - Women
+        slug: voter-suppression-women
+      - name: Voter Suppression - Non Parents
+        slug: voter-suppression-non-parents
+      - name: Voter Suppression - Accessibility
+        slug: voter-suppression-accessibility
+      - name: "Redistricting & Census Tampering"
+        slug: redistricting-census-tampering
+      - name: "Federalization & Voter Information"
+        slug: federalization-voter-information
+      - name: Other
+        slug: other
+
+  - name: Women - Reproductive Rights
+    slug: women-reproductive-rights
+    subcategories:
+      - name: Assault
+        slug: assault
+      - name: Executive Orders
+        slug: executive-orders
+      - name: Feminism
+        slug: feminism
+      - name: Less Than
+        slug: less-than
+      - name: Military
+        slug: military
+      - name: Reproductive
+        slug: reproductive
+      - name: Voting
+        slug: voting
+

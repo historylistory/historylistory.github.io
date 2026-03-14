@@ -1,6 +1,6 @@
 ---
 layout: subcategory
-title: Farmer Bailouts, Jobs & Subsidies
+title: "Farmer Bailouts, Jobs & Subsidies"
 category_slug: agriculture
 subcategory_slug: farmer-bailouts-jobs-subsidies
 permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
@@ -14,21 +14,21 @@ permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
 
 ### 2025 January
 
-2025-01-20 The Trump administration froze funds to USAID. By March USAID was 83% gutted. By July 24, 2025 Trump signed the Rescissions Act of 2025 to claw back $8B in funding from USAID. Aside from foreign aid, dismantling USAID can negatively impact farm subsidies.
-
-2025 01 20 usaid message.png
+2025-01-20 The Trump administration froze funds to USAID. By March USAID was 83% gutted. By July 24, 2025 Trump signed the Rescissions Act of 2025 to claw back $8B in funding from USAID. Aside from foreign aid, dismantling USAID can negatively impact farm subsidies. 
 
 ### 2025 June
 
 2025-06-24 During the second trade war, farmers asked if the Trump administration will bail them out again amidst elevated agricultural costs.
 
-[https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/?gad_source=1&gad_campaignid=22137157394&gbraid=0AAAAACVv4Z8xUX9fbw_kitAiv59DZ4qD4&gclid=CjwKCAjw6P3GBhBVEiwAJPjmLgTiljkq9vkpJbQ1lbOt4mXwAQSTDR4gforOSyp_Srk5oIjWN3Xb6hoCQPYQAvD_BwE](https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/?gad_source=1&gad_campaignid=22137157394&gbraid=0AAAAACVv4Z8xUX9fbw_kitAiv59DZ4qD4&gclid=CjwKCAjw6P3GBhBVEiwAJPjmLgTiljkq9vkpJbQ1lbOt4mXwAQSTDR4gforOSyp_Srk5oIjWN3Xb6hoCQPYQAvD_BwE)
-
-2025 06 24 investigate midwest article.png
+[https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/](https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/%20)
 
 ### 2025 October
 
 2025-10-01 In response to the government shutdown, the Trump administration furloughed 96% of NRCS staff, effectively freezing conservation programs and the processing of financial aid and contracts for farmers.
+
+[https://farmpolicynews.illinois.edu/2025/10/nearly-half-of-usda-employees-to-be-furloughed-as-govt-shuts-down](https://farmpolicynews.illinois.edu/2025/10/nearly-half-of-usda-employees-to-be-furloughed-as-govt-shuts-down)
+
+[https://sustainableagriculture.net/blog/how-the-government-shutdown-is-impacting-farmers/](https://sustainableagriculture.net/blog/how-the-government-shutdown-is-impacting-farmers/)
 
 ### 2025 December
 

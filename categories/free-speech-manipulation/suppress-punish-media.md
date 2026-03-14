@@ -1,0 +1,243 @@
+---
+layout: subcategory
+title: "Suppress & Punish Media"
+category_slug: free-speech-manipulation
+subcategory_slug: suppress-punish-media
+permalink: /categories/free-speech-manipulation/suppress-punish-media/
+---
+
+### 2022
+
+2022-05-02 Brendan Carr posted on X, "President Biden is right. Political satire is one of the oldest and most important forms of free speech. It challenges those in power while using humor to draw more people into the discussion. That's why people in influential positions have always targeted it for censorship". 
+
+[https://x.com/BrendanCarrFCC/status/1521117482303602689](https://x.com/BrendanCarrFCC/status/1521117482303602689)
+
+### 2024 November
+
+2024-11-02 Brendan Carr accused SNL of evading the FCC Equal Time rule in an X post following the announcement that Kamala Harris will be appearing on SNL in the last episode before the presidential election.
+
+[https://x.com/BrendanCarrFCC/status/1852887210330341693](https://x.com/BrendanCarrFCC/status/1852887210330341693)
+
+### 2025 January
+
+2025-01-20 In a section of Project 2025 “A Demonstrated Pattern of Bias", the publishing attacks NPR as leftist and tyrannical, and calls to eliminate their funding.
+
+[https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
+
+2025-01-20 Page 246 of Project 2025 villainizes public broadcasting and calls to hand over independent media to states. On September 15, 2025 Republicans passed a bill to hand independent media outlets over to State department contracts.
+
+[https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
+
+[https://www.axios.com/2025/09/15/republicans-bill-media-usagm-radio-free-europe-funding](https://www.axios.com/2025/09/15/republicans-bill-media-usagm-radio-free-europe-funding)
+
+2025-01-20 In his inaugural address, Trump stated, "I will sign an executive order to immediately stop all government censorship and bring back free speech to America", which is contrary to his ongoing campaign to sue, retaliate, or defund media he doesn't like. 
+
+[https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/](https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/)
+
+2025-01-30 Brendan Carr ordered an investigation into NPR and PBS. For context, A headline for TechDirt says, “Trump’s FCC just used a fake ‘investigation’ to shower AT&T and Elon Musk with billions in valuable spectrum”.
+
+[https://www.npr.org/2025/01/30/nx-s1-5281162/fcc-npr-pbs-investigation](https://www.npr.org/2025/01/30/nx-s1-5281162/fcc-npr-pbs-investigation)
+
+[https://www.npr.org/2025/05/02/nx-s1-5384790/trump-orders-end-to-federal-funding-for-npr-and-pbs](https://www.npr.org/2025/05/02/nx-s1-5384790/trump-orders-end-to-federal-funding-for-npr-and-pbs)
+
+[https://www.nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html](https://www.nytimes.com/2025/01/30/business/media/npr-pbs-fcc-investigation.html)
+
+[https://www.techdirt.com/2025/09/10/trumps-fcc-just-used-a-fake-investigation-to-shower-att-and-elon-musk-with-billions-in-valuable-spectrum/](https://www.techdirt.com/2025/09/10/trumps-fcc-just-used-a-fake-investigation-to-shower-att-and-elon-musk-with-billions-in-valuable-spectrum/)
+
+### 2025 February
+
+2025-02-15 The White House imposed bans on specific media outlets they deem biased or not aligned with the Trump agenda. As an example, any news outlet that refused to refer to the gulf as Gulf of America was banned from the White House press pool.
+
+[https://www.npr.org/2025/02/26/nx-s1-5308628/trump-white-house-press-access-voa](https://www.npr.org/2025/02/26/nx-s1-5308628/trump-white-house-press-access-voa)
+
+[https://www.ap.org/media-center/ap-in-the-news/2025/the-associated-press-banned-from-white-house-press-pool-renews-request-to-court-for-reinstatement/](https://www.ap.org/media-center/ap-in-the-news/2025/the-associated-press-banned-from-white-house-press-pool-renews-request-to-court-for-reinstatement/)
+
+[https://firstamendment.mtsu.edu/article/news-access-to-press-events/](https://firstamendment.mtsu.edu/article/news-access-to-press-events/)
+
+### 2025 March
+
+2025-03-14 Trump signed an executive order to dismantle the US Agency for Global media.
+
+[https://www.bbc.com/news/articles/cvge4l109r3o](https://www.bbc.com/news/articles/cvge4l109r3o)
+
+### 2025 July
+
+2025-07-17 CBS asserted that they cancelled The Late Show with Stephen Colbert was for "financial reasons", but many question the timing, since the cancellation came just after the show criticized the Trump v. Paramount lawsuit and CBS had an upcoming merger requiring approval from Trump and the FCC.
+
+[https://abcnews.go.com/US/stephen-colberts-late-show-canceled-cbs-citing-financial/story?id=123851902](https://abcnews.go.com/US/stephen-colberts-late-show-canceled-cbs-citing-financial/story?id=123851902)
+
+2025-07-18 As outlined in Project 2025, the Trump administration defunded the Corporation for Public Broadcasting.
+
+[https://www.npr.org/2025/07/18/g-s1-78150/unprecedented-rescission-bill-defunds-public-media](https://www.npr.org/2025/07/18/g-s1-78150/unprecedented-rescission-bill-defunds-public-media)
+
+2025-07-18 Trump posted on Truth Social that he was excited about the firing of Stephen Colbert, and he heard that Jimmy Kimmel was next. In the same tweet Trump promoted Greg Gutfeld.
+
+[https://truthsocial.com/@realDonaldTrump/posts/114874422468516376](https://truthsocial.com/@realDonaldTrump/posts/114874422468516376)
+
+2025-07-22 Trump tweeted out again that he heard Jimmy Kimmel would be fired and that he wanted Jimmy Fallon fired next.
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-kimmel-fallon-colbert-cancelled-b2793928.html](https://www.the-independent.com/news/world/americas/us-politics/trump-kimmel-fallon-colbert-cancelled-b2793928.html)
+
+[https://truthsocial.com/@realDonaldTrump/posts/114897600777919524](https://truthsocial.com/@realDonaldTrump/posts/114897600777919524)
+
+[https://lavocedinewyork.com/en/news/2025/07/22/kimmel-next-talk-show-to-be-axed-trump-politics-threatens-late-night-tv/](https://lavocedinewyork.com/en/news/2025/07/22/kimmel-next-talk-show-to-be-axed-trump-politics-threatens-late-night-tv/)
+
+[https://www.avclub.com/donald-trump-jimmy-fallon-jimmy-kimmel-fired-next-prediction](https://www.avclub.com/donald-trump-jimmy-fallon-jimmy-kimmel-fired-next-prediction)
+
+### 2025 September
+
+2025-09-10 MSNBC was forced to fire Matthrew Dowd for accurately stating that Charlie Kirk historically pushed controversial and hateful rhetoric.
+
+[https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075](https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075)
+
+[https://www.youtube.com/watch?v=t8mtmQc7vuM](https://www.youtube.com/watch?v=t8mtmQc7vuM)
+
+[https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/](https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/)
+
+2025-09-14 Mike Lee posted on X that he wanted to restore the Smith-Mundt Act and rename it the Charlie Kirk Act. This would restore legislation designed to silence the media. The post was reposted by Glenn Beck. Lee wrote, “In the coming days, I’ll be filing my previously drafted legislation to restore Smith-Mundt, and renaming it the Charlie Kirk Act. Domestic, political, government-funded propaganda must end now”. Glenn Beck responded, “100% on board. Obama made US Govt propaganda legal again. IT MUST BE BANNED. Join mike, call your senators and ask them to back the Charlie Kirk Act”.
+
+[https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death](https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death)
+
+2025-09-17 Trump posted on Truth Social that he wanted Jimmy Fallon and Seth Meyers fired, ending his tweet with “Do it, NBC”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)
+
+[https://www.usatoday.com/story/news/politics/2025/09/18/trump-tweet-jimmy-kimmel-show-charlie-kirk-death/86215408007/](https://www.usatoday.com/story/news/politics/2025/09/18/trump-tweet-jimmy-kimmel-show-charlie-kirk-death/86215408007/)
+
+2025-09-17 During a podcast, FCC Chair Brendan Carr demanded that Jimmy Kimmel be indefinitely suspended after Kimmel made comments about the Charlie Kirk shooting.
+
+[https://www.iowapublicradio.org/news-from-npr/2025-09-17/jimmy-kimmel-show-is-pulled-by-abc-after-comments-about-the-charlie-kirk-killing](https://www.iowapublicradio.org/news-from-npr/2025-09-17/jimmy-kimmel-show-is-pulled-by-abc-after-comments-about-the-charlie-kirk-killing)
+
+[https://fortune.com/2025/09/18/jimmy-kimmel-misinformation-fcc-brendan-carr-abc-disney/](https://fortune.com/2025/09/18/jimmy-kimmel-misinformation-fcc-brendan-carr-abc-disney/)
+
+2025-09-17 During an interview on The Benny Johnson podcast, Brendan Carr stated, "When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, **we can do this the easy way or the hard way**. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there's gonna be additional war for the FCC ahead".
+
+[https://www.youtube.com/watch?v=ved5hVb4yfM](https://www.youtube.com/watch?v=ved5hVb4yfM)
+
+2025-09-17 Sinclair Broadcasting issued a press release on their Investor Relations page demanding that FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
+
+[https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/](https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/)
+
+2025-09-17 Sinclair Broadcasting stated they would be replacing the Jimmy Kimmel time slot with a Kirk tribute.
+
+[https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/](https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/)
+
+2025-09-19 During his podcast "The Verdict with Ted Cruz", Cruz stated "If the government gets in the business of saying…'we're going to ban you from the airwaves if you don't say what we like,' that will end up bad for conservatives".
+
+[https://www.youtube.com/watch?v=gQD9P6Wa7W0](https://www.youtube.com/watch?v=gQD9P6Wa7W0)
+
+[https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/](https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/)
+
+2025-09-19 Trump heckled David Letterman via Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
+
+[https://truthsocial.com/@realDonaldTrump/posts/115233841743981161](https://truthsocial.com/@realDonaldTrump/posts/115233841743981161)
+
+2025-09-19 Following the cancellation of Jimmy Kimmel, Disney and Hulu **lost 1.7 million subscribers** and roughly **$4B in revenue**. Hulu websites began to offer $2.99 a month subscription to salvage some of their customer base.
+
+[https://www.bbc.com/news/articles/c1wle4dx4qwo](https://www.bbc.com/news/articles/c1wle4dx4qwo)
+
+[https://thebusinessjournal.com/disney-and-hulu-cancellations-rose-after-abc-briefly-pulled-jimmy-kimmel-live/](https://thebusinessjournal.com/disney-and-hulu-cancellations-rose-after-abc-briefly-pulled-jimmy-kimmel-live/)
+
+2025-09-21 Sinclair Broadcast changed its mind about filling the Jimmy Kimmel time slot with the Kirk tribute and had it moved to YouTube.
+
+[https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html](https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html)
+
+2025-09-22 The Pentagon announced a new rule for journalists, requiring them to sign a pledge that they will not gather or report on any information unless it is formally authorized for release.
+
+[https://www.npr.org/2025/09/20/g-s1-89713/pentagon-new-strict-guidelines-for-media](https://www.npr.org/2025/09/20/g-s1-89713/pentagon-new-strict-guidelines-for-media)
+
+[https://www.theguardian.com/us-news/2025/sep/20/pentagon-journalists-restrictions-pledge](https://www.theguardian.com/us-news/2025/sep/20/pentagon-journalists-restrictions-pledge)
+
+2025-09-23 After much backlash, the Jimmy Kimmel show was returned to television. 
+
+2025-09-23 In response to Jimmy Kimmel returning to TV, Trump posted, "I can't believe ABC Fake News gave Jimmy Kimmel his job back…I think we're going to test ABC out on this….Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative".
+
+[https://truthsocial.com/@realDonaldTrump/posts/115256938634035559](https://truthsocial.com/@realDonaldTrump/posts/115256938634035559)
+
+2025-09-24 During a press conference in Concord NC, JD Vance responded to a free speech question about Kimmel, "I'm pretty sure that Jimmy Kimmel was back on the air last night, and to the extent that he's not back on the air it's because he's not funny and has terrible ratings. This is not a federal government problem...", proceeded downgraded the FCC post as a joke, and asserts he “just found out yesterday” the Biden administration was censoring media of its opponents. It is unclear if he was talking about the 2024 attempts to eliminate dangerous misinformation.
+
+[https://www.youtube.com/watch?v=mMWAl2pboY8](https://www.youtube.com/watch?v=mMWAl2pboY8)
+
+### 2025 October
+
+2025-10-15 All media outlets except OAN refused to sign Pete Hegseth’s journalist pledge. While many journalists were banned from the White House media pool, the Trump administration allowed people like far-right activist and founder of Project Veritas James O’Keefe and Matt Gaetz.
+
+[https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/](https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/)
+
+[https://firstamendment.mtsu.edu/article/pentagon-rules-for-the-press/](https://firstamendment.mtsu.edu/article/pentagon-rules-for-the-press/)
+
+[https://apnews.com/article/pentagon-press-access-hegseth-trump-restrictions-5d9c2a63e4e03b91fc1546bb09ffbf12](https://apnews.com/article/pentagon-press-access-hegseth-trump-restrictions-5d9c2a63e4e03b91fc1546bb09ffbf12)
+
+### 2025 December
+
+2025-12-21 Bari Weiss pulled an airing of a 60 Minutes episode covering an investigation into the CECOT detention center in El Salvador.
+
+[https://www.theguardian.com/media/2025/dec/26/bari-weiss-60-minutes-el-salvador-prison](https://www.theguardian.com/media/2025/dec/26/bari-weiss-60-minutes-el-salvador-prison)
+
+[https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story](https://www.npr.org/2025/12/22/g-s1-103282/cbs-chief-bari-weiss-pulls-60-minutes-story)
+
+[https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8](https://www.youtube.com/watch?v=0MDLruLgsQI&list=WL&index=8)
+
+2025-12-25 Trump posted over 100 times during Christmas, including posts calling to remove licenses from any news station that negatively reported about his presidency.
+
+[https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/](https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-rings-christmas-day-flurry-posts-denouncing-perceived-foes-casti-rcna250922](https://www.nbcnews.com/politics/donald-trump/trump-rings-christmas-day-flurry-posts-denouncing-perceived-foes-casti-rcna250922)
+
+[https://www.cbsnews.com/news/trump-broadcast-licenses-terminated-100-negative/](https://www.cbsnews.com/news/trump-broadcast-licenses-terminated-100-negative/)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115772922954148853](https://truthsocial.com/@realDonaldTrump/posts/115772922954148853)
+
+### 2026 January
+
+2026-01-05 The Corporation for Public Broadcasting announced it would dissolve itself.
+
+[https://cpb.org/pressroom/corporation-public-broadcasting-board-votes-dissolve-organization-act-responsible](https://cpb.org/pressroom/corporation-public-broadcasting-board-votes-dissolve-organization-act-responsible)
+
+2026-01-13 The White House ordered the FBI to search and seize journalist material from the home of a Washington Post reporter Hannah Natanson. Project 2025 page 214 specifically mandates this action. The reporter’s role was specifically to cover the federal government. After over a thousand federal employees reached out to confidentially share their stories with Hannah about the job cuts from DOGE, the FBI showed up to seize her computers and her phone. The warrant also authorized the FBI to force Hannah to unlock the devices with biometrics.  
+
+[https://www.npr.org/2026/01/15/g-s1-106103/fbi-search-washington-post-reporter-home](https://www.npr.org/2026/01/15/g-s1-106103/fbi-search-washington-post-reporter-home)
+
+[https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/](https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/)
+
+[https://www.youtube.com/watch?v=hZtNjijS5bo](https://www.youtube.com/watch?v=hZtNjijS5bo)
+
+2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
+
+[https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/](https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/)
+
+[https://www.hollywoodreporter.com/tv/tv-news/jimmy-kimmel-vs-fcc-brendan-carr-equal-time-rule-video-1236481671/](https://www.hollywoodreporter.com/tv/tv-news/jimmy-kimmel-vs-fcc-brendan-carr-equal-time-rule-video-1236481671/)
+
+[https://www.huffpost.com/entry/jimmy-kimmel-fcc-threat-response_n_6971dbbbe4b0e15d54cbe2e9](https://www.huffpost.com/entry/jimmy-kimmel-fcc-threat-response_n_6971dbbbe4b0e15d54cbe2e9)
+
+[https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf](https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf)
+
+### 2026 February
+
+2026-02-16 The FCC chair contacted CBS directly to warn them not to broadcast an interview with James Talarico on the Late Night Show with Stephen Colbert over equal time rules.
+
+[https://www.hollywoodreporter.com/tv/tv-news/stephen-colbert-cbs-blocked-interview-fcc-equal-time-1236507471/](https://www.hollywoodreporter.com/tv/tv-news/stephen-colbert-cbs-blocked-interview-fcc-equal-time-1236507471/)
+
+[https://www.axios.com/2026/02/17/colbert-cbs-talarico-interview-fcc-trump-carr](https://www.axios.com/2026/02/17/colbert-cbs-talarico-interview-fcc-trump-carr)
+
+2026-02-18 The FCC initiated an investigation into The View for broadcasting an interview with James Talarico, also citing the equal time rule. Note: cable networks like Fox and OAN, and conservative talk radio are exempt from this rule. 
+
+[https://people.com/the-view-fcc-investigation-james-talarico-equal-time-11908898](https://people.com/the-view-fcc-investigation-james-talarico-equal-time-11908898)
+
+[https://www.usatoday.com/story/entertainment/tv/2026/02/19/the-view-abc-james-talarico/88758329007/](https://www.usatoday.com/story/entertainment/tv/2026/02/19/the-view-abc-james-talarico/88758329007/)
+
+2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
+
+[https://www.axios.com/2026/02/23/trump-netflix-susan-rice](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
+
+[https://theweek.com/business/trump-netflix-susan-rice-state-run-capitalism](https://theweek.com/business/trump-netflix-susan-rice-state-run-capitalism)
+
+### 2026 March
+
+2026-03-11 The Pentagon banned press reporters from taking photos inside the press briefing room after they published ‘unflattering’ photos of Pete Hegseth.
+
+[https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html](https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html)
+
+[https://www.tmz.com/2026/03/11/photographers-barred-after-taking-bad-pete-hegseth-pictures/](https://www.tmz.com/2026/03/11/photographers-barred-after-taking-bad-pete-hegseth-pictures/)
+
+[https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/](https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/)

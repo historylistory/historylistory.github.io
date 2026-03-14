@@ -1,0 +1,51 @@
+---
+layout: subcategory
+title: Performative Behavior
+category_slug: religion
+subcategory_slug: performative-behavior
+permalink: /categories/religion/performative-behavior/
+---
+
+### 2020
+
+2020-01-03 Religious leaders held a prayer circle during a rally in 2020.
+
+[https://www.nbcnews.com/video/christian-leaders-pray-over-trump-during-launch-of-evangelicals-for-trump-coalition-76030021611](https://www.nbcnews.com/video/christian-leaders-pray-over-trump-during-launch-of-evangelicals-for-trump-coalition-76030021611)
+
+2020-11-06 Trump supporters outside Clark County Election Department in Nevada
+
+[https://www.newsweek.com/trump-supporters-pray-clark-county-election-office-doors-red-nevada-win-1545617](https://www.newsweek.com/trump-supporters-pray-clark-county-election-office-doors-red-nevada-win-1545617)
+
+### 2024
+
+2024-04-08 Bizarre prayer circle on the Arizona State Senate floor.
+
+[https://www.azcentral.com/story/news/politics/arizona/2024/04/09/anthony-kern-prayer-circle-arizona-capitol-floor/73264047007/](https://www.azcentral.com/story/news/politics/arizona/2024/04/09/anthony-kern-prayer-circle-arizona-capitol-floor/73264047007/)
+
+### 2025
+
+2025-02-10 Trump held a prayer circle in the White House after he reestablished an Executive Order to create a White House Faith Office.
+
+[https://wordandway.org/2025/02/10/trump-reestablishes-white-house-faith-office-places-paula-white-cain-in-charge/](https://wordandway.org/2025/02/10/trump-reestablishes-white-house-faith-office-places-paula-white-cain-in-charge/)
+
+[https://www.whitehouse.gov/presidential-actions/2025/02/establishment-of-the-white-house-faith-office/](https://www.whitehouse.gov/presidential-actions/2025/02/establishment-of-the-white-house-faith-office/)
+
+2025-03-20 Another prayer circle…
+
+[https://www.presidentialprayerteam.org/2025/03/20/faith-leaders-pray-over-president-trump-at-the-white-house/](https://www.presidentialprayerteam.org/2025/03/20/faith-leaders-pray-over-president-trump-at-the-white-house/)
+
+2025-09-10 Trump led a MAGA prayer circle after Charlie Kirk was shot.
+
+[https://www.thedailybeast.com/trump-leads-maga-prayer-circle-after-great-guy-charlie-kirk-shot/](https://www.thedailybeast.com/trump-leads-maga-prayer-circle-after-great-guy-charlie-kirk-shot/)
+
+### 2026
+
+2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt statis if leaders “say something bad about him”. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
+
+[https://www.youtube.com/watch?v=7hmzdUBt0M4&list=WL&index=1](https://www.youtube.com/watch?v=7hmzdUBt0M4&list=WL&index=1)
+
+[https://clericalwhispers.blogspot.com/2026/02/trump-says-he-will-revoke-church-tax.html](https://clericalwhispers.blogspot.com/2026/02/trump-says-he-will-revoke-church-tax.html)
+
+[https://www.c-span.org/clip/white-house-event/el-salvador-president-speaks-at-national-prayer-breakfast-about-crackdown-on-gangs/5191994](https://www.c-span.org/clip/white-house-event/el-salvador-president-speaks-at-national-prayer-breakfast-about-crackdown-on-gangs/5191994)
+
+[https://x.com/i/trending/2020539207320781122](https://x.com/i/trending/2020539207320781122)

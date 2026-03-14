@@ -18,7 +18,7 @@ permalink: /categories/agriculture/farmland/
 
 ### 2024
 
-2024-09-18 JD Vance funded AcreTrader, which led to the consolidation of farmland in regions with high-value lands and reduced competition for farmers. Some online media sources suggested that JD Vance’s firm would buy up American farmland and resell it to foreign investors.
+2024-09-18 JD Vance funded **AcreTrader**, which led to the consolidation of farmland in regions with high-value lands and reduced competition for farmers. Some online media sources suggested that JD Vance’s firm would buy up American farmland and resell it to foreign investors.
 
 [https://civileats.com/2024/09/18/jd-vance-invested-in-acretrader-heres-why-that-matters/](https://civileats.com/2024/09/18/jd-vance-invested-in-acretrader-heres-why-that-matters/)
 

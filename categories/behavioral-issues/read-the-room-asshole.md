@@ -1,0 +1,105 @@
+---
+layout: subcategory
+title: Read the Room, Asshole
+category_slug: behavioral-issues
+subcategory_slug: read-the-room-asshole
+permalink: /categories/behavioral-issues/read-the-room-asshole/
+---
+
+### 2001
+
+2001-09-11 Same day as the September 11 attack, Trump mentioned his building at 40 Wall St. will now be the tallest.
+
+[https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544](https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544)
+
+[https://www.youtube.com/watch?v=PcKlPhFIE7w](https://www.youtube.com/watch?v=PcKlPhFIE7w)
+
+### 2025 January
+
+2025-01-20 During the mourning period for Jimmy Carter, Mike Johnson ordered flags to be raised temporarily at the request of Trump.
+
+[https://truthsocial.com/@realDonaldTrump/posts/113765847370756395](https://truthsocial.com/@realDonaldTrump/posts/113765847370756395)
+
+### 2025 June
+
+2025-06-09 Trump plowed over the White House Rose Garden.
+
+[https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/](https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/)
+
+### 2025 July
+
+2025-07-01 Trump floated the idea of a UFC fight on the White House South lawn and confirmed later in October they will be having it in June 2026.
+
+[https://www.youtube.com/watch?v=Q3QsIAjBTx8](https://www.youtube.com/watch?v=Q3QsIAjBTx8)
+
+### 2025 August
+
+2025-08-07 For his birthday, Vance pressured the Army Corps of Engineers to release river water for his kayaking trip at taxpayer expense amidst budget cuts.
+
+[https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951](https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951)
+
+### 2025 September
+
+2025-09-09 When asked about the Kirk assassination, Trump responded with remodeling updates on the ballroom.
+
+[https://www.youtube.com/shorts/I4uPNMysG48](https://www.youtube.com/shorts/I4uPNMysG48)
+
+### 2025 October
+
+2025-10-16 Trump proposed building himself a “victory arch”. **No word about how much the arch would cost taxpayers**, but Trump did share his proposal during a government shutdown while he withheld food benefits from millions of Americans.
+
+[https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
+
+[https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary](https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+2025-10-24 Trump demolished the White House East Wing shortly after promising the American people his ballroom project would not interfere with or cut into the existing White House structure. Outlets report that the administration did not submit their plans to the National Capitol Planning Commission, and that they may have cut corners on  asbestos-abatement guidelines during the demolition, putting surrounding citizens at risk.
+
+[https://www.pbs.org/newshour/politics/the-east-wing-of-the-white-house-has-been-demolished-heres-a-look-at-its-history](https://www.pbs.org/newshour/politics/the-east-wing-of-the-white-house-has-been-demolished-heres-a-look-at-its-history)
+
+[https://www.cnn.com/2025/10/26/politics/white-house-east-wing-history](https://www.cnn.com/2025/10/26/politics/white-house-east-wing-history)
+
+[https://www.nbcnews.com/politics/white-house/trump-administration-demolishing-entire-east-wing-white-house-add-new-rcna239018](https://www.nbcnews.com/politics/white-house/trump-administration-demolishing-entire-east-wing-white-house-add-new-rcna239018)
+
+[https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/](https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/)
+
+2025-10-31 Just hours before SNAP benefits were set to expire, Trump hosted a lavish Great Gatsby Halloween party at the White House.
+
+[https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
+
+[https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480](https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480)
+
+2025-10-31 Trump posted 6 times about renovating a White House bathroom completely in marble amidst a government shutdown and hunger crisis.
+
+[https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/](https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/)
+
+[https://www.cnbc.com/2025/10/31/trump-bathroom-white-house-remodel-shutdown.html](https://www.cnbc.com/2025/10/31/trump-bathroom-white-house-remodel-shutdown.html)
+
+[https://www.cnn.com/2025/10/31/politics/white-house-lincoln-bedroom-bathroom-renovation](https://www.cnn.com/2025/10/31/politics/white-house-lincoln-bedroom-bathroom-renovation)
+
+ 
+
+### 2026 February
+
+2026-02-03 The Trump Administration’s Interior Secretary Doug Burgum introduced a PR campaign to place an innocent façade on Trump’s “drill-baby-drill” campaign by using the cartoon mascot “Coalie”.
+
+[https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/](https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/)
+
+[https://www.thebulwark.com/p/donald-trump-alpha-president-economy-manufacturing-coal-disaster](https://www.thebulwark.com/p/donald-trump-alpha-president-economy-manufacturing-coal-disaster)
+
+[https://www.theguardian.com/us-news/2026/feb/03/trump-administration-coalie-mascot-fossil-fuels](https://www.theguardian.com/us-news/2026/feb/03/trump-administration-coalie-mascot-fossil-fuels)
+
+[https://x.com/SecretaryBurgum/status/2014382110828536183](https://x.com/SecretaryBurgum/status/2014382110828536183)
+
+### 2026 March
+
+2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran.
+
+[https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
+
+[https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/](https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/)
+
+[https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
+
+[https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)

@@ -24,7 +24,7 @@ permalink: /categories/agriculture/farm-sales/
 
 [https://www.expanamarkets.com/insights/article/us-soybean-window-narrows-as-china-buys-big-from-argentina/](https://www.expanamarkets.com/insights/article/us-soybean-window-narrows-as-china-buys-big-from-argentina/)
 
-2025-10-16 Recommended video: Rob Sand was interviewed on The Takeout with Major Garett and discussed trade, economics, and agriculture.
+2025-10-16 **Recommended video:**Rob Sand was interviewed on The Takeout with Major Garett and discussed trade, economics, and agriculture.
 
 [https://www.youtube.com/watch?v=oTeJduk-zeM&list=WL&index=8&t=26s](https://www.youtube.com/watch?v=oTeJduk-zeM&list=WL&index=8&t=26s)
 

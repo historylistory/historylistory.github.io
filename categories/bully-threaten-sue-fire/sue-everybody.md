@@ -1,0 +1,161 @@
+---
+layout: subcategory
+title: Sue Everybody
+category_slug: bully-threaten-sue-fire
+subcategory_slug: sue-everybody
+permalink: /categories/bully-threaten-sue-fire/sue-everybody/
+---
+
+### 2019
+
+2019-10-18 Trump sued CNN for perceived bias about Russian role in the 2016 election.
+
+[https://www.foxbusiness.com/technology/trump-legal-action-cnn-biased-reporting](https://www.foxbusiness.com/technology/trump-legal-action-cnn-biased-reporting)
+
+### 2020
+
+2020-02-27 Trump sued the New York Times for defamation in an opinion piece.
+
+[https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed](https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed)
+
+ 
+
+2020-11-16 Trump sued the Wisconsin TV Station over a political advertisement created by a liberal super PAC.
+
+[https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/](https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/)
+
+[https://www.wpr.org/media/trump-campaign-lawsuit-against-northwoods-tv-station-dismissed](https://www.wpr.org/media/trump-campaign-lawsuit-against-northwoods-tv-station-dismissed)
+
+### 2021
+
+2021-07-07 Trump sued Twitter, YouTube, and Facebook for banning him on their platforms.
+
+[https://freespeechproject.georgetown.edu/tracker-entries/trump-sues-facebook-twitter-google-for-censorship-launches-his-own-social-media-platform/](https://freespeechproject.georgetown.edu/tracker-entries/trump-sues-facebook-twitter-google-for-censorship-launches-his-own-social-media-platform/)
+
+2021-09-21 Trump sued his niece and The New York Times for releasing his tax documents.
+
+[https://www.nbcnews.com/now/video/trump-files-100-million-lawsuit-against-niece-new-york-times-121747013736](https://www.nbcnews.com/now/video/trump-files-100-million-lawsuit-against-niece-new-york-times-121747013736)
+
+### 2022
+
+2022-03-24 Trump sued Hillary Clinton and the DNC over Russia claims.
+
+[https://www.npr.org/2022/03/24/1088694473/trump-lawsuit-clinton-democrats-russia](https://www.npr.org/2022/03/24/1088694473/trump-lawsuit-clinton-democrats-russia)
+
+2022-10-04 Trump sued CNN for defamation.
+
+[https://www.cbsnews.com/news/trump-sues-cnn-for-defamation/](https://www.cbsnews.com/news/trump-sues-cnn-for-defamation/)
+
+### 2023
+
+2023-01-30 Trump sued the publisher of Simon & Schuster and Paramount Global for selling an audiobook containing tapes of Trump interviews.
+
+[https://www.cnbc.com/2023/01/30/trump-sues-bob-woodward-simon-schuster-paramount-for-50-million.html](https://www.cnbc.com/2023/01/30/trump-sues-bob-woodward-simon-schuster-paramount-for-50-million.html)
+
+2023-04-12 Trump sued Michael Cohen over alleged attorney-client relationship violations but then later dropped the charges around October. FYI Michael Cohen testified before a Manhattan Grand Jury in the Trump hush-money trial.
+
+[https://www.reuters.com/world/us/michael-cohen-calls-trumps-500-mln-suit-against-him-pure-retaliation-2023-05-09/](https://www.reuters.com/world/us/michael-cohen-calls-trumps-500-mln-suit-against-him-pure-retaliation-2023-05-09/)
+
+[https://www.cbsnews.com/news/michael-cohen-testifies-trump-grand-jury-2nd-day-manhattan-trump-probe/](https://www.cbsnews.com/news/michael-cohen-testifies-trump-grand-jury-2nd-day-manhattan-trump-probe/)
+
+2023-05-22 Trump sued the Washington Post for defamation.
+
+[https://www.forbes.com/sites/zacheverson/2023/05/23/trumps-social-media-business-sues-washington-post-seeking-38-billion-in-damages/](https://www.forbes.com/sites/zacheverson/2023/05/23/trumps-social-media-business-sues-washington-post-seeking-38-billion-in-damages/)
+
+2023-06-27 Trump sued E Jean Carroll for defamation.
+
+[https://www.reuters.com/legal/trump-sues-e-jean-carroll-defamation-after-jury-finds-he-sexually-abused-her-2023-06-28/](https://www.reuters.com/legal/trump-sues-e-jean-carroll-defamation-after-jury-finds-he-sexually-abused-her-2023-06-28/)
+
+### 2024
+
+2024-10-31 Trump sued CBS and 60 Minutes, accusing them of maliciously and deceptively altering an interview with Kamala Harris.
+
+[https://www.newsweek.com/donald-trump-sues-cbs-news-harris-60-minutes-1978335](https://www.newsweek.com/donald-trump-sues-cbs-news-harris-60-minutes-1978335)
+
+2024-12-16 Trump sued ABC $15M for defamation - ABC paid out.
+
+[https://www.npr.org/2024/12/16/nx-s1-5230274/abc-settles-with-trump-for-15-million-now-he-wants-to-sue-other-news-outlets](https://www.npr.org/2024/12/16/nx-s1-5230274/abc-settles-with-trump-for-15-million-now-he-wants-to-sue-other-news-outlets)
+
+### 2025 June
+
+2025-06-02 Paramount Global paid Trump $16M to settle a lawsuit.
+
+[https://www.bbc.com/news/articles/c3w4n8778q2o](https://www.bbc.com/news/articles/c3w4n8778q2o)
+
+### 2025 July
+
+2025-07-02 Senator Warren called for an investigation into the $16M Paramount settlement with Trump, calling the settlement “meritless”.
+
+[https://www.warren.senate.gov/newsroom/press-releases/warren-calls-for-investigation-into-paramount-settlement-with-trump](https://www.warren.senate.gov/newsroom/press-releases/warren-calls-for-investigation-into-paramount-settlement-with-trump)
+
+2025-07-28 Trump filed a $10B lawsuit against the Wall Street Journal for reporting on the Epstein files.
+
+[https://www.reuters.com/world/us/trump-sues-wall-street-journal-over-epstein-report-seeks-10-billion-2025-07-19/](https://www.reuters.com/world/us/trump-sues-wall-street-journal-over-epstein-report-seeks-10-billion-2025-07-19/)
+
+[https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/](https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/)
+
+2025-07-29 Trump sued the Wall Street Journal for $10B for defamation.
+
+[https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit](https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit)
+
+### 2025 September
+
+2025-09-16 Trump sued The New York Times for libel over the Epstein letter and simultaneously accused them of endorsing Kamala Harris.
+
+[https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk](https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk)
+
+2025-09-29 YouTube agreed to pay Trump $24.5M to settle a lawsuit involving suspension of Trump's account following the J6 insurrection.
+
+[https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html](https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html)
+
+2025-09-29 Trump tweeted out celebration for the YouTube settlement, adding "Repost if ALL banned conservatives should be paid!".
+
+[https://truthsocial.com/@realDonaldTrump/posts/115291190758865206](https://truthsocial.com/@realDonaldTrump/posts/115291190758865206)
+
+### 2025 October
+
+2025-10-17 Trump refiled a $15B defamation lawsuit against The New York Times for $15B.
+
+[https://www.nbcnews.com/news/us-news/trump-refiles-15b-defamation-lawsuit-new-york-rcna238170](https://www.nbcnews.com/news/us-news/trump-refiles-15b-defamation-lawsuit-new-york-rcna238170)
+
+[https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html](https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html)
+
+2025-10-22 Trump demanded to go forward with his lawsuit against the DOJ, forcing taxpayers to pay up the $230M lawsuit.
+
+[https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained](https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained)
+
+[https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid](https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid)
+
+### 2025 November
+
+2025-11-09 Trump threatened to sue the BBC for $1B over an edit of his January 6th remarks, accusing the BBC of giving the wrong impression that Trump called for violence. Both Director General Tim Davie and news CEO Deborah Turness quit, which Trump posted on social media about later.
+
+[https://www.youtube.com/watch?v=UX_dX61arPY&list=WL&index=7](https://www.youtube.com/watch?v=UX_dX61arPY&list=WL&index=7)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115521695808009888](https://truthsocial.com/@realDonaldTrump/posts/115521695808009888)
+
+### 2025 December
+
+2025-12-12 Trump’s DOJ sued 18 states to force States to hand over voter registration data.
+
+[https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
+
+### 2026 January
+
+2026-01-29 Trump sued the IRS and Treasury for $10B for leaked tax information.
+
+[https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)
+
+[https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html](https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html)
+
+### 2026 February
+
+2026-02-02 Trump threatened to sue Harvard for $1B.
+
+[https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683](https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683)
+
+[https://www.bbc.com/news/articles/crkryely657o](https://www.bbc.com/news/articles/crkryely657o)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221](https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116004776659519984](https://truthsocial.com/@realDonaldTrump/posts/116004776659519984)
