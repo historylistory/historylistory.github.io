@@ -88,6 +88,13 @@
       if (window.innerWidth <= 960) {
         var nav = document.querySelector('.mobile-nav-toggle');
         if (nav) nav.removeAttribute('open');
+      } else {
+        // On desktop, scroll the sidebar so the active subcategory is visible
+        var active = document.querySelector('.sidebar-subcategory[open] > summary')
+                  || document.querySelector('.sidebar-category[open] > summary');
+        if (active) {
+          active.scrollIntoView({ block: 'center', behavior: 'instant' });
+        }
       }
     </script>
   </body>
