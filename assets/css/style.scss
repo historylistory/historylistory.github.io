@@ -99,6 +99,31 @@ section {
   }
 }
 
+/* ---- Sticky subcategory header (breadcrumb + title + TOC) ---- */
+
+.subcategory-header {
+  position: sticky;
+  top: 0;
+  background: #FBFAF7;
+  z-index: 10;
+  padding-top: 12px;
+  padding-bottom: 8px;
+  margin-bottom: 8px;
+  border-bottom: 1px solid #e9ecef;
+
+  .breadcrumb {
+    margin-bottom: 8px;
+  }
+
+  h2 {
+    margin-top: 0;
+  }
+
+  .subsection-toc {
+    margin-bottom: 0;
+  }
+}
+
 /* ---- Link cards ---- */
 
 .link-grid {
@@ -413,6 +438,11 @@ section {
   /* Keep cards single-column */
   .link-grid {
     grid-template-columns: 1fr;
+  }
+
+  /* Disable sticky header on mobile (saves vertical space) */
+  .subcategory-header {
+    position: static;
   }
 
   /* Tighten up section spacing on mobile */
