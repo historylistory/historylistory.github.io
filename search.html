@@ -1,0 +1,15 @@
+---
+layout: default
+title: Search
+permalink: /search/
+---
+
+<div class="search-container">
+  <h2>Search</h2>
+  <input type="text" id="search-input" placeholder="Search events, topics, people..." autocomplete="off" autofocus>
+  <div id="search-info" class="search-info"></div>
+  <div id="search-results" class="search-results"></div>
+</div>
+
+<script src="https://unpkg.com/lunr@2.3.9/lunr.min.js"></script>
+<script src="{{ '/assets/js/search.js' | relative_url }}"></script>

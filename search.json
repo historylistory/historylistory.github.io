@@ -1,0 +1,15 @@
+---
+layout: null
+---
+[
+  {% assign searchable = site.pages | where: "layout", "subcategory" %}
+  {% for page in searchable %}
+  {
+    "title": {{ page.title | jsonify }},
+    "category": {{ page.category_slug | replace: "-", " " | jsonify }},
+    "subcategory": {{ page.subcategory_slug | replace: "-", " " | jsonify }},
+    "url": {{ page.url | jsonify }},
+    "content": {{ page.content | strip_html | replace: "http://", " " | replace: "https://", " " | truncatewords: 300 | strip_newlines | jsonify }}
+  }{% unless forloop.last %},{% endunless %}
+  {% endfor %}
+]

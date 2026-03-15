@@ -128,7 +128,7 @@ section {
 
 /* Offset anchor targets so they clear the sticky header */
 .category-section h3[id] {
-  scroll-margin-top: 80px;
+  scroll-margin-top: 100px;
 }
 
 /* ---- Responsive YouTube embeds ---- */
@@ -479,8 +479,105 @@ section {
     position: static;
   }
 
+  /* Search link */
+  .sidebar-search-link {
+    font-size: 14px;
+    padding: 6px 0;
+  }
+
   /* Tighten up section spacing on mobile */
   section {
     padding: 16px 20px !important;
+  }
+}
+
+/* ---- Search page ---- */
+
+.sidebar-search-link {
+  display: block;
+  color: #7ab3d4;
+  text-decoration: none;
+  font-size: 13px;
+  padding: 8px 0;
+  margin-top: 8px;
+  border-top: 1px solid #333;
+
+  &:hover {
+    color: #a8d4f0;
+  }
+}
+
+.search-container {
+  max-width: 700px;
+
+  h2 {
+    margin-top: 0;
+  }
+}
+
+#search-input {
+  width: 100%;
+  padding: 10px 14px;
+  font-size: 16px;
+  border: 2px solid #ddd;
+  border-radius: 6px;
+  box-sizing: border-box;
+  outline: none;
+  transition: border-color 0.2s;
+
+  &:focus {
+    border-color: #369;
+  }
+}
+
+.search-info {
+  font-size: 13px;
+  color: #888;
+  margin-top: 10px;
+  min-height: 20px;
+}
+
+.search-results {
+  margin-top: 16px;
+}
+
+.search-result {
+  padding: 14px 0;
+  border-bottom: 1px solid #eee;
+
+  &:first-child {
+    border-top: 1px solid #eee;
+  }
+}
+
+.search-result-title {
+  font-size: 16px;
+  font-weight: 600;
+  color: #369;
+  text-decoration: none;
+  display: block;
+  margin-bottom: 4px;
+
+  &:hover {
+    text-decoration: underline;
+  }
+}
+
+.search-result-breadcrumb {
+  font-size: 12px;
+  color: #999;
+  margin-bottom: 6px;
+}
+
+.search-result-snippet {
+  font-size: 13px;
+  color: #555;
+  line-height: 1.5;
+  margin: 0;
+
+  mark {
+    background: #fff3b0;
+    padding: 0 2px;
+    border-radius: 2px;
   }
 }
