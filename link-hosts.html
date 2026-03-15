@@ -1,0 +1,66 @@
+---
+layout: staticpage
+title: Link Hosts
+permalink: /link-hosts/
+---
+
+<p id="summary">Loading...</p>
+
+<table id="hosts-table" style="width:100%; border-collapse:collapse; display:none;">
+  <thead>
+    <tr>
+      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('host')">Host</th>
+      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('count')">Count</th>
+    </tr>
+  </thead>
+  <tbody></tbody>
+</table>
+
+<script>
+  let currentSort = 'count';
+  let sortAsc = false;
+  let hostData = [];
+
+  fetch('{{ "/links.json" | relative_url }}')
+    .then(r => r.json())
+    .then(urls => {
+      const counts = {};
+      let total = 0;
+      urls.forEach(url => {
+        try {
+          const host = new URL(url).hostname;
+          counts[host] = (counts[host] || 0) + 1;
+          total++;
+        } catch (e) {}
+      });
+
+      hostData = Object.entries(counts).map(([host, count]) => ({ host, count }));
+      document.getElementById('summary').textContent =
+        total + ' total links across ' + hostData.length + ' unique hosts';
+
+      sortTable('count');
+      document.getElementById('hosts-table').style.display = '';
+    })
+    .catch(() => {
+      document.getElementById('summary').textContent = 'Failed to load link data.';
+    });
+
+  function sortTable(col) {
+    if (currentSort === col) {
+      sortAsc = !sortAsc;
+    } else {
+      currentSort = col;
+      sortAsc = col === 'host';
+    }
+    hostData.sort((a, b) => {
+      let cmp = col === 'count' ? a.count - b.count : a.host.localeCompare(b.host);
+      return sortAsc ? cmp : -cmp;
+    });
+    const tbody = document.querySelector('#hosts-table tbody');
+    tbody.innerHTML = hostData.map(d =>
+      '<tr><td style="padding:4px 6px; border-bottom:1px solid #eee;">' + d.host +
+      '</td><td style="text-align:right; padding:4px 6px; border-bottom:1px solid #eee;">' + d.count +
+      '</td></tr>'
+    ).join('');
+  }
+</script>

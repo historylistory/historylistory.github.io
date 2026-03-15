@@ -1,0 +1,19 @@
+---
+layout: null
+---
+[
+{% assign searchable = site.pages | where: "layout", "subcategory" %}
+{% assign first = true %}
+{% for page in searchable %}
+{% assign parts = page.content | split: '](' %}
+{% for part in parts %}
+{% if forloop.first == false %}
+{% assign url = part | split: ')' | first %}
+{% if url contains 'http' %}
+{% if first %}{% assign first = false %}{% else %},{% endif %}
+{{ url | jsonify }}
+{% endif %}
+{% endif %}
+{% endfor %}
+{% endfor %}
+]
