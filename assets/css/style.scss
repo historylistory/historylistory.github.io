@@ -555,11 +555,12 @@ section {
 .sidebar-search {
   margin-top: 10px;
   margin-bottom: 4px;
+  position: relative;
 }
 
 .sidebar-search-input {
   width: 100%;
-  padding: 6px 10px;
+  padding: 6px 30px 6px 10px;
   font-size: 13px;
   border: 1px solid #555;
   border-radius: 4px;
@@ -575,6 +576,24 @@ section {
 
   &:focus {
     border-color: #7ab3d4;
+  }
+}
+
+.sidebar-search-btn {
+  position: absolute;
+  right: 4px;
+  top: 50%;
+  transform: translateY(-50%);
+  background: none;
+  border: none;
+  cursor: pointer;
+  font-size: 14px;
+  padding: 2px 4px;
+  line-height: 1;
+  opacity: 0.6;
+
+  &:hover {
+    opacity: 1;
   }
 }
 
