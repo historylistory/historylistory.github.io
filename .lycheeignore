@@ -1,0 +1,36 @@
+# Paywalled sites that block automated requests with 401/402/403
+https://www.reuters.com/.*
+https://www.wsj.com/.*
+https://www.lemonde.fr/.*
+https://www.marketwatch.com/.*
+https://www.nytimes.com/.*
+
+# HTTP/2 protocol errors (sites work in browsers but fail with automated HTTP/2)
+https://www.washingtonpost.com/.*
+https://www.usda.gov/.*
+https://www.usnews.com/.*
+https://www.miamiherald.com/.*
+https://www.sacbee.com/.*
+https://ir.paramount.com/.*
+https://www.newsmaxtv.com/.*
+https://cpb.org/.*
+
+# Tegna-owned local news sites (all have HTTP/2 issues)
+https://www.wusa9.com/.*
+https://www.kvue.com/.*
+https://www.wfaa.com/.*
+https://www.kare11.com/.*
+https://www.wkyc.com/.*
+https://www.wwltv.com/.*
+https://www.wbir.com/.*
+
+# Government sites with SSL certificate issues
+https://www.history.navy.mil/.*
+https://www.cdph.ca.gov/.*
+
+# Sites returning non-standard success codes (202)
+https://www.imdb.com/.*
+https://www.c-span.org/.*
+
+# Bot-blocking (503)
+https://www.professorwatchlist.org/.*

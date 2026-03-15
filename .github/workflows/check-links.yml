@@ -20,7 +20,7 @@ jobs:
             --exclude scheme:mailto
             --timeout 30
             --max-retries 3
-            --accept 200,204,301,302,403,429
+            --accept 200,202,204,301,302,401,402,403,429,503
             "categories/**/*.md"
             "*.md"
           fail: false
