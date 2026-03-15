@@ -110,7 +110,9 @@
           var a = links[i];
           // Skip links that are inside nav, breadcrumbs, or cards
           if (a.closest('.breadcrumb, .link-card, .sidebar-nav')) continue;
-          var archiveUrl = 'https://web.archive.org/web/*/' + a.href;
+          // Skip links that already point to web.archive.org
+          if (a.hostname === 'web.archive.org') continue;
+          var archiveUrl = 'https://web.archive.org/web/' + a.href;
           var archiveLink = document.createElement('a');
           archiveLink.href = archiveUrl;
           archiveLink.className = 'archive-link';
