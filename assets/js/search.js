@@ -94,8 +94,8 @@
       var snippet = getSnippet(doc.content, queryTerms);
 
       html += '<div class="search-result">';
-      html += '<a href="' + doc.url + '" class="search-result-title">' + highlightTerms(doc.title, queryTerms) + '</a>';
-      html += '<div class="search-result-breadcrumb">' + titleCase(doc.category) + ' &rsaquo; ' + titleCase(doc.subcategory) + '</div>';
+      html += '<a href="' + escapeUrl(doc.url) + '" class="search-result-title">' + highlightTerms(doc.title, queryTerms) + '</a>';
+      html += '<div class="search-result-breadcrumb">' + escapeHtml(titleCase(doc.category)) + ' &rsaquo; ' + escapeHtml(titleCase(doc.subcategory)) + '</div>';
       html += '<p class="search-result-snippet">' + highlightTerms(snippet, queryTerms) + '</p>';
       html += '</div>';
     });
@@ -129,8 +129,20 @@
     return snippet;
   }
 
+  function escapeHtml(str) {
+    return str.replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;').replace(/"/g, '&quot;');
+  }
+
+  function escapeUrl(url) {
+    // Only allow relative and http(s) URLs — block javascript:, data:, etc.
+    if (/^https?:\/\//.test(url) || url.charAt(0) === '/') {
+      return escapeHtml(url);
+    }
+    return '#';
+  }
+
   function highlightTerms(text, terms) {
-    var escaped = text.replace(/&/g, '&amp;').replace(/</g, '&lt;').replace(/>/g, '&gt;');
+    var escaped = escapeHtml(text);
     terms.forEach(function (term) {
       if (term.length < 2) return;
       var re = new RegExp('(' + term.replace(/[.*+?^${}()|[\]\\]/g, '\\$&') + ')', 'gi');
