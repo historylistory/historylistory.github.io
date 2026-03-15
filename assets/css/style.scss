@@ -83,18 +83,19 @@ section {
       display: flex;
       align-items: center;
       justify-content: center;
-      font-size: 13px;
-      color: #ccc;
+      font-size: 15px;
+      font-weight: 700;
+      color: #e04050;
       text-decoration: none;
       padding: 8px 0;
 
       &:hover {
-        color: #fff;
+        color: #f06070;
       }
 
       &.active {
-        color: #fff;
-        font-weight: 600;
+        color: #ff7080;
+        font-weight: 700;
       }
     }
   }
