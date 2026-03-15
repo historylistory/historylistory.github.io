@@ -71,6 +71,13 @@ section {
     margin: 0;
     padding: 0;
     line-height: normal;
+    background: none !important;
+    background-image: none !important;
+    border: none !important;
+    border-radius: 0 !important;
+    box-shadow: none !important;
+    height: auto !important;
+    width: auto !important;
 
     a {
       display: flex;
@@ -79,7 +86,7 @@ section {
       font-size: 13px;
       color: #ccc;
       text-decoration: none;
-      padding: 6px 0;
+      padding: 8px 0;
 
       &:hover {
         color: #fff;
