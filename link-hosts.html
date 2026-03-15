@@ -6,20 +6,35 @@ permalink: /link-hosts/
 
 <p id="summary">Loading...</p>
 
-<table id="hosts-table" style="width:100%; border-collapse:collapse; display:none;">
+<h2 id="unverified-heading" style="display:none;">Unverified Hosts</h2>
+<table id="unverified-table" class="host-table" style="width:100%; border-collapse:collapse; display:none;">
   <thead>
     <tr>
-      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('host')">Host</th>
-      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('count')">Count</th>
+      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('unverified','host')">Host</th>
+      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('unverified','count')">Count</th>
+    </tr>
+  </thead>
+  <tbody></tbody>
+</table>
+
+<h2 id="verified-heading" style="display:none;">Verified Hosts</h2>
+<table id="verified-table" class="host-table" style="width:100%; border-collapse:collapse; display:none;">
+  <thead>
+    <tr>
+      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('verified','host')">Host</th>
+      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('verified','count')">Count</th>
     </tr>
   </thead>
   <tbody></tbody>
 </table>
 
 <script>
-  let currentSort = 'count';
-  let sortAsc = false;
-  let hostData = [];
+  const verified = new Set({{ site.data.verified_hosts | jsonify }});
+
+  let tables = {
+    verified:   { data: [], sort: 'count', asc: false },
+    unverified: { data: [], sort: 'count', asc: false }
+  };
 
   fetch('{{ "/links.json" | relative_url }}')
     .then(r => r.json())
@@ -34,30 +49,39 @@ permalink: /link-hosts/
         } catch (e) {}
       });
 
-      hostData = Object.entries(counts).map(([host, count]) => ({ host, count }));
-      document.getElementById('summary').textContent =
-        total + ' total links across ' + hostData.length + ' unique hosts';
+      Object.entries(counts).forEach(([host, count]) => {
+        const key = verified.has(host) ? 'verified' : 'unverified';
+        tables[key].data.push({ host, count });
+      });
 
-      sortTable('count');
-      document.getElementById('hosts-table').style.display = '';
+      const uCount = tables.unverified.data.length;
+      const vCount = tables.verified.data.length;
+      document.getElementById('summary').textContent =
+        total + ' total links across ' + (uCount + vCount) + ' unique hosts (' +
+        vCount + ' verified, ' + uCount + ' unverified)';
+
+      sortTable('unverified', 'count');
+      sortTable('verified', 'count');
+      document.querySelectorAll('.host-table, [id$="-heading"]').forEach(el => el.style.display = '');
     })
     .catch(() => {
       document.getElementById('summary').textContent = 'Failed to load link data.';
     });
 
-  function sortTable(col) {
-    if (currentSort === col) {
-      sortAsc = !sortAsc;
+  function sortTable(which, col) {
+    const t = tables[which];
+    if (t.sort === col) {
+      t.asc = !t.asc;
     } else {
-      currentSort = col;
-      sortAsc = col === 'host';
+      t.sort = col;
+      t.asc = col === 'host';
     }
-    hostData.sort((a, b) => {
+    t.data.sort((a, b) => {
       let cmp = col === 'count' ? a.count - b.count : a.host.localeCompare(b.host);
-      return sortAsc ? cmp : -cmp;
+      return t.asc ? cmp : -cmp;
     });
-    const tbody = document.querySelector('#hosts-table tbody');
-    tbody.innerHTML = hostData.map(d =>
+    const tbody = document.querySelector('#' + which + '-table tbody');
+    tbody.innerHTML = t.data.map(d =>
       '<tr><td style="padding:4px 6px; border-bottom:1px solid #eee;">' + d.host +
       '</td><td style="text-align:right; padding:4px 6px; border-bottom:1px solid #eee;">' + d.count +
       '</td></tr>'

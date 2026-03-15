@@ -1,0 +1,16 @@
+# Domains that have been reviewed and verified as reputable sources.
+# Add one domain per line (just the hostname, no protocol).
+# Example:
+#   - en.wikipedia.org
+#   - www.archives.gov
+
+- en.wikipedia.org
+- www.archives.gov
+- www.npr.org
+- www.cnn.com
+- www.nbcnews.com
+- www.theguardian.com
+- x.com
+- truthsocial.com
+- www.bbc.com
+- www.cbsnews.com
