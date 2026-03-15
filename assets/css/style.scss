@@ -68,12 +68,14 @@ section {
 
   li {
     display: block;
-    line-height: 1.8em;
 
     a {
+      display: block;
       font-size: 13px;
       color: #ccc;
       text-decoration: none;
+      text-align: center;
+      padding: 6px 0;
 
       &:hover {
         color: #fff;
