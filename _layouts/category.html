@@ -2,29 +2,17 @@
 layout: default
 ---
 
-{% assign cat_data = nil %}
-{% for cat in site.data.navigation.categories %}
-  {% if cat.slug == page.category_slug %}
-    {% assign cat_data = cat %}
-  {% endif %}
-{% endfor %}
-
 <div class="category-section">
   <h2>{{ page.title }}</h2>
 
   <div class="link-grid">
-    {% for sub in cat_data.subcategories %}
-      {% assign sub_page = nil %}
-      {% for p in site.pages %}
-        {% if p.subcategory_slug == sub.slug and p.category_slug == cat_data.slug %}
-          {% assign sub_page = p %}
-        {% endif %}
-      {% endfor %}
+    {% assign subs = site.pages | where: "layout", "subcategory" | where: "category_slug", page.category_slug | sort: "title" %}
+    {% for sub in subs %}
       <div class="link-card subcategory-card">
-        <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | append: sub.slug | append: '/' | relative_url }}">
+        <a href="{{ sub.url | relative_url }}">
           <div class="card-body">
-            <h4>{{ sub.name }}</h4>
-            {% assign sub_content = sub_page.content %}
+            <h4>{{ sub.title }}</h4>
+            {% assign sub_content = sub.content %}
             {% assign h3_parts = sub_content | split: '<h3 id="' %}
             {% assign h3_raw = sub_content | split: '### ' %}
             {% if h3_parts.size > 1 %}

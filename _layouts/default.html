@@ -32,51 +32,47 @@
                 <li><a href="{{ '/recommended-links/' | relative_url }}"{% if page.url == '/recommended-links/' %} class="active"{% endif %}>Recommended Links</a></li>
               </ul>
               <h3>Categories</h3>
-              {% for cat in site.data.navigation.categories %}
-              <details class="sidebar-category"{% if page.category_slug == cat.slug %} open{% endif %}>
-                <summary>{{ cat.name }}</summary>
+              {% assign cat_pages = site.pages | where: "layout", "category" | sort: "title" %}
+              {% for cat in cat_pages %}
+              <details class="sidebar-category"{% if page.category_slug == cat.category_slug %} open{% endif %}>
+                <summary>{{ cat.title }}</summary>
                 <ul class="sidebar-subcategories">
-                  {% for sub in cat.subcategories %}
+                  {% assign subs = site.pages | where: "layout", "subcategory" | where: "category_slug", cat.category_slug | sort: "title" %}
+                  {% for sub in subs %}
                   <li>
-                    {% assign sub_page = nil %}
-                    {% for p in site.pages %}
-                      {% if p.subcategory_slug == sub.slug and p.category_slug == cat.slug %}
-                        {% assign sub_page = p %}
-                      {% endif %}
-                    {% endfor %}
-                    {% assign sub_content = sub_page.content %}
+                    {% assign sub_content = sub.content %}
                     {% assign h3_parts = sub_content | split: '<h3 id="' %}
                     {% assign h3_raw = sub_content | split: '### ' %}
                     {% if h3_parts.size > 1 %}
-                    <details class="sidebar-subcategory"{% if page.subcategory_slug == sub.slug and page.category_slug == cat.slug %} open{% endif %}>
-                      <summary>{{ sub.name }}</summary>
+                    <details class="sidebar-subcategory"{% if page.subcategory_slug == sub.subcategory_slug and page.category_slug == sub.category_slug %} open{% endif %}>
+                      <summary>{{ sub.title }}</summary>
                       <ul class="sidebar-subsubcategories">
                         {% for part in h3_parts %}
                           {% unless forloop.first %}
                             {% assign h3_id = part | split: '"' | first %}
                             {% assign h3_after_id = part | split: '">' %}
                             {% assign h3_name = h3_after_id[1] | split: '</h3>' | first %}
-                            <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: h3_id | relative_url }}">{{ h3_name }}</a></li>
+                            <li><a href="{{ sub.url | append: '#' | append: h3_id | relative_url }}">{{ h3_name }}</a></li>
                           {% endunless %}
                         {% endfor %}
                       </ul>
                     </details>
                     {% elsif h3_raw.size > 1 %}
-                    <details class="sidebar-subcategory"{% if page.subcategory_slug == sub.slug and page.category_slug == cat.slug %} open{% endif %}>
-                      <summary>{{ sub.name }}</summary>
+                    <details class="sidebar-subcategory"{% if page.subcategory_slug == sub.subcategory_slug and page.category_slug == sub.category_slug %} open{% endif %}>
+                      <summary>{{ sub.title }}</summary>
                       <ul class="sidebar-subsubcategories">
                         {% for part in h3_raw %}
                           {% unless forloop.first %}
                             {% assign h3_line = part | split: "
 " | first | strip %}
                             {% assign h3_id = h3_line | slugify %}
-                            <li><a href="{{ '/categories/' | append: cat.slug | append: '/' | append: sub.slug | append: '/#' | append: h3_id | relative_url }}">{{ h3_line }}</a></li>
+                            <li><a href="{{ sub.url | append: '#' | append: h3_id | relative_url }}">{{ h3_line }}</a></li>
                           {% endunless %}
                         {% endfor %}
                       </ul>
                     </details>
                     {% else %}
-                    <span>{{ sub.name }}</span>
+                    <span>{{ sub.title }}</span>
                     {% endif %}
                   </li>
                   {% endfor %}

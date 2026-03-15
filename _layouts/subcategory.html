@@ -2,10 +2,11 @@
 layout: default
 ---
 
-{% assign cat_data = nil %}
-{% for cat in site.data.navigation.categories %}
-  {% if cat.slug == page.category_slug %}
-    {% assign cat_data = cat %}
+{% assign cat_page = nil %}
+{% assign cat_pages = site.pages | where: "layout", "category" %}
+{% for p in cat_pages %}
+  {% if p.category_slug == page.category_slug %}
+    {% assign cat_page = p %}
   {% endif %}
 {% endfor %}
 
@@ -14,7 +15,7 @@ layout: default
     <nav class="breadcrumb">
       <a href="{{ '/' | relative_url }}">History Listory</a>
       &rsaquo;
-      <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | relative_url }}">{{ cat_data.name }}</a>
+      <a href="{{ cat_page.url | relative_url }}">{{ cat_page.title }}</a>
       &rsaquo;
       <span>{{ page.title }}</span>
     </nav>
