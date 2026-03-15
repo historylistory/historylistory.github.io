@@ -26,6 +26,10 @@
           <details class="mobile-nav-toggle" open>
             <summary class="mobile-nav-btn">&#9776; Menu</summary>
             <nav class="sidebar-nav">
+              <ul class="sidebar-static-pages">
+                <li><a href="{{ '/purpose/' | relative_url }}"{% if page.url == '/purpose/' %} class="active"{% endif %}>Purpose</a></li>
+                <li><a href="{{ '/disclaimer/' | relative_url }}"{% if page.url == '/disclaimer/' %} class="active"{% endif %}>Disclaimer</a></li>
+              </ul>
               <h3>Categories</h3>
               {% for cat in site.data.navigation.categories %}
               <details class="sidebar-category"{% if page.category_slug == cat.slug %} open{% endif %}>
