@@ -12,29 +12,6 @@ layout: default
         <a href="{{ sub.url | relative_url }}">
           <div class="card-body">
             <h4>{{ sub.title }}</h4>
-            {% assign sub_content = sub.content %}
-            {% assign h3_parts = sub_content | split: '<h3 id="' %}
-            {% assign h3_raw = sub_content | split: '### ' %}
-            {% if h3_parts.size > 1 %}
-            <div class="card-tags">
-              {% for part in h3_parts %}
-                {% unless forloop.first %}
-                  {% assign h3_name = part | split: '">' | last | split: '</h3>' | first %}
-                  <span>{{ h3_name }}</span>
-                {% endunless %}
-              {% endfor %}
-            </div>
-            {% elsif h3_raw.size > 1 %}
-            <div class="card-tags">
-              {% for part in h3_raw %}
-                {% unless forloop.first %}
-                  {% assign h3_line = part | split: "
-" | first | strip %}
-                  <span>{{ h3_line }}</span>
-                {% endunless %}
-              {% endfor %}
-            </div>
-            {% endif %}
           </div>
         </a>
       </div>
