@@ -102,5 +102,25 @@
         }
       }
     </script>
+    <script>
+      // Append Wayback Machine archive links next to external links
+      (function() {
+        var links = document.querySelectorAll('#main-content a[href^="http"]');
+        for (var i = 0; i < links.length; i++) {
+          var a = links[i];
+          // Skip links that are inside nav, breadcrumbs, or cards
+          if (a.closest('.breadcrumb, .link-card, .sidebar-nav')) continue;
+          var archiveUrl = 'https://web.archive.org/web/*/' + a.href;
+          var archiveLink = document.createElement('a');
+          archiveLink.href = archiveUrl;
+          archiveLink.className = 'archive-link';
+          archiveLink.target = '_blank';
+          archiveLink.rel = 'noopener noreferrer';
+          archiveLink.textContent = '[archive]';
+          archiveLink.title = 'View on Wayback Machine';
+          a.after(archiveLink);
+        }
+      })();
+    </script>
   </body>
 </html>

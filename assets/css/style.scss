@@ -654,3 +654,18 @@ section {
     border-radius: 2px;
   }
 }
+
+/* ---- Wayback Machine archive links ---- */
+
+.archive-link {
+  font-size: 11px;
+  color: #999;
+  text-decoration: none;
+  margin-left: 4px;
+  white-space: nowrap;
+
+  &:hover {
+    color: #369;
+    text-decoration: underline;
+  }
+}
