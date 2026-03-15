@@ -1,20 +1,4 @@
 ---
 layout: null
 ---
-[
-{% assign searchable = site.pages | where: "layout", "subcategory" %}
-{% assign first = true %}
-{% for page in searchable %}
-{% assign parts = page.content | split: '](' %}
-{% for part in parts %}
-{% if forloop.first == false %}
-{% assign url = part | split: ')' | first %}
-{% if url contains 'http' %}
-{% assign label_part = forloop.parentloop.index | minus: 1 %}
-{% if first %}{% assign first = false %}{% else %},{% endif %}
-{"url":{{ url | jsonify }},"page":{{ page.title | jsonify }},"path":{{ page.url | jsonify }}}
-{% endif %}
-{% endif %}
-{% endfor %}
-{% endfor %}
-]
+{% assign searchable = site.pages | where: "layout", "subcategory" %}{% assign entries = "" | split: "" %}{% for page in searchable %}{% assign parts = page.content | split: '](' %}{% for part in parts %}{% if forloop.first == false %}{% assign url = part | split: ')' | first %}{% if url contains 'http' %}{% capture entry %}{"url":{{ url | jsonify }},"page":{{ page.title | jsonify }},"path":{{ page.url | jsonify }}}{% endcapture %}{% assign entries = entries | push: entry %}{% endif %}{% endif %}{% endfor %}{% endfor %}[{{ entries | join: "," }}]
