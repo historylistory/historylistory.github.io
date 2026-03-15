@@ -68,13 +68,17 @@ section {
 
   li {
     display: block;
+    margin: 0;
+    padding: 0;
+    line-height: normal;
 
     a {
-      display: block;
+      display: flex;
+      align-items: center;
+      justify-content: center;
       font-size: 13px;
       color: #ccc;
       text-decoration: none;
-      text-align: center;
       padding: 6px 0;
 
       &:hover {
@@ -514,6 +518,12 @@ section {
   /* Disable sticky header on mobile (saves vertical space) */
   .subcategory-header {
     position: static;
+  }
+
+  /* Full-width YouTube embeds on mobile */
+  .youtube-embed {
+    width: 100%;
+    padding-bottom: 56.25%;
   }
 
   /* Sidebar search */
