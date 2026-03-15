@@ -14,6 +14,11 @@ h1 {
   margin: 5px 0 5px;
 }
 
+header h1 {
+  font-size: 22px;
+  white-space: nowrap;
+}
+
 .wrapper, #container, .inner {
   width: auto;
   max-width: 100%;
@@ -479,10 +484,14 @@ section {
     position: static;
   }
 
-  /* Search link */
-  .sidebar-search-link {
+  /* Sidebar search */
+  .sidebar-search {
+    margin-top: 8px;
+  }
+
+  .sidebar-search-input {
     font-size: 14px;
-    padding: 6px 0;
+    padding: 6px 10px;
   }
 
   /* Tighten up section spacing on mobile */
@@ -491,21 +500,35 @@ section {
   }
 }
 
-/* ---- Search page ---- */
+/* ---- Sidebar search input ---- */
 
-.sidebar-search-link {
-  display: block;
-  color: #7ab3d4;
-  text-decoration: none;
+.sidebar-search {
+  margin-top: 10px;
+  margin-bottom: 4px;
+}
+
+.sidebar-search-input {
+  width: 100%;
+  padding: 6px 10px;
   font-size: 13px;
-  padding: 8px 0;
-  margin-top: 8px;
-  border-top: 1px solid #333;
+  border: 1px solid #555;
+  border-radius: 4px;
+  background: #2a2a2a;
+  color: #ddd;
+  box-sizing: border-box;
+  outline: none;
+  transition: border-color 0.2s;
 
-  &:hover {
-    color: #a8d4f0;
+  &::placeholder {
+    color: #888;
+  }
+
+  &:focus {
+    border-color: #7ab3d4;
   }
 }
+
+/* ---- Search page ---- */
 
 .search-container {
   max-width: 700px;
