@@ -10,8 +10,9 @@ layout: null
 {% if forloop.first == false %}
 {% assign url = part | split: ')' | first %}
 {% if url contains 'http' %}
+{% assign label_part = forloop.parentloop.index | minus: 1 %}
 {% if first %}{% assign first = false %}{% else %},{% endif %}
-{{ url | jsonify }}
+{"url":{{ url | jsonify }},"page":{{ page.title | jsonify }},"path":{{ page.url | jsonify }}}
 {% endif %}
 {% endif %}
 {% endfor %}

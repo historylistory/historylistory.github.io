@@ -4,25 +4,39 @@ title: Link Hosts
 permalink: /link-hosts/
 ---
 
+<style>
+  .host-table { width:100%; border-collapse:collapse; }
+  .host-table th { text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer; }
+  .host-table th:last-child { text-align:right; }
+  .host-row td { padding:4px 6px; border-bottom:1px solid #eee; cursor:pointer; }
+  .host-row td:last-child { text-align:right; }
+  .host-row:hover { background:#f5f5f5; }
+  .link-detail { display:none; }
+  .link-detail td { padding:2px 6px 2px 24px; border-bottom:1px solid #f0f0f0; font-size:0.9em; }
+  .link-detail a { color:#4183c4; text-decoration:none; }
+  .link-detail a:hover { text-decoration:underline; }
+  .toggle { display:inline-block; width:1em; text-align:center; margin-right:4px; }
+</style>
+
 <p id="summary">Loading...</p>
 
 <h2 id="unverified-heading" style="display:none;">Unverified Hosts</h2>
-<table id="unverified-table" class="host-table" style="width:100%; border-collapse:collapse; display:none;">
+<table id="unverified-table" class="host-table" style="display:none;">
   <thead>
     <tr>
-      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('unverified','host')">Host</th>
-      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('unverified','count')">Count</th>
+      <th onclick="sortTable('unverified','host')">Host</th>
+      <th onclick="sortTable('unverified','count')" style="text-align:right;">Count</th>
     </tr>
   </thead>
   <tbody></tbody>
 </table>
 
 <h2 id="verified-heading" style="display:none;">Verified Hosts</h2>
-<table id="verified-table" class="host-table" style="width:100%; border-collapse:collapse; display:none;">
+<table id="verified-table" class="host-table" style="display:none;">
   <thead>
     <tr>
-      <th style="text-align:left; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('verified','host')">Host</th>
-      <th style="text-align:right; padding:6px; border-bottom:2px solid #ccc; cursor:pointer;" onclick="sortTable('verified','count')">Count</th>
+      <th onclick="sortTable('verified','host')">Host</th>
+      <th onclick="sortTable('verified','count')" style="text-align:right;">Count</th>
     </tr>
   </thead>
   <tbody></tbody>
@@ -38,20 +52,21 @@ permalink: /link-hosts/
 
   fetch('{{ "/links.json" | relative_url }}')
     .then(r => r.json())
-    .then(urls => {
-      const counts = {};
+    .then(entries => {
+      const groups = {};
       let total = 0;
-      urls.forEach(url => {
+      entries.forEach(e => {
         try {
-          const host = new URL(url).hostname;
-          counts[host] = (counts[host] || 0) + 1;
+          const host = new URL(e.url).hostname;
+          if (!groups[host]) groups[host] = [];
+          groups[host].push({ url: e.url, page: e.page, path: e.path });
           total++;
-        } catch (e) {}
+        } catch (err) {}
       });
 
-      Object.entries(counts).forEach(([host, count]) => {
+      Object.entries(groups).forEach(([host, links]) => {
         const key = verified.has(host) ? 'verified' : 'unverified';
-        tables[key].data.push({ host, count });
+        tables[key].data.push({ host, count: links.length, links });
       });
 
       const uCount = tables.unverified.data.length;
@@ -68,6 +83,10 @@ permalink: /link-hosts/
       document.getElementById('summary').textContent = 'Failed to load link data.';
     });
 
+  function escapeHtml(s) {
+    return s.replace(/&/g,'&amp;').replace(/</g,'&lt;').replace(/>/g,'&gt;').replace(/"/g,'&quot;');
+  }
+
   function sortTable(which, col) {
     const t = tables[which];
     if (t.sort === col) {
@@ -81,10 +100,27 @@ permalink: /link-hosts/
       return t.asc ? cmp : -cmp;
     });
     const tbody = document.querySelector('#' + which + '-table tbody');
-    tbody.innerHTML = t.data.map(d =>
-      '<tr><td style="padding:4px 6px; border-bottom:1px solid #eee;">' + d.host +
-      '</td><td style="text-align:right; padding:4px 6px; border-bottom:1px solid #eee;">' + d.count +
-      '</td></tr>'
-    ).join('');
+    tbody.innerHTML = t.data.map((d, i) => {
+      const id = which + '-' + i;
+      let rows = '<tr class="host-row" onclick="toggleLinks(\'' + id + '\')"><td>' +
+        '<span class="toggle" id="arrow-' + id + '">&#9654;</span>' +
+        escapeHtml(d.host) +
+        '</td><td>' + d.count + '</td></tr>';
+      d.links.forEach(link => {
+        rows += '<tr class="link-detail" data-group="' + id + '"><td colspan="2">' +
+          '<a href="' + escapeHtml(link.url) + '" target="_blank">' + escapeHtml(link.url) + '</a>' +
+          (link.page ? ' <em>(from <a href="' + escapeHtml(link.path) + '">' + escapeHtml(link.page) + '</a>)</em>' : '') +
+          '</td></tr>';
+      });
+      return rows;
+    }).join('');
+  }
+
+  function toggleLinks(id) {
+    const rows = document.querySelectorAll('[data-group="' + id + '"]');
+    const arrow = document.getElementById('arrow-' + id);
+    const showing = rows[0] && rows[0].style.display === 'table-row';
+    rows.forEach(r => r.style.display = showing ? 'none' : 'table-row');
+    arrow.innerHTML = showing ? '&#9654;' : '&#9660;';
   }
 </script>
