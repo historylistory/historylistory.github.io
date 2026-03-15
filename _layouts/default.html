@@ -110,6 +110,11 @@
           var a = links[i];
           // Skip links that are inside nav, breadcrumbs, or cards
           if (a.closest('.breadcrumb, .link-card, .sidebar-nav')) continue;
+          // Open external links in a new tab
+          if (a.hostname !== location.hostname) {
+            a.target = '_blank';
+            a.rel = 'noopener noreferrer';
+          }
           // Skip links that already point to web.archive.org
           if (a.hostname === 'web.archive.org') continue;
           var archiveUrl = 'https://web.archive.org/web/' + a.href;
