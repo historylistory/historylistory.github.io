@@ -13,7 +13,7 @@ History Listory is a chronological compilation of publicly reported political ev
 
 ### What You'll Find Here
 
-This site covers **26 categories** spanning a wide range of topics, including:
+This site covers **26+ categories** spanning a wide range of topics, including:
 
 - **Government & Power** - [Foreign Affairs & Isolation](/categories/foreign-affairs-isolation/), [Dictator Envy](/categories/dictator-envy/), [Voting & Census](/categories/voting-census/), [Crime - Ethics - Defiance](/categories/crime-ethics-defiance/)
 - **Rights & Civil Liberties** - [Immigration - Militarization - Terror](/categories/immigration-militarization-terror/), [LGBTQ+](/categories/lgbtq/), [Women - Reproductive Rights](/categories/women-reproductive-rights/), [Free Speech & Manipulation](/categories/free-speech-manipulation/)
@@ -21,13 +21,13 @@ This site covers **26 categories** spanning a wide range of topics, including:
 - **Economy & Environment** - [Economy - Labor - Poverty](/categories/economy-labor-poverty/), [Climate Change](/categories/climate-change/), [Agriculture](/categories/agriculture/), [Health](/categories/health/)
 - **Behavior & Accountability** - [Behavioral Issues](/categories/behavioral-issues/), [Bully - Threaten - Sue - Fire](/categories/bully-threaten-sue-fire/), [Conspiracies](/categories/conspiracies/), [Greed](/categories/greed/)
 
-Each category is broken down into subcategories, and entries are organized by date so you can follow events as they unfolded.
+Each category is broken down into subcategories, and entries are organized by date so you can follow events as they unfold.
 
 ---
 
 ### How to Navigate
 
-- **Sidebar** - Browse all 26 categories and their subcategories in the left navigation panel. Click a category to expand it, then click a subcategory to read its timeline.
+- **Sidebar** - Browse all 26+ categories and their subcategories in the left navigation panel. Click a category to expand it, then click a subcategory to read its timeline.
 - **Search** - Use the search bar at the top of the sidebar to find specific topics, people, or events across the entire site.
 - **Recommended Links** - Visit [Recommended Links](/recommended-links/) for external resources, trackers, and ways to get involved.
 
