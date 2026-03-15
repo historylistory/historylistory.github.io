@@ -220,12 +220,14 @@ section {
 .sidebar-category {
   margin-bottom: 2px;
 
-  summary {
+  /* ── Level 1: Categories ── */
+  > summary {
     cursor: pointer;
     list-style: none;
-    padding: 4px 0;
+    padding: 5px 0;
     font-size: 13px;
-    color: #ccc;
+    font-weight: 600;
+    color: #e8c96a;
 
     &::-webkit-details-marker {
       display: none;
@@ -238,11 +240,11 @@ section {
       font-size: 9px;
       transition: transform 0.15s ease;
       margin-right: 4px;
-      color: #999;
+      color: #e8c96a;
     }
 
     &:hover {
-      color: #fff;
+      color: #f5de84;
     }
   }
 
@@ -252,8 +254,9 @@ section {
 
   .sidebar-subcategories {
     list-style: none;
-    padding-left: 16px;
+    padding-left: 12px;
     margin: 0 0 4px 0;
+    border-left: 2px solid #3a5a7a;
 
     li {
       display: block;
@@ -273,18 +276,19 @@ section {
 
       > a {
         font-size: 12px;
-        color: #aaa;
+        color: #7ab3d4;
         text-decoration: none;
         display: block;
         padding: 1px 0;
 
         &:hover {
-          color: #fff;
+          color: #a8d4f0;
         }
       }
     }
   }
 
+  /* ── Level 2: Subcategories ── */
   .sidebar-subcategory {
     margin-bottom: 0;
 
@@ -292,7 +296,7 @@ section {
       cursor: pointer;
       list-style: none;
       font-size: 12px;
-      color: #aaa;
+      color: #7ab3d4;
 
       &::-webkit-details-marker {
         display: none;
@@ -305,11 +309,11 @@ section {
         font-size: 7px;
         transition: transform 0.15s ease;
         margin-right: 3px;
-        color: #666;
+        color: #4a8aaa;
       }
 
       &:hover {
-        color: #fff;
+        color: #a8d4f0;
       }
     }
 
@@ -318,20 +322,22 @@ section {
     }
   }
 
+  /* ── Level 3: Sub-subcategories ── */
   .sidebar-subsubcategories {
     list-style: none;
-    padding-left: 16px;
+    padding-left: 12px;
     margin: 0;
+    border-left: 2px solid #3a5a4a;
 
     li {
       line-height: 1.6em;
 
       a {
         font-size: 11px;
-        color: #777;
+        color: #82b89a;
 
         &:hover {
-          color: #fff;
+          color: #a8dcc0;
         }
       }
     }
