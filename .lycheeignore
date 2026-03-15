@@ -34,3 +34,6 @@ https://www.c-span.org/.*
 
 # Bot-blocking (503)
 https://www.professorwatchlist.org/.*
+
+# Timeouts that still work
+https://freespeechproject.georgetown.edu/tracker-entries/trump-sues-facebook-twitter-google-for-censorship-launches-his-own-social-media-platform/

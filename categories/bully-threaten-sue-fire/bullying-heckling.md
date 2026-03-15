@@ -230,7 +230,8 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/#:~:text=Tim%20Walz%20says%20people%20are,while%20driving%20by%20his%20house](https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/)
 
-[https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-.pdf](https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-.pdf)
+[https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-1.pdf](https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-1.pdf)
+
 
 [https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/](https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/)
 
