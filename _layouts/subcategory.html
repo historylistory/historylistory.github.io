@@ -12,28 +12,14 @@ layout: default
 <div class="category-section">
   <div class="subcategory-header">
     <nav class="breadcrumb">
+      <a href="{{ '/' | relative_url }}">History Listory</a>
+      &rsaquo;
       <a href="{{ '/categories/' | append: cat_data.slug | append: '/' | relative_url }}">{{ cat_data.name }}</a>
       &rsaquo;
       <span>{{ page.title }}</span>
     </nav>
 
     <h2>{{ page.title }}</h2>
-
-    {% assign h3_parts = content | split: '<h3 id="' %}
-    {% if h3_parts.size > 2 %}
-    <nav class="subsection-toc">
-      <ul>
-        {% for part in h3_parts %}
-          {% unless forloop.first %}
-            {% assign h3_id = part | split: '"' | first %}
-            {% assign h3_after_id = part | split: '">' %}
-            {% assign h3_name = h3_after_id[1] | split: '</h3>' | first %}
-            <li><a href="#{{ h3_id }}">{{ h3_name }}</a></li>
-          {% endunless %}
-        {% endfor %}
-      </ul>
-    </nav>
-    {% endif %}
   </div>
 
   {{ content }}

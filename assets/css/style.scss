@@ -104,7 +104,7 @@ section {
   }
 }
 
-/* ---- Sticky subcategory header (breadcrumb + title + TOC) ---- */
+/* ---- Sticky subcategory header (breadcrumb + title) ---- */
 
 .subcategory-header {
   position: sticky;
@@ -122,16 +122,13 @@ section {
 
   h2 {
     margin-top: 0;
-  }
-
-  .subsection-toc {
     margin-bottom: 0;
   }
 }
 
 /* Offset anchor targets so they clear the sticky header */
 .category-section h3[id] {
-  scroll-margin-top: 190px;
+  scroll-margin-top: 80px;
 }
 
 /* ---- Responsive YouTube embeds ---- */
