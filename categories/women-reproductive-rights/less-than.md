@@ -64,9 +64,9 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 [https://en.wikipedia.org/wiki/Project_2025](https://en.wikipedia.org/wiki/Project_2025)
 
-[https://Theamericanleader.org](https://theamericanleader.org/)
+[https://theamericanleader.org](https://theamericanleader.org/)
 
-[https://Kettering.org](https://kettering.org/)
+[https://kettering.org](https://kettering.org/)
 
 2025-08-07 Pete Hegseth posted on X "All of Christ for All of Life" and included a link to Doug Wilson's interview on his Christian Nationalist crusade.
 

@@ -48,9 +48,9 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 
 [https://en.wikipedia.org/wiki/Project_2025](https://en.wikipedia.org/wiki/Project_2025)
 
-[https://Theamericanleader.org](https://theamericanleader.org/)
+[https://theamericanleader.org](https://theamericanleader.org/)
 
-[https://Kettering.org](https://kettering.org/)
+[https://kettering.org](https://kettering.org/)
 
 ### 2026
 
