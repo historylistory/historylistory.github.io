@@ -159,3 +159,16 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 [https://www.cnn.com/2026/02/09/sport/video/olympic-athletes-respond-to-trump-digvid](https://www.cnn.com/2026/02/09/sport/video/olympic-athletes-respond-to-trump-digvid)
 
 [https://www.reuters.com/sports/us-olympians-rally-around-skier-after-trump-jab-fuels-free-speech-row-2026-02-10/](https://www.reuters.com/sports/us-olympians-rally-around-skier-after-trump-jab-fuels-free-speech-row-2026-02-10/)
+
+### 2026 March
+
+2026-03-12 Trump wrote on Truth Social, “the Iran National Soccer Team is welcome to The World Cup, but I really don’t believe it is appropriate that they be there, for their own life and safety. Thank you for your attention to this matter! President DONALD J. TRUMP”.
+
+[https://www.espn.com/soccer/story/_/id/48184550/us-president-trump-iran-skip-world-cup-safety](https://www.espn.com/soccer/story/_/id/48184550/us-president-trump-iran-skip-world-cup-safety)
+
+[https://www.reuters.com/sports/soccer/trump-says-it-is-not-appropriate-iranian-soccer-team-be-world-cup-2026-03-12/](https://www.reuters.com/sports/soccer/trump-says-it-is-not-appropriate-iranian-soccer-team-be-world-cup-2026-03-12/)
+
+[https://www.instagram.com/teammellifootball/?hl=en](https://www.instagram.com/teammellifootball/?hl=en)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116216801278101254](https://truthsocial.com/@realDonaldTrump/posts/116216801278101254)
+
