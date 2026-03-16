@@ -85,3 +85,9 @@ permalink: /categories/military-veterans/war/
 [https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks#:~:text=At%20least%201%2C332%20people%20have,of%20war%20on%20February%2028](https://www.aljazeera.com/news/2026/3/7/iran-war-what-is-happening-on-day-eight-of-us-israel-attacks).
 
 {% include youtubePlayer.html id="xs0EusItBYM" %}
+
+2026-03-12 A U.S. Air Force KC-135 crashed during combat operations against Iran. Six servicemembers died.
+
+[https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/](https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/)
+
+[https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/](https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/)

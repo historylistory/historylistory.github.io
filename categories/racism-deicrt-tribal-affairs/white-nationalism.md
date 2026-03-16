@@ -106,7 +106,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.instagram.com/reel/DMf_OS5SfJF/](https://www.instagram.com/reel/DMf_OS5SfJF/)
 
-### 2052 September
+### 2025 September
 
 2025-09-11 White supremacists targeted Black college campuses after Kirk was shot, and seven schools had to go on lockdown. Alabama State University, Southern University in Louisiana, Clark Atlanta University, Spellman College in Georgia, Virginia State University, Hampton University in Virginia, and Bethune Cookman in Florida.
 

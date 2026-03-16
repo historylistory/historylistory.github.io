@@ -27,3 +27,17 @@ permalink: /categories/religion/other/
 [https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/](https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116200371638821370](https://truthsocial.com/@realDonaldTrump/posts/116200371638821370)
+
+2026-03-12 During a rally in Arkansas to integrate “Club America” in schools, Erika Kirk stated, “…just like you and other governors who have been bold enough to stand alongside us to make sure that Charlie’s dream of having a club America on every single high school campus….someone throws all of your resources on the ground, count it all joy. **You are being persecuted because you believe in Jesus Christ**. Count it all joy….Don’t let anyone disenfranchise you because you’re a young man, **especially a young white male man**. Don’t ever let anyone talk down to you. We need strong men out there. ….God has created you for a purpose and a reason far greater than you and I will ever know on this side of heaven. ***But just know that as long as you’re a part of Turning Point USA***, you have us by your side, and we will be there for you every step of the way. And just like this governor and many others that are out there, **we got your back, always”**. 
+
+[https://arkansasadvocate.com/2026/03/11/sanders-encouraging-all-arkansas-high-schools-to-start-turning-point-usa-youth-club-chapters/](https://arkansasadvocate.com/2026/03/11/sanders-encouraging-all-arkansas-high-schools-to-start-turning-point-usa-youth-club-chapters/)
+
+[https://governor.arkansas.gov/news_post/governor-sanders-awards-the-arkansas-medal-of-freedom-2/](https://governor.arkansas.gov/news_post/governor-sanders-awards-the-arkansas-medal-of-freedom-2/)
+
+[https://katv.com/news/local/young-democrats-of-arkansas-call-out-gov-sanders-erika-kirk-claim-abuse-of-power](https://katv.com/news/local/young-democrats-of-arkansas-call-out-gov-sanders-erika-kirk-claim-abuse-of-power)
+
+[https://www.kark.com/news/local-news/four-protestors-arrested-after-fight-outside-the-governors-mansion-following-announcement-from-gov-sanders-erica-kirk/](https://www.kark.com/news/local-news/four-protestors-arrested-after-fight-outside-the-governors-mansion-following-announcement-from-gov-sanders-erica-kirk/)
+
+[https://arktimes.com/arkansas-blog/2026/03/12/videos-show-turning-point-usa-supporters-shoving-hitting-protestors-after-erika-kirk-event-why-were-protestors-arrested](https://arktimes.com/arkansas-blog/2026/03/12/videos-show-turning-point-usa-supporters-shoving-hitting-protestors-after-erika-kirk-event-why-were-protestors-arrested)
+
+[https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)

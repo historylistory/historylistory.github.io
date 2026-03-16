@@ -34,7 +34,6 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
-2024 09 10 dogs and cats vance - post.png
 
 2024-09-10 Trump accused Haitian immigrants in Ohio of eating pets during the 2024 debate, and ABC news had to fact-check him.
 

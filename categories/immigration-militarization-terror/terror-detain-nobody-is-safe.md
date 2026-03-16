@@ -68,13 +68,15 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 
 [https://www.cbsnews.com/chicago/news/teacher-detained-ice-rayito-del-sol-chicago-daycare-broadview/](https://www.cbsnews.com/chicago/news/teacher-detained-ice-rayito-del-sol-chicago-daycare-broadview/)
 
-2025-11-26 The mother of Karoline Leavitt’s nephew was taken into ICE custody.
+2025-11-26 The mother of Karoline Leavitt’s nephew was taken into ICE custody and was detained for a month. She was interviewed by CNN’s Erin Burnett December 2025. 
 
 [https://www.nbcnews.com/politics/white-house/white-house-press-secretary-karoline-leavitts-relative-detained-ice-rcna246000](https://www.nbcnews.com/politics/white-house/white-house-press-secretary-karoline-leavitts-relative-detained-ice-rcna246000)
 
 [https://www.cnn.com/2025/11/26/politics/ice-karoline-leavitt-family-detained](https://www.cnn.com/2025/11/26/politics/ice-karoline-leavitt-family-detained)
 
 [https://www.cbsnews.com/boston/news/karoline-leavitt-nephew-ice-arrest-bruna-ferreira/](https://www.cbsnews.com/boston/news/karoline-leavitt-nephew-ice-arrest-bruna-ferreira/)
+
+[https://www.youtube.com/watch?v=onwJ0ZmT7qM&list=WL&index=4](https://www.youtube.com/watch?v=onwJ0ZmT7qM&list=WL&index=4)
 
 2025-11-28 A 19-year-old Austin Texas college student was returning home from college to surprise her family when she was detained by ICE and deported to Honduras despite a judge’s order to return her to the United States.
 
