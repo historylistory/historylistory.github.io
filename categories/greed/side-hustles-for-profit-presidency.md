@@ -90,7 +90,6 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114774905224497775](https://truthsocial.com/@realDonaldTrump/posts/114774905224497775)
 
-2025 06 30 trump perfume - capture.png
 
 ### 2026 March
 
