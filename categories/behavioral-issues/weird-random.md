@@ -17,3 +17,11 @@ permalink: /categories/behavioral-issues/weird-random/
 [https://www.esquire.com/style/mens-fashion/a70714040/trump-florsheim-shoes/](https://www.esquire.com/style/mens-fashion/a70714040/trump-florsheim-shoes/)
 
 [https://www.theguardian.com/us-news/2026/mar/10/trump-florsheim-shoes](https://www.theguardian.com/us-news/2026/mar/10/trump-florsheim-shoes)
+
+2026-03-12 Kash Patel announced he would have FBI agents trained by UFC fighters.
+
+[https://www.youtube.com/watch?v=xIZUORyUVdM&list=WL&index=1](https://www.youtube.com/watch?v=xIZUORyUVdM&list=WL&index=1)
+
+[https://www.cnn.com/2026/03/12/politics/fbi-agents-train-ufc-fighters-quantico](https://www.cnn.com/2026/03/12/politics/fbi-agents-train-ufc-fighters-quantico)
+
+[https://www.dailymail.co.uk/sport/mma/article-15637383/Kash-Patel-enlists-UFC-stars-train-FBI-special-agents-Dana-White-reveals-line-historic-training-seminar.html](https://www.dailymail.co.uk/sport/mma/article-15637383/Kash-Patel-enlists-UFC-stars-train-FBI-special-agents-Dana-White-reveals-line-historic-training-seminar.html)
