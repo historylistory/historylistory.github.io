@@ -620,6 +620,22 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.aljazeera.com/news/2026/3/12/up-to-3-2-million-people-displaced-across-iran-amid-us-israeli-attacks-un](https://www.aljazeera.com/news/2026/3/12/up-to-3-2-million-people-displaced-across-iran-amid-us-israeli-attacks-un)
 
+2026-03-12 A U.S. Air Force KC-135 crashed during combat operations against Iran. Six servicemembers died.
+
+[https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/](https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/)
+
+[https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/](https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/)
+
+2026-03-12 Trump wrote on Truth Social, “the Iran National Soccer Team is welcome to The World Cup, but I really don’t believe it is appropriate that they be there, for their own life and safety. Thank you for your attention to this matter! President DONALD J. TRUMP”.
+
+[https://www.espn.com/soccer/story/_/id/48184550/us-president-trump-iran-skip-world-cup-safety](https://www.espn.com/soccer/story/_/id/48184550/us-president-trump-iran-skip-world-cup-safety)
+
+[https://www.reuters.com/sports/soccer/trump-says-it-is-not-appropriate-iranian-soccer-team-be-world-cup-2026-03-12/](https://www.reuters.com/sports/soccer/trump-says-it-is-not-appropriate-iranian-soccer-team-be-world-cup-2026-03-12/)
+
+[https://www.instagram.com/teammellifootball/?hl=en](https://www.instagram.com/teammellifootball/?hl=en)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116216801278101254](https://truthsocial.com/@realDonaldTrump/posts/116216801278101254)
+
 2026-03-13 The Pentagon sent Marines to the Middle East after a week of not answering reporters if there would be boots on the ground.
 
 [https://apnews.com/article/iran-israel-us-march-13-2026-oil-prices-2a86a1f5c5997b70c6586d957074fb0c](https://apnews.com/article/iran-israel-us-march-13-2026-oil-prices-2a86a1f5c5997b70c6586d957074fb0c)
