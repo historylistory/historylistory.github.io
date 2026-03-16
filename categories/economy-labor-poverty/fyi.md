@@ -6,6 +6,8 @@ subcategory_slug: fyi
 permalink: /categories/economy-labor-poverty/fyi/
 ---
 
+### Presidents & Their Economies
+
 **Dates – President – Economy – Major Conflicts/War**
 
 1977-1981: Jimmy Carter – Inflation & Stagflation – Iran hostage crisis

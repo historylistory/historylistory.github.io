@@ -8,11 +8,22 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2017
 
-2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017, later renaming it the Trump Tax. According to AI, this legislation widened the deficit in Trump's first term.
+2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017, later renaming it the Trump Tax. According to AI, this legislation widened the deficit in Trump's first term. According to one article, the billionaire “boom” was 120%.
 
 [https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis](https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis)
 
 [https://trumpwhitehouse.archives.gov/briefings-statements/remarks-president-trump-signing-h-r-1-tax-cuts-jobs-bill-act-h-r-1370/](https://trumpwhitehouse.archives.gov/briefings-statements/remarks-president-trump-signing-h-r-1-tax-cuts-jobs-bill-act-h-r-1370/)
+
+[https://www.americanprogress.org/article/tcja-2-years-later-corporations-not-workers-big-winners/](https://www.americanprogress.org/article/tcja-2-years-later-corporations-not-workers-big-winners/)
+
+[https://www.cbpp.org/research/federal-tax/the-2017-trump-tax-law-was-skewed-to-the-rich-expensive-and-failed-to-deliver](https://www.cbpp.org/research/federal-tax/the-2017-trump-tax-law-was-skewed-to-the-rich-expensive-and-failed-to-deliver)
+
+[https://americansfortaxfairness.org/billionaires-2-2-trillion-richer-since-2017-trump-gop-tax-law/](https://americansfortaxfairness.org/billionaires-2-2-trillion-richer-since-2017-trump-gop-tax-law/)
+
+[https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf](https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf)
+
+[https://x.com/barronsonline/status/1877264406230310976](https://x.com/barronsonline/status/1877264406230310976)
+
 
 ### 2023
 

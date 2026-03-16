@@ -84,6 +84,17 @@ permalink: /categories/economy-labor-poverty/other/
 
 [https://www.commondreams.org/news/bernie-sanders-trump-economy](https://www.commondreams.org/news/bernie-sanders-trump-economy)
 
+2026-02-13 “The Epstein Class War”. Rules do not apply to the super rich. They are insulated from consequences. 
+
+[https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/](https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/)
+
+[https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite](https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite)
+
+[https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building](https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building)
+
+[https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis](https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis)
+
+
 ### 2026 March
 
 2026-03-01 An oil shortage anywhere is an oil shortage everywhere. After Trump decided to pick a war with Iran on February 28, 2026 (with no imminent or immediate threat from the country) oil prices soared due to global oil market shortages, bombings and blockades. Amid the war in Iran, the Strait of Hormuz was shut down. Trump would later announce plans to purchase oil from Russia.
