@@ -211,9 +211,27 @@ Rerouting $8B in national emergency funds into building the border wall.
 
 ### 2025 August
 
+2025-08-06 Carolina Amesty, an elected official in Florida was charged by the Justice Department for taking over $100,000 in fraudulent COVID-19 relief funds. She hired Pam Bondi’s brother Brad Bondi. In August 2025 the DOJ dropped all charges against her. 
+[https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
+
+[https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud](https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud)
+
+[https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/](https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/)
+
 2025-08-19 Trump promoted Eric Schmitt's book on Truth Social "The Last Line of Defense - How to Beat the Left in Court".
 
 [https://truthsocial.com/@realDonaldTrump/posts/115057235181892448](https://truthsocial.com/@realDonaldTrump/posts/115057235181892448)
+
+2025-08-28 Real-estate developer Sid Chakraverty was charged with illegally claiming millions of dollars in tax incentives. Pam Bondi’s brother Brad Bondi was on his defense team. In August 2025 the DOJ dismissed charges against him. 
+[https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
+
+[https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney](https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney)
+
+[https://spectrumlocalnews.com/mo/st-louis/news/2024/09/20/operators-of-lux-living--big-sur-construction-indicted](https://spectrumlocalnews.com/mo/st-louis/news/2024/09/20/operators-of-lux-living--big-sur-construction-indicted)
+
+[https://min.house.gov/sites/evo-subsites/min.house.gov/files/evo-media-document/brad-bondi-doj-intervention-letter-final-final.pdf](https://min.house.gov/sites/evo-subsites/min.house.gov/files/evo-media-document/brad-bondi-doj-intervention-letter-final-final.pdf)
+
+[https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335](https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335)
 
 2025-08-28 The Trump administration withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
@@ -278,6 +296,19 @@ Rerouting $8B in national emergency funds into building the border wall.
 [https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html](https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html)
 
 [https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use](https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use)
+
+2025-11-18 In a lawsuit between the International Association of Cruise Lines and the State of Hawaii, the cruise line was challenging a new tourism tax on ships that stop in Hawaii. They hired Brad Bondi as their lawyer. The DOJ intervened in the lawsuit on behalf of the cruise lines. 
+[https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
+
+[https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
+
+[https://www.msn.com/en-us/news/politics/pam-bondi-s-brother-under-scrutiny-as-doj-drops-charges-against-his-clients/ar-AA1Luy2a](https://www.msn.com/en-us/news/politics/pam-bondi-s-brother-under-scrutiny-as-doj-drops-charges-against-his-clients/ar-AA1Luy2a)
+
+[https://www.reuters.com/legal/government/democratic-lawmakers-seek-review-doj-cases-involving-pam-bondis-brother-2026-03-11/](https://www.reuters.com/legal/government/democratic-lawmakers-seek-review-doj-cases-involving-pam-bondis-brother-2026-03-11/)
+
+[https://abcnews.com/Politics/dems-call-probe-troubling-pattern-legal-wins-pam/story?id=130945630](https://abcnews.com/Politics/dems-call-probe-troubling-pattern-legal-wins-pam/story?id=130945630)
+
+[https://www.thedailybeast.com/attorney-general-pam-bondi-faces-fresh-nightmare-over-brother-brad-bondis-legal-wins/](https://www.thedailybeast.com/attorney-general-pam-bondi-faces-fresh-nightmare-over-brother-brad-bondis-legal-wins/)
 
 2025-11-18 The White House rolled out the red carpet for the Saudi crowned prince to discuss Trump family investments in Saudi Arabia, AI chips, nuclear energy, and the Abraham accord to name a few. For context, this leader was investigated for the brutal murder and dismembering of a Washington Post journalist.
 

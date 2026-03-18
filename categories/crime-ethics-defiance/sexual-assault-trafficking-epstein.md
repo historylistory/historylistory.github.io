@@ -312,6 +312,15 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.bbc.com/news/articles/cvgv5yre39zo](https://www.bbc.com/news/articles/cvgv5yre39zo)
 
+2026-02-13 “The Epstein Class War”. Rules do not apply to the super rich. They are insulated from consequences. 
+[https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/](https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/)
+
+[https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite](https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite)
+
+[https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building](https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building)
+
+[https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis](https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis)
+
 2026-02-15 Despite heavily redacted files and pending files to release, Pam Bondi and the DOJ announced it would not be releasing more Epstein files.
 
 [https://deadline.com/2026/02/jeffrey-epstein-files-released-pam-bondi-1236725344/](https://deadline.com/2026/02/jeffrey-epstein-files-released-pam-bondi-1236725344/)

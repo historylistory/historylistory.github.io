@@ -42,6 +42,19 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
+### 2025 March
+
+2025-03-27 Trump pardoned Trevor Milton. Trevor Milton was convicted of a massive fraud scheme. The DOJ sought over $600M in restitution. 
+[https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
+
+[https://www.fox13now.com/news/local-news/trump-explains-pardon-of-utah-billionaire-trevor-milton-who-was-convicted-of-fraud](https://www.fox13now.com/news/local-news/trump-explains-pardon-of-utah-billionaire-trevor-milton-who-was-convicted-of-fraud)
+
+[https://www.cnbc.com/2025/03/28/trump-pardons-nikola-trevor-milton-ceo-securities-fraud-electric-vehicle.html](https://www.cnbc.com/2025/03/28/trump-pardons-nikola-trevor-milton-ceo-securities-fraud-electric-vehicle.html)
+
+[https://www.cnn.com/2025/03/28/politics/trump-pardon-trevor-milton-nikola](https://www.cnn.com/2025/03/28/politics/trump-pardon-trevor-milton-nikola)
+
+[https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/](https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/)
+
 ### 2025 April
 
 2025-04-02 A federal judge dismissed criminal corruption charges against Eric Adams after the Trump DOJ ordered the charges to be dropped.
@@ -57,6 +70,27 @@ permalink: /categories/crime-ethics-defiance/pardons/
 2025-05-27 Trump pardoned Todd and Julie Chrisley who were convicted of bank fraud and tax evasion in 2022. Their daughter advocated for the pardon, saying her parents were victims of a weaponized justice system because of their conservative views.
 
 {% include youtubePlayer.html id="f-OcMreCrE0" %}
+
+### 2025 August
+
+2025-08-06 Carolina Amesty, an elected official in Florida was charged by the Justice Department for taking over $100,000 in fraudulent COVID-19 relief funds. She hired Pam Bondi’s brother Brad Bondi. In August 2025 the DOJ dropped all charges against her. 
+[https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
+
+[https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud](https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud)
+
+[https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/](https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/)
+
+2025-08-28 Real-estate developer Sid Chakraverty was charged with illegally claiming millions of dollars in tax incentives. Pam Bondi’s brother Brad Bondi was on his defense team. In August 2025 the DOJ dismissed charges against him. 
+[https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
+
+[https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney](https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney)
+
+[https://spectrumlocalnews.com/mo/st-louis/news/2024/09/20/operators-of-lux-living--big-sur-construction-indicted](https://spectrumlocalnews.com/mo/st-louis/news/2024/09/20/operators-of-lux-living--big-sur-construction-indicted)
+
+[https://min.house.gov/sites/evo-subsites/min.house.gov/files/evo-media-document/brad-bondi-doj-intervention-letter-final-final.pdf](https://min.house.gov/sites/evo-subsites/min.house.gov/files/evo-media-document/brad-bondi-doj-intervention-letter-final-final.pdf)
+
+[https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335](https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335)
+
 
 ### 2025 September
 
