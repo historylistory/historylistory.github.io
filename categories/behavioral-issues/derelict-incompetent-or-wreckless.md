@@ -367,3 +367,17 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://www.independent.co.uk/news/world/americas/us-politics/military-spending-crab-lobster-steak-hegseth-ice-cream-b2935978.html](https://www.independent.co.uk/news/world/americas/us-politics/military-spending-crab-lobster-steak-hegseth-ice-cream-b2935978.html)
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/](https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/)
+
+2026-03-13 Pete Hegseth stated that “no quarter” will be shown to Iran. He stated, quote, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona stated, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill them instead. This violates the law of armed conflict.
+
+[https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law](https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law)
+
+[https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/](https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/)
+
+[https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter](https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter)
+
+[https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/](https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/)
+
+[https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s](https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s)
+
+[https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)

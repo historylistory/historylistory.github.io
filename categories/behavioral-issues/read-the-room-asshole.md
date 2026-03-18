@@ -103,3 +103,15 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 [https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
 
 [https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)
+
+2026-03-16 The White House federal arts commission proposed ripping out the White House columns. 
+
+[https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/](https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/)
+
+[https://finance.yahoo.com/news/trump-appointee-proposes-ripping-white-020500010.html](https://finance.yahoo.com/news/trump-appointee-proposes-ripping-white-020500010.html)
+
+[https://www.syracuse.com/politics/2026/03/could-iconic-white-house-columns-be-the-next-target-of-trumps-wrecking-ball.html](https://www.syracuse.com/politics/2026/03/could-iconic-white-house-columns-be-the-next-target-of-trumps-wrecking-ball.html)
+
+[https://www.bostonglobe.com/2026/03/15/nation/appointee-wants-to-replace-white-house-columns/](https://www.bostonglobe.com/2026/03/15/nation/appointee-wants-to-replace-white-house-columns/)
+
+[https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump](https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump)

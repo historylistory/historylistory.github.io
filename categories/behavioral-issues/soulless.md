@@ -232,8 +232,52 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
+2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+
+[https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
+
+[https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/](https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/)
+
+[https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
+
+[https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)
+
+[https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier](https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier)
+
+[https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html](https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html)
+
+[https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/](https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/)
+
+[https://people.com/trump-promises-donors-access-national-security-briefings-11925725](https://people.com/trump-promises-donors-access-national-security-briefings-11925725)
+
+[https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html](https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html)
+
+[https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1](https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1)
+
+[https://www.youtube.com/watch?v=qepYRy2BTAg](https://www.youtube.com/watch?v=qepYRy2BTAg)
+
+{% include youtubePlayer.html id="qepYRy2BTAg" %}
+
 2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 
 [https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran](https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran)
+
+2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
+
+[https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
+
+[https://politicalwire.com/2026/03/15/trump-says-u-s-may-keep-bombing-just-for-fun/](https://politicalwire.com/2026/03/15/trump-says-u-s-may-keep-bombing-just-for-fun/)
+
+[https://www.msn.com/en-us/news/other/may-hit-it-just-for-fun-trump-threatens-more-strikes-on-key-iranian-island-vital-for-oil-exports/vi-AA1YFU7N?ocid=ob-fb-frfr-792](https://www.msn.com/en-us/news/other/may-hit-it-just-for-fun-trump-threatens-more-strikes-on-key-iranian-island-vital-for-oil-exports/vi-AA1YFU7N?ocid=ob-fb-frfr-792)
+
+[https://ca.news.yahoo.com/trump-says-iranian-oil-facility-043310652.html](https://ca.news.yahoo.com/trump-says-iranian-oil-facility-043310652.html)
+
+[https://www.cnbc.com/2026/03/16/trump-iran-kharg-island-strikes-oil-exports.html](https://www.cnbc.com/2026/03/16/trump-iran-kharg-island-strikes-oil-exports.html)
+
+[https://www.foxnews.com/world/next-move-iran-seize-kharg-island-secure-uranium-risk-ground-war-escalation](https://www.foxnews.com/world/next-move-iran-seize-kharg-island-secure-uranium-risk-ground-war-escalation)
+
+[https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news](https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news)
+
+[https://www.instagram.com/reel/DV_Z7BhkTnU/](https://www.instagram.com/reel/DV_Z7BhkTnU/)
