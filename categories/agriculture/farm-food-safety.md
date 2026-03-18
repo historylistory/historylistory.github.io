@@ -18,6 +18,21 @@ permalink: /categories/agriculture/farm-food-safety/
 
 [https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
 
+### 2025 August
+
+2025-08-01 A raw milk producer failed health tests that detected high levels of coliform bacteria, which can include E.coli. 
+
+[https://www.kpcw.org/summit-county/2026-01-29/ballerina-farm-pauses-raw-milk-sales-after-samples-fail-health-tests](https://www.kpcw.org/summit-county/2026-01-29/ballerina-farm-pauses-raw-milk-sales-after-samples-fail-health-tests)
+
+[https://people.com/ballerina-farm-co-owners-hannah-and-daniel-neeleman-address-raw-milk-concerns-11912172](https://people.com/ballerina-farm-co-owners-hannah-and-daniel-neeleman-address-raw-milk-concerns-11912172)
+
+[https://ballerinafarm.com/pages/raw-milk](https://ballerinafarm.com/pages/raw-milk)
+
+[https://www.youtube.com/watch?v=mdOyeNCkC0I](https://www.youtube.com/watch?v=mdOyeNCkC0I)
+
+{% include youtubePlayer.html id="mdOyeNCkC0I" %}
+
+
 ### 2025 November
 
 2025-11-24 The EPA approved two new pesticides with “forever chemicals” that would be used on food.

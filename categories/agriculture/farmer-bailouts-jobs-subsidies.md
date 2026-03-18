@@ -39,3 +39,23 @@ permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
 [https://www.reuters.com/world/us/trump-unveil-12-billion-aid-farmers-hit-by-trade-war-white-house-official-says-2025-12-08/](https://www.reuters.com/world/us/trump-unveil-12-billion-aid-farmers-hit-by-trade-war-white-house-official-says-2025-12-08/)
 
 [https://www.usda.gov/about-usda/news/press-releases/2025/12/08/trump-administration-announces-12-billion-farmer-bridge-payments-american-farmers-impacted-unfair](https://www.usda.gov/about-usda/news/press-releases/2025/12/08/trump-administration-announces-12-billion-farmer-bridge-payments-american-farmers-impacted-unfair)
+
+### 2026 March
+
+2026-03-08 No more farm subsidies?
+
+[https://www.cato.org/briefing-paper/cutting-federal-farm-subsidies](https://www.cato.org/briefing-paper/cutting-federal-farm-subsidies)
+
+[https://sustainableagriculture.net/blog/at-a-crossroads-house-farm-bill-falls-unmistakably-short/](https://sustainableagriculture.net/blog/at-a-crossroads-house-farm-bill-falls-unmistakably-short/)
+
+[https://www.foodandwaterwatch.org/2026/03/09/house-farm-bill-big-ag/](https://www.foodandwaterwatch.org/2026/03/09/house-farm-bill-big-ag/)
+
+[https://thehill.com/opinion/5152241-us-agriculture-reform-brooke-rollins/](https://thehill.com/opinion/5152241-us-agriculture-reform-brooke-rollins/)
+
+[https://www.foodandpower.net/latest/obbb-farm-subsidies-snap-jul-25](https://www.foodandpower.net/latest/obbb-farm-subsidies-snap-jul-25)
+
+[https://www.tandfonline.com/doi/full/10.1080/15693430601108086#d1e332](https://www.tandfonline.com/doi/full/10.1080/15693430601108086#d1e332)
+
+[https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture](https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture)
+
+[https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8](https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8)

@@ -298,6 +298,7 @@ Rerouting $8B in national emergency funds into building the border wall.
 [https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use](https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use)
 
 2025-11-18 In a lawsuit between the International Association of Cruise Lines and the State of Hawaii, the cruise line was challenging a new tourism tax on ships that stop in Hawaii. They hired Brad Bondi as their lawyer. The DOJ intervened in the lawsuit on behalf of the cruise lines. 
+
 [https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
 
 [https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
