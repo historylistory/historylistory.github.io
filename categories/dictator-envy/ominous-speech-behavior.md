@@ -12,21 +12,6 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 
 {% include youtubePlayer.html id="qSrOXvoNLwg" %}
 
-### 2020
-
-From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”.
-
-[https://www.npr.org/2020/03/06/812940401/trump-administration-poised-to-start-collecting-dna-from-immigration-detainees](https://www.npr.org/2020/03/06/812940401/trump-administration-poised-to-start-collecting-dna-from-immigration-detainees)
-
-[https://www.pbs.org/newshour/politics/watch-live-white-house-holds-news-briefing-as-biden-marks-anniversary-of-oct-7-attacks](https://www.pbs.org/newshour/politics/watch-live-white-house-holds-news-briefing-as-biden-marks-anniversary-of-oct-7-attacks)
-
-[https://apnews.com/article/donald-trump-immigration-2024-election-2157777f240142e5aed38be192a52b25](https://apnews.com/article/donald-trump-immigration-2024-election-2157777f240142e5aed38be192a52b25)
-
-[https://www.thehastingscenter.org/the-alarming-history-behind-trumps-bad-genes-comments](https://www.thehastingscenter.org/the-alarming-history-behind-trumps-bad-genes-comments)
-
-[https://www.youtube.com/watch?v=ferDINYHYWw&list=WL&index=12&t=116s](https://www.youtube.com/watch?v=ferDINYHYWw&list=WL&index=12&t=116s)
-
-
 ### 2023
 
 2023-11-11 During a rally in Claremont NH, Trump compared his political opponents to "vermin" and that he would plan to "root them out".

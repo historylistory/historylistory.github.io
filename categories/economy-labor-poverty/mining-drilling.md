@@ -41,3 +41,15 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 2026-03-02 South Bow planned to revive parts of the Keystone pipeline project.
 
 [https://www.reuters.com/business/energy/south-bow-plan-revive-parts-keystone-xl-needs-trump-approval-us-oil-pipeline-2026-03-02/](https://www.reuters.com/business/energy/south-bow-plan-revive-parts-keystone-xl-needs-trump-approval-us-oil-pipeline-2026-03-02/)
+
+2026-03-14 The Trump administration approved BP’s $5B deep-sea drilling project off the coast of Louisiana and the Gulf of Mexico. This is the same company involved and responsible for the 2010 Deep Water Horizon disaster. This will threaten deep sea ecosystems and marine life. 
+
+[https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast](https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast)
+
+[https://earthjustice.org/feature/kaskida-bp-oil-drilling](https://earthjustice.org/feature/kaskida-bp-oil-drilling)
+
+[https://www.sej.org/headlines/trump-administration-approves-ultra-deepwater-oil-drilling-plan](https://www.sej.org/headlines/trump-administration-approves-ultra-deepwater-oil-drilling-plan)
+
+[https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico](https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico)
+
+[https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill](https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill)
