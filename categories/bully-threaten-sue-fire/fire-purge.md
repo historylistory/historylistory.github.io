@@ -78,6 +78,19 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html](https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html)
 
+2025-06-09 RFK fired all 17 members of the CDC’s vaccine panel and backfilled the advisory committee with ant-vaxxers.
+
+[https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046](https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046)
+
+[https://www.statnews.com/2025/06/09/rfk-jr-fires-every-member-of-cdc-vaccine-expert-panel-acip/](https://www.statnews.com/2025/06/09/rfk-jr-fires-every-member-of-cdc-vaccine-expert-panel-acip/)
+
+[https://www.axios.com/2025/06/09/rfk-scraps-vaccine-advisory-committee](https://www.axios.com/2025/06/09/rfk-scraps-vaccine-advisory-committee)
+
+[https://www.npr.org/2026/03/16/nx-s1-5749530/judge-blocks-rfk-jr-vaccine-changes](https://www.npr.org/2026/03/16/nx-s1-5749530/judge-blocks-rfk-jr-vaccine-changes)
+
+[https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations](https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations)
+
+
 ### 2025 July
 
 2025-07-11 Pam Bondi fired the Justice Department’s top ethics advisor Joseph Tirrell. For context, Joseph Tirrell wanted to investigate Kash Patel for accepting luxury gift items from Connor McGregor because accepting those luxury items violated the FBI ethics codes.

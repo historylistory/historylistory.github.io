@@ -443,3 +443,59 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336](https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336)
 
 [https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting](https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting)
+
+2026-03-14 Pete Hegseth chastised the media for reporting truths about the war in Iran. He ranted about reading a headline “Mideast War Intensifies” and offered his own edit “Iran Increasingly Desperate”. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN. 
+
+[https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
+
+[https://x.com/atrupar/status/2032430133353591082](https://x.com/atrupar/status/2032430133353591082)
+
+[https://www.cnn.com/2026/03/12/politics/hormuz-trump-administration-underestimated-iran](https://www.cnn.com/2026/03/12/politics/hormuz-trump-administration-underestimated-iran)
+
+[https://www.thedailybeast.com/obsessed/stephen-colbert-torches-pete-hegseths-patriotic-press-demands/](https://www.thedailybeast.com/obsessed/stephen-colbert-torches-pete-hegseths-patriotic-press-demands/)
+
+[https://www.cnn.com/2026/03/14/us/video/the-pentagon-wants-a-patriotic-press-as-hegseth-avoids-hard-questions](https://www.cnn.com/2026/03/14/us/video/the-pentagon-wants-a-patriotic-press-as-hegseth-avoids-hard-questions)
+
+[https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
+
+[https://www.oregonlive.com/nation/2026/03/trump-administration-to-media-report-on-the-war-the-patriotic-way.html](https://www.oregonlive.com/nation/2026/03/trump-administration-to-media-report-on-the-war-the-patriotic-way.html)
+
+[https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html](https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html)
+
+2026-03-14 FCC’s Brendan Carr also threatened the media for reporting on the war in Iran. He wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
+
+[https://x.com/BrendanCarrFCC/status/2032855414233047172](https://x.com/BrendanCarrFCC/status/2032855414233047172)
+
+[https://www.npr.org/2026/03/16/nx-s1-5748570/fcc-chair-threatens-broadcasters-licenses-over-negative-coverage-of-the-war-in-iran](https://www.npr.org/2026/03/16/nx-s1-5748570/fcc-chair-threatens-broadcasters-licenses-over-negative-coverage-of-the-war-in-iran)
+
+[https://www.cato.org/blog/fcc-threats-fog-war-government-cannot-be-arbiter-truth](https://www.cato.org/blog/fcc-threats-fog-war-government-cannot-be-arbiter-truth)
+
+[https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/](https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/)
+
+[https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/](https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/)
+
+2026-03-16 Cuba faced an energy crisis and blackouts due to the U.S. blocking energy shipments. Trump said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. Trump also threatened to continue blocking energy shipments in Cuba unless Miguel Diaz Canal stepped down. 
+
+[https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447](https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447)
+
+[https://nypost.com/2026/03/16/us-news/trump-believes-hell-be-taking-cuba-in-the-future/](https://nypost.com/2026/03/16/us-news/trump-believes-hell-be-taking-cuba-in-the-future/)
+
+[https://apnews.com/video/i-do-believe-ill-have-the-honor-of-taking-cuba-trump-says-7eca50186e4b423c969a7922075d7abd](https://apnews.com/video/i-do-believe-ill-have-the-honor-of-taking-cuba-trump-says-7eca50186e4b423c969a7922075d7abd)
+
+[https://www.ndtv.com/video/i-do-believe-i-ll-have-the-honor-of-taking-cuba-donald-trump-1072855](https://www.ndtv.com/video/i-do-believe-i-ll-have-the-honor-of-taking-cuba-donald-trump-1072855)
+
+[https://www.nytimes.com/2026/03/16/world/americas/trump-cuba-president-diaz-canel.html](https://www.nytimes.com/2026/03/16/world/americas/trump-cuba-president-diaz-canel.html)
+
+[https://www.cbsnews.com/miami/video/trump-admin-demands-diaz-canel-step-down-for-cuba-talks-to-proceed/](https://www.cbsnews.com/miami/video/trump-admin-demands-diaz-canel-step-down-for-cuba-talks-to-proceed/)
+
+[https://www.youtube.com/watch?v=zNoioT7VP98&list=WL&index=11](https://www.youtube.com/watch?v=zNoioT7VP98&list=WL&index=11)
+
+[https://www.youtube.com/watch?v=gk6P-bKiGyo](https://www.youtube.com/watch?v=gk6P-bKiGyo)
+{% include youtubePlayer.html id="gk6P-bKiGyo" %}
+
+[https://www.youtube.com/watch?v=mIkrpjKnspw](https://www.youtube.com/watch?v=mIkrpjKnspw)
+{% include youtubePlayer.html id="mIkrpjKnspw" %}
+
+
+
+
