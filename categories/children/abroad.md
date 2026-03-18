@@ -79,3 +79,11 @@ permalink: /categories/children/abroad/
 [https://apnews.com/video/trump-claims-iran-also-has-access-to-tomahawk-missiles-when-asked-about-girls-school-strike-85ba5b1dbb6d4f1e96c37fa5567f1b85](https://apnews.com/video/trump-claims-iran-also-has-access-to-tomahawk-missiles-when-asked-about-girls-school-strike-85ba5b1dbb6d4f1e96c37fa5567f1b85)
 
 [https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685](https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685)
+
+2026-03-17 A US-Israeli bombing killed a 3-day-old infant, his 2-year-old sister, and their mother and grandmother. 
+
+[https://www.democracynow.org/2026/3/17/headlines/iran_says_infant_toddler_mother_and_grandmother_among_latest_victims_of_us_israeli_strikes](https://www.democracynow.org/2026/3/17/headlines/iran_says_infant_toddler_mother_and_grandmother_among_latest_victims_of_us_israeli_strikes)
+
+[https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak](https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak)
+
+[https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4](https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4)
