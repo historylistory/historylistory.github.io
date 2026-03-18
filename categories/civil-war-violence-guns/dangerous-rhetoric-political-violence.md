@@ -271,3 +271,9 @@ Violent rhetoric from posts made by Trump emboldened activists to threaten judge
 [https://www.npr.org/2026/03/12/nx-s1-5745970/suspect-in-attack-at-michigan-synagogue-is-dead-officials-say](https://www.npr.org/2026/03/12/nx-s1-5745970/suspect-in-attack-at-michigan-synagogue-is-dead-officials-say)
 
 [https://www.freep.com/story/news/local/michigan/2026/03/13/temple-israel-attack-rabbi-reactions/89127354007/](https://www.freep.com/story/news/local/michigan/2026/03/13/temple-israel-attack-rabbi-reactions/89127354007/)
+
+2026-03-12 One person was killed and two more were wounded at ROTC Old Dominion University after a gunman with a history of political violence opened fire. 
+
+[https://www.pbs.org/newshour/nation/rotc-students-at-old-dominion-university-killed-shooter-who-left-1-dead-2-wounded](https://www.pbs.org/newshour/nation/rotc-students-at-old-dominion-university-killed-shooter-who-left-1-dead-2-wounded)
+
+[https://www.cnn.com/2026/03/15/us/mohamed-bailor-jalloh-old-dominion](https://www.cnn.com/2026/03/15/us/mohamed-bailor-jalloh-old-dominion)
