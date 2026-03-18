@@ -205,3 +205,17 @@ permalink: /categories/climate-change/climate-change-denial/
 {% include youtubePlayer.html id="5Bda2NijPX8" %}
 
 [https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size](https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size)
+
+### 2026 March
+
+2026-03-07 A barrage of tornadoes hit southwest Michigan resulting in loss of life. It was the earliest recorded tornado of its size, meaning the earliest in the year. This coincides with a huge uptick in unusual weather. The impact of climate change also hits Americans wallets with rising costs in homeowners insurance and recovery. 
+
+[https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes](https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes)
+
+[https://en.wikipedia.org/wiki/Tornado_outbreak_of_March_5%E2%80%937,_2026](https://en.wikipedia.org/wiki/Tornado_outbreak_of_March_5%E2%80%937,_2026)
+
+[https://www.freep.com/story/news/local/michigan/2026/03/10/tornado-tornadoes-union-city-three-rivers-weather/89071350007/](https://www.freep.com/story/news/local/michigan/2026/03/10/tornado-tornadoes-union-city-three-rivers-weather/89071350007/)
+
+[https://www.edf.org/climate/climate-change-and-extreme-weather](https://www.edf.org/climate/climate-change-and-extreme-weather)
+
+[https://www.ncei.noaa.gov/access/billions/](https://www.ncei.noaa.gov/access/billions/)

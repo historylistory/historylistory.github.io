@@ -31,3 +31,17 @@ permalink: /categories/climate-change/drill-baby-drill/
 [https://northdakotamonitor.com/2026/02/27/judge-finalizes-order-for-greenpeace-to-pay-345-million-in-north-dakota-oil-pipeline-case/](https://northdakotamonitor.com/2026/02/27/judge-finalizes-order-for-greenpeace-to-pay-345-million-in-north-dakota-oil-pipeline-case/)
 
 [https://www.theguardian.com/us-news/2026/feb/27/north-dakota-greenpeace-access-pipeline-energy-transfer](https://www.theguardian.com/us-news/2026/feb/27/north-dakota-greenpeace-access-pipeline-energy-transfer)
+
+### 2026 March
+
+2026-03-14 The Trump administration approved BP’s $5B deep-sea drilling project off the coast of Louisiana and the Gulf of Mexico. This is the same company involved and responsible for the 2010 Deep Water Horizon disaster. This will threaten deep sea ecosystems and marine life. 
+
+[https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast](https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast)
+
+[https://earthjustice.org/feature/kaskida-bp-oil-drilling](https://earthjustice.org/feature/kaskida-bp-oil-drilling)
+
+[https://www.sej.org/headlines/trump-administration-approves-ultra-deepwater-oil-drilling-plan](https://www.sej.org/headlines/trump-administration-approves-ultra-deepwater-oil-drilling-plan)
+
+[https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico](https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico)
+
+[https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill](https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill)
