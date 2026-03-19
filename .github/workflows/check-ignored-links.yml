@@ -61,7 +61,7 @@ jobs:
 
             # Only flag real failures: 404, 410, 000 (connection failed)
             if [ "$status" = "404" ] || [ "$status" = "410" ] || [ "$status" = "000" ]; then
-              echo "* [$status] $url" >> report.md
+              echo "* \`$status\` — $url" >> report.md
               failures=$((failures + 1))
             fi
 

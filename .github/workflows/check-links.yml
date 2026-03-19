@@ -37,6 +37,8 @@ jobs:
         run: |
           # Ensure label exists
           gh label create "link-check" --color "d93f0b" --description "Automated link check results" 2>/dev/null || true
+          # Fix markdown: convert [STATUS] to `STATUS` so it doesn't render as a link
+          sed -i 's/\* \[\([^]]*\)\]/\* `\1`/g' ./lychee/out.md
           BODY=$(cat ./lychee/out.md)
           # Find existing open issue with this title
           ISSUE=$(gh issue list --state open --search "$TITLE" --json number,title \
