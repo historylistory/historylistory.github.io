@@ -25,14 +25,15 @@ jobs:
 
       - name: Find URLs on ignored domains in markdown files
         run: |
-          # Extract all URLs from markdown files that match ignored domains
-          > urls_to_check.txt
+          # Extract URLs from markdown link syntax: [text](url)
+          # Use lookbehind for ( to only get URLs inside markdown links
+          > urls_raw.txt
           while IFS= read -r domain; do
-            grep -rhoP "https://${domain}[^\s\)\"'>]*" categories/ *.md 2>/dev/null >> urls_to_check.txt || true
+            grep -rhoP "(?<=\()https://${domain}[^\)]*" categories/ *.md 2>/dev/null >> urls_raw.txt || true
           done < ignored_domains.txt
 
-          # Deduplicate
-          sort -u urls_to_check.txt -o urls_to_check.txt
+          # Clean and deduplicate
+          sort -u urls_raw.txt -o urls_to_check.txt
           echo "Found $(wc -l < urls_to_check.txt) unique URLs to check"
 
       - name: Check URLs with curl
