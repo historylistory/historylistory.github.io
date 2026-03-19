@@ -14,6 +14,32 @@ permalink: /categories/greed/tacky/
 
 ### 2026 March
 
+2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+
+[https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
+
+[https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/](https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/)
+
+[https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
+
+[https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)
+
+[https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier](https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier)
+
+[https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html](https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html)
+
+[https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/](https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/)
+
+[https://people.com/trump-promises-donors-access-national-security-briefings-11925725](https://people.com/trump-promises-donors-access-national-security-briefings-11925725)
+
+[https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html](https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html)
+
+[https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1](https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1)
+
+[https://www.youtube.com/watch?v=qepYRy2BTAg](https://www.youtube.com/watch?v=qepYRy2BTAg)
+
+{% include youtubePlayer.html id="qepYRy2BTAg" %}
+
 2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
