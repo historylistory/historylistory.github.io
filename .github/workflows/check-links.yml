@@ -35,6 +35,8 @@ jobs:
           GH_TOKEN: ${{ github.token }}
           TITLE: "Link Checker: broken links found"
         run: |
+          # Ensure label exists
+          gh label create "link-check" --color "d93f0b" --description "Automated link check results" 2>/dev/null || true
           BODY=$(cat ./lychee/out.md)
           # Find existing open issue with this title
           ISSUE=$(gh issue list --state open --search "$TITLE" --json number,title \
