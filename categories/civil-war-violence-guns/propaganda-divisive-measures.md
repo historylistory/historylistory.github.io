@@ -58,6 +58,19 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 
 ### 2024 August
 
+2024-08-03 Far-right activist Jack Posobiec’s book ‘Unhumans – The Secret History of Communist Revolutions and How to Crush Them’ refers to anyone on the left as “unhuman” and claims they “undo civilization itself”. This person also promoted the Pizzagate hoax. 
+[https://www.motherjones.com/politics/2024/07/jd-vance-unhumans-book-jack-posobiec-alt-right-january-6/](https://www.motherjones.com/politics/2024/07/jd-vance-unhumans-book-jack-posobiec-alt-right-january-6/)
+
+[https://www.splcenter.org/resources/guides/splc-investigation-far-right-oann-anchor-jack-posobiecs-rise-tied-white-supremacist-movement/](https://www.splcenter.org/resources/guides/splc-investigation-far-right-oann-anchor-jack-posobiecs-rise-tied-white-supremacist-movement/)
+
+[https://www.npr.org/2025/02/21/nx-s1-5303473/jack-posobiec-bessent-hegseth-europe-influencer](https://www.npr.org/2025/02/21/nx-s1-5303473/jack-posobiec-bessent-hegseth-europe-influencer)
+
+[https://www.nytimes.com/2024/09/26/us/politics/republican-national-committee-2024-posobiec.html](https://www.nytimes.com/2024/09/26/us/politics/republican-national-committee-2024-posobiec.html)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 2024-08-07 JD Vance spoke at the Shelby Police Department during a memorial service. There he politicized the officer’s death by blaming Kamala Harris for it.
 
 [https://bridgemi.com/michigan-government/vance-says-he-would-deport-violent-criminals-first-michigan-speech/](https://bridgemi.com/michigan-government/vance-says-he-would-deport-violent-criminals-first-michigan-speech/)

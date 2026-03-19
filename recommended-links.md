@@ -14,7 +14,10 @@ permalink: /recommended-links/
 
 ### Project 2026
 
-Pending
+[https://www.heritage.org/family/saving-america-by-saving-the-family](https://www.heritage.org/family/saving-america-by-saving-the-family)
+
+[https://www.heritage.org/sites/default/files/2026-01/SR323.pdf](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
+
 
 ### Agriculture
 

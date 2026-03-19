@@ -24,6 +24,13 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 [https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html#:~:text=16.,Belz%2C%20Editor%20of%20World%20Magazine](https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html).
 
+### 2019
+
+2019-02-28 Fox News published an article claiming that the Trump administration spearheaded an initiative to end criminalization of homosexuality worldwide. They also claimed in that article that LGBTQ+ groups called it a stunt and were skeptical. 
+[https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt](https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt)
+
+
+
 ### 2024
 
 2024-07-01 According to a BBC investigation, a social media post made false claims that a trade pact between the EU and Nigeria contained a clause forcing Nigeria to legalize same-sex relationships. A 2024 investigation by Deutsche Welle showed that American far-right Christian groups have been influencing and fueling anti-LGBTQ sentiment in Africa, including Nigeria, for decades - pushing homophobic misinformation and lobbying for anti-gay legislation. 
@@ -107,3 +114,15 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 [https://www.lgbtqnation.com/2025/12/hate-preacher-demands-christians-start-calling-gay-men-fats/](https://www.lgbtqnation.com/2025/12/hate-preacher-demands-christians-start-calling-gay-men-fats/)
 
 [https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-urges-christians-adopt-use-slur-faggot](https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-urges-christians-adopt-use-slur-faggot)
+
+### 2026 March
+
+2026-03-17 Fox News peddled a gay conspiracy about the new Iranian ayatollah
+
+[https://thehill.com/policy/international/5786266-new-iranian-leader-intelligence-reports/](https://thehill.com/policy/international/5786266-new-iranian-leader-intelligence-reports/)
+
+[https://www.instagram.com/p/DWCPHU1AiqN/?hl=af](https://www.instagram.com/p/DWCPHU1AiqN/?hl=af)
+
+[https://www.youtube.com/watch?v=VC1NnYeQda8](https://www.youtube.com/watch?v=VC1NnYeQda8)
+{% include youtubePlayer.html id="VC1NnYeQda8" %}
+

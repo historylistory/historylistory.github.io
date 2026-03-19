@@ -6,11 +6,45 @@ subcategory_slug: universal-childcare
 permalink: /categories/children/universal-childcare/
 ---
 
+### 2021
+
+2021-04-29 In a Tweet, JD Vance posted, “Universal day care is class war against normal people”. He also tweeted, “It turns out that normal Americans care more about their families than their jobs and want a family policy that doesn’t shunt their kids into crap daycare so they can enjoy more “freedom” in the paid labor force”. ***see Thought Project section on False Dilemma fallacies***
+
+[https://x.com/JDVance/status/1387763955557445640](https://x.com/JDVance/status/1387763955557445640)
+
+[https://x.com/JDVance/status/1387763862808768525](https://x.com/JDVance/status/1387763862808768525)
+
+[https://nwlc.org/nwlc-in-the-press/jd-vance-says-hes-pro-family-many-women-say-the-economy-isnt/](https://nwlc.org/nwlc-in-the-press/jd-vance-says-hes-pro-family-many-women-say-the-economy-isnt/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+### 2024
+
+2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, *”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”*.
+
+[https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/](https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/)
+
+[https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/](https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 ### 2025 January
 
 2025-01-20 Page 486 of Project 2025 aims to prevent universal childcare.
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
+
+### 2025 April
+
+2025-04-08 Legislation called “Fairness for Stay-At-Home Parents Act” was introduced. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/1348/all-info](https://www.congress.gov/bill/119th-congress/senate-bill/1348/all-info)
+
+[https://www.congress.gov/bill/118th-congress/senate-bill/3048/text](https://www.congress.gov/bill/118th-congress/senate-bill/3048/text)
 
 ### 2025 September
 
