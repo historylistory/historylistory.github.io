@@ -6,6 +6,9 @@ on:
     - cron: "0 6 * * 0"
   workflow_dispatch: # Allow manual runs
 
+permissions:
+  issues: write
+
 jobs:
   check-links:
     runs-on: ubuntu-latest
@@ -27,10 +30,19 @@ jobs:
           fail: false
 
       - name: Create or update issue with results
-        uses: peter-evans/create-issue-from-file@v5
         if: env.lychee_exit_code != 0
-        with:
-          title: "Link Checker: broken links found"
-          content-filepath: ./lychee/out.md
-          labels: link-check
-          update-existing: true
+        env:
+          GH_TOKEN: ${{ github.token }}
+          TITLE: "Link Checker: broken links found"
+        run: |
+          BODY=$(cat ./lychee/out.md)
+          # Find existing open issue with this title
+          ISSUE=$(gh issue list --state open --search "$TITLE" --json number,title \
+            --jq ".[] | select(.title == \"$TITLE\") | .number" | head -1)
+          if [ -n "$ISSUE" ]; then
+            gh issue edit "$ISSUE" --body "$BODY"
+            echo "Updated issue #$ISSUE"
+          else
+            gh issue create --title "$TITLE" --body "$BODY" --label "link-check"
+            echo "Created new issue"
+          fi

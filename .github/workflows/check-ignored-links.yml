@@ -6,6 +6,9 @@ on:
     - cron: "0 8 1-7 * 0"
   workflow_dispatch: # Allow manual runs
 
+permissions:
+  issues: write
+
 jobs:
   check-ignored-links:
     runs-on: ubuntu-latest
@@ -79,10 +82,19 @@ jobs:
           cat report.md
 
       - name: Create or update issue with results
-        uses: peter-evans/create-issue-from-file@v5
         if: env.has_failures == 'true'
-        with:
-          title: "Link Checker: broken links on ignored domains"
-          content-filepath: ./report.md
-          labels: link-check
-          update-existing: true
+        env:
+          GH_TOKEN: ${{ github.token }}
+          TITLE: "Link Checker: broken links on ignored domains"
+        run: |
+          BODY=$(cat ./report.md)
+          # Find existing open issue with this title
+          ISSUE=$(gh issue list --state open --search "$TITLE" --json number,title \
+            --jq ".[] | select(.title == \"$TITLE\") | .number" | head -1)
+          if [ -n "$ISSUE" ]; then
+            gh issue edit "$ISSUE" --body "$BODY"
+            echo "Updated issue #$ISSUE"
+          else
+            gh issue create --title "$TITLE" --body "$BODY" --label "link-check"
+            echo "Created new issue"
+          fi
