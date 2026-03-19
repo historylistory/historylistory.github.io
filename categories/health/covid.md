@@ -8,6 +8,22 @@ permalink: /categories/health/covid/
 
 ### 2020
 
+2020-03-24 During a press conference Trump falsely claimed that COVID would “disappear” by Easter. 
+
+[https://www.bbc.com/news/world-us-canada-52029546](https://www.bbc.com/news/world-us-canada-52029546)
+
+[https://www.cnn.com/interactive/2020/10/politics/covid-disappearing-trump-comment-tracker/](https://www.cnn.com/interactive/2020/10/politics/covid-disappearing-trump-comment-tracker/)
+
+[https://www.theguardian.com/us-news/2020/aug/05/donald-trump-covid-19-go-away](https://www.theguardian.com/us-news/2020/aug/05/donald-trump-covid-19-go-away)
+
+[https://www.npr.org/sections/latest-updates-trump-covid-19-results/2020/10/02/919432383/how-trump-has-downplayed-the-coronavirus-pandemic](https://www.npr.org/sections/latest-updates-trump-covid-19-results/2020/10/02/919432383/how-trump-has-downplayed-the-coronavirus-pandemic)
+
+[https://www.youtube.com/watch?v=U4Nx69IOFwY](https://www.youtube.com/watch?v=U4Nx69IOFwY)
+{% include youtubePlayer.html id="U4Nx69IOFwY" %}
+
+[https://www.youtube.com/watch?v=uXxuUJJz4VE](https://www.youtube.com/watch?v=uXxuUJJz4VE)
+{% include youtubePlayer.html id="uXxuUJJz4VE" %}
+
 2020-04-23 During a press conference, Trump mused over the idea of injecting the body with disinfectant to treat COVID. When a reporter cautioned Trump not to perpetuate misinformation, Trump angrily backfired.
 
 [https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399](https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399)

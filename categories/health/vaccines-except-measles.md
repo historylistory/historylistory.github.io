@@ -91,3 +91,16 @@ The FDA blocked review of a flu vaccine developed by Moderna.
 [https://www.cidrap.umn.edu/influenza-vaccines/fda-reverses-course-refuses-review-moderna-s-application-new-mrna-flu-vaccine](https://www.cidrap.umn.edu/influenza-vaccines/fda-reverses-course-refuses-review-moderna-s-application-new-mrna-flu-vaccine)
 
 [https://www.cnn.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine](https://www.cnn.com/2026/02/10/health/fda-moderna-mrna-flu-vaccine)
+
+### 2026 March
+
+2026-03-16 US District Judge Brian Murphy blocked RFK’s attempts to slash recommended vaccines for infants – including his attempt to eliminate childhood vaccines for hepatitis A, hepatitis B, RSV, Dengue fever, and two types of bacterial meningitis.  He wrote in his ruling, “There is a method to how these decisions historically have been made – a method scientific in  nature and codified into law through procedural requirements. Unfortunately, the Government has disregarded those methods and thereby undermined the integrity of its actions”. The judge also found that RFK violated the law when he fired all 17 board members of the CDC. 
+
+[https://www.usatoday.com/story/news/health/2026/03/16/kennedy-vaccines-lawsuit/89186841007/](https://www.usatoday.com/story/news/health/2026/03/16/kennedy-vaccines-lawsuit/89186841007/)
+
+[https://www.scientificamerican.com/article/rfk-jr-s-efforts-to-overhaul-u-s-childhood-vaccines-temporarily-blocked/](https://www.scientificamerican.com/article/rfk-jr-s-efforts-to-overhaul-u-s-childhood-vaccines-temporarily-blocked/)
+
+[https://georgiarecorder.com/2026/03/16/federal-judge-blocks-enforcement-of-kennedys-vaccine-policies/](https://georgiarecorder.com/2026/03/16/federal-judge-blocks-enforcement-of-kennedys-vaccine-policies/)
+
+[https://www.cidrap.umn.edu/childhood-vaccines/federal-judge-blocks-kennedy-s-changes-childhood-vaccine-policy](https://www.cidrap.umn.edu/childhood-vaccines/federal-judge-blocks-kennedy-s-changes-childhood-vaccine-policy)
+

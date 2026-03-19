@@ -6,6 +6,21 @@ subcategory_slug: dismantling-the-cdc
 permalink: /categories/health/dismantling-the-cdc/
 ---
 
+### 2025 June
+
+2025-06-09 RFK fired all 17 members of the CDC’s vaccine panel and backfilled the advisory committee with ant-vaxxers.
+
+[https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046](https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046)
+
+[https://www.statnews.com/2025/06/09/rfk-jr-fires-every-member-of-cdc-vaccine-expert-panel-acip/](https://www.statnews.com/2025/06/09/rfk-jr-fires-every-member-of-cdc-vaccine-expert-panel-acip/)
+
+[https://www.axios.com/2025/06/09/rfk-scraps-vaccine-advisory-committee](https://www.axios.com/2025/06/09/rfk-scraps-vaccine-advisory-committee)
+
+[https://www.npr.org/2026/03/16/nx-s1-5749530/judge-blocks-rfk-jr-vaccine-changes](https://www.npr.org/2026/03/16/nx-s1-5749530/judge-blocks-rfk-jr-vaccine-changes)
+
+[https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations](https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations)
+
+
 ### 2025 August
 
 2025-08-20 The Trump administration fired at least 600 CDC employees.
