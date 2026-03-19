@@ -78,6 +78,18 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html](https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html)
 
+2025-06-02 A news article wrote that Curtis Yarvin argued for a policy he called RAGE (Retire All Government Employees) to seize and consolidate power. JD Vance was interviewed in 2021 on Jack Murphy Live, and stated, *“There’s this guy Curtis Yarvin who’s written about some of these things…I think that what Trump should do, like, if I was giving him one piece of advice, fire every single mid-level bureaucrat, every civil servant in the administrative state, replace them with our people. And when the courts – because you will get taken to court – and when the courts stop you, stand before the country like Andrew Jackson did and say ‘The chief justice has made his ruling, now let him enforce it’”.* 
+
+[https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile](https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile)
+
+[https://www.theverge.com/2024/10/16/24266512/jd-vance-curtis-yarvin-influence-rage-project-2025](https://www.theverge.com/2024/10/16/24266512/jd-vance-curtis-yarvin-influence-rage-project-2025)
+
+[https://www.cnn.com/2025/05/30/politics/curtis-yarvin-wants-to-replace-american-democracy-with-a-form-of-monarchy-led-by-a-ceo](https://www.cnn.com/2025/05/30/politics/curtis-yarvin-wants-to-replace-american-democracy-with-a-form-of-monarchy-led-by-a-ceo)
+
+[https://newhampshirebulletin.com/2022/07/29/an-antidemocratic-philosophy-called-neoreaction-is-creeping-into-gop-politics/](https://newhampshirebulletin.com/2022/07/29/an-antidemocratic-philosophy-called-neoreaction-is-creeping-into-gop-politics/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
 2025-06-09 RFK fired all 17 members of the CDC’s vaccine panel and backfilled the advisory committee with ant-vaxxers.
 
 [https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046](https://abcnews.com/Health/rfk-jr-removing-17-members-cdcs-vaccine-advisory/story?id=122670046)
