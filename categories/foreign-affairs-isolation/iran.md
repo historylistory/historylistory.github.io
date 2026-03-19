@@ -514,6 +514,20 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.reuters.com/world/europe/trump-says-he-discussed-ukraine-iran-conflicts-with-putin-2026-03-09/](https://www.reuters.com/world/europe/trump-says-he-discussed-ukraine-iran-conflicts-with-putin-2026-03-09/)
 
+2026-03-05 The war in Iran quickly became a global one with more than 20 countries involved. 
+
+[https://www.wired.com/story/every-country-directly-impacted-by-the-war-on-iran/](https://www.wired.com/story/every-country-directly-impacted-by-the-war-on-iran/)
+
+[https://www.the-independent.com/news/world/middle-east/iran-us-israel-war-uae-qatar-dubai-b2935279.html](https://www.the-independent.com/news/world/middle-east/iran-us-israel-war-uae-qatar-dubai-b2935279.html)
+
+[https://www.aljazeera.com/news/2026/3/1/us-israel-attacks-on-iran-death-toll-and-injuries-live-tracker](https://www.aljazeera.com/news/2026/3/1/us-israel-attacks-on-iran-death-toll-and-injuries-live-tracker)
+
+[https://www.reuters.com/graphics/IRAN-CRISIS/MAPS/znpnmelervl/](https://www.reuters.com/graphics/IRAN-CRISIS/MAPS/znpnmelervl/)
+
+[https://www.chosun.com/english/world-en/2026/03/07/BU3H6DJF2JHFNJJ4A2CKCPROSE/](https://www.chosun.com/english/world-en/2026/03/07/BU3H6DJF2JHFNJJ4A2CKCPROSE/)
+
+[https://www.youtube.com/watch?v=CeqQ8DBCYmk&list=WL&index=6&t=4s](https://www.youtube.com/watch?v=CeqQ8DBCYmk&list=WL&index=6&t=4s)
+
 2026-03-06 In a social media post, Trump demanded “UNCONDITIONAL SURRENDER” from Iran.
 
 [https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks](https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks)
@@ -646,9 +660,133 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.axios.com/2026/03/13/marines-middle-east-us-deployment](https://www.axios.com/2026/03/13/marines-middle-east-us-deployment)
 
+2026-03-13 Pete Hegseth stated that “no quarter” will be shown to Iran. He stated, quote, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona stated, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill them instead. This violates the law of armed conflict.
+
+[https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law](https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law)
+
+[https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/](https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/)
+
+[https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter](https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter)
+
+[https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/](https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/)
+
+[https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s](https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s)
+
+[https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
+
+
 ### 2026 March Week #3
 
-Pending
+2026-03-14 Pete Hegseth chastised the media for reporting truths about the war in Iran. He ranted about reading a headline “Mideast War Intensifies” and offered his own edit “Iran Increasingly Desperate”. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
+
+[https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
+
+[https://x.com/atrupar/status/2032430133353591082](https://x.com/atrupar/status/2032430133353591082)
+
+[https://www.cnn.com/2026/03/12/politics/hormuz-trump-administration-underestimated-iran](https://www.cnn.com/2026/03/12/politics/hormuz-trump-administration-underestimated-iran)
+
+[https://www.thedailybeast.com/obsessed/stephen-colbert-torches-pete-hegseths-patriotic-press-demands/](https://www.thedailybeast.com/obsessed/stephen-colbert-torches-pete-hegseths-patriotic-press-demands/)
+
+[https://www.cnn.com/2026/03/14/us/video/the-pentagon-wants-a-patriotic-press-as-hegseth-avoids-hard-questions](https://www.cnn.com/2026/03/14/us/video/the-pentagon-wants-a-patriotic-press-as-hegseth-avoids-hard-questions)
+
+[https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
+
+[https://www.oregonlive.com/nation/2026/03/trump-administration-to-media-report-on-the-war-the-patriotic-way.html](https://www.oregonlive.com/nation/2026/03/trump-administration-to-media-report-on-the-war-the-patriotic-way.html)
+
+[https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html](https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html)
+
+2026-03-14 FCC’s Brendan Carr also threatened the media for reporting on the war in Iran. He wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
+
+[https://x.com/BrendanCarrFCC/status/2032855414233047172](https://x.com/BrendanCarrFCC/status/2032855414233047172)
+
+[https://www.npr.org/2026/03/16/nx-s1-5748570/fcc-chair-threatens-broadcasters-licenses-over-negative-coverage-of-the-war-in-iran](https://www.npr.org/2026/03/16/nx-s1-5748570/fcc-chair-threatens-broadcasters-licenses-over-negative-coverage-of-the-war-in-iran)
+
+[https://www.cato.org/blog/fcc-threats-fog-war-government-cannot-be-arbiter-truth](https://www.cato.org/blog/fcc-threats-fog-war-government-cannot-be-arbiter-truth)
+
+[https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/](https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/)
+
+[https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/](https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/)
+
+2026-03-14 The Ukraine sent military experts to assist the U.S. in countering Iranian drones in the Gulf. Meanwhile, sources reported that Russia and China were providing military cooperation to Iran.
+
+[https://www.aljazeera.com/news/2026/3/18/over-200-ukrainian-military-experts-in-gulf-region-to-counter-irans-drones](https://www.aljazeera.com/news/2026/3/18/over-200-ukrainian-military-experts-in-gulf-region-to-counter-irans-drones)
+
+[https://www.afpc.org/publications/articles/how-ukraine-can-help-the-iran-war-effort](https://www.afpc.org/publications/articles/how-ukraine-can-help-the-iran-war-effort)
+
+[https://www.pbs.org/newshour/show/how-ukraine-is-helping-the-u-s-defend-against-irans-drone-attacks](https://www.pbs.org/newshour/show/how-ukraine-is-helping-the-u-s-defend-against-irans-drone-attacks)
+
+[https://time.com/article/2026/03/15/iran-war-ukraine-drones/](https://time.com/article/2026/03/15/iran-war-ukraine-drones/)
+
+[https://www.latimes.com/opinion/story/2026-03-18/iran-ukraine-drones-russia-allies](https://www.latimes.com/opinion/story/2026-03-18/iran-ukraine-drones-russia-allies)
+
+[https://www.wsj.com/world/russia-is-sharing-satellite-imagery-and-drone-technology-with-iran-0dd95e49](https://www.wsj.com/world/russia-is-sharing-satellite-imagery-and-drone-technology-with-iran-0dd95e49)
+
+[https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/](https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/)
+
+[https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/](https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/)
+
+2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
+
+[https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
+
+[https://politicalwire.com/2026/03/15/trump-says-u-s-may-keep-bombing-just-for-fun/](https://politicalwire.com/2026/03/15/trump-says-u-s-may-keep-bombing-just-for-fun/)
+
+[https://www.msn.com/en-us/news/other/may-hit-it-just-for-fun-trump-threatens-more-strikes-on-key-iranian-island-vital-for-oil-exports/vi-AA1YFU7N?ocid=ob-fb-frfr-792](https://www.msn.com/en-us/news/other/may-hit-it-just-for-fun-trump-threatens-more-strikes-on-key-iranian-island-vital-for-oil-exports/vi-AA1YFU7N?ocid=ob-fb-frfr-792)
+
+[https://ca.news.yahoo.com/trump-says-iranian-oil-facility-043310652.html](https://ca.news.yahoo.com/trump-says-iranian-oil-facility-043310652.html)
+
+[https://www.cnbc.com/2026/03/16/trump-iran-kharg-island-strikes-oil-exports.html](https://www.cnbc.com/2026/03/16/trump-iran-kharg-island-strikes-oil-exports.html)
+
+[https://www.foxnews.com/world/next-move-iran-seize-kharg-island-secure-uranium-risk-ground-war-escalation](https://www.foxnews.com/world/next-move-iran-seize-kharg-island-secure-uranium-risk-ground-war-escalation)
+
+[https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news](https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news)
+
+[https://www.instagram.com/reel/DV_Z7BhkTnU/](https://www.instagram.com/reel/DV_Z7BhkTnU/)
+
+2026-03-16 Trump demanded NATO allies assist with securing the Strait of Hormuz in Iran, but NATO allies refused, saying this is not NATO’s war. Trump stated they had made a ‘foolish mistake’. 
+
+[https://www.nbcnews.com/politics/donald-trump/rebuffed-allies-trump-help-defending-strait-hormuz-rcna263917](https://www.nbcnews.com/politics/donald-trump/rebuffed-allies-trump-help-defending-strait-hormuz-rcna263917)
+
+[https://www.reuters.com/world/middle-east/nato-countries-dont-want-get-involved-iran-operation-trump-says-2026-03-17/](https://www.reuters.com/world/middle-east/nato-countries-dont-want-get-involved-iran-operation-trump-says-2026-03-17/)
+
+[https://www.euronews.com/2026/03/17/israel-says-it-has-launched-new-strikes-targeting-tehran-and-beirut-as-war-in-iran-enters-](https://www.euronews.com/2026/03/17/israel-says-it-has-launched-new-strikes-targeting-tehran-and-beirut-as-war-in-iran-enters-)
+
+[https://www.npr.org/2026/03/16/nx-s1-5749109/trump-threatens-nato-strait-hormuz-iran-war](https://www.npr.org/2026/03/16/nx-s1-5749109/trump-threatens-nato-strait-hormuz-iran-war)
+
+[https://www.cnn.com/2026/03/16/europe/us-allies-trump-help-strait-hormuz-intl](https://www.cnn.com/2026/03/16/europe/us-allies-trump-help-strait-hormuz-intl)
+
+[https://www.bbc.com/news/articles/c0434932w44o](https://www.bbc.com/news/articles/c0434932w44o)
+
+[https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9](https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9)
+
+2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. 
+
+[https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
+
+[https://apnews.com/article/trump-iran-war-kent-resignation-e2e17a76d79617a68370f076c0291208](https://apnews.com/article/trump-iran-war-kent-resignation-e2e17a76d79617a68370f076c0291208)
+
+[https://www.bbc.com/news/articles/cg4g66r3z40o](https://www.bbc.com/news/articles/cg4g66r3z40o)
+
+[https://thehill.com/homenews/administration/5789309-john-brennan-joe-kent-resignation-signals-maga-fracture/](https://thehill.com/homenews/administration/5789309-john-brennan-joe-kent-resignation-signals-maga-fracture/)
+
+[https://en.wikipedia.org/wiki/Joe_Kent](https://en.wikipedia.org/wiki/Joe_Kent)
+
+[https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2](https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s](https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s)
+ 
+2026-03-17 Israel reported they killed Ali Larajani. Larajani was one of the powerful figures in Iran who helped direct nuclear negotiations with the U.S. This came days after he participated in a march in Tehran in protest of the war. Israel also reported assassination of Gholamreza Soleimani, Iran’s Basij force commander. 
+
+[https://www.aljazeera.com/news/2026/3/17/israel-says-it-has-killed-ali-larijani-irans-top-security-official](https://www.aljazeera.com/news/2026/3/17/israel-says-it-has-killed-ali-larijani-irans-top-security-official)
+
+[https://www.bbc.com/news/articles/c24deezq6meo](https://www.bbc.com/news/articles/c24deezq6meo)
+
+2026-03-17 A US-Israeli bombing killed a 3-day-old infant, his 2-year-old sister, and their mother and grandmother. 
+
+[https://www.democracynow.org/2026/3/17/headlines/iran_says_infant_toddler_mother_and_grandmother_among_latest_victims_of_us_israeli_strikes](https://www.democracynow.org/2026/3/17/headlines/iran_says_infant_toddler_mother_and_grandmother_among_latest_victims_of_us_israeli_strikes)
+
+[https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak](https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak)
+
 
 ### 2026 March Week #4
 

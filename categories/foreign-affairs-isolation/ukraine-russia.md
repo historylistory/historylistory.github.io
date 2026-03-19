@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Ukraine
+title: Ukraine - Russia
 category_slug: foreign-affairs-isolation
-subcategory_slug: ukraine
-permalink: /categories/foreign-affairs-isolation/ukraine/
+subcategory_slug: ukraine-russia
+permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 ---
 
 ### 2023
@@ -149,3 +149,21 @@ permalink: /categories/foreign-affairs-isolation/ukraine/
 [https://www.timesofisrael.com/us-asks-ukraine-for-assistance-in-shooting-down-iranian-shahed-drones-in-middle-east/](https://www.timesofisrael.com/us-asks-ukraine-for-assistance-in-shooting-down-iranian-shahed-drones-in-middle-east/)
 
 [https://www.reuters.com/world/europe/trump-says-he-discussed-ukraine-iran-conflicts-with-putin-2026-03-09/](https://www.reuters.com/world/europe/trump-says-he-discussed-ukraine-iran-conflicts-with-putin-2026-03-09/)
+
+2026-03-14 The Ukraine sent military experts to assist the U.S. in countering Iranian drones in the Gulf. Meanwhile, sources reported that Russia and China were providing military cooperation to Iran.
+
+[https://www.aljazeera.com/news/2026/3/18/over-200-ukrainian-military-experts-in-gulf-region-to-counter-irans-drones](https://www.aljazeera.com/news/2026/3/18/over-200-ukrainian-military-experts-in-gulf-region-to-counter-irans-drones)
+
+[https://www.afpc.org/publications/articles/how-ukraine-can-help-the-iran-war-effort](https://www.afpc.org/publications/articles/how-ukraine-can-help-the-iran-war-effort)
+
+[https://www.pbs.org/newshour/show/how-ukraine-is-helping-the-u-s-defend-against-irans-drone-attacks](https://www.pbs.org/newshour/show/how-ukraine-is-helping-the-u-s-defend-against-irans-drone-attacks)
+
+[https://time.com/article/2026/03/15/iran-war-ukraine-drones/](https://time.com/article/2026/03/15/iran-war-ukraine-drones/)
+
+[https://www.latimes.com/opinion/story/2026-03-18/iran-ukraine-drones-russia-allies](https://www.latimes.com/opinion/story/2026-03-18/iran-ukraine-drones-russia-allies)
+
+[https://www.wsj.com/world/russia-is-sharing-satellite-imagery-and-drone-technology-with-iran-0dd95e49](https://www.wsj.com/world/russia-is-sharing-satellite-imagery-and-drone-technology-with-iran-0dd95e49)
+
+[https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/](https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/)
+
+[https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/](https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/)

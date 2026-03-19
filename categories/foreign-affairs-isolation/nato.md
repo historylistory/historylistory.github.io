@@ -35,3 +35,22 @@ permalink: /categories/foreign-affairs-isolation/nato/
 [https://www.politico.com/news/2024/01/20/trump-nato-eu-00136732](https://www.politico.com/news/2024/01/20/trump-nato-eu-00136732)
 
 [https://www.politico.eu/article/donald-trump-vow-never-help-europe-attack-thierry-breton/](https://www.politico.eu/article/donald-trump-vow-never-help-europe-attack-thierry-breton/)
+
+### 2026 March
+
+2026-03-16 Trump demanded NATO allies assist with securing the Strait of Hormuz in Iran, but NATO allies refused, saying this is not NATO’s war. Trump stated they had made a ‘foolish mistake’. 
+
+[https://www.nbcnews.com/politics/donald-trump/rebuffed-allies-trump-help-defending-strait-hormuz-rcna263917](https://www.nbcnews.com/politics/donald-trump/rebuffed-allies-trump-help-defending-strait-hormuz-rcna263917)
+
+[https://www.reuters.com/world/middle-east/nato-countries-dont-want-get-involved-iran-operation-trump-says-2026-03-17/](https://www.reuters.com/world/middle-east/nato-countries-dont-want-get-involved-iran-operation-trump-says-2026-03-17/)
+
+[https://www.euronews.com/2026/03/17/israel-says-it-has-launched-new-strikes-targeting-tehran-and-beirut-as-war-in-iran-enters-](https://www.euronews.com/2026/03/17/israel-says-it-has-launched-new-strikes-targeting-tehran-and-beirut-as-war-in-iran-enters-)
+
+[https://www.npr.org/2026/03/16/nx-s1-5749109/trump-threatens-nato-strait-hormuz-iran-war](https://www.npr.org/2026/03/16/nx-s1-5749109/trump-threatens-nato-strait-hormuz-iran-war)
+
+[https://www.cnn.com/2026/03/16/europe/us-allies-trump-help-strait-hormuz-intl](https://www.cnn.com/2026/03/16/europe/us-allies-trump-help-strait-hormuz-intl)
+
+[https://www.bbc.com/news/articles/c0434932w44o](https://www.bbc.com/news/articles/c0434932w44o)
+
+[https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9](https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9)
+
