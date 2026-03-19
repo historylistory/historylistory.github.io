@@ -26,6 +26,14 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit](https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit)
 
+### 2022
+
+2022-08-19 **Amber Nicole Thurman died at the age of 28.** She passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment **because her State had made performing the procedure a felony.** Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. **During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”***
+
+[https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death](https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death)
+
+[https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s](https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s)
+
 ### 2024 June
 
 2024-06-22 During a Faith & Freedom conference in Washington D.C., Trump floated the idea of a "**migrant UFC**" fight.

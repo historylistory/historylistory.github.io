@@ -46,6 +46,17 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751](https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751)
 
+### 2020
+
+2020-11-24 During an interview on The Chris Buskirk Show, JD Vance said, *”…There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people – especially in America’s leadership class – just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable…”*.
+
+[https://www.iheart.com/podcast/966-the-chris-buskirk-show-45914131/](https://www.iheart.com/podcast/966-the-chris-buskirk-show-45914131/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+
 ### 2021
 
 2021-07-24 During "The Future of American Political Economy" conference in Alexandria Virginia, JD Vance asserted that **non-parents should not vote**. 
@@ -59,6 +70,21 @@ Adoption is a multi-billion-dollar for-profit industry.
 [https://www.foxnews.com/video/6265796735001](https://www.foxnews.com/video/6265796735001)
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
+
+2021-09-22 During a radio interview on Dear Ohio while running for Senate, JD Vance was asked by host Curtis Jackson, *”Should a woman be forced to carry a child to term after she has been the victim of incest or rape?”* 
+
+JD Vance responded, *”Look, my view on this has been very clear, and I think the question betrays a certain presumption that’s wrong. It’s not whether a woman should be forced to bring a child to term, it’s whether a child should be allowed to live, even though the circumstances of that child’s birth are somehow inconvenient or a problem to the society. The question to me is really about the baby. We want women to have opportunities. We want women to have choices, but above all, we want women – and young boys in the womb – to have the right to life”*.
+
+[https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/](https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/)
+
+[https://thehill.com/homenews/campaign/573737-jd-vance-defends-texas-abortion-law/](https://thehill.com/homenews/campaign/573737-jd-vance-defends-texas-abortion-law/)
+
+[https://www.democracynow.org/2024/7/16/vance_abortion](https://www.democracynow.org/2024/7/16/vance_abortion)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 
 ### 2022
 
@@ -75,6 +101,13 @@ Adoption is a multi-billion-dollar for-profit industry.
 [https://nwlc.org/resource/birth-control-under-threat-how-birth-control-rights-and-access-are-being-undermined-since-roe-v-wade-was-overturned/](https://nwlc.org/resource/birth-control-under-threat-how-birth-control-rights-and-access-are-being-undermined-since-roe-v-wade-was-overturned/)
 
 [https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn](https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn)
+
+2022-08-19 **Amber Nicole Thurman died at the age of 28.** She passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment **because her State had made performing the procedure a felony.** Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. **During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”***
+
+[https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death](https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death)
+
+[https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s](https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s)
+
 
 ### 2024 February
 
@@ -111,6 +144,15 @@ Adoption is a multi-billion-dollar for-profit industry.
 2024-07-26 Recall the childless cat-lady remarks from JD Vance in 2021? During an interview with Fox’s Megyn Kelly, JD Vance doubled down on those remarks, saying, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
+
+2024-07-26 A news article quoted JD Vance as saying, *”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”*.
+
+[https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 
 ### 2024 September
 

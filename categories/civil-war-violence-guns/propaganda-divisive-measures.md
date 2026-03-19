@@ -56,6 +56,16 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 
 [https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926](https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926)
 
+### July
+
+2024-07-26 A news article quoted JD Vance as saying, *”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”*.
+
+[https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 ### 2024 August
 
 2024-08-03 Far-right activist Jack Posobiec’s book ‘Unhumans – The Secret History of Communist Revolutions and How to Crush Them’ refers to anyone on the left as “unhuman” and claims they “undo civilization itself”. This person also promoted the Pizzagate hoax. 
