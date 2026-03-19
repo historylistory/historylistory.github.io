@@ -264,6 +264,14 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran](https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran)
 
+2026-03-09 On the Washington Watch with Tony Perkins, Texas District 27 Congressman Michael Cloud said, *“I’ve been in a number of these hearings, and you often see Matthew 25 thrown about – never in context. Uh, sometimes it seems to be the only – I would say – scripture, but it’s not even a full scripture that, the only half scripture that the left would seem to know. Uh, and they use it to justify all kinds of spending…uh, in Corinthians – it talks about that charity is something that’s given of a free will and not by compulsion. Uh, and taxes certainly by compulsion. And so, you know, we believe in, ah, generosity. Certainly we should be giving, taking care of our neighbor. Uh, that should be extension of how – who – we are, but we’re almost $40TR in debt. Uh, and so, we’ve got to prioritize. And the federal government has a specific constitutional – uh – duty and priority. Uh, and, and, scripture talks about the role of what a federal government is supposed to be doing or a government’s supposed to be doing. It’s a different role than the family. It’s a different role than the church, uh…and, and the community. And so, you know, it’s important that we kind of put all these things in context as we begin to weigh scripture, especially in the context of government policy…”*.
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=iMI-jsOUDQk](https://www.youtube.com/watch?v=iMI-jsOUDQk)
+
+{% include youtubePlayer.html id="iMI-jsOUDQk" %}
+
 2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
 
 [https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
@@ -281,3 +289,17 @@ permalink: /categories/behavioral-issues/soulless/
 [https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news](https://www.pbs.org/newshour/politics/trump-threatens-to-knock-the-hell-out-of-kharg-island-in-impromptu-phone-call-with-pbs-news)
 
 [https://www.instagram.com/reel/DV_Z7BhkTnU/](https://www.instagram.com/reel/DV_Z7BhkTnU/)
+
+2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
+
+The interviewer interjected, *”We want him crucified…with Christ..”* 
+
+Potteiger continued, *”That’s exactly right!”*
+
+The interviewer, *”I want him to be I think Saul of Tarsus, Talarico of Tarsus. That’s what I want. Who would say I was holding the garments while they stoned Steven, and now I’m the – yeah – that’s, that’s what we want”*.
+
+Potteiger continued, *”…Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”*
+
+[https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/](https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/)
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)

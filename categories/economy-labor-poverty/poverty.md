@@ -283,6 +283,14 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 ### 2026 March
 
+2026-03-09 On the Washington Watch with Tony Perkins, Texas District 27 Congressman Michael Cloud said, *“I’ve been in a number of these hearings, and you often see Matthew 25 thrown about – never in context. Uh, sometimes it seems to be the only – I would say – scripture, but it’s not even a full scripture that, the only half scripture that the left would seem to know. Uh, and they use it to justify all kinds of spending…uh, in Corinthians – it talks about that charity is something that’s given of a free will and not by compulsion. Uh, and taxes certainly by compulsion. And so, you know, we believe in, ah, generosity. Certainly we should be giving, taking care of our neighbor. Uh, that should be extension of how – who – we are, but we’re almost $40TR in debt. Uh, and so, we’ve got to prioritize. And the federal government has a specific constitutional – uh – duty and priority. Uh, and, and, scripture talks about the role of what a federal government is supposed to be doing or a government’s supposed to be doing. It’s a different role than the family. It’s a different role than the church, uh…and, and the community. And so, you know, it’s important that we kind of put all these things in context as we begin to weigh scripture, especially in the context of government policy…”*.
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=iMI-jsOUDQk](https://www.youtube.com/watch?v=iMI-jsOUDQk)
+
+{% include youtubePlayer.html id="iMI-jsOUDQk" %}
+
 2026-03-10 Sources uncovered that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
 
 [https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab](https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab)

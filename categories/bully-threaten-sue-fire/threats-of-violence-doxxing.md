@@ -172,3 +172,16 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116216801278101254](https://truthsocial.com/@realDonaldTrump/posts/116216801278101254)
 
+2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
+
+The interviewer interjected, *”We want him crucified…with Christ..”* 
+
+Potteiger continued, *”That’s exactly right!”*
+
+The interviewer, *”I want him to be I think Saul of Tarsus, Talarico of Tarsus. That’s what I want. Who would say I was holding the garments while they stoned Steven, and now I’m the – yeah – that’s, that’s what we want”*.
+
+Potteiger continued, *”…Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”*
+
+[https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/](https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/)
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)

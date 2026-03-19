@@ -18,6 +18,24 @@ permalink: /categories/religion/politics/
 
 [https://en.wikipedia.org/wiki/Moral_Majority#:~:text=Falwell%20offered%20an%20optimistic%20public,now%20in%20for%20the%20duration.%22](https://en.wikipedia.org/wiki/Moral_Majority)
 
+### 2005
+
+2005-01-30 Evangelical Christian Nationalist and political activist David Barton was named by Time Magazine in 2005 as one of the nations “25 Most Influential Evangelicals”. He believes the separation of church and state is a myth, is a founder of WallBuilders, and is an author. 
+
+[https://content.time.com/time/press_releases/article/0,8599,1022576,00.html](https://content.time.com/time/press_releases/article/0,8599,1022576,00.html)
+
+[https://www.splcenter.org/resources/extremist-files/david-barton/](https://www.splcenter.org/resources/extremist-files/david-barton/)
+
+[https://en.wikipedia.org/wiki/David_Barton_(author)](https://en.wikipedia.org/wiki/David_Barton_(author))
+
+[https://en.wikipedia.org/wiki/WorldNetDaily](https://en.wikipedia.org/wiki/WorldNetDaily)
+
+[https://tfn.org/david-barton-watch/profile-of-david-barton/](https://tfn.org/david-barton-watch/profile-of-david-barton/)
+
+[https://sboe.texas.gov/state-board-of-education/sboe-meetings/david-barton](https://sboe.texas.gov/state-board-of-education/sboe-meetings/david-barton)
+
+
+
 ### 2016
 
 2016-11-08 Michele Bachmann and David Barton hosted "Election Coverage in the Spirit of Faith", which was organized by Kenneth Copeland ministries.
@@ -98,3 +116,32 @@ permalink: /categories/religion/politics/
 [https://thehill.com/policy/defense/5776683-erika-kirk-air-force-academy-board/](https://thehill.com/policy/defense/5776683-erika-kirk-air-force-academy-board/)
 
 [https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html](https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html)
+
+2026-03-17 During a sermon Trump’s former Department of State Director and Deputy Assistant Secretary of Defense William Wolfe stated, *”…we should not blink. We should not hesitate to tell people. Not because we are so wise. Not because we made the rules of the world – we didn’t. We humbly submit to how God made the rules of the world and we say, ‘this is how we should order our lives together’. And frankly, yes, we are going to impose it upon you. If you don’t like it, I’m sorry, but this is good and right and just if it lines up with God’s standards, and I am going to enforce my morality on you in as much as our morality is God’s morality, and you should always check yourselves. I’m – you know, again – I’m not trying to puff you up. Check yourself. Do I believe what God believes? Am I defending what God says is good? And if it is, you should have the courage to say ‘This is how we’re going to run our town. This is how we’re going to run our county. This is how we’re going to run our State. And this is how we should run the United States of America by legislating the morality that we can find in the Bible’.”*
+
+[https://www.peoplefor.org/rightwingwatch/william-wolfe-admits-christian-nationalists-are-going-impose-our-morality-upon-you](https://www.peoplefor.org/rightwingwatch/william-wolfe-admits-christian-nationalists-are-going-impose-our-morality-upon-you)
+
+[https://www.sermonaudio.com/sermons/3162613941873](https://www.sermonaudio.com/sermons/3162613941873)
+
+[https://www.bethelpetersburg.org/](https://www.bethelpetersburg.org/)
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=axFgvn5bYsA](https://www.youtube.com/watch?v=axFgvn5bYsA)
+
+{% include youtubePlayer.html id="axFgvn5bYsA" %}
+
+2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
+
+The interviewer interjected, *”We want him crucified…with Christ..”* 
+
+Potteiger continued, *”That’s exactly right!”*
+
+The interviewer, *”I want him to be I think Saul of Tarsus, Talarico of Tarsus. That’s what I want. Who would say I was holding the garments while they stoned Steven, and now I’m the – yeah – that’s, that’s what we want”*.
+
+Potteiger continued, *”…Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”*
+
+[https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/](https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/)
+
+[https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
+
