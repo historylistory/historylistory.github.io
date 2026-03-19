@@ -6,6 +6,12 @@ subcategory_slug: labor
 permalink: /categories/economy-labor-poverty/labor/
 ---
 
+### 2024
+
+2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, *“…There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”*
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
 ### 2025 January
 
 2025-01-20 DOGE began making indiscriminate cuts to federal workers for the next 18 months, totaling roughly 271,000 positions up until DOGE was dismantled.

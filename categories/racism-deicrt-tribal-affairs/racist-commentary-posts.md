@@ -190,6 +190,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2025 June
 
+2025-06-02 A news article quoted Curtis Yarvin as saying we should *“put the church Blacks in charge of the ghetto Blacks”.* 
+
+[https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile](https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 2025-06-25 After Mamdani's win for Democratic primary in New York, Marjorie Taylor Greene posted a picture of the Statue of Liberty covered in a burqa with the caption "This Hits Hard".
 
 [https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/](https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/)
@@ -269,6 +277,25 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 [https://www.msn.com/en-in/news/India/vivek-ramaswamys-photo-with-kids-faces-racist-slur-again-why-dont-americans-deport-this-indian/ar-AA1Gg5eP?apiversion=v2&noservercache=1&domshim=1&renderwebcomponents=1&wcseo=1&batchservertelemetry=1&noservertelemetry=1](https://www.msn.com/en-in/news/India/vivek-ramaswamys-photo-with-kids-faces-racist-slur-again-why-dont-americans-deport-this-indian/ar-AA1Gg5eP?apiversion=v2&noservercache=1&domshim=1&renderwebcomponents=1&wcseo=1&batchservertelemetry=1&noservertelemetry=1)
 
 [https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms](https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms)
+
+2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, *”…it is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say ‘I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers’.* 
+
+[https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
+
+[https://ca.news.yahoo.com/vance-seems-think-segregation-acceptable-193006549.html](https://ca.news.yahoo.com/vance-seems-think-segregation-acceptable-193006549.html)
+
+[https://www.usatoday.com/story/opinion/columnist/2025/10/29/jd-vance-immigrants-neighbors-language-racist/86966480007/](https://www.usatoday.com/story/opinion/columnist/2025/10/29/jd-vance-immigrants-neighbors-language-racist/86966480007/)
+
+[https://www.snopes.com/fact-check/jd-vance-neighbors-same-language/](https://www.snopes.com/fact-check/jd-vance-neighbors-same-language/)
+
+[https://www.youtube.com/watch?v=naCsB7WxMBA](https://www.youtube.com/watch?v=naCsB7WxMBA)
+
+{% include youtubePlayer.html id="naCsB7WxMBA" %}
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
+
 
 ### 2025 November
 

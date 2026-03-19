@@ -52,11 +52,36 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 [https://www.bbc.com/news/election-us-2016-37241284](https://www.bbc.com/news/election-us-2016-37241284)
 
+### 2021
+
+2021-07-26 A news article quoted JD Vance as saying, *”…you can’t have so many people coming to the country at a time when our own families aren’t replicating themselves…”*. 
+
+[https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/](https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/)
+
+[https://baptistnews.com/article/jd-vance-has-an-odd-way-with-words/](https://baptistnews.com/article/jd-vance-has-an-odd-way-with-words/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
+
 ### 2022
 
 2022-03-17 Then Ohio Senate candidate JD Vance stated on Fox News with Tucker Carlson, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. **We have an invasion in this country**.”
 
 [https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/](https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/)
+
+2022-04-05 In a JD Vance campaign commercial as an ‘America First Conservative’, he said, *“Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.”* [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
+
+[https://www.wyso.org/local-and-statewide-news/2022-04-15/j-d-vance-asks-voters-are-you-a-racist-do-you-hate-mexicans](https://www.wyso.org/local-and-statewide-news/2022-04-15/j-d-vance-asks-voters-are-you-a-racist-do-you-hate-mexicans)
+
+[https://www.youtube.com/watch?v=K3qYJoSV0lI](https://www.youtube.com/watch?v=K3qYJoSV0lI)
+
+{% include youtubePlayer.html id="K3qYJoSV0lI" %}
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
+
 
 ### 2024
 

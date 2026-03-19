@@ -14,6 +14,25 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
 
+### 2024
+
+2024-07-10 During a National Conservatism convention, JD Vance stated, *“…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”*
+
+[https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve)
+
+[https://www.ndtv.com/world-news/trying-to-remove-as-many-as-we-can-jd-vance-on-illegal-migrants-9552700](https://www.ndtv.com/world-news/trying-to-remove-as-many-as-we-can-jd-vance-on-illegal-migrants-9552700)
+
+[https://www.politifact.com/factchecks/2025/nov/20/jd-vance/housing-affordability-supply-illegal-immigrants/](https://www.politifact.com/factchecks/2025/nov/20/jd-vance/housing-affordability-supply-illegal-immigrants/)
+
+[https://www.politico.com/newsletters/politico-nightly/2025/12/18/jd-vances-immigration-two-step-nightly-00698939](https://www.politico.com/newsletters/politico-nightly/2025/12/18/jd-vances-immigration-two-step-nightly-00698939)
+
+[https://nationalconservatism.org/natcon-4-2024/presenters/sen-jd-vance/](https://nationalconservatism.org/natcon-4-2024/presenters/sen-jd-vance/)
+
+[https://www.youtube.com/watch?v=yXH1p8_jhc8](https://www.youtube.com/watch?v=yXH1p8_jhc8)
+
+{% include youtubePlayer.html id="yXH1p8_jhc8" %}
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
 ### 2025 May
 
 2025-05-06 During an interview with Meet the Press, Trump told the interviewer that girls don't need to have 30 dolls, they can have two or three. Most children don’t have any dolls and can’t afford to take one more for the team.

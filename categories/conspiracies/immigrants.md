@@ -26,6 +26,14 @@ permalink: /categories/conspiracies/immigrants/
 
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
+2024-09-11 JD Vance doubled down on his perpetuating the nonsense that migrants were eating pets in Ohio. During a sit-down interview with Kaitlan Collins on CNN, he stated *“When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”.* **[see Thought Project section in the main menu under ‘Fallacies’]** 
+
+[https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid](https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 2024-09-12 Days after Trump and JD Vance provoked fear about pets being eaten, Springfield experienced several days of bomb threats made to multiple county, school, and hospital facilities. Haitian
 
 [https://www.wcpo.com/news/state/state-ohio/4-days-of-threats-in-springfield-what-happened-after-viral-post-claimed-haitian-immigrants-were-eating-pets](https://www.wcpo.com/news/state/state-ohio/4-days-of-threats-in-springfield-what-happened-after-viral-post-claimed-haitian-immigrants-were-eating-pets)

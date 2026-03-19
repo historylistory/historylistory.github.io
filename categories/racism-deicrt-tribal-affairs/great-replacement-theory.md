@@ -34,6 +34,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/why-ron-johnson-s-ugly-rhetoric-about-us-demographics-matters-n1264318](https://www.msnbc.com/rachel-maddow-show/maddowblog/why-ron-johnson-s-ugly-rhetoric-about-us-demographics-matters-n1264318)
 
+2021-07-26 A news article quoted JD Vance as saying, *”…you can’t have so many people coming to the country at a time when our own families aren’t replicating themselves…”*. 
+
+[https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/](https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/)
+
+[https://baptistnews.com/article/jd-vance-has-an-odd-way-with-words/](https://baptistnews.com/article/jd-vance-has-an-odd-way-with-words/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
+
+
 ### 2022
 
 2022-03-17 Then Ohio Senate candidate JD Vance stated on Fox News with Tucker Carlson, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. **We have an invasion in this country**.”
@@ -71,6 +82,26 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 2025-09-11 After the Charlie Kirk murder, news outlets begin to uncover some of his racist comments such as “**prowling Blacks**” and “**the great replacement strategy**”.
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+### 2025 October
+
+2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, *”…it is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say ‘I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers’.* 
+
+[https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
+
+[https://ca.news.yahoo.com/vance-seems-think-segregation-acceptable-193006549.html](https://ca.news.yahoo.com/vance-seems-think-segregation-acceptable-193006549.html)
+
+[https://www.usatoday.com/story/opinion/columnist/2025/10/29/jd-vance-immigrants-neighbors-language-racist/86966480007/](https://www.usatoday.com/story/opinion/columnist/2025/10/29/jd-vance-immigrants-neighbors-language-racist/86966480007/)
+
+[https://www.snopes.com/fact-check/jd-vance-neighbors-same-language/](https://www.snopes.com/fact-check/jd-vance-neighbors-same-language/)
+
+[https://www.youtube.com/watch?v=naCsB7WxMBA](https://www.youtube.com/watch?v=naCsB7WxMBA)
+
+{% include youtubePlayer.html id="naCsB7WxMBA" %}
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
 
 ### 2025 December
 

@@ -30,6 +30,10 @@ permalink: /categories/voting-census/other/
 
 [https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 
+2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, *“…There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”*
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
 2024-10-19 Musk hired people to canvas. Canvassers reported they had not been paid and were tricked into coming to Michigan by Blitz Canvassing. They also reported having to ride in the back of moving trucks.
 
 [https://www.wired.com/story/elon-musk-america-pac-blitz-canvassing-michigan-uhaul/](https://www.wired.com/story/elon-musk-america-pac-blitz-canvassing-michigan-uhaul/)
