@@ -32,6 +32,7 @@
                 <li><a href="{{ '/purpose/' | relative_url }}"{% if page.url == '/purpose/' %} class="active"{% endif %}>Purpose</a></li>
                 <li><a href="{{ '/disclaimer/' | relative_url }}"{% if page.url == '/disclaimer/' %} class="active"{% endif %}>Disclaimer</a></li>
                 <li><a href="{{ '/recommended-links/' | relative_url }}"{% if page.url == '/recommended-links/' %} class="active"{% endif %}>Recommended Links</a></li>
+                <li><a href="{{ '/thought-projects/' | relative_url }}"{% if page.url == '/thought-projects/' %} class="active"{% endif %}>Thought Projects</a></li>
               </ul>
               <h3>Categories</h3>
               {% assign cat_pages = site.pages | where: "layout", "category" | sort: "title" %}
