@@ -775,7 +775,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9](https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9)
 
-2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. 
+2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. Trump said, *”I always thought he was a nice guy but I always thought he was weak on security”*.  Two days later the FBI conducted an investigation into Joe Kent for alleged leaks.
 
 [https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
 
@@ -790,6 +790,14 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 [https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2](https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2)
 
 [https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s](https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s)
+
+[https://www.axios.com/2026/03/19/joe-kent-fbi-leak-investigation](https://www.axios.com/2026/03/19/joe-kent-fbi-leak-investigation)
+
+[https://www.foxnews.com/us/former-counterterrorism-chief-joe-kent-under-fbi-investigation-more-top-headlines](https://www.foxnews.com/us/former-counterterrorism-chief-joe-kent-under-fbi-investigation-more-top-headlines)
+
+[https://www.youtube.com/shorts/AXwyCbAm6t4](https://www.youtube.com/shorts/AXwyCbAm6t4)
+
+{% include youtubePlayer.html id="AXwyCbAm6t4" %}
  
 2026-03-17 Israel reported they killed Ali Larajani. Larajani was one of the powerful figures in Iran who helped direct nuclear negotiations with the U.S. This came days after he participated in a march in Tehran in protest of the war. Israel also reported assassination of Gholamreza Soleimani, Iran’s Basij force commander. 
 
@@ -832,6 +840,16 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.youtube.com/watch?v=Y903e165SDU](https://www.youtube.com/watch?v=Y903e165SDU)
 
 {% include youtubePlayer.html id="Y903e165SDU" %}
+
+2026-03-19 Israel bombed the South Pars gas field, which holds 75% of gas in Iran. 
+
+[https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl](https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl)
+
+[https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news](https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news)
+
+[https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/](https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
 
 ### 2026 March Week #4

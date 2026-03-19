@@ -141,3 +141,17 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 2025-12-04 The DOJ initiated **Operation Metro Surge** to target Somali immigrants in Minneapolis.
 
 [https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/](https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/)
+
+### 2026 March
+
+2026-03-18 Senator Markwayne Mullin – who was selected to replace Kristi Noem as DHS secretary – said he regretted calling Alex Pretti a “deranged individual” during a Senate hearing.
+
+[https://www.politico.com/live-updates/2026/03/18/congress/mullins-comments-on-pretti-and-good-00833803](https://www.politico.com/live-updates/2026/03/18/congress/mullins-comments-on-pretti-and-good-00833803)
+
+[https://www.cbsnews.com/minnesota/news/markwayne-mullin-alex-pretti-deranged-individual-regrets/](https://www.cbsnews.com/minnesota/news/markwayne-mullin-alex-pretti-deranged-individual-regrets/)
+
+[https://www.cbsnews.com/video/watch-markwayne-mullin-says-he-regrets-calling-alex-pretti-a-deranged-individual/](https://www.cbsnews.com/video/watch-markwayne-mullin-says-he-regrets-calling-alex-pretti-a-deranged-individual/)
+
+[https://www.youtube.com/watch?v=NWhxPLhnMkg](https://www.youtube.com/watch?v=NWhxPLhnMkg)
+
+{% include youtubePlayer.html id="NWhxPLhnMkg" %}

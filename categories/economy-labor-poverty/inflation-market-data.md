@@ -150,3 +150,13 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.thestreet.com/fed/federal-reserve-officials-signal-shocking-twist-on-2026-interest-rate-cuts](https://www.thestreet.com/fed/federal-reserve-officials-signal-shocking-twist-on-2026-interest-rate-cuts)
 
 [https://www.bloomberg.com/news/articles/2026-02-18/fed-minutes-show-several-officials-point-to-rate-hike-scenario](https://www.bloomberg.com/news/articles/2026-02-18/fed-minutes-show-several-officials-point-to-rate-hike-scenario)
+
+2026-03-19 Israel bombed the South Pars gas field, which holds 75% of gas in Iran. 
+
+[https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl](https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl)
+
+[https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news](https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news)
+
+[https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/](https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)

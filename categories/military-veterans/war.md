@@ -122,7 +122,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
 
-2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. 
+2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. Trump said, *”I always thought he was a nice guy but I always thought he was weak on security”*.  Two days later the FBI conducted an investigation into Joe Kent for alleged leaks.
 
 [https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
 
@@ -137,3 +137,11 @@ permalink: /categories/military-veterans/war/
 [https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2](https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2)
 
 [https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s](https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s)
+
+[https://www.axios.com/2026/03/19/joe-kent-fbi-leak-investigation](https://www.axios.com/2026/03/19/joe-kent-fbi-leak-investigation)
+
+[https://www.foxnews.com/us/former-counterterrorism-chief-joe-kent-under-fbi-investigation-more-top-headlines](https://www.foxnews.com/us/former-counterterrorism-chief-joe-kent-under-fbi-investigation-more-top-headlines)
+
+[https://www.youtube.com/shorts/AXwyCbAm6t4](https://www.youtube.com/shorts/AXwyCbAm6t4)
+
+{% include youtubePlayer.html id="AXwyCbAm6t4" %}

@@ -24,6 +24,19 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 [https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html#:~:text=16.,Belz%2C%20Editor%20of%20World%20Magazine](https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html).
 
+### 2017
+
+2017-02-22 Conservative writer Rod Dreher wrote, *“…LGBT activism is the tip of the spear at our throats in the culture war”.* 
+
+[https://www.theamericanconservative.com/benedict-option-good-for-the-gays/](https://www.theamericanconservative.com/benedict-option-good-for-the-gays/)
+
+[https://www.vanityfair.com/news/2023/03/rod-dreher-blog-weird-american-conservative](https://www.vanityfair.com/news/2023/03/rod-dreher-blog-weird-american-conservative)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+
 ### 2019
 
 2019-02-28 Fox News published an article claiming that the Trump administration spearheaded an initiative to end criminalization of homosexuality worldwide. They also claimed in that article that LGBTQ+ groups called it a stunt and were skeptical. 

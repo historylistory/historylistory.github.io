@@ -24,6 +24,25 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 {% include youtubePlayer.html id="hvPwEWxQ_kQ" %}
 
+### 2021
+
+2021-09 During an event at Teneo Retreat (presented by the Venverloh Family Foundation) JD Vance stated, *“I got myself into a little hot water last week, uh, because I made what – what seemed to me a plainly obvious observation that Alex Jones, the InfoWars guy, is a better source of information than Rachel Maddow, the MSNBC gal. Now, some people said ‘Well, JD, you’re just trolling’. Well, yeah, of course I was just trolling. But that doesn’t mean what I said is in any way untrue…the most important truths often come from people who are crazy 60% of the time, but they’re right 40% of the time…I’m very close friends with Peter Thiel. I think Peter Thiel is one of the most important sources of nonconventional truth in our society. Peter Thiel believes some things that are considered crazy by opinion makers. We have to get away from this weird tension we feel in our chest when somebody says this person believes something crazy therefore you must denounce them”.* 
+
+[https://www.propublica.org/article/jd-vance-alex-jones-leonard-leo-teneo-maddow-video](https://www.propublica.org/article/jd-vance-alex-jones-leonard-leo-teneo-maddow-video)
+
+[https://www.propublica.org/article/leonard-leo-teneo-videos-documents](https://www.propublica.org/article/leonard-leo-teneo-videos-documents)
+
+[https://www.documentcloud.org/documents/24815790-jd-vance-teneo-network-2021-speech/](https://www.documentcloud.org/documents/24815790-jd-vance-teneo-network-2021-speech/)
+
+[https://www.propublica.org/article/we-dont-talk-about-leonard-leo-supreme-court-supermajority](https://www.propublica.org/article/we-dont-talk-about-leonard-leo-supreme-court-supermajority)
+
+[https://www.propublica.org/article/leonard-leo-teneo-videos-documents](https://www.propublica.org/article/leonard-leo-teneo-videos-documents)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+
 ### 2024
 
 2024-11-03 During a rally, Trump encouraged the idea of firing at the media by saying, “to get me someone would have to shoot through the fake news, and I don't mind that so much".

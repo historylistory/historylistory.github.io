@@ -110,6 +110,17 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 [https://www.courant.com/2016/10/17/mcmahon-gave-6m-to-pro-trump-super-pac-gop-challengers-trail-dems-in-congressional-races/](https://www.courant.com/2016/10/17/mcmahon-gave-6m-to-pro-trump-super-pac-gop-challengers-trail-dems-in-congressional-races/)
 
+### 2021
+
+2021-08-29 An article quoted JD Vance stating he attributed ‘pretty much’ his entire career to (Thiel’s) mentorship’. Thiel invested in JD Vance’s venture capital firm and backed Vance’s 2022 Senate campaign as the ‘largest amount given to a single candidate in congressional history’ according to an article of The New Yorker June 2, 2025 ‘Curtis Yarvin’s Plot Against America’.
+
+[https://www.businessinsider.com/jd-vance-venture-capital-opioid-nonprofit-tech-record-ohio-senate-2021-8](https://www.businessinsider.com/jd-vance-venture-capital-opioid-nonprofit-tech-record-ohio-senate-2021-8)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id="NtRPLCso0Sw" %}
+
+
 ### 2024
 
 2024-04-16 (context) News outlets reported that the **Bradley Foundation** handed out a lot of money to far-right groups in 2022 such as Turning Point USA, America First Legal, Conservative Partnership Institute, and America’s Future. For context, America First Legal waged a lawsuit against Johns Hopkins **accusing them of leveraging disparities on the U.S. census to help Black and Hispanic households**.
