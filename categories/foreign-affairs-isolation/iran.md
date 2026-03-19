@@ -803,6 +803,36 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak](https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak)
 
+2026-03-18 During a Senate Intelligence Committee hearing, Senator John Ossoff asked, *”So the assessment of the intelligence community is that Iran’s nuclear enrichment program was obliterated by last summer’s air strikes?”*. 
+
+Tulsi Gabbard replied, *”Yes.”*. 
+
+Ossoff asked, *”And the opening statement you submitted to the committee last night also stated, quote ‘There has been no effort since then to try to rebuild their enrichment capability’ end quote, correct?”*. 
+
+Gabbard replied, *”That’s right.”*. 
+
+Ossoff confirmed, *”And that is the assessment of the intelligence community?”*. 
+
+Gabbard reconfirmed, *”Yes.”* 
+
+Ossoff then said, *”The White House stated on March 1st of this year that this war was launched and was, quote, ‘a military campaign to eliminate the imminent nuclear threat posed by the Iranian regime’ end quote. That’s a statement from the White House. Quote, ‘The imminent nuclear threat posed by the Iranian regime’. Was it the assessment of the intelligence community that there was an imminent nuclear threat posed by the Iranian regime?”*. 
+
+Gabbard paused, then said, *”The intelligence community assessed that Iran maintained the intention to rebuild and to continue to grow their nuclear capability.”*. 
+
+Ossoff asked again, *”Was it the assessment of the intelligence community that there was a quote ‘imminent nuclear threat posed by the Iranian regime’ yes or no?”*. 
+
+Gabbard asserted, *”Senator, the only person who can determine what is and is not an imminent threat is the president…”*. 
+
+The questioning continued on like this. Ossoff clarified that it is a false assertion to claim the only person who can determine imminent threat is the President, intelligence assesment is supposed to be independent of political considerations, and that Gabbard had herself stated it was the intelligent community’s assessment that Iran’s nuclear enrichment program was obliterated. 
+
+[https://www.ossoff.senate.gov/press-releases/sen-ossoff-presses-director-of-national-intelligence-on-imminent-threat-posed-by-iran-fulton-county-raid/](https://www.ossoff.senate.gov/press-releases/sen-ossoff-presses-director-of-national-intelligence-on-imminent-threat-posed-by-iran-fulton-county-raid/)
+
+[https://www.youtube.com/watch?v=z3CK1VGnty4&list=WL&index=5](https://www.youtube.com/watch?v=z3CK1VGnty4&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=Y903e165SDU](https://www.youtube.com/watch?v=Y903e165SDU)
+
+{% include youtubePlayer.html id="Y903e165SDU" %}
+
 
 ### 2026 March Week #4
 
