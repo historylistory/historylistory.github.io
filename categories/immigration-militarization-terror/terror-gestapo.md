@@ -27,3 +27,14 @@ permalink: /categories/immigration-militarization-terror/terror-gestapo/
 {% include youtubePlayer.html id="6gYPGcEI8As" %}
 
 {% include youtubePlayer.html id="tAq8NkMIjd8" %}
+
+2026-01-27 Following two public executions of American citizens Greg Bovino was demoted as Border Patrol command.
+
+[https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html](https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html)
+
+[https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march](https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march)
+
+[https://www.bbc.com/news/articles/c75e24grnv3o](https://www.bbc.com/news/articles/c75e24grnv3o)
+
+[https://www.youtube.com/watch?v=LzXB8-019R4](https://www.youtube.com/watch?v=LzXB8-019R4)
+{% include youtubePlayer.html id="LzXB8-019R4" %}

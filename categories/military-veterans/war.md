@@ -107,3 +107,33 @@ permalink: /categories/military-veterans/war/
 [https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/](https://www.militarytimes.com/news/your-military/2026/03/15/pentagon-identifies-six-airmen-killed-in-kc-135-crash-in-iraq/)
 
 [https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/](https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/)
+
+2026-03-13 Pete Hegseth stated that “no quarter” will be shown to Iran. He stated, quote, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona stated, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill them instead. This violates the law of armed conflict.
+
+[https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law](https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law)
+
+[https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/](https://www.kelly.senate.gov/newsroom/press-releases/kelly-demands-hegseth-clarify-no-quarters-comment-reaffirm-troops-have-duty-to-refuse-illegal-orders/)
+
+[https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter](https://www.theguardian.com/us-news/2026/mar/14/democratic-lawmaker-condemns-hegseth-no-quarter)
+
+[https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/](https://ktar.com/arizona-news/kelly-hegseth-no-quarter/5836584/)
+
+[https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s](https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s)
+
+[https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
+
+2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. 
+
+[https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
+
+[https://apnews.com/article/trump-iran-war-kent-resignation-e2e17a76d79617a68370f076c0291208](https://apnews.com/article/trump-iran-war-kent-resignation-e2e17a76d79617a68370f076c0291208)
+
+[https://www.bbc.com/news/articles/cg4g66r3z40o](https://www.bbc.com/news/articles/cg4g66r3z40o)
+
+[https://thehill.com/homenews/administration/5789309-john-brennan-joe-kent-resignation-signals-maga-fracture/](https://thehill.com/homenews/administration/5789309-john-brennan-joe-kent-resignation-signals-maga-fracture/)
+
+[https://en.wikipedia.org/wiki/Joe_Kent](https://en.wikipedia.org/wiki/Joe_Kent)
+
+[https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2](https://www.youtube.com/watch?v=on-Q9foLPF0&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s](https://www.youtube.com/watch?v=Tut6dmaiojs&list=WL&index=5&t=10s)
