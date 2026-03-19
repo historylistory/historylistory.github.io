@@ -34,6 +34,12 @@ permalink: /categories/religion/politics/
 
 ### 2021
 
+2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots. 
+
+[https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440](https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440)
+
+[https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
+
 2021-01-17 An upside-down flag was spotted hanging outside Samuel Alito’s Virginia home, and an “An Appeal to Heaven” flag was hanging outside his second home in New Jersey. Both versions of the flag displays have been associated with ultra right-wing Christian Nationalist causes.
 
 [https://www.brennancenter.org/our-work/analysis-opinion/alito-and-his-upside-down-flag-make-case-supreme-court-term-limits](https://www.brennancenter.org/our-work/analysis-opinion/alito-and-his-upside-down-flag-make-case-supreme-court-term-limits)

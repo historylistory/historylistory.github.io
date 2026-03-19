@@ -6,6 +6,14 @@ subcategory_slug: other
 permalink: /categories/j6/other/
 ---
 
+### 2021
+
+2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots. 
+
+[https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440](https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440)
+
+[https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
+
 ### 2026 March
 
 2026-03-07 A small plaque was quietly installed in the Capitol at 4am without ceremony in honor of the law enforcement agents who lost their lives during the insurrection.

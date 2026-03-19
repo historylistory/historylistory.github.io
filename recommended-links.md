@@ -49,8 +49,6 @@ permalink: /recommended-links/
 
 [Trump: Individuals Targeted by Trump Administration - ABC News](https://abcnews.com/US/list-individuals-including-lisa-cook-targeted-trump-administration/story?id=124968309)
 
-### Trump Legal Cases
-
 [Trump Legal: Legal Cases Since Return to White House - WABE](https://www.wabe.org/heres-where-all-the-legal-cases-against-trump-stand-since-his-return-to-the-white-house-2/)
 
 [Trump Legal: Litigation Tracker - Just Security](https://www.justsecurity.org/107087/tracker-litigation-legal-challenges-trump-administration/)

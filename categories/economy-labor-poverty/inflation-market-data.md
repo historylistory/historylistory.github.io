@@ -131,6 +131,20 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 ### 2026 February
 
+2026-02-01 Producer Price Index (wholesale inflation) increased at a seasonally adjusted 0.7% for February 2026.  The expectation was 0.3%. PPI inflation was at 3.4% for the year. Core PPI was up 3.9% for the year. These are generally indicators of our CPI. These numbers do not yet reflect the cause-and-effect of Trump’s war in Iran. Those numbers would come out in March and April 2026. Better explained in the video below: 
+
+[https://www.cnbc.com/2026/03/18/ppi-inflation-february-2026.html](https://www.cnbc.com/2026/03/18/ppi-inflation-february-2026.html)
+
+[https://www.reuters.com/business/us-producer-prices-surge-february-services-2026-03-18/](https://www.reuters.com/business/us-producer-prices-surge-february-services-2026-03-18/)
+
+[https://www.wsj.com/economy/central-banking/stubborn-wholesale-inflation-persisted-in-february](https://www.wsj.com/economy/central-banking/stubborn-wholesale-inflation-persisted-in-february)
+
+[https://www.bls.gov/news.release/pdf/ppi.pdf](https://www.bls.gov/news.release/pdf/ppi.pdf)
+
+[https://www.bls.gov/news.release/archives/ppi_03182026.htm](https://www.bls.gov/news.release/archives/ppi_03182026.htm)
+
+[https://www.youtube.com/watch?v=5whk5ZoomA0&list=WL&index=3](https://www.youtube.com/watch?v=5whk5ZoomA0&list=WL&index=3)
+
 2026-02-19 Investors and other officials reported the Federal Reserve signaling they would have to raise interest rates.
 
 [https://www.thestreet.com/fed/federal-reserve-officials-signal-shocking-twist-on-2026-interest-rate-cuts](https://www.thestreet.com/fed/federal-reserve-officials-signal-shocking-twist-on-2026-interest-rate-cuts)

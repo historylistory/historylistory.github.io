@@ -18,6 +18,16 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 
 {% include youtubePlayer.html id="lzlxrPC_E_U" %}
 
+### 2021
+
+2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots. 
+
+[https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440](https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440)
+
+[https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
+)
+
+
 ### 2024
 
 2024-07-13 (Context) Assassination attempt on Trump. After the attempt, someone built a Trump sculpture out of nails.
