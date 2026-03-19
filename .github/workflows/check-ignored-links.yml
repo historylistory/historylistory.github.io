@@ -1,0 +1,88 @@
+name: Check Ignored Domain Links
+
+on:
+  schedule:
+    # Runs first Sunday of each month at 8:00 AM UTC
+    - cron: "0 8 1-7 * 0"
+  workflow_dispatch: # Allow manual runs
+
+jobs:
+  check-ignored-links:
+    runs-on: ubuntu-latest
+    steps:
+      - uses: actions/checkout@v4
+
+      - name: Extract ignored domains from .lycheeignore
+        id: domains
+        run: |
+          # Pull domain patterns (lines with .*), strip to domain names
+          grep '/\.\*' .lycheeignore | sed 's|https://||;s|/\.\*||' | sort -u > ignored_domains.txt
+          echo "Found ignored domains:"
+          cat ignored_domains.txt
+
+      - name: Find URLs on ignored domains in markdown files
+        run: |
+          # Extract all URLs from markdown files that match ignored domains
+          > urls_to_check.txt
+          while IFS= read -r domain; do
+            grep -rhoP "https://${domain}[^\s\)\"'>]*" categories/ *.md 2>/dev/null >> urls_to_check.txt || true
+          done < ignored_domains.txt
+
+          # Deduplicate
+          sort -u urls_to_check.txt -o urls_to_check.txt
+          echo "Found $(wc -l < urls_to_check.txt) unique URLs to check"
+
+      - name: Check URLs with curl
+        run: |
+          echo "# Ignored Domain Link Check" > report.md
+          echo "" >> report.md
+          echo "These URLs are on domains excluded from the main link checker." >> report.md
+          echo "Checked with curl (handles HTTP/2 fallback)." >> report.md
+          echo "" >> report.md
+
+          failures=0
+          checked=0
+
+          while IFS= read -r url; do
+            [ -z "$url" ] && continue
+            checked=$((checked + 1))
+
+            # curl with HTTP/1.1 fallback, follow redirects, 30s timeout
+            status=$(curl -o /dev/null -s -w "%{http_code}" \
+              --max-time 30 \
+              --retry 2 \
+              --retry-delay 5 \
+              -L \
+              -A "Mozilla/5.0 (compatible; link-checker)" \
+              "$url" 2>/dev/null || echo "000")
+
+            # Only flag real failures: 404, 410, 000 (connection failed)
+            if [ "$status" = "404" ] || [ "$status" = "410" ] || [ "$status" = "000" ]; then
+              echo "* [$status] $url" >> report.md
+              failures=$((failures + 1))
+            fi
+
+            # Rate limit: 1 request per second
+            sleep 1
+          done < urls_to_check.txt
+
+          echo "" >> report.md
+          echo "---" >> report.md
+          echo "Checked $checked URLs, found $failures failures." >> report.md
+
+          if [ "$failures" -gt 0 ]; then
+            echo "has_failures=true" >> "$GITHUB_ENV"
+          else
+            echo "has_failures=false" >> "$GITHUB_ENV"
+          fi
+
+          cat report.md
+
+      - name: Create or update issue with results
+        uses: peter-evans/create-issue-from-file@v5
+        if: env.has_failures == 'true'
+        with:
+          title: "Link Checker: broken links on ignored domains"
+          content-filepath: ./report.md
+          labels: link-check
+          update-existing: true
