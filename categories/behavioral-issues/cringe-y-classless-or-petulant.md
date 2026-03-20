@@ -391,7 +391,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://www.youtube.com/watch?v=AmukYDYYm44](https://www.youtube.com/watch?v=AmukYDYYm44)
 
-{% include youtubePlayer.html id=”AmukYDYYm44" %}
+{% include youtubePlayer.html id="AmukYDYYm44" %}
 
 2026-03-18 Kash Patel launched his own Nikes, which feature a Punisher logo, the number 9, and his podcaster moniker Ka$h. 
 
