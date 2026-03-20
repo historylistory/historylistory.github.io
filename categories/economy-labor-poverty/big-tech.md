@@ -31,7 +31,19 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
 
-2025-01-18 The Trump administration forced TikTok to temporarily shut down to strong-arm ByteDance to sell to a U.S. company. The sale happened on January 22, 2026.
+2025-01-18 The U.S. banned TikTok for about 15 hours, claiming it was a security risk. Then the Trump administration strong-armed ByteDance to sell to a US-based company on January 22, 2026. According to an article with CNN, “there is no public evidence that Beijing has actually harvested TikTok’s commercial data for intelligence or other purposes”. 
+
+[https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
+
+[https://www.pbs.org/newshour/politics/trump-signs-executive-order-to-suspend-tiktok-ban-for-75-days-to-find-u-s-buyer](https://www.pbs.org/newshour/politics/trump-signs-executive-order-to-suspend-tiktok-ban-for-75-days-to-find-u-s-buyer)
+
+[https://hls.harvard.edu/today/is-the-new-us-tiktok-safer/](https://hls.harvard.edu/today/is-the-new-us-tiktok-safer/)
+
+[https://www.wired.com/story/trump-executive-order-tiktok-ban/](https://www.wired.com/story/trump-executive-order-tiktok-ban/)
+
+[https://edition.cnn.com/2023/03/21/tech/tiktok-national-security-concerns/index.html](https://edition.cnn.com/2023/03/21/tech/tiktok-national-security-concerns/index.html)
+
+[https://www.youtube.com/watch?v=scVV1SscRWg](https://www.youtube.com/watch?v=scVV1SscRWg)
 
 [https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/#:~:text=Summary,the%20Biggest%20in%20the%20World.%22](https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/)
 

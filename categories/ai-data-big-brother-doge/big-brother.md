@@ -46,6 +46,27 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
 
+### 2025 January
+
+2025-01-18 The U.S. banned TikTok for about 15 hours, claiming it was a security risk. Then the Trump administration strong-armed ByteDance to sell to a US-based company on January 22, 2026. According to an article with CNN, “there is no public evidence that Beijing has actually harvested TikTok’s commercial data for intelligence or other purposes”. 
+
+[https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
+
+[https://www.pbs.org/newshour/politics/trump-signs-executive-order-to-suspend-tiktok-ban-for-75-days-to-find-u-s-buyer](https://www.pbs.org/newshour/politics/trump-signs-executive-order-to-suspend-tiktok-ban-for-75-days-to-find-u-s-buyer)
+
+[https://hls.harvard.edu/today/is-the-new-us-tiktok-safer/](https://hls.harvard.edu/today/is-the-new-us-tiktok-safer/)
+
+[https://www.wired.com/story/trump-executive-order-tiktok-ban/](https://www.wired.com/story/trump-executive-order-tiktok-ban/)
+
+[https://edition.cnn.com/2023/03/21/tech/tiktok-national-security-concerns/index.html](https://edition.cnn.com/2023/03/21/tech/tiktok-national-security-concerns/index.html)
+
+[https://www.youtube.com/watch?v=scVV1SscRWg](https://www.youtube.com/watch?v=scVV1SscRWg)
+
+[https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/#:~:text=Summary,the%20Biggest%20in%20the%20World.%22](https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/)
+
+[https://www.timesunion.com/news/article/bytedance-s-agreement-to-sell-tiktok-puts-21251979.php](https://www.timesunion.com/news/article/bytedance-s-agreement-to-sell-tiktok-puts-21251979.php)
+
+
 ### 2025 February
 
 2025-02-01 DOGE was given unbridled access to payroll and coding.
