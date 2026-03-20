@@ -162,6 +162,25 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 [https://www.facebook.com/FoxNews/posts/had-to-act-rnc-co-chair-laratrump-says-the-committee-had-to-get-their-lawyers-in/955067239816472/](https://www.facebook.com/FoxNews/posts/had-to-act-rnc-co-chair-laratrump-says-the-committee-had-to-get-their-lawyers-in/955067239816472/)
 
+2024-11-05 Trump posted on social media, “A lot of talk about massive CHEATING in Philadelphia. Law Enforcement coming!!!”. 
+
+[https://www.factcheck.org/2024/11/trump-makes-unsupported-claim-about-massive-cheating-in-philadelphia/](https://www.factcheck.org/2024/11/trump-makes-unsupported-claim-about-massive-cheating-in-philadelphia/)
+
+[https://www.uppermichiganssource.com/2024/11/06/trump-alleges-massive-election-cheating-philadelphia/](https://www.uppermichiganssource.com/2024/11/06/trump-alleges-massive-election-cheating-philadelphia/)
+
+[https://www.vpm.org/npr-news/npr-news/2024-11-05/officials-refute-trumps-claims-of-massive-cheating-in-philadelphia](https://www.vpm.org/npr-news/npr-news/2024-11-05/officials-refute-trumps-claims-of-massive-cheating-in-philadelphia)
+
+2024-11-14 The day of the election and hours before polls closed Trump claimed election fraud in Pennsylvania. 
+
+[https://www.cnn.com/2024/10/29/politics/trump-voter-fraud-claims-pennsylvania](https://www.cnn.com/2024/10/29/politics/trump-voter-fraud-claims-pennsylvania)
+
+[https://www.cbsnews.com/news/trump-victory-online-claims-election-fraud-quieted/](https://www.cbsnews.com/news/trump-victory-online-claims-election-fraud-quieted/)
+
+[https://www.pa.gov/agencies/vote/elections/fact-checking-pa-related-election-claims](https://www.pa.gov/agencies/vote/elections/fact-checking-pa-related-election-claims)
+
+[https://www.bbc.com/news/technology-54794198](https://www.bbc.com/news/technology-54794198)
+
+
 2024-12-17 Trump filed a lawsuit against Des Moines Register Poll, alleging interference.
 
 [https://www.desmoinesregister.com/story/news/politics/2024/12/17/donald-trump-lawsuit-gannett-des-moines-register-iowa-election-poll/77051510007/](https://www.desmoinesregister.com/story/news/politics/2024/12/17/donald-trump-lawsuit-gannett-des-moines-register-iowa-election-poll/77051510007/)
