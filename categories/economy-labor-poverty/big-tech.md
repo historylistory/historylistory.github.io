@@ -24,6 +24,19 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
 
+### 2023
+
+2023-11-01 Following the October 7 Hamas attacks on Israel, U.S. lawmakers called for a TikTok ban, claiming the platform had an anti-Israel bias.  One article cites a series of posts by tech venture capitalist Jeff Morris about a “TikTok War”. 
+
+[https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849](https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849)
+
+[https://www.business-humanrights.org/en/latest-news/usa-congress-members-conservative-activists-and-wealthy-tech-investors-call-for-ban-on-tiktok-for-alleged-pro-palestine-bias-incl-co-comment/](https://www.business-humanrights.org/en/latest-news/usa-congress-members-conservative-activists-and-wealthy-tech-investors-call-for-ban-on-tiktok-for-alleged-pro-palestine-bias-incl-co-comment/)
+
+[https://www.cnbc.com/2020/11/05/tiktok-invites-uk-lawmakers-to-review-algorithm-after-china-probe.html](https://www.cnbc.com/2020/11/05/tiktok-invites-uk-lawmakers-to-review-algorithm-after-china-probe.html)
+
+[https://x.com/jmj/status/1717404573214671068](https://x.com/jmj/status/1717404573214671068)
+
+[https://x.com/jmj/status/1717404589262025031](https://x.com/jmj/status/1717404589262025031)
 
 ### 2025 January
 
