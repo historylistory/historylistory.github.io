@@ -56,11 +56,24 @@ permalink: /categories/immigration-militarization-terror/children/
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
 
-{% include youtubePlayer.html id="REh1ulbyoY4" %}
+Bishop Budde also received attacks and trolling on social media. 
+
+End Wokeness wrote, “Woke pastor attacks Trump and Vance to their faces for scaring ‘LGBTQ kids’ and illegals”. 
+
+Ben Garrett wrote “Do not commit the sin of empathy. This snake is God’s enemy and yours too. She hates God and his people. You need to properly hate in response…”. 
+
+Mike Collins wrote, “The person giving this sermon should be added to the deportation list” and Pop Crave responded, “Republican Congressman Mike Collins says Bishop Mariann Budde should be deported after she asked Donald Trump for grace towards immigrants and the LGBTQ+ community. Budde was born in New Jersey and is a US Citizen”. 
+
 
 [https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump](https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump)
 
 [https://www.pbs.org/newshour/politics/trump-demands-apology-after-bishop-asked-him-to-have-mercy-on-lgbtq-people-and-migrants](https://www.pbs.org/newshour/politics/trump-demands-apology-after-bishop-asked-him-to-have-mercy-on-lgbtq-people-and-migrants)
+
+[https://x.com/RepMikeCollins/status/1881765967338131546](https://x.com/RepMikeCollins/status/1881765967338131546)
+
+[https://www.youtube.com/watch?v=eOkwPbn-fng](https://www.youtube.com/watch?v=eOkwPbn-fng)
+
+[https://www.youtube.com/watch?v=2Dcp-fJhM6U](https://www.youtube.com/watch?v=2Dcp-fJhM6U)
 
 {% include youtubePlayer.html id="REh1ulbyoY4" %}
 
