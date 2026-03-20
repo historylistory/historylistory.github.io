@@ -56,14 +56,13 @@ permalink: /categories/immigration-militarization-terror/children/
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
 
-Bishop Budde also received attacks and trolling on social media. 
+Bishop Budde also received multiple hostile and trolling attacks on social media. 
 
-End Wokeness wrote, “Woke pastor attacks Trump and Vance to their faces for scaring ‘LGBTQ kids’ and illegals”. 
+[https://x.com/tompawnbadil/status/1882115502061068777](https://x.com/tompawnbadil/status/1882115502061068777)
 
-Ben Garrett wrote “Do not commit the sin of empathy. This snake is God’s enemy and yours too. She hates God and his people. You need to properly hate in response…”. 
+[https://x.com/GrahamAllen/status/1881765320890962170](https://x.com/GrahamAllen/status/1881765320890962170)
 
-Mike Collins wrote, “The person giving this sermon should be added to the deportation list” and Pop Crave responded, “Republican Congressman Mike Collins says Bishop Mariann Budde should be deported after she asked Donald Trump for grace towards immigrants and the LGBTQ+ community. Budde was born in New Jersey and is a US Citizen”. 
-
+[https://twitchy.com/samj/2025/01/21/watch-jd-vances-face-while-listening-to-woke-sermon-at-bipartisan-interfaith-prayer-n2407090](https://twitchy.com/samj/2025/01/21/watch-jd-vances-face-while-listening-to-woke-sermon-at-bipartisan-interfaith-prayer-n2407090)
 
 [https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump](https://www.foxnews.com/politics/desperate-pastors-conservatives-unleash-episcopal-bishop-weaponizing-pulpit-against-trump)
 
