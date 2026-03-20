@@ -140,7 +140,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 2025-09-24 The Trump administration continued to rehire many federal workers formerly let go by DOGE but only gave them until the end of October to return. The rehiring would cost taxpayers. The fact that the Trump administration had to rehire crucial workers back to federal positions goes against their previous claim August 5th that their firings would be done with “surgical precision”.
 
-[https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5\](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5/)
+[https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5)
 
 {% include youtubePlayer.html id="NrIovX4XgPc" %}
 
