@@ -310,7 +310,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.youtube.com/watch?v=AmukYDYYm44](https://www.youtube.com/watch?v=AmukYDYYm44)
 
-{% include youtubePlayer.html id=”AmukYDYYm44" %}
+{% include youtubePlayer.html id="AmukYDYYm44" %}
 
 2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
 
