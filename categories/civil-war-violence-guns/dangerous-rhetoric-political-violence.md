@@ -86,6 +86,27 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 [https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/](https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/)
 
+2020-12-19 Trump posted on social media “Big protest in D.C on january 6th Be there, will be wild!”
+
+[https://www.presidency.ucsb.edu/documents/tweets-december-19-2020](https://www.presidency.ucsb.edu/documents/tweets-december-19-2020)
+
+[https://www.cbsnews.com/news/trump-january-6-univision-town-hall/](https://www.cbsnews.com/news/trump-january-6-univision-town-hall/)
+
+[https://www.cbsnews.com/live-updates/january-6-committee-hearing-trump-extremists/](https://www.cbsnews.com/live-updates/january-6-committee-hearing-trump-extremists/)
+
+[https://www.fox6now.com/news/see-you-in-dc-president-trump-tweets-ahead-of-wild-protest-planned-for-jan-6](https://www.fox6now.com/news/see-you-in-dc-president-trump-tweets-ahead-of-wild-protest-planned-for-jan-6)
+
+[https://www.democracynow.org/2022/7/13/trump_summoned_mob_after_unhinged_meeting](https://www.democracynow.org/2022/7/13/trump_summoned_mob_after_unhinged_meeting)
+
+[https://virginiamercury.com/2022/07/13/trump-tweet-invited-wild-mob-to-block-transfer-of-power-on-jan-6-house-panel-says/](https://virginiamercury.com/2022/07/13/trump-tweet-invited-wild-mob-to-block-transfer-of-power-on-jan-6-house-panel-says/)
+
+[https://www.bbc.com/news/world-us-canada-62140410](https://www.bbc.com/news/world-us-canada-62140410)
+
+[https://truthout.org/articles/informant-told-fbi-trump-tweet-was-call-to-arms-weeks-before-jan-6-attack/](https://truthout.org/articles/informant-told-fbi-trump-tweet-was-call-to-arms-weeks-before-jan-6-attack/)
+
+[https://www.citizensforethics.org/reports-investigations/crew-reports/trump-incited-january-6-defendants/](https://www.citizensforethics.org/reports-investigations/crew-reports/trump-incited-january-6-defendants/)
+
+
 ### 2021
 
 2021-01-04 In a comment directed at officials who were not willing to overturn the 2020 election results, Nick Fuentes said on his podcast, "What can you and I do to a State legislator – besides kill them? We should not do that. I'm not advising that, but I mean, what else can you do, right?".
