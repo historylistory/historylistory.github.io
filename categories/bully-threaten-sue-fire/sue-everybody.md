@@ -6,6 +6,18 @@ subcategory_slug: sue-everybody
 permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 ---
 
+### 2012
+
+2012-01-01 The Trump Organization filed a lawsuit against the Scottish government for approving the European Offshore Wind Deployment Centre, calling it a “monstrous” blight on the coast. The case was lost in 2015, and Trump was ordered to pay the Scottish government’s legal costs.
+
+[https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641)
+
+[https://www.reuters.com/article/world/trump-loses-bid-to-stop-scottish-wind-farm-near-luxury-golf-course-idUSKBN0TZ15U](https://www.reuters.com/article/world/trump-loses-bid-to-stop-scottish-wind-farm-near-luxury-golf-course-idUSKBN0TZ15U)
+
+[https://www.lawscot.org.uk/news-and-events/legal-news/trump-loses-uksc-appeal-over-offshore-wind-farm-near-golf-resort](https://www.lawscot.org.uk/news-and-events/legal-news/trump-loses-uksc-appeal-over-offshore-wind-farm-near-golf-resort)
+
+[https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit](https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit)
+
 ### 2019
 
 2019-10-18 Trump sued CNN for perceived bias about Russian role in the 2016 election.

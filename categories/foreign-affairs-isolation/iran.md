@@ -851,6 +851,19 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
+2026-03-19 Pete Hegseth requested another $200B for the war in Iran.
+
+[https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
+
+[https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/](https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/)
+
+[https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html](https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html)
+
+[https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
+
+[https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
+
 
 ### 2026 March Week #4
 

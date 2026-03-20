@@ -119,3 +119,27 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 {% include youtubePlayer.html id="bDPk2jtlXfU" %}
 
 {% include youtubePlayer.html id="CA73grSSk8E" %}
+
+2026-03-17 Hundreds of TSA workers quit due to no pay over the second government shutdown. This time the government shutdown happened after DHS executed Alex Pretti. Democrats demanded that one of hte six remaining funding bills for DHS be stripped, as well as requesting a code of conduct for officers and unmasking - ***none of which the GOP would concede to. Unlike the last shutdown, the Trump Administration did not hold SNAP benefits as leverage this time.*** However, during this shutdown airlines were asking passengers to donate gift cards so employees could survive. According to online sources, the Trump Administration continued to pay the salaries of select DHS agents patrolling our streets for immigration crackdown and were asking for $200B to fund the war in Iran which they said wasn’t a war and would be “over soon”. 
+
+[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
+
+[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
+
+[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
+
+[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
+
+[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
+
+2026-03-19 During Senator Markwayne Mullin’s confirmation hearing before being appointed the new head of DHS, Rand Paul confronted Mullin about a past comment where he said he understood why Paul was assaulted and suffered rib fractures. 
+
+[https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief](https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief)
+
+[https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate](https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate)
+
+[https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/](https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/)
+
+[https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659](https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659)
+
+[https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)

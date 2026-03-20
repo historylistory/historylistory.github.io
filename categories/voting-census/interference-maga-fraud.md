@@ -139,3 +139,9 @@ permalink: /categories/voting-census/interference-maga-fraud/
 [https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/](https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/)
 
 [https://www.aljazeera.com/news/2026/2/26/after-state-of-the-union-trumps-agenda-faces-new-political-reality](https://www.aljazeera.com/news/2026/2/26/after-state-of-the-union-trumps-agenda-faces-new-political-reality)
+
+### 2026 March
+
+2026-03-18 Trump tweeted out, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)

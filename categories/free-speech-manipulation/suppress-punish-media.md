@@ -271,3 +271,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 [https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/](https://firstamendment.mtsu.edu/post/five-questions-why-fcc-chair-carrs-license-threats-are-empty/)
 
 [https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/](https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/)
+
+2026-03-18 Trump tweeted out, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)

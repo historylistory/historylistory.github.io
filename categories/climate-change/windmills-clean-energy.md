@@ -6,6 +6,18 @@ subcategory_slug: windmills-clean-energy
 permalink: /categories/climate-change/windmills-clean-energy/
 ---
 
+### 2012
+
+2012-01-01 The Trump Organization filed a lawsuit against the Scottish government for approving the European Offshore Wind Deployment Centre, calling it a “monstrous” blight on the coast. The case was lost in 2015, and Trump was ordered to pay the Scottish government’s legal costs.
+
+[https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641)
+
+[https://www.reuters.com/article/world/trump-loses-bid-to-stop-scottish-wind-farm-near-luxury-golf-course-idUSKBN0TZ15U](https://www.reuters.com/article/world/trump-loses-bid-to-stop-scottish-wind-farm-near-luxury-golf-course-idUSKBN0TZ15U)
+
+[https://www.lawscot.org.uk/news-and-events/legal-news/trump-loses-uksc-appeal-over-offshore-wind-farm-near-golf-resort](https://www.lawscot.org.uk/news-and-events/legal-news/trump-loses-uksc-appeal-over-offshore-wind-farm-near-golf-resort)
+
+[https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit](https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit)
+
 ### 2025 January
 
 2025-01-20 Project 2025, page 709 outlines intentions to withdraw from the UN Paris Agreement and UN Framework Convention on Climate Change. On page 366 the mandate – written by the Heritage Foundation – complains about subsidies for clean energy.
@@ -47,3 +59,13 @@ permalink: /categories/climate-change/windmills-clean-energy/
 [https://truthsocial.com/@realDonaldTrump/posts/115302268694968810](https://truthsocial.com/@realDonaldTrump/posts/115302268694968810)
 
 [https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
+
+### 2026 March
+
+2026-03-17 The Trump administration reportedly planned to pay $1B (in taxpayer money?) to stop offshore wind farm projects outside New York and North Carolina.
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html](https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html)
+
+[https://nz.news.yahoo.com/trump-team-weighs-paying-1b-215115862.html](https://nz.news.yahoo.com/trump-team-weighs-paying-1b-215115862.html)
+
+[https://electricityinfo.org/news/us-wind-8/](https://electricityinfo.org/news/us-wind-8/)

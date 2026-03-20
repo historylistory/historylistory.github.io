@@ -131,3 +131,15 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 [https://www.bostonglobe.com/2026/03/15/nation/appointee-wants-to-replace-white-house-columns/](https://www.bostonglobe.com/2026/03/15/nation/appointee-wants-to-replace-white-house-columns/)
 
 [https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump](https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump)
+
+2026-03-19 During a visit from the Japanese Prime Minister, Trump quipped, “Who knows better about surprises than Japan”, receiving backlash for making fun of Pearl Harbor.
+
+[https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan](https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan)
+
+[https://www.theguardian.com/world/2026/mar/19/trump-mocks-japan-pearl-harbor-iran-war](https://www.theguardian.com/world/2026/mar/19/trump-mocks-japan-pearl-harbor-iran-war)
+
+[https://www.bbc.com/news/videos/cx248jvgwj8o](https://www.bbc.com/news/videos/cx248jvgwj8o)
+
+[https://www.youtube.com/watch?v=7QldP6hff84](https://www.youtube.com/watch?v=7QldP6hff84)
+
+{% include youtubePlayer.html id="7QldP6hff84" %}

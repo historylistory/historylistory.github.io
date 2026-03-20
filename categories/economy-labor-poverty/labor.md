@@ -231,3 +231,17 @@ permalink: /categories/economy-labor-poverty/labor/
 [https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
+
+2026-03-17 Hundreds of TSA workers quit due to no pay over the second government shutdown. This time the government shutdown happened after DHS executed Alex Pretti. Democrats demanded that one of hte six remaining funding bills for DHS be stripped, as well as requesting a code of conduct for officers and unmasking - none of which the GOP would concede to. Unlike the last shutdown, the Trump Administration did not hold SNAP benefits as leverage this time. However, during this shutdown airlines were asking passengers to donate gift cards so employees could survive. According to online sources, the Trump Administration continued to pay the salaries of select DHS agents patrolling our streets for immigration crackdown and were asking for $200B to fund the war in Iran which they said wasn’t a war and would be “over soon”. 
+
+[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
+
+[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
+
+[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
+
+[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
+
+[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
+
+

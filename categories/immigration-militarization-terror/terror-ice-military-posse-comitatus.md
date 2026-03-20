@@ -286,7 +286,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 ### 2026 March
 
-2026-03-05 Trump finally fired incompetent and reckless Kristi Noem, stating he did not know she had spent $250M on ad campaigns during her reign of ICE terror. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump finally fired incompetent and reckless Kristi Noem, stating he did not know she had spent $250M in taxpayer money on ad campaigns during her reign of ICE terror. He replaced her with Senator Markwayne Mullin.
 
 [https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a](https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a)
 
@@ -299,3 +299,15 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 [https://www.cbsnews.com/news/bodycam-video-ice-fatal-shooting-ruben-ray-martinez-texas/](https://www.cbsnews.com/news/bodycam-video-ice-fatal-shooting-ruben-ray-martinez-texas/)
 
 [https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/](https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/)
+
+2026-03-19 During Senator Markwayne Mullin’s confirmation hearing before being appointed the new head of DHS, Rand Paul confronted Mullin about a past comment where he said he understood why Paul was assaulted and suffered rib fractures. 
+
+[https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief](https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief)
+
+[https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate](https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate)
+
+[https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/](https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/)
+
+[https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659](https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659)
+
+[https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
