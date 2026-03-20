@@ -43,3 +43,9 @@ permalink: /categories/behavioral-issues/weird-random/
 [https://www.cnn.com/2026/03/12/politics/fbi-agents-train-ufc-fighters-quantico](https://www.cnn.com/2026/03/12/politics/fbi-agents-train-ufc-fighters-quantico)
 
 [https://www.dailymail.co.uk/sport/mma/article-15637383/Kash-Patel-enlists-UFC-stars-train-FBI-special-agents-Dana-White-reveals-line-historic-training-seminar.html](https://www.dailymail.co.uk/sport/mma/article-15637383/Kash-Patel-enlists-UFC-stars-train-FBI-special-agents-Dana-White-reveals-line-historic-training-seminar.html)
+
+2026-03-18 Kash Patel launched his own Nikes, which feature a Punisher logo, the number 9, and his podcaster moniker Ka$h. 
+
+[https://www.the-express.com/sport/mma/202454/kash-patel-K-H-shoes-fbi-seminar-ufc](https://www.the-express.com/sport/mma/202454/kash-patel-K-H-shoes-fbi-seminar-ufc)
+
+[https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html](https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html)

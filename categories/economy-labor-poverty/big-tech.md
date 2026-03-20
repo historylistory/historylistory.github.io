@@ -18,6 +18,13 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://www.apple.com/newsroom/2018/01/apple-accelerates-us-investment-and-job-creation/](https://www.apple.com/newsroom/2018/01/apple-accelerates-us-investment-and-job-creation/)
 
+### 2020
+
+2020-09-19 Trump said he would give his blessing to a deal in which Oracle and Walmart would partner with TikTok in the U.S., where Walmart would purchase a 7.5% stake, CEO Doug McMillon would serve as one of the five board members, and ByteDance would own the remaining 80%. 
+
+[https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
+
+
 ### 2025 January
 
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
@@ -77,3 +84,17 @@ permalink: /categories/economy-labor-poverty/big-tech/
 2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
 
 {% include youtubePlayer.html id="5NecjNqL11c" %}
+
+### 2026 March
+
+2026-03-14 After Trump brokered a deal to sell TikTok to Larry Ellison, the Trump administration gained a $10B transactional payout, which is 70% of the company’s $14B worth. 
+
+[https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
+
+[https://www.nytimes.com/2026/03/13/business/trump-tiktok-10-billion-fee.html](https://www.nytimes.com/2026/03/13/business/trump-tiktok-10-billion-fee.html)
+
+[https://thehill.com/opinion/white-house/5787721-trump-equity-stakes-companies/](https://thehill.com/opinion/white-house/5787721-trump-equity-stakes-companies/)
+
+[https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
+
+[https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)

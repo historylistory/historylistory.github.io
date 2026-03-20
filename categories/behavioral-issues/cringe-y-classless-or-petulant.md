@@ -378,3 +378,23 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://www.tmz.com/2026/03/11/photographers-barred-after-taking-bad-pete-hegseth-pictures/](https://www.tmz.com/2026/03/11/photographers-barred-after-taking-bad-pete-hegseth-pictures/)
 
 [https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/](https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/)
+
+2026-03-16 Trump revealed private medical information that Florida Representative Neal Dunn had a terminal diagnosis, and blurted out during a meeting, “He would be dead by June”. After Trump said that, speaker Mike Johnson responded, “Okay, that wasn’t public, but yeah…” and a low murmur came over the audience.  
+
+[https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson](https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson)
+
+[https://www.politico.com/live-updates/2026/03/16/congress/neal-dunn-health-trump-update-00829874](https://www.politico.com/live-updates/2026/03/16/congress/neal-dunn-health-trump-update-00829874)
+
+[https://www.youtube.com/watch?v=wD2lzRZ5oRU](https://www.youtube.com/watch?v=wD2lzRZ5oRU)
+
+{% include youtubePlayer.html id="wD2lzRZ5oRU" %}
+
+[https://www.youtube.com/watch?v=AmukYDYYm44](https://www.youtube.com/watch?v=AmukYDYYm44)
+
+{% include youtubePlayer.html id=”AmukYDYYm44" %}
+
+2026-03-18 Kash Patel launched his own Nikes, which feature a Punisher logo, the number 9, and his podcaster moniker Ka$h. 
+
+[https://www.the-express.com/sport/mma/202454/kash-patel-K-H-shoes-fbi-seminar-ufc](https://www.the-express.com/sport/mma/202454/kash-patel-K-H-shoes-fbi-seminar-ufc)
+
+[https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html](https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html)

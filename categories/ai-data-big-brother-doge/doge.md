@@ -65,3 +65,21 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 2026-01-27 A whistleblower reported in an interview that members of DOGE shared sensitive data such as personally identifiable information of 1000 people via email, shared third-party data on cloud servers outside security protocols, and other data concerns. A complaint for these violations had been filed the previous summer, then that person – Chuck Borges – involuntarily resigned in August and filed a retaliation complaint after.
 
 {% include youtubePlayer.html id="EmcgsMg194I" %}
+
+### 2026 March
+
+2026-03-16 Leaked DOGE deposition videos went viral, revealing that DOGE employees used OpenAI’s ChatGPT to determine which agencies and grants to cut, starting with any that referenced DEI. They used AI to indiscriminately take jobs away from dedicated and hard-working people.  
+
+[https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
+
+[https://abcnews.com/Politics/2-doge-staffers-regrets-people-losing-income-reduce/story?id=131050170](https://abcnews.com/Politics/2-doge-staffers-regrets-people-losing-income-reduce/story?id=131050170)
+
+[https://mashable.com/article/judge-orders-viral-doge-videos-taken-down-by-trump-admin-request-archivists](https://mashable.com/article/judge-orders-viral-doge-videos-taken-down-by-trump-admin-request-archivists)
+
+[https://www.nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html](https://www.nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html)
+
+[https://abcnews.com/Politics/groups-fight-release-doge-deposition-videos-after-judge/story?id=131150741](https://abcnews.com/Politics/groups-fight-release-doge-deposition-videos-after-judge/story?id=131150741)
+
+[https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
+
+{% include youtubePlayer.html id="beMb-MHflOs" %}

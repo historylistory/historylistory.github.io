@@ -213,3 +213,21 @@ permalink: /categories/economy-labor-poverty/labor/
 [https://www.theguardian.com/business/2026/mar/06/february-jobs-report](https://www.theguardian.com/business/2026/mar/06/february-jobs-report)
 
 [https://www.marketwatch.com/livecoverage/february-2026-jobs-report-today](https://www.marketwatch.com/livecoverage/february-2026-jobs-report-today)
+
+### 2026 March
+
+2026-03-16 Leaked DOGE deposition videos went viral, revealing that DOGE employees used OpenAI’s ChatGPT to determine which agencies and grants to cut, starting with any that referenced DEI. They used AI to indiscriminately take jobs away from dedicated and hard-working people.  
+
+[https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
+
+[https://abcnews.com/Politics/2-doge-staffers-regrets-people-losing-income-reduce/story?id=131050170](https://abcnews.com/Politics/2-doge-staffers-regrets-people-losing-income-reduce/story?id=131050170)
+
+[https://mashable.com/article/judge-orders-viral-doge-videos-taken-down-by-trump-admin-request-archivists](https://mashable.com/article/judge-orders-viral-doge-videos-taken-down-by-trump-admin-request-archivists)
+
+[https://www.nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html](https://www.nytimes.com/2026/03/13/nyregion/doge-depositions-musk-lawsuit.html)
+
+[https://abcnews.com/Politics/groups-fight-release-doge-deposition-videos-after-judge/story?id=131150741](https://abcnews.com/Politics/groups-fight-release-doge-deposition-videos-after-judge/story?id=131150741)
+
+[https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
+
+{% include youtubePlayer.html id="beMb-MHflOs" %}

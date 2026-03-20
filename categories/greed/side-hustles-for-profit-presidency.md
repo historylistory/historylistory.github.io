@@ -106,3 +106,15 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 [https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/](https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/)
 
 [https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html](https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html)
+
+2026-03-14 After Trump brokered a deal to sell TikTok to Larry Ellison, the Trump administration gained a $10B transactional payout, which is 70% of the company’s $14B worth. 
+
+[https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
+
+[https://www.nytimes.com/2026/03/13/business/trump-tiktok-10-billion-fee.html](https://www.nytimes.com/2026/03/13/business/trump-tiktok-10-billion-fee.html)
+
+[https://thehill.com/opinion/white-house/5787721-trump-equity-stakes-companies/](https://thehill.com/opinion/white-house/5787721-trump-equity-stakes-companies/)
+
+[https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
+
+[https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
