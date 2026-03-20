@@ -38,6 +38,23 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://x.com/jmj/status/1717404589262025031](https://x.com/jmj/status/1717404589262025031)
 
+### 2024 
+
+2024-05-06 According to a few articles, lawmakers allegedly admitted the reason they wanted TikTok banned was over pro-Palestinian content. 
+
+[https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/](https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/)
+
+[https://www.axios.com/local/salt-lake-city/2024/05/06/senator-romney-antony-blinken-tiktok-ban-israel-palestinian-content](https://www.axios.com/local/salt-lake-city/2024/05/06/senator-romney-antony-blinken-tiktok-ban-israel-palestinian-content)
+
+[https://www.commondreams.org/news/mitt-romney-tiktok](https://www.commondreams.org/news/mitt-romney-tiktok)
+
+[https://www.rollingstone.com/politics/politics-news/lawmakers-tiktok-ban-pro-palestinian-content-1235016101/](https://www.rollingstone.com/politics/politics-news/lawmakers-tiktok-ban-pro-palestinian-content-1235016101/)
+
+[https://www.rollingstone.com/politics/politics-news/tiktok-sues-government-ban-violates-first-amendment-1235016534/](https://www.rollingstone.com/politics/politics-news/tiktok-sues-government-ban-violates-first-amendment-1235016534/)
+
+[https://x.com/NathanJRobinson/status/1787176314023092727](https://x.com/NathanJRobinson/status/1787176314023092727)
+
+
 ### 2025 January
 
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
