@@ -618,6 +618,22 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685](https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685)
 
+2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+
+[https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
+
+[https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis](https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis)
+
+[https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact](https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact)
+
+[https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies](https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies)
+
+[https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts](https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts)
+
+[https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium](https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium)
+
+[https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html](https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html)
+
 2026-03-10 In under two weeks, the US soldier death toll in Iran reached approximately 170 soldiers.
 
 {% include youtubePlayer.html id="xs0EusItBYM" %}
@@ -851,7 +867,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
-2026-03-19 Pete Hegseth requested another $200B for the war in Iran.
+2026-03-19 Pete Hegseth requested ***another $200B*** for the war in Iran after entering its *third week.* For contrast: The war in Iraq cost $815B but that was over the course of **13 years**.
 
 [https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
 
@@ -863,6 +879,17 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
 
+2026-03-20 Netanyahu said he acted alone on the South Pars strike in Iran, and Trump claimed the U.S. knew nothing about the attack in advance, but another article reports that Israeli officials told them the strike was coordinated with the Trump administration in advance.
+
+[https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/](https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/)
+
+[https://www.nytimes.com/2026/03/19/world/middleeast/israel-iran-south-pars-gas-field-trump.html](https://www.nytimes.com/2026/03/19/world/middleeast/israel-iran-south-pars-gas-field-trump.html)
+
+[https://www.theguardian.com/us-news/2026/mar/19/israeli-strike-iranian-gas-field-trump](https://www.theguardian.com/us-news/2026/mar/19/israeli-strike-iranian-gas-field-trump)
+
+[https://www.reuters.com/world/middle-east/despite-trump-comments-israeli-officials-say-us-knew-iran-gas-field-strike-2026-03-19/](https://www.reuters.com/world/middle-east/despite-trump-comments-israeli-officials-say-us-knew-iran-gas-field-strike-2026-03-19/)
+
+[https://www.cnn.com/2026/03/19/middleeast/trump-iran-strikes-gas-sites-pressure-latam-intl](https://www.cnn.com/2026/03/19/middleeast/trump-iran-strikes-gas-sites-pressure-latam-intl)
 
 
 ### 2026 March Week #4

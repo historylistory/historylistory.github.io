@@ -180,3 +180,19 @@ permalink: /categories/economy-labor-poverty/farming/
 [https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture](https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture)
 
 [https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8](https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8)
+
+2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+
+[https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
+
+[https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis](https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis)
+
+[https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact](https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact)
+
+[https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies](https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies)
+
+[https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts](https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts)
+
+[https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium](https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium)
+
+[https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html](https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html)

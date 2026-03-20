@@ -147,3 +147,21 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774](https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774)
 
 [https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/](https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/)
+
+### 2026 March
+
+2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+
+[https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
+
+[https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis](https://www.aljazeera.com/economy/2026/3/18/not-just-energy-how-the-iran-war-could-trigger-a-global-food-crisis)
+
+[https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact](https://www.theguardian.com/us-news/2026/mar/20/iran-war-us-farming-impact)
+
+[https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies](https://worldview.stratfor.com/article/assessing-iran-wars-impact-global-fertilizer-supplies)
+
+[https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts](https://www.ifpri.org/blog/the-iran-war-potential-food-security-impacts)
+
+[https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium](https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium)
+
+[https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html](https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html)

@@ -165,7 +165,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://electricityinfo.org/news/us-wind-8/](https://electricityinfo.org/news/us-wind-8/)
 
 
-2026-03-19 Pete Hegseth requested ***another $200B*** for the war in Iran.
+2026-03-19 Pete Hegseth requested ***another $200B*** for the war in Iran after entering its *third week.* For contrast: The war in Iraq cost $815B but that was over the course of **13 years**.
 
 [https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
 
