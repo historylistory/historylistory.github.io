@@ -288,6 +288,26 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035](https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035)
 
+2025-10-18 Multiple sources suggest FEMA had been politicized. The DHS website suggested that the Biden administration withheld aid from Red States, while other sources in 2026 gave examples of the Trump administration not fully reimbursing Blue States; both sides of the aisle claiming discrimination. 
+
+[https://www.instagram.com/reel/DWJU2ScjArU/](https://www.instagram.com/reel/DWJU2ScjArU/)
+
+[https://statecourtreport.org/our-work/analysis-opinion/trumps-threats-withhold-disaster-relief-undermine-federalism-principles](https://statecourtreport.org/our-work/analysis-opinion/trumps-threats-withhold-disaster-relief-undermine-federalism-principles)
+
+[https://www.cnn.com/2026/02/26/politics/disaster-aid-fema-states-trump-shutdown](https://www.cnn.com/2026/02/26/politics/disaster-aid-fema-states-trump-shutdown)
+
+[https://www.youtube.com/watch?v=ABJwDIUwE3U](https://www.youtube.com/watch?v=ABJwDIUwE3U)
+
+[https://www.youtube.com/watch?v=r15YTc7imvY](https://www.youtube.com/watch?v=r15YTc7imvY)
+
+[https://www.dhs.gov/news/2025/10/21/dhs-exposes-how-fema-officials-under-biden-administration-systematically-refused](https://www.dhs.gov/news/2025/10/21/dhs-exposes-how-fema-officials-under-biden-administration-systematically-refused)
+
+[https://www.fema.gov/press-release/20251018/fema-refutes-misrepresentation-disaster-relief-funding-recent-media-coverage](https://www.fema.gov/press-release/20251018/fema-refutes-misrepresentation-disaster-relief-funding-recent-media-coverage)
+
+[https://theconversation.com/why-femas-disaster-relief-gets-political-especially-when-hurricane-season-and-election-season-collide-241092](https://theconversation.com/why-femas-disaster-relief-gets-political-especially-when-hurricane-season-and-election-season-collide-241092)
+
+[https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/](https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/)
+
 2025-10-19 After the Columbian president accused Trump of killing innocent people during US boat strikes, Trump threatened to end aid.
 
 [https://www.bbc.com/news/articles/cn8xg1jve73o](https://www.bbc.com/news/articles/cn8xg1jve73o)
