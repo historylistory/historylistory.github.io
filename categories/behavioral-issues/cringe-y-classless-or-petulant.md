@@ -335,7 +335,23 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2026 March
 
-2026-03-05 The White House spliced videos of operations in Iran mixed with Call of Duty, propagandizing bombings of civilians as “a game”. In a separate post March 6th, they posted a scene from the video game “Grand Theft Auto” captioned “Ah shit, here we go again”.
+2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
+
+[https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925](https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925)
+
+[https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html](https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html)
+
+[https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194](https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194)
+
+[https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/](https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/)
+
+[https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool](https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool)
+
+[https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda](https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda)
+
+[https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html](https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html)
+
+[https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/](https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/)
 
 [https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid](https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid)
 
