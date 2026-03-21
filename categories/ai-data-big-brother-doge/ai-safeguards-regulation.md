@@ -61,3 +61,14 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 {% include youtubePlayer.html id="5NdndeDNkws" %}
 
 [https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts](https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts)
+
+### 2026 March
+
+2026-03-17 In a press release Senator Elissa Slotkin announced the AI Guardrails Act to establish guardrails in three areas: autonomous weapons, surveillance, and nuclear defense. The White House issued its own framework on March 20th. 
+
+[https://www.slotkin.senate.gov/2026/03/17/slotkin-legislation-puts-common-sense-guardrails-on-dod-ai-use-around-lethal-force-spying-on-americans-and-nuclear-weapons/](https://www.slotkin.senate.gov/2026/03/17/slotkin-legislation-puts-common-sense-guardrails-on-dod-ai-use-around-lethal-force-spying-on-americans-and-nuclear-weapons/)
+
+[https://www.whitehouse.gov/articles/2026/03/president-donald-j-trump-unveils-national-ai-legislative-framework/](https://www.whitehouse.gov/articles/2026/03/president-donald-j-trump-unveils-national-ai-legislative-framework/)
+
+[https://www.whitehouse.gov/wp-content/uploads/2026/03/03.20.26-National-Policy-Framework-for-Artificial-Intelligence-Legislative-Recommendations.pdf](https://www.whitehouse.gov/wp-content/uploads/2026/03/03.20.26-National-Policy-Framework-for-Artificial-Intelligence-Legislative-Recommendations.pdf)
+

@@ -35,3 +35,20 @@ This section is still in progress
 [https://www.avemarialaw.edu/why-congress-must-urgently-restore-the-gambling-loss-deduction/#:~:text=In%20addition%20to%20making%20the,during%20such%20taxable%20year%2C%20and](https://www.avemarialaw.edu/why-congress-must-urgently-restore-the-gambling-loss-deduction/#:~:text=In%20addition%20to%20making%20the,during%20such%20taxable%20year%2C%20and)
 
 [https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions](https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions)
+
+### 2026 January
+
+2026-01-06 As prediction markets became increasingly popular in 2026 – betting on things like weather and war-time activity – suspicious winnings began to emerge, causing alarm that this type of betting on politics and news may be insider information.  For example, very large payouts were reported after Maduro’s capture.
+
+[https://www.cbsnews.com/news/polymarket-maduro-capture-bet-400000/](https://www.cbsnews.com/news/polymarket-maduro-capture-bet-400000/)
+
+[https://www.pbs.org/newshour/nation/a-400000-payout-after-maduros-capture-put-prediction-markets-in-the-spotlight-heres-how-they-work](https://www.pbs.org/newshour/nation/a-400000-payout-after-maduros-capture-put-prediction-markets-in-the-spotlight-heres-how-they-work)
+
+[https://www.npr.org/2026/01/05/nx-s1-5667232/polymarket-maduro-bet-insider-trading](https://www.npr.org/2026/01/05/nx-s1-5667232/polymarket-maduro-bet-insider-trading)
+
+[https://thehill.com/policy/technology/5687162-insider-trading-prediction-markets-venezuela/](https://thehill.com/policy/technology/5687162-insider-trading-prediction-markets-venezuela/)
+
+[https://www.axios.com/2026/01/05/prediction-markets-nicolas-maduro-polymarket](https://www.axios.com/2026/01/05/prediction-markets-nicolas-maduro-polymarket)
+
+[https://finance.yahoo.com/news/anonymous-polymarket-accounts-won-1-152546385.html](https://finance.yahoo.com/news/anonymous-polymarket-accounts-won-1-152546385.html)
+

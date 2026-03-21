@@ -32,6 +32,22 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 [https://abcnews.go.com/Politics/trump-us-greenland/story?id=129069483](https://abcnews.go.com/Politics/trump-us-greenland/story?id=129069483)
 
+2026-01-14 Denmark conducted training exercises in Greenland. By January 16th it was a 2-tier operation and involved our closest NATO allies. Reports show they didn’t just transport explosives with their supplies; they included blood shipments in case of an invasion.
+
+[https://www.euronews.com/2026/03/19/denmark-deployed-troops-to-greenland-in-january-fearing-us-invasion-local-media-report](https://www.euronews.com/2026/03/19/denmark-deployed-troops-to-greenland-in-january-fearing-us-invasion-local-media-report)
+
+[https://www.bbc.com/news/articles/c33ln4mp1p2o](https://www.bbc.com/news/articles/c33ln4mp1p2o)
+
+[https://www.forsvaret.dk/en/news/2026/arctic-endurance-fortsatter-i-hele-2026/](https://www.forsvaret.dk/en/news/2026/arctic-endurance-fortsatter-i-hele-2026/)
+
+[https://www.arctictoday.com/denmark-europe-planned-for-u-s-military-confrontation-over-greenland/](https://www.arctictoday.com/denmark-europe-planned-for-u-s-military-confrontation-over-greenland/)
+
+[https://www.fmn.dk/en/news/2026/the-danish-armed-forces-expand-their-presence-and-continue-exercises-in-greenland-in-close-cooperation-with-allies/](https://www.fmn.dk/en/news/2026/the-danish-armed-forces-expand-their-presence-and-continue-exercises-in-greenland-in-close-cooperation-with-allies/)
+
+[https://www.irishtimes.com/world/europe/2026/03/20/denmark-was-ready-to-blow-up-greenland-runways-if-us-invaded/](https://www.irishtimes.com/world/europe/2026/03/20/denmark-was-ready-to-blow-up-greenland-runways-if-us-invaded/)
+
+[https://www.youtube.com/watch?v=fcrcDYE__RA&list=WL&index=1](https://www.youtube.com/watch?v=fcrcDYE__RA&list=WL&index=1)
+
 2026-01-16 Trump threatened countries with tariffs if they didn’t back the US controlling Greenland.
 
 [https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan](https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan)
