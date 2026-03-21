@@ -17,7 +17,7 @@ permalink: /recommended-links/
 
 ### All Else
 
-[Agriculture: Farm Forward](https://www.farmforward.com/donate/)
+[Agriculture: Farm Forward](https://www.farmforward.com)
 
 [Campaign: FEC Data](https://www.fec.gov/data/)
 
@@ -27,17 +27,19 @@ permalink: /recommended-links/
 
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 
+[Economy: Federal Spending Tracker](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
+
 [Economy: Inequality - Groundwork Collaborative](https://groundworkcollaborative.org)
 
 [Economy: Patriotic Millionaires](https://patrioticmillionaires.org/)
 
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
-[Federal Spending Tracker](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
-
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
+
+[History: The U.S. Constitution](https://constitution.congress.gov/constitution/)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
