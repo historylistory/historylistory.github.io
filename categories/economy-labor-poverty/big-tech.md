@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 ### Commentary
 
-2024-12-27 Algorithms are designed to survey our behavior. OPINION: Trump keeps tech giants in his back pocket. Think about dynamic pricing. Big businesses maximize profits by automatically updating how much things cost based on demand. And that’s just one strategy big companies use to squeeze profits out of people. Forget about even going into things like subscription models or planned obsolescence.  They all want your money and they’re in the White House carving things up amongst themselves. 
+2024-12-27 Algorithms are designed to survey consumer behavior. It may be important to consider why Trump keeps tech giants in his back pocket.  
 
 [https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
 
