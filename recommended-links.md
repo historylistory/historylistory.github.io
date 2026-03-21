@@ -19,8 +19,6 @@ permalink: /recommended-links/
 
 [Agriculture: Farm Forward](https://www.farmforward.com/donate/)
 
-[Agriculture: Chicken Salmonella Food Safety Petition](https://act.link/gi-uMDqd3) - Trump repealed the chicken salmonella safety rules because one of his major donors from the National Chicken Council lobby group opposed Biden's salmonella testing mandate. Sign the petition to demand safety rules be reestablished.
-
 [Campaign: FEC Data](https://www.fec.gov/data/)
 
 [Campaign: Endorsements by Donald Trump](https://ballotpedia.org/Endorsements_by_Donald_Trump)
