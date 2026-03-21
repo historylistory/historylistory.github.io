@@ -58,22 +58,50 @@
 
     var results;
     try {
-      // Try the query with a wildcard for partial matching
-      results = index.search(query + '*');
-      // Also try exact match and merge
-      var exact = index.search(query);
-      var seen = {};
-      var merged = [];
-      exact.concat(results).forEach(function (r) {
-        if (!seen[r.ref]) {
-          seen[r.ref] = true;
-          merged.push(r);
+      // Split query into terms, filter out very short words
+      var terms = query.toLowerCase().split(/\s+/).filter(function (t) { return t.length > 0; });
+
+      // Search each term individually with wildcards (OR strategy)
+      // Then score by how many terms each document matches
+      var docScores = {};
+      var docMatches = {};
+
+      terms.forEach(function (term) {
+        var safeTerm = term.replace(/[:\*\~\^]/g, '');
+        if (!safeTerm) return;
+
+        // Try wildcard match for each term
+        var termResults = [];
+        try {
+          termResults = index.search('*' + safeTerm + '*');
+        } catch (e) {
+          try { termResults = index.search(safeTerm); } catch (e2) { /* skip */ }
         }
+
+        termResults.forEach(function (r) {
+          if (!docScores[r.ref]) {
+            docScores[r.ref] = 0;
+            docMatches[r.ref] = 0;
+          }
+          docScores[r.ref] += r.score;
+          docMatches[r.ref] += 1;
+        });
       });
-      results = merged;
+
+      // Sort by number of matching terms first, then by Lunr score
+      results = Object.keys(docScores).map(function (ref) {
+        return { ref: ref, score: docScores[ref], matches: docMatches[ref] };
+      }).sort(function (a, b) {
+        if (b.matches !== a.matches) return b.matches - a.matches;
+        return b.score - a.score;
+      });
     } catch (e) {
-      // If lunr query syntax fails, escape and retry
-      results = index.search(query.replace(/[:\*\~\^]/g, ''));
+      // Final fallback
+      try {
+        results = index.search(query.replace(/[:\*\~\^]/g, ''));
+      } catch (e2) {
+        results = [];
+      }
     }
 
     if (results.length === 0) {
