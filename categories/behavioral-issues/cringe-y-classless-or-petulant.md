@@ -319,6 +319,10 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2026 February
 
+2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
+
+[https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
+
 2026-02-17 RFK and Kid Rock made a shirtless workout video together. 
 
 [https://www.usatoday.com/story/opinion/columnist/2026/02/18/rfk-jr-kid-rock-video-workout-milk/88723505007/](https://www.usatoday.com/story/opinion/columnist/2026/02/18/rfk-jr-kid-rock-video-workout-milk/88723505007/)

@@ -226,6 +226,10 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 February
 
+2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
+
+[https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
+
 2026-02-20 During the State of the Union, Trump accused the Supreme Court of being unpatriotic and disloyal to the Constitution, and a disgrace to our nation, after the justices ruled 6-to-3 to invalidate his illegal tariffs. The next day he raised the global tariff to 15%.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948](https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948)
