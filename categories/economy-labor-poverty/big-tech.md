@@ -26,6 +26,12 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 ### 2023
 
+2023-05-07 Hewlett Packard introduced subscription tier so users would be forced to pay a monthly fee to use their printer. One article explains that the “light” plan of $6.99/month only allows the user to print up to 20 pages from their own printer. The article also cites the company will charge users for printing “over” their allotment, and there are cancellation fees. 
+
+[https://www.pcworld.com/article/2251993/the-nightmare-is-real-hp-makes-printing-a-subscription.html](https://www.pcworld.com/article/2251993/the-nightmare-is-real-hp-makes-printing-a-subscription.html)
+
+[https://www.tomshardware.com/peripherals/printers/hp-begins-subscription-plans-for-its-printers-and-ink-up-to-dollar36-per-month-includes-limits-and-cancellation-fees](https://www.tomshardware.com/peripherals/printers/hp-begins-subscription-plans-for-its-printers-and-ink-up-to-dollar36-per-month-includes-limits-and-cancellation-fees)
+
 2023-11-01 Following the October 7 Hamas attacks on Israel, U.S. lawmakers called for a TikTok ban, claiming the platform had an anti-Israel bias.  One article cites a series of posts by tech venture capitalist Jeff Morris about a “TikTok War”. 
 
 [https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849](https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849)
@@ -60,6 +66,18 @@ permalink: /categories/economy-labor-poverty/big-tech/
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
+
+2026-01-13 An article reports that Amazon founder Jeff Bezo predicted that personal computing will eventually become obsolete and be replaced by cloud-based computing. For example, renting processing power from services like – for example – Amazon Web Services.
+
+[https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.](https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.)
+
+[https://www.sdxcentral.com/control-plane/jeff-bezos-wants-you-to-rent-cloud-space-instead-of-buying-pcs-for-gamers-thats-truly-terrible](https://www.sdxcentral.com/control-plane/jeff-bezos-wants-you-to-rent-cloud-space-instead-of-buying-pcs-for-gamers-thats-truly-terrible)
+
+[https://www.aol.com/articles/may-not-actually-own-next-164700527.html?](https://www.aol.com/articles/may-not-actually-own-next-164700527.html?)
+
+[https://www.windowscentral.com/artificial-intelligence/jeff-bezos-says-the-quiet-part-out-loud-bezos-envisions-that-youll-give-up-your-pc-for-an-ai-cloud-version](https://www.windowscentral.com/artificial-intelligence/jeff-bezos-says-the-quiet-part-out-loud-bezos-envisions-that-youll-give-up-your-pc-for-an-ai-cloud-version)
+
+[https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it](https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it)
 
 2025-01-18 The U.S. banned TikTok for about 15 hours, claiming it was a security risk. Then the Trump administration strong-armed ByteDance to sell to a US-based company on January 22, 2026. According to an article with CNN, “there is no public evidence that Beijing has actually harvested TikTok’s commercial data for intelligence or other purposes”. 
 

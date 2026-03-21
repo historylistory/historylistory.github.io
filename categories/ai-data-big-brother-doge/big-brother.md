@@ -40,6 +40,26 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf](https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf)
 
+### 2021
+
+2021-06-04 Legislation was passed to require new automobiles to have a “kill switch”. It was implemented under the HALT Drunk Driving Act. In its most extreme form, it would allow government officials to remotely activate cars in the case of drunk drivers. Ron DeSantis posted to X, “The idea that the federal government would require auto manufacturers to equip cars with a ‘kill switch’ that can be controlled by the government is something you’d expect in Orwell’s 1984”. Rumors and controversies have spread, with many consumers worried that the function would be used for other purposes outside of safety or infringes upon privacy. 
+
+[https://www.congress.gov/bill/117th-congress/house-bill/3684](https://www.congress.gov/bill/117th-congress/house-bill/3684)
+
+[https://x.com/RonDeSantis/status/2014500133971296434](https://x.com/RonDeSantis/status/2014500133971296434)
+
+[https://www.kbb.com/car-news/explaining-the-car-kill-switch-controversy/](https://www.kbb.com/car-news/explaining-the-car-kill-switch-controversy/)
+
+[https://cei.org/news_releases/house-vote-today-could-help-end-vehicle-kill-switch-mandate/](https://cei.org/news_releases/house-vote-today-could-help-end-vehicle-kill-switch-mandate/)
+
+[https://pickuptrucktalk.com/2025/06/kill-switches-in-new-2026-vehicles-still-up-in-the-air/](https://pickuptrucktalk.com/2025/06/kill-switches-in-new-2026-vehicles-still-up-in-the-air/)
+
+[https://www.foxnews.com/politics/house-gop-slammed-conservatives-joining-dems-controversial-kill-switch-amendment](https://www.foxnews.com/politics/house-gop-slammed-conservatives-joining-dems-controversial-kill-switch-amendment)
+
+[https://www.congress.gov/bill/118th-congress/house-bill/6563](https://www.congress.gov/bill/118th-congress/house-bill/6563)
+
+[https://www.congress.gov/bill/119th-congress/house-bill/1137](https://www.congress.gov/bill/119th-congress/house-bill/1137)
+
 ### 2023
 
 2023-11-01 Following the October 7 Hamas attacks on Israel, U.S. lawmakers called for a TikTok ban, claiming the platform had an anti-Israel bias.  One article cites a series of posts by tech venture capitalist Jeff Morris about a “TikTok War”. 
@@ -174,6 +194,14 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://www.bbc.com/news/articles/c1d67vdlk1ko](https://www.bbc.com/news/articles/c1d67vdlk1ko)
 
 [https://www.bbc.com/news/technology-68161632](https://www.bbc.com/news/technology-68161632)
+
+2026-02-10 After Amazon revealed the capabilities of their Ring camera tracking and surveillance systems, some consumers opted out of the system over concerns of persistent surveillance.
+
+[https://www.cnet.com/home/security/amazons-ring-cameras-push-deeper-into-police-and-government-surveillance/](https://www.cnet.com/home/security/amazons-ring-cameras-push-deeper-into-police-and-government-surveillance/)
+
+[https://www.usatoday.com/story/news/nation/2026/02/10/ring-super-bowl-ad-dog-camera-privacy/88606738007/](https://www.usatoday.com/story/news/nation/2026/02/10/ring-super-bowl-ad-dog-camera-privacy/88606738007/)
+
+[https://www.404media.co/with-ring-american-consumers-built-a-surveillance-dragnet/](https://www.404media.co/with-ring-american-consumers-built-a-surveillance-dragnet/)
 
 2026-02-14 DHS requested personal information of online users who have been critical of ICE, including names, email addresses, phone numbers and other identifying data. 
 
