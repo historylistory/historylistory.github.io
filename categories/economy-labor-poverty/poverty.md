@@ -281,6 +281,20 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring](https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring)
 
+### 2026 February
+
+2026-02-02 Trump announced the Kennedy center would be shut down for two years for “renovations”. Renovations would include marble, furniture, gold inlay and gold trim. Trump said the renovations would not come from taxpayer money at all, stating quote, "zero taxpayer". Meanwhile, a Gallup survey showed that millions of Americans were skipping meals in order to pay for their healthcare.  The Gallup poll said, “In a nationally and state-representative survey of nearly 20,000 US adults conducted from June through August 2025, roughly one-third of respondents – the equivalent of more than 82 million Americans – said they have made at least one trade-off with daily living expenses to afford healthcare. Americans are also postponing retirement.
+
+[https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s)
+
+[https://news.gallup.com/poll/702596/one-third-americans-cut-back-cover-healthcare-expenses.aspx](https://news.gallup.com/poll/702596/one-third-americans-cut-back-cover-healthcare-expenses.aspx)
+
+[https://www.nbcnews.com/health/health-care/americans-ration-medicine-postpone-retirement-afford-health-care-gallu-rcna263008](https://www.nbcnews.com/health/health-care/americans-ration-medicine-postpone-retirement-afford-health-care-gallu-rcna263008)
+
+[https://abcnews.go.com/US/trump-kennedy-center-closing-2-years-complete-rebuilding/story?id=129764468](https://abcnews.go.com/US/trump-kennedy-center-closing-2-years-complete-rebuilding/story?id=129764468)
+
+[https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions](https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions)
+
 ### 2026 March
 
 2026-03-09 On the Washington Watch with Tony Perkins, Texas District 27 Congressman Michael Cloud said, *“I’ve been in a number of these hearings, and you often see Matthew 25 thrown about – never in context. Uh, sometimes it seems to be the only – I would say – scripture, but it’s not even a full scripture that, the only half scripture that the left would seem to know. Uh, and they use it to justify all kinds of spending…uh, in Corinthians – it talks about that charity is something that’s given of a free will and not by compulsion. Uh, and taxes certainly by compulsion. And so, you know, we believe in, ah, generosity. Certainly we should be giving, taking care of our neighbor. Uh, that should be extension of how – who – we are, but we’re almost $40TR in debt. Uh, and so, we’ve got to prioritize. And the federal government has a specific constitutional – uh – duty and priority. Uh, and, and, scripture talks about the role of what a federal government is supposed to be doing or a government’s supposed to be doing. It’s a different role than the family. It’s a different role than the church, uh…and, and the community. And so, you know, it’s important that we kind of put all these things in context as we begin to weigh scripture, especially in the context of government policy…”*.

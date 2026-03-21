@@ -112,12 +112,6 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673](https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673)
 
-2025-03-27 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior.
-
-[https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
-
-{% include youtubePlayer.html id="5c1idp7Qzd4" %}
-
 2025-03-15 Leqaa Kordia was detained for overstaying an F-1 Visa but was also involved in protests at Columbia University and may have been targeted for that. Since then, she had been detained in a Texas immigration jail for over a year. She reported having seizures, being forced to shower with chains on, and was refused contact with family or lawyers. She was released in 2026 and stated the detention facility was “built to break people and destroy their health and hope”.
 
 [https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention](https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention)
@@ -125,6 +119,20 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 [https://www.amnestyusa.org/urgent-actions/usa-release-detained-protester/](https://www.amnestyusa.org/urgent-actions/usa-release-detained-protester/)
 
 [https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673](https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673)
+
+2025-03-25 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior. Rumeysa Ozturk was detained by ICE for six weeks after writing an op-ed at her university. Courts ruled the detention illegal and she was released.  The Trump administration’s DHS accused her of supporting Hamas without any evidence. 
+
+[https://www.youtube.com/watch?v=T98wJrupDMA](https://www.youtube.com/watch?v=T98wJrupDMA)
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/feb/18/rumeysa-ozturk-trauma-children-ice-gaza](https://www.theguardian.com/us-news/ng-interactive/2026/feb/18/rumeysa-ozturk-trauma-children-ice-gaza)
+
+[https://www.theguardian.com/us-news/2025/may/07/detained-tufts-student-rumeysa-ozturk-ruling](https://www.theguardian.com/us-news/2025/may/07/detained-tufts-student-rumeysa-ozturk-ruling)
+
+[https://www.theguardian.com/us-news/2025/mar/26/ice-agents-detain-tufts-university-graduate-student](https://www.theguardian.com/us-news/2025/mar/26/ice-agents-detain-tufts-university-graduate-student)
+
+[https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
+
+{% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
 2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
 

@@ -237,3 +237,15 @@ It would also make it a felony to give someone information about where to get a
 [https://www.scstatehouse.gov/sess126_2025-2026/bills/323.htm](https://www.scstatehouse.gov/sess126_2025-2026/bills/323.htm)
 
 [https://msmagazine.com/2025/11/24/south-carolina-abortion-sb-323/](https://msmagazine.com/2025/11/24/south-carolina-abortion-sb-323/)
+
+### 2026 March
+
+2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat.  It would also require death certificates be issued. 
+
+[https://www.legislature.ohio.gov/legislation/136/hb754](https://www.legislature.ohio.gov/legislation/136/hb754)
+
+[https://www.nbc4i.com/news/politics/ohio-bill-would-require-fetal-life-and-death-certificates/](https://www.nbc4i.com/news/politics/ohio-bill-would-require-fetal-life-and-death-certificates/)
+
+[https://www.cincinnati.com/story/news/politics/2026/03/17/ohio-bill-would-require-fetal-birth-death-certificates/89183531007/](https://www.cincinnati.com/story/news/politics/2026/03/17/ohio-bill-would-require-fetal-birth-death-certificates/89183531007/)
+
+[https://www.youtube.com/watch?v=g55ZtN2ka2g&list=WL&index=3&t=39s](https://www.youtube.com/watch?v=g55ZtN2ka2g&list=WL&index=3&t=39s)

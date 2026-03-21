@@ -74,7 +74,15 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 ### 2025 March
 
-2025-03-27 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior.
+2025-03-25 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior. Rumeysa Ozturk was detained by ICE for six weeks after writing an op-ed at her university. Courts ruled the detention illegal and she was released.  The Trump administration’s DHS accused her of supporting Hamas without any evidence. 
+
+[https://www.youtube.com/watch?v=T98wJrupDMA](https://www.youtube.com/watch?v=T98wJrupDMA)
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/feb/18/rumeysa-ozturk-trauma-children-ice-gaza](https://www.theguardian.com/us-news/ng-interactive/2026/feb/18/rumeysa-ozturk-trauma-children-ice-gaza)
+
+[https://www.theguardian.com/us-news/2025/may/07/detained-tufts-student-rumeysa-ozturk-ruling](https://www.theguardian.com/us-news/2025/may/07/detained-tufts-student-rumeysa-ozturk-ruling)
+
+[https://www.theguardian.com/us-news/2025/mar/26/ice-agents-detain-tufts-university-graduate-student](https://www.theguardian.com/us-news/2025/mar/26/ice-agents-detain-tufts-university-graduate-student)
 
 [https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/](https://www.cbsnews.com/news/rumeysa-ozturk-tufts-student-denied-bond/)
 

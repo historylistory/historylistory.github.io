@@ -430,3 +430,22 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://www.youtube.com/watch?v=7QldP6hff84](https://www.youtube.com/watch?v=7QldP6hff84)
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
+
+2025-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+
+[https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
+
+[https://www.usatoday.com/story/news/politics/2026/03/21/trump-responds-robert-mueller-death/89263401007/](https://www.usatoday.com/story/news/politics/2026/03/21/trump-responds-robert-mueller-death/89263401007/)
+
+[https://www.thedailybeast.com/donald-trump-posts-vile-reaction-to-robert-muellers-death-at-81/](https://www.thedailybeast.com/donald-trump-posts-vile-reaction-to-robert-muellers-death-at-81/)
+
+[https://www.ms.now/weekends-with-alex-witt/watch/trump-on-death-of-robert-mueller-good-i-m-glad-he-s-dead-2493104196000](https://www.ms.now/weekends-with-alex-witt/watch/trump-on-death-of-robert-mueller-good-i-m-glad-he-s-dead-2493104196000)
+
+[https://www.cnn.com/2026/03/21/politics/donald-trump-robert-mueller-insensitive-comments](https://www.cnn.com/2026/03/21/politics/donald-trump-robert-mueller-insensitive-comments)
+
+[https://thehill.com/homenews/administration/5794930-trump-reacts-mueller-death/](https://thehill.com/homenews/administration/5794930-trump-reacts-mueller-death/)
+
+[https://www.youtube.com/watch?v=i8Gb7v91K0U&list=WL&index=2](https://www.youtube.com/watch?v=i8Gb7v91K0U&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=br58SIqHk0Q&list=WL&index=4&t=48s](https://www.youtube.com/watch?v=br58SIqHk0Q&list=WL&index=4&t=48s)
+
