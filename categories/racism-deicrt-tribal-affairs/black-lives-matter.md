@@ -91,3 +91,19 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 [https://mace.house.gov/media/press-releases/rep-nancy-mace-introduces-charlie-kirk-freedom-speech-plaza-act-three-month](https://mace.house.gov/media/press-releases/rep-nancy-mace-introduces-charlie-kirk-freedom-speech-plaza-act-three-month)
 
 [https://www.fox5dc.com/news/bill-would-rename-former-black-lives-matter-plaza-after-charlie-kirk](https://www.fox5dc.com/news/bill-would-rename-former-black-lives-matter-plaza-after-charlie-kirk)
+
+### 2026 March
+
+2026-03-20 For the nation’s 250th birthday the Trump administration announced plans to display a statue of a prominent slave owner. 
+
+[https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/](https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/)
+
+[https://www.nytimes.com/2026/02/28/climate/caesar-rodney-statue-trump.html](https://www.nytimes.com/2026/02/28/climate/caesar-rodney-statue-trump.html)
+
+[https://www.reuters.com/world/us/trump-administration-display-statue-founding-father-who-enslaved-dozens-2026-03-19/](https://www.reuters.com/world/us/trump-administration-display-statue-founding-father-who-enslaved-dozens-2026-03-19/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/statue-slavery-caesar-rodney-trump-b2941386.html](https://www.the-independent.com/news/world/americas/us-politics/statue-slavery-caesar-rodney-trump-b2941386.html)
+
+[https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html](https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html)
+
+[https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s](https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s)

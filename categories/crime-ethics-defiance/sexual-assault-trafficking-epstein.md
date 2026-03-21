@@ -350,3 +350,15 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 [https://thehill.com/blogs/in-the-know/5779731-trump-epstein-titanic-statue/](https://thehill.com/blogs/in-the-know/5779731-trump-epstein-titanic-statue/)
 
 [https://www.theguardian.com/us-news/2026/mar/11/titanic-statue-trump-epstein-national-mall](https://www.theguardian.com/us-news/2026/mar/11/titanic-statue-trump-epstein-national-mall)
+
+2026-03-18 Pam Bondi and Todd Blanche attended a briefing at Capitol Hill to brief a committee on the Epstein investigation. It was the same committee that subpoenaed Bondi during a deposition. Democrat Summer Lee and Republican James Comer had a heated exchange. Another source reported past clashes between the two. 
+
+[https://www.youtube.com/watch?v=xEU7POr7ar8&list=WL&index=6](https://www.youtube.com/watch?v=xEU7POr7ar8&list=WL&index=6)
+
+[https://thehill.com/homenews/house/5676969-comer-lee-house-hearing-minnesota/](https://thehill.com/homenews/house/5676969-comer-lee-house-hearing-minnesota/)
+
+[https://www.foxnews.com/politics/you-have-failed-comer-clashes-democrat-minnesota-fraud-probe-sparks-shouting-match](https://www.foxnews.com/politics/you-have-failed-comer-clashes-democrat-minnesota-fraud-probe-sparks-shouting-match)
+
+[https://www.youtube.com/watch?v=N7eKVwnqoX8](https://www.youtube.com/watch?v=N7eKVwnqoX8)
+
+{% include youtubePlayer.html id="N7eKVwnqoX8" %}

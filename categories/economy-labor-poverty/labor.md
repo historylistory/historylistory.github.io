@@ -216,6 +216,16 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2026 March
 
+2026-03-13 Senator Patty Murray asked for a measure to fund Department of Homeland Security agencies that **weren’t** involved in immigration enforcement. It was an attempt to get TSA agents paid. The Republican party blocked the attempt to fund TSA, FEMA, and other agencies. 
+
+[https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/](https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/)
+
+[https://www.pbs.org/newshour/politics/watch-live-senate-meets-to-consider-dhs-funding-to-end-shutdown](https://www.pbs.org/newshour/politics/watch-live-senate-meets-to-consider-dhs-funding-to-end-shutdown)
+
+[https://www.appropriations.senate.gov/news/minority/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-and-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice](https://www.appropriations.senate.gov/news/minority/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-and-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice)
+
+[https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s](https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s)
+
 2026-03-16 Leaked DOGE deposition videos went viral, revealing that DOGE employees used OpenAI’s ChatGPT to determine which agencies and grants to cut, starting with any that referenced DEI. They used AI to indiscriminately take jobs away from dedicated and hard-working people.  
 
 [https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
