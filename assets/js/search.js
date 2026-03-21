@@ -56,21 +56,31 @@
       return;
     }
 
+    // Common English stop words that inflate results
+    var stopWords = ['a','an','the','and','or','but','in','on','at','to','for',
+      'of','with','by','from','is','it','as','be','was','are','were','been',
+      'has','had','do','does','did','will','would','could','should','may',
+      'might','shall','can','this','that','these','those','he','she','his',
+      'her','him','they','them','their','we','our','us','its','my','your',
+      'who','which','what','where','when','how','not','no','so','if','then',
+      'than','too','very','just','about','up','out','into','over','after'];
+
+    var queryLower = query.toLowerCase();
+    var allTerms = queryLower.split(/\s+/).filter(function (t) { return t.length > 0; });
+    // Filter stop words but keep them if they're ALL the user typed
+    var searchTerms = allTerms.filter(function (t) { return stopWords.indexOf(t) === -1; });
+    if (searchTerms.length === 0) searchTerms = allTerms;
+
     var results;
     try {
-      // Split query into terms, filter out very short words
-      var terms = query.toLowerCase().split(/\s+/).filter(function (t) { return t.length > 0; });
-
-      // Search each term individually with wildcards (OR strategy)
-      // Then score by how many terms each document matches
+      // Search each meaningful term individually with wildcards
       var docScores = {};
       var docMatches = {};
 
-      terms.forEach(function (term) {
+      searchTerms.forEach(function (term) {
         var safeTerm = term.replace(/[:\*\~\^]/g, '');
         if (!safeTerm) return;
 
-        // Try wildcard match for each term
         var termResults = [];
         try {
           termResults = index.search('*' + safeTerm + '*');
@@ -88,10 +98,41 @@
         });
       });
 
-      // Sort by number of matching terms first, then by Lunr score
+      // Phrase boost: check actual content for the full query or consecutive terms
+      var phraseBoost = {};
+      if (allTerms.length > 1) {
+        Object.keys(docScores).forEach(function (ref) {
+          var doc = store.find(function (d) { return d.url === ref; });
+          if (!doc) return;
+          var content = (doc.title + ' ' + doc.content).toLowerCase();
+
+          // Full phrase match — massive boost
+          if (content.indexOf(queryLower) !== -1) {
+            phraseBoost[ref] = 1000;
+          } else {
+            // Check for consecutive term pairs — partial phrase boost
+            var pairCount = 0;
+            for (var i = 0; i < allTerms.length - 1; i++) {
+              var pair = allTerms[i] + ' ' + allTerms[i + 1];
+              if (content.indexOf(pair) !== -1) pairCount++;
+            }
+            if (pairCount > 0) {
+              phraseBoost[ref] = pairCount * 100;
+            }
+          }
+        });
+      }
+
+      // Sort: phrase boost first, then term matches, then Lunr score
       results = Object.keys(docScores).map(function (ref) {
-        return { ref: ref, score: docScores[ref], matches: docMatches[ref] };
+        return {
+          ref: ref,
+          score: docScores[ref],
+          matches: docMatches[ref],
+          phrase: phraseBoost[ref] || 0
+        };
       }).sort(function (a, b) {
+        if (b.phrase !== a.phrase) return b.phrase - a.phrase;
         if (b.matches !== a.matches) return b.matches - a.matches;
         return b.score - a.score;
       });
@@ -135,11 +176,20 @@
     var lower = content.toLowerCase();
     var bestPos = -1;
 
-    // Find the first occurrence of any search term
-    for (var i = 0; i < terms.length; i++) {
-      var pos = lower.indexOf(terms[i]);
-      if (pos !== -1 && (bestPos === -1 || pos < bestPos)) {
-        bestPos = pos;
+    // First try to find the full phrase
+    var fullPhrase = terms.join(' ');
+    var phrasePos = lower.indexOf(fullPhrase);
+    if (phrasePos !== -1) {
+      bestPos = phrasePos;
+    }
+
+    // Otherwise find the first occurrence of any search term
+    if (bestPos === -1) {
+      for (var i = 0; i < terms.length; i++) {
+        var pos = lower.indexOf(terms[i]);
+        if (pos !== -1 && (bestPos === -1 || pos < bestPos)) {
+          bestPos = pos;
+        }
       }
     }
 
