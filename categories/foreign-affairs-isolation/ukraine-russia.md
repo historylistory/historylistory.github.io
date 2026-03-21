@@ -52,6 +52,16 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 
 ### 2025 March
 
+2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire in the Russia-Ukraine war in effort to secure American access to Ukraine’s natural resources. 
+
+[https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal](https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal)
+
+[https://www.csis.org/analysis/breaking-down-us-ukraine-minerals-deal](https://www.csis.org/analysis/breaking-down-us-ukraine-minerals-deal)
+
+[https://www.reuters.com/world/kyiv-is-ready-sign-resources-deal-with-us-ukraine-government-source-says-2025-04-30](https://www.reuters.com/world/kyiv-is-ready-sign-resources-deal-with-us-ukraine-government-source-says-2025-04-30)
+
+[https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl](https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl)
+
 2025-03-15 Trump walked back his promise to end the Ukraine war in 24 hours, claiming he was being sarcastic.
 
 [https://apnews.com/article/trump-russia-ukraine-war-solved-f51b96e4e690341caee65358bcbab1fa](https://apnews.com/article/trump-russia-ukraine-war-solved-f51b96e4e690341caee65358bcbab1fa)

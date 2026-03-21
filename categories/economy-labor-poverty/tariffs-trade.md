@@ -30,6 +30,19 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 [https://apnews.com/article/tariffs-timeline-trade-war-trump-canada-mexico-china-a9d714eea677488ef9397547d838dbd0](https://apnews.com/article/tariffs-timeline-trade-war-trump-canada-mexico-china-a9d714eea677488ef9397547d838dbd0)
 
+### 2025 March
+
+2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire in the Russia-Ukraine war in effort to secure American access to Ukraine’s natural resources. 
+
+[https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal](https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal)
+
+[https://www.csis.org/analysis/breaking-down-us-ukraine-minerals-deal](https://www.csis.org/analysis/breaking-down-us-ukraine-minerals-deal)
+
+[https://www.reuters.com/world/kyiv-is-ready-sign-resources-deal-with-us-ukraine-government-source-says-2025-04-30](https://www.reuters.com/world/kyiv-is-ready-sign-resources-deal-with-us-ukraine-government-source-says-2025-04-30)
+
+[https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl](https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl)
+
+
 ### 2025 April
 
 2025-04-02 The White House posts reciprocal tariff charts on X which included uninhabited islands. The Commerce Secretary stated placing tariffs on uninhabited islands was intentional to tackle any "loopholes".
