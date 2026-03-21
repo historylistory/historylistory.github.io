@@ -248,6 +248,20 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 {% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
+2016-09-21 ***For timeline context only*** Trump reportedly said he wanted to take the oil from Iraq. He stated, “You’re not stealing anything. We’re reimbursing ourselves”.
+
+[https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis](https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis)
+
+[https://theweek.com/speedreads/809323/trump-reportedly-thinks-idiots-dont-take-iraqs-oil-repayment-war](https://theweek.com/speedreads/809323/trump-reportedly-thinks-idiots-dont-take-iraqs-oil-repayment-war)
+
+[https://www.yahoo.com/news/trumps-talk-keeping-iraqs-oil-sparking-concerns-082724997--politics.html](https://www.yahoo.com/news/trumps-talk-keeping-iraqs-oil-sparking-concerns-082724997--politics.html)
+
+[https://www.newyorker.com/news/our-columnists/trumps-baffling-plan-to-pillage-syrias-oil](https://www.newyorker.com/news/our-columnists/trumps-baffling-plan-to-pillage-syrias-oil)
+
+[https://www.brookings.edu/articles/trumps-take-the-oil-madness/](https://www.brookings.edu/articles/trumps-take-the-oil-madness/)
+
+[https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary](https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary)
+
 ### 2017 Kushner Conflict of Interest
 
 2017-01-01 Sources reported that Jared Kushner is close friends with Netanyahu and Muhammed bin Salman, and even though he is not part of the White House staff he has helped broker Abraham Accords. He has business ties with Saudi Arabia, and this is a huge conflict of interest that the US government has been overlooking since Trump took office his second term.
