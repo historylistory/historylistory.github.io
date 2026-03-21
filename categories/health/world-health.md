@@ -12,6 +12,12 @@ permalink: /categories/health/world-health/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/](https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/)
 
+### 2025 February
+
+2025-02-27 The Trump administration ended funding for a UN program fighting HIV/AIDS.
+
+[https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding](https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding)
+
 ### 2025 July
 
 2025-07-14 Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 

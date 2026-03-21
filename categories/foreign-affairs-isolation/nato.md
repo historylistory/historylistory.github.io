@@ -20,6 +20,10 @@ permalink: /categories/foreign-affairs-isolation/nato/
 
 ### 2017
 
+2017-05-19 NATO allies needed reassurance that Trump had their backs after Trump accused NATO of not “paying their fair share” during his campaign trail. An article quoted Thomas Wright of Brooking Institution as saying, “the problem in the plan is that President Trump is the only president who has not yet explicitly endorsed Article 5. I understand that is not an accident”.
+
+[https://www.reuters.com/article/usa-trump-europe/trump-under-pressure-to-assure-nato-allies-he-has-their-back-idINKCN18F0YR/](https://www.reuters.com/article/usa-trump-europe/trump-under-pressure-to-assure-nato-allies-he-has-their-back-idINKCN18F0YR/)
+
 2017-07-06 Trump complained that the US had been pouring too much money into NATO, even claiming that “massive amounts of money is owed” back to the US.  Context: The US receives global presence, economics (a higher GDP than all allies combined), technological investment, and essential capabilities like satellites. 
 
 [https://www.npr.org/2018/07/11/628137185/fact-check-trumps-claims-on-nato-spending](https://www.npr.org/2018/07/11/628137185/fact-check-trumps-claims-on-nato-spending)
@@ -35,6 +39,15 @@ permalink: /categories/foreign-affairs-isolation/nato/
 [https://www.politico.com/news/2024/01/20/trump-nato-eu-00136732](https://www.politico.com/news/2024/01/20/trump-nato-eu-00136732)
 
 [https://www.politico.eu/article/donald-trump-vow-never-help-europe-attack-thierry-breton/](https://www.politico.eu/article/donald-trump-vow-never-help-europe-attack-thierry-breton/)
+
+2024-03-19 Trump said he would only help protect NATO members from a future attack by Russia if its European members spent more on defense. 
+
+[https://www.reuters.com/world/us/trump-again-conditions-us-help-nato-allies-their-paying-fair-share-2024-03-19/](https://www.reuters.com/world/us/trump-again-conditions-us-help-nato-allies-their-paying-fair-share-2024-03-19/)
+
+[https://ca.news.yahoo.com/trump-again-conditions-us-help-200835508.html](https://ca.news.yahoo.com/trump-again-conditions-us-help-200835508.html)
+
+[https://www.straitstimes.com/world/europe/trump-again-conditions-us-help-to-nato-allies-on-their-paying-fair-share](https://www.straitstimes.com/world/europe/trump-again-conditions-us-help-to-nato-allies-on-their-paying-fair-share)
+
 
 ### 2026 March
 

@@ -26,6 +26,11 @@ permalink: /categories/foreign-affairs-isolation/the-un/
 
 [https://www.whitehouse.gov/presidential-actions/2025/02/withdrawing-the-united-states-from-and-ending-funding-to-certain-united-nations-organizations-and-reviewing-united-states-support-to-all-international-organizations/](https://www.whitehouse.gov/presidential-actions/2025/02/withdrawing-the-united-states-from-and-ending-funding-to-certain-united-nations-organizations-and-reviewing-united-states-support-to-all-international-organizations/)
 
+2025-02-27 The Trump administration ended funding for a UN program fighting HIV/AIDS.
+
+[https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding](https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding)
+
+
 2025-08-28 The Trump administration withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. ACLU issued a press release calling this an attempt to evade accountability.
 
 [https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record](https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record)

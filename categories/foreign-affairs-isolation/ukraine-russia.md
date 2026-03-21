@@ -14,6 +14,20 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 
 ### 2025 February
 
+2025-02-26 Trump said the US spent $350B on the war in the Ukraine. According to other sources the actual figure was $185B.  
+
+[https://www.cnn.com/2025/08/18/politics/ukraine-aid-trump-zelensky-fact-check](https://www.cnn.com/2025/08/18/politics/ukraine-aid-trump-zelensky-fact-check)
+
+[https://www.kielinstitut.de/publications/ukraine-support-tracker-data-6453](https://www.kielinstitut.de/publications/ukraine-support-tracker-data-6453)
+
+[https://www.kielinstitut.de/publications/news/ukraine-support-after-3-years-of-war-aid-flows-remain-low-but-steady-shift-towards-weapons-procurement/](https://www.kielinstitut.de/publications/news/ukraine-support-after-3-years-of-war-aid-flows-remain-low-but-steady-shift-towards-weapons-procurement/)
+
+[https://www.youtube.com/live/tTz6E_uCG6I?t=1356s](https://www.youtube.com/live/tTz6E_uCG6I?t=1356s)
+
+[https://www.voanews.com/a/us-figures-do-not-support-trump-claims-on-ukraine-spending/7981441.html](https://www.voanews.com/a/us-figures-do-not-support-trump-claims-on-ukraine-spending/7981441.html)
+
+[https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
+
 2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
 
 {% include youtubePlayer.html id="b8gmxT8qj8Y" %}

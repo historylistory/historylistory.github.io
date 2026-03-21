@@ -35,6 +35,8 @@ permalink: /recommended-links/
 
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
+[Federal Spending Tracker](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
+
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
