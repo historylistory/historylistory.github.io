@@ -61,7 +61,13 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ### Greed
 
+***Luke 18:25*** “Indeed, it is easier for a camel to go through the eye of a needle than for someone who is rich to enter the kingdom of God”.
+
 ***Mark 8:36*** “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?”
+
+***Mark 10:25*** “It is easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God”.
+
+***Matthew 6:24*** “No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money”.
 
 
 
@@ -73,7 +79,15 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Scripture often cited by those who condemn homosexuality:*** Leviticus 18:22, Leviticus 20:13, Romas 1:26-27, 1 Corinthians 6:9-10. 
 
-***Important distinction when the book of Leviticus was written:*** in that time, same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. 
+***Important distinction when the book of Leviticus was written:*** in that time, same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. Much of what’s talked about in Leviticus is also in a section that discusses incest, child sacrifice, bestiality and adultery and/or ties practices to those rituals, **NOT** modern consensual adult relationships (which were not a recognized social category at the time).
+
+**Books AI recommended during my research (yes, I used ChatGPT to search for these and no, I haven’t read them)**
+William Loader — The New Testament on Sexuality
+John Boswell — Christianity, Social Tolerance, and Homosexuality
+Martti Nissinen — Homoeroticism in the Biblical World
+Jacob Milgrom — Leviticus (Anchor Yale Bible Commentary)
+Tikva Frymer-Kensky — Studies on fertility cults and goddess worship
+Mark S. Smith — The Early History of God (Canaanite religion)
 
 ***Acts 10:13-15*** “Do not call anything impure that God has made clean”.
 
