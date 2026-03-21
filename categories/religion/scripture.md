@@ -18,21 +18,6 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 
 
-
-### Hatred, Racism
-
-***1 John 4:20*** “Whoever claims to love God yet hates a brother or sister is a liar. For whoever does not love their brother and sister, whom they have seen, cannot love God, whom they have not seen”. 
-
-***Mark 12:31*** “Love your neighbor as yourself”.
-
-***Matthew 5:43-45*** “You have heard that it was said, ‘Love your neighbor and hate your enemy’. But I tell you, love your enemies and pray for those who persecute you, that you may be children of your Father in heaven. He causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous”.
-
-***Matthew 22:37-40*** “Love the Lord your God with all your heart and with all your soul and with all your mind. This is the first and greatest commandment. And the second is like it: Love your neighbor as yourself. All the Law and the Prophets hang on these two commandments”. 
-
-
-
-
-
 ### Counterfeit Christianity
 
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
@@ -65,10 +50,11 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ### Empathy & Mercy
 
+***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not up to us to be offended when God’s mercy reaches farther than we expected).
+
 ***Mark 12:31*** “Love your neighbor as yourself”.
 
 ***Matthew 5:1-12*** “Blessed are the meek, the merciful, the pure of heart and the peacemakers”.
-
 
 
 
@@ -80,16 +66,37 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 
 
+### Homosexuality
+***Interesting Article: Barna (Sept 21, 2007) “A New Generation Expresses its Skepticism and Frustration with Christianity”*** A new study among 16-to-29-year-olds showed a greater degree of criticism with a growing theme: “Christianity in today’s society no longer looks like Jesus” and the first thing that comes to the mind of participants was “anti-homosexuality”.
 
-### Immigration
+[https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/](https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/)
+
+***Scripture often cited by those who condemn homosexuality:*** Leviticus 18:22, Leviticus 20:13, Romas 1:26-27, 1 Corinthians 6:9-10. 
+
+***Important distinction when the book of Leviticus was written:*** in that time, same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. 
+
+***Acts 10:13-15*** “Do not call anything impure that God has made clean”.
+
+***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not our place to be offended when God’s mercy reaches farther than we expected. God’s love has never been about qualifications).
+
+
+
+
+### Immigration & Racism
 
 ***America (Emma Lazarus wrote for the Statue of Liberty)*** “Give me your tired, your poor, your huddled masses yearning to breathe free, the wretched refuse of your teeming shore. Send these, the homeless, tempest-to’st to me. I lift my lamp beside the golden door”.
 
 ***1 John 4:20*** “Whoever claims to love God yet hates a brother or sister is a liar. For whoever does not love their brother and sister, whom they have seen, cannot love God, whom they have not seen”. 
 
+***John 13:35*** “By this everyone will know that you are my disciples, if you love one another”.
+
 ***Deuteronomy 10:18-19*** “He defends the cause of the fatherless and the widow, and loves the foreigner residing among you, giving them food and clothing. And you are to love those who are foreigners, for you yourselves were foreigners in Egypt”.
 
 ***Leviticus 19:33-34*** “When a foreigner resides among you in your land, do not mistreat them. The foreigner residing among you must be treated as your native-born. Love them as yourself, for you were foreigners in Egypt. I am the Lord your God”.
+
+***Mark 12:31*** “Love your neighbor as yourself”.
+
+***Matthew 5:43-45*** “You have heard that it was said, ‘Love your neighbor and hate your enemy’. But I tell you, love your enemies and pray for those who persecute you, that you may be children of your Father in heaven. He causes his sun to rise on the evil and the good, and sends rain on the righteous and the unrighteous”.
 
 ***Matthew 22:37-40*** “Love the Lord your God with all your heart and with all your soul and with all your mind. This is the first and greatest commandment. And the second is like it: Love your neighbor as yourself. All the Law and the Prophets hang on these two commandments”. 
 
@@ -99,6 +106,27 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 “Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
 
+
+
+
+### Lifestyle
+
+***Exodus 20:8-11***not to work on the Sabbath day “Remember the Sabbath day by keeping it holy. Six days you shall labor and do all your work, but he seventh day is a sabbath to the Lord your God”.
+***CONTRADICTION:*** 
+Jesus worked and healed during the Sabbath
+***Mark 2:27*** “The Sabbath was made for man, not man for the Sabbath”.
+
+***Leviticus 11 – Deuteronomy 14:3-21 – Exodus 23:19*** food laws, dietary rules, and holiness
+***CONTRADICTION:***
+***Mark 7:15*** “There is nothing outside a person that by going into him can defile him, but the things that come out of a person are what defile him”.
+***Mark 7:19*** “Jesus declared all foods clean”
+
+
+
+
+### LOVE
+
+***1 Corinthians 13:4-7*** “Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres”.
 
 
 
@@ -120,3 +148,19 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ### Tuning Out, Turning a Blind Eye, Burying One's Head
 
 ***Matthew 7:13-14*** “Broad is the road that leads to destruction, and many enter through it. But small is the gate and narrow the road that leads to life, and only a few find it”.
+
+
+
+### Where to file this?
+
+***Acts 1:8*** “You will receive power when the Holy Spirit comes on you; and you will be my witnesses in Jerusalem, and all Judea and Samaria, and to the ends of the earth”.
+
+***Hebrews 4;12*** “The word of God is living and active”.
+
+***Isaiah 43:19*** “See, I am doing a new thing! Now it springs up; do you not perceive it?”
+
+***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
+
+***John 16:12-13*** “I have much more to say to you, more than you can now bear. But when he, the Spirit of truth, come, he will guide you into all truth”.
+
+***2 Timothy 3:16*** “All Scripture is God-breathed and useful for teaching”.
