@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Greenland
+title: Greenland & Denmark
 category_slug: foreign-affairs-isolation
-subcategory_slug: greenland
-permalink: /categories/foreign-affairs-isolation/greenland/
+subcategory_slug: greenland-denmark
+permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 ---
 
 ### 2019

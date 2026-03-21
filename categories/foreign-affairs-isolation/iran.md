@@ -893,6 +893,16 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
 
+2026-03-19 Scott Bessent said the US may lift sanctions on Iranian oil.
+
+[https://thehill.com/homenews/administration/5791639-bessent-oil-sanctions-lift-iran-conflict/](https://thehill.com/homenews/administration/5791639-bessent-oil-sanctions-lift-iran-conflict/)
+
+[https://www.reuters.com/business/energy/us-may-remove-sanctions-iranian-oil-stranded-tankers-bessent-says-2026-03-19/](https://www.reuters.com/business/energy/us-may-remove-sanctions-iranian-oil-stranded-tankers-bessent-says-2026-03-19/)
+
+[https://www.nbcnews.com/world/iran/us-eases-iranian-oil-sanctions-scramble-contain-energy-prices-handing-rcna264546](https://www.nbcnews.com/world/iran/us-eases-iranian-oil-sanctions-scramble-contain-energy-prices-handing-rcna264546)
+
+[https://www.bbc.com/news/articles/c9d415g55nno](https://www.bbc.com/news/articles/c9d415g55nno)
+
 2026-03-20 Netanyahu said he acted alone on the South Pars strike in Iran, and Trump claimed the U.S. knew nothing about the attack in advance, but another article reports that Israeli officials told them the strike was coordinated with the Trump administration in advance.
 
 [https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/](https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/)
@@ -905,6 +915,13 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.cnn.com/2026/03/19/middleeast/trump-iran-strikes-gas-sites-pressure-latam-intl](https://www.cnn.com/2026/03/19/middleeast/trump-iran-strikes-gas-sites-pressure-latam-intl)
 
+2026-03-20 In an interview with CNN’s Kaitlyn Collins, Scott Perry said he’d like to see Iran pay for the war.
+
+[https://thehill.com/homenews/house/5793393-scott-perry-iran-war-bill/](https://thehill.com/homenews/house/5793393-scott-perry-iran-war-bill/)
+
+[https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html](https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html)
+
+[https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
 
 ### 2026 March Week #4
 

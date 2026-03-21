@@ -69,3 +69,15 @@ permalink: /categories/climate-change/weird-weather/
 
 {% include youtubePlayer.html id="dCfntXy7AK0" %}
 
+2026-03-20 Hawaii faced the worst flooding in 20 years. 
+
+[https://www.hawaiinewsnow.com/2026/03/20/flooding-damage-reported-across-oahu-heavy-rain-overwhelms-already-saturated-ground/](https://www.hawaiinewsnow.com/2026/03/20/flooding-damage-reported-across-oahu-heavy-rain-overwhelms-already-saturated-ground/)
+
+[https://www.theguardian.com/us-news/2026/mar/20/hawaii-oahu-flash-floods](https://www.theguardian.com/us-news/2026/mar/20/hawaii-oahu-flash-floods)
+
+[https://www.nbcnews.com/weather/storms/oahu-floods-dam-failure-risk-evactuations-rcna264509](https://www.nbcnews.com/weather/storms/oahu-floods-dam-failure-risk-evactuations-rcna264509)
+
+[https://apnews.com/article/hawaii-flooding-heavy-rain-oahu-north-shore-e4b4f3642491b3e5de4a5ad7b82e9f39](https://apnews.com/article/hawaii-flooding-heavy-rain-oahu-north-shore-e4b4f3642491b3e5de4a5ad7b82e9f39)
+
+[https://www.dw.com/en/us-hawaii-hit-by-historic-flooding-more-rain-coming/a-76466168](https://www.dw.com/en/us-hawaii-hit-by-historic-flooding-more-rain-coming/a-76466168)
+

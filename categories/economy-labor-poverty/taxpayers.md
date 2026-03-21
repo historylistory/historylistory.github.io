@@ -176,3 +176,11 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
 
 [https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
+2026-03-20 In an interview with CNN’s Kaitlyn Collins, Scott Perry said he’d like to see Iran pay for the war.
+
+[https://thehill.com/homenews/house/5793393-scott-perry-iran-war-bill/](https://thehill.com/homenews/house/5793393-scott-perry-iran-war-bill/)
+
+[https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html](https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html)
+
+[https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)

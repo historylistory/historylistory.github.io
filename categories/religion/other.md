@@ -16,7 +16,7 @@ permalink: /categories/religion/other/
 
 2025-09-19 A Far-right Christian Nationalist church in Tennessee expressed outraged at a "Hate has no home here in Jackson county" banner that locals displayed in the wake of Charlie Kirk. The church leader responded by accusing locals of supporting violence when they displayed the banner.
 
-{% include youtubePlayer.html id="DM4PML8O3yo" %}
+[https://www.youtube.com/watch?v=DM4PML8O3yo](https://www.youtube.com/watch?v=DM4PML8O3yo)
 
 ### 2026 March
 

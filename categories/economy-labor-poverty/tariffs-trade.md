@@ -178,3 +178,13 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium](https://www.npr.org/2026/03/15/nx-s1-5747927/the-war-in-iran-is-impacting-earths-supply-of-helium)
 
 [https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html](https://www.cnbc.com/2026/03/19/the-iran-war-is-threatening-supply-helium-what-it-means-for-markets.html)
+
+2026-03-19 Scott Bessent said the US may lift sanctions on Iranian oil.
+
+[https://thehill.com/homenews/administration/5791639-bessent-oil-sanctions-lift-iran-conflict/](https://thehill.com/homenews/administration/5791639-bessent-oil-sanctions-lift-iran-conflict/)
+
+[https://www.reuters.com/business/energy/us-may-remove-sanctions-iranian-oil-stranded-tankers-bessent-says-2026-03-19/](https://www.reuters.com/business/energy/us-may-remove-sanctions-iranian-oil-stranded-tankers-bessent-says-2026-03-19/)
+
+[https://www.nbcnews.com/world/iran/us-eases-iranian-oil-sanctions-scramble-contain-energy-prices-handing-rcna264546](https://www.nbcnews.com/world/iran/us-eases-iranian-oil-sanctions-scramble-contain-energy-prices-handing-rcna264546)
+
+[https://www.bbc.com/news/articles/c9d415g55nno](https://www.bbc.com/news/articles/c9d415g55nno)
