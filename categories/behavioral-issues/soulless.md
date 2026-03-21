@@ -120,6 +120,27 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
 
+### 2025 April
+
+2025-04-21 The day Pope Francis died, MJT tweeted, “Today there were major shifts in global leaderships. Evil is being defeated by the hand of God”.
+
+[https://borgenproject.org/pope-francis-view-on-poverty/](https://borgenproject.org/pope-francis-view-on-poverty/)
+
+[https://www.youtube.com/watch?v=t1niKXAtbWo](https://www.youtube.com/watch?v=t1niKXAtbWo)
+
+[https://www.ncronline.org/news/vatican/pope-francis-live-vatican-guesthouse-not-papal-apartments](https://www.ncronline.org/news/vatican/pope-francis-live-vatican-guesthouse-not-papal-apartments)
+
+[https://www.bbc.com/news/world-europe-21949118](https://www.bbc.com/news/world-europe-21949118)
+
+[https://www.kbtx.com/2025/04/30/rep-marjorie-taylor-greene-says-catholic-bishops-are-controlled-by-satan/](https://www.kbtx.com/2025/04/30/rep-marjorie-taylor-greene-says-catholic-bishops-are-controlled-by-satan/)
+
+[https://www.catholicleague.org/marjorie-taylor-greene-should-be-censured/](https://www.catholicleague.org/marjorie-taylor-greene-should-be-censured/)
+
+[https://people.com/marjorie-taylor-greene-says-hand-of-god-defeated-evil-after-pope-francis-death-11719365](https://people.com/marjorie-taylor-greene-says-hand-of-god-defeated-evil-after-pope-francis-death-11719365)
+
+[https://x.com/mtgreenee/status/1914329322376356347](https://x.com/mtgreenee/status/1914329322376356347)
+
+
 ### 2025 May
 
 2025-05-31 After public criticism for her calloused remarks on Medicaid cuts, Iowa Senator Joni Ernst made a sarcastic video while trolling through a graveyard, adding, "I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I'm really really glad that I didn't have to bring up the subject of the tooth fairy as well..." and then ended it with, "...for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ".

@@ -15,6 +15,10 @@ This list will keep growing over time because I’m new to scripture and have on
 I may even consider adding non-religious quotes. For example, in Immigration I have included this one: 
 ***“Give me your tired, your poor, your huddled masses yearning to breathe free, the wretched refuse of your teeming shore. Send these, the homeless, tempest-to’st to me. I lift my lamp beside the golden door”.***
 
+
+
+
+
 ### Hatred, Racism
 
 ***1 John 4:20*** “Whoever claims to love God yet hates a brother or sister is a liar. For whoever does not love their brother and sister, whom they have seen, cannot love God, whom they have not seen”. 
@@ -27,15 +31,9 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 
 
-### Empathy & Mercy
-
-***Mark 12:31*** “Love your neighbor as yourself”.
-
-***Matthew 5:1-12*** “Blessed are the meek, the merciful, the pure of heart and the peacemakers”.
 
 
-
-### False Prophets
+### Counterfeit Christianity
 
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
 
@@ -48,14 +46,38 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ***Matthew 7:22*** “Many will say to me on that day, ‘Lord, Lord, did we not prophesy in your name and in your name drive out demons and in your name perform many miracles?”
 
 ***Matthew 7:23*** “I never knew you. Away from me, you evildoers!”
+***Matthew 7:23*** “I never knew you; depart from me, you workers of lawlessness”.
+
+***Matthew 12:24 (example)*** “It is only by Beezlebul, the prince of demons, that this man casts out demons”. 
+
+***Matthew 12:31-32*** “Therefore I tell you, every sin and blasphemy will be forgiven people, but the blasphemy against the Spirit will not be forgiven. And whoever speaks a word against the Son of Man will be forgiven, but whoever speaks against the Holy Spirit will not be forgiven, either in this age or in the age to come”.
+
+***Matthew 15:8*** “These people honor me with their lips, but their hearts are far from me”.
+
+***Matthew 24:24*** “For false messiahs and false prophets will appear and perform great signs and wonders to deceive, if possible, even the elect”.
 
 ***Matthew 25:41-43*** “Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels”.
+
+***2 Thessalonians 2:3*** “Let no one deceive you by any means; for that day will not come unless the falling away comes first, and the man of sin is revealed, the son of perdition”.
+
+
+
+
+### Empathy & Mercy
+
+***Mark 12:31*** “Love your neighbor as yourself”.
+
+***Matthew 5:1-12*** “Blessed are the meek, the merciful, the pure of heart and the peacemakers”.
+
+
 
 
 
 ### Greed
 
 ***Mark 8:36*** “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?”
+
+
 
 
 
@@ -79,6 +101,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 
 
+
+
 ### Poverty
 
 ***Matthew 25:35-40*** “For I was hungry, and you gave me something to eat; I was thirsty, and you gave me something to drink”. I was a stranger, and you welcomed me in. I needed clothes, and you clothed me. I was sick, and you looked after me. I was in prison, and you came to visit me.” 
@@ -88,6 +112,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 “Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
 
 ***Proverbs 14:31*** “Whoever oppresses the poor shows contempt for their Maker, but whoever is kind to the needy honors God”.
+
+
 
 
 

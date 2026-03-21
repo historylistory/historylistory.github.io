@@ -6,6 +6,26 @@ subcategory_slug: other
 permalink: /categories/religion/other/
 ---
 
+### April
+
+2025-04-21 The day Pope Francis died, MJT tweeted, “Today there were major shifts in global leaderships. Evil is being defeated by the hand of God”.
+
+[https://borgenproject.org/pope-francis-view-on-poverty/](https://borgenproject.org/pope-francis-view-on-poverty/)
+
+[https://www.youtube.com/watch?v=t1niKXAtbWo](https://www.youtube.com/watch?v=t1niKXAtbWo)
+
+[https://www.ncronline.org/news/vatican/pope-francis-live-vatican-guesthouse-not-papal-apartments](https://www.ncronline.org/news/vatican/pope-francis-live-vatican-guesthouse-not-papal-apartments)
+
+[https://www.bbc.com/news/world-europe-21949118](https://www.bbc.com/news/world-europe-21949118)
+
+[https://www.kbtx.com/2025/04/30/rep-marjorie-taylor-greene-says-catholic-bishops-are-controlled-by-satan/](https://www.kbtx.com/2025/04/30/rep-marjorie-taylor-greene-says-catholic-bishops-are-controlled-by-satan/)
+
+[https://www.catholicleague.org/marjorie-taylor-greene-should-be-censured/](https://www.catholicleague.org/marjorie-taylor-greene-should-be-censured/)
+
+[https://people.com/marjorie-taylor-greene-says-hand-of-god-defeated-evil-after-pope-francis-death-11719365](https://people.com/marjorie-taylor-greene-says-hand-of-god-defeated-evil-after-pope-francis-death-11719365)
+
+[https://x.com/mtgreenee/status/1914329322376356347](https://x.com/mtgreenee/status/1914329322376356347)
+
 ### 2025 June
 
 2025-06-30 Trump posted on social media about a faith leaders conference he was supposed to attend, claiming the meeting was postponed for issues with AT&T.
