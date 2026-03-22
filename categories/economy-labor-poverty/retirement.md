@@ -3,7 +3,7 @@ layout: subcategory
 title: Retirement
 category_slug: economy-labor-poverty
 subcategory_slug: retirement
-permalink: /categories/economy-labor-poverty/poverty/
+permalink: /categories/economy-labor-poverty/retirement/
 ---
 
 ### 2026 March
