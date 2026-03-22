@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Social Security
+title: Social Security & Retirement
 category_slug: economy-labor-poverty
-subcategory_slug: social-security
-permalink: /categories/economy-labor-poverty/social-security/
+subcategory_slug: social-security-retirement
+permalink: /categories/economy-labor-poverty/social-security-retirement/
 ---
 
 ### 2024
@@ -71,3 +71,21 @@ permalink: /categories/economy-labor-poverty/social-security/
 2026-01-29 Social security is estimated to run dry by 2035. 
 
 [https://www.cnbc.com/select/will-social-security-run-out-heres-what-you-need-to-know/](https://www.cnbc.com/select/will-social-security-run-out-heres-what-you-need-to-know/)
+
+### 2026 March
+
+2026-03-10 Americans were pulling money out of their 401k funds at record rates.
+
+[https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html](https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html)
+
+[https://www.foxbusiness.com/economy/americans-tap-retirement-funds-record-rates-mounting-financial-stress-takes-toll](https://www.foxbusiness.com/economy/americans-tap-retirement-funds-record-rates-mounting-financial-stress-takes-toll)
+
+[https://marketrealist.com/americans-withdrawing-401-k-funds/](https://marketrealist.com/americans-withdrawing-401-k-funds/)
+
+[https://www.hr-brew.com/stories/2026/03/13/record-number-401-k-hardship-withdrawals](https://www.hr-brew.com/stories/2026/03/13/record-number-401-k-hardship-withdrawals)
+
+[https://www.usatoday.com/story/money/2026/03/12/can-you-withdraw-401k-hardship-rules/89084285007/](https://www.usatoday.com/story/money/2026/03/12/can-you-withdraw-401k-hardship-rules/89084285007/)
+
+[https://www.cnbc.com/select/401k-hardship-withdrawals/](https://www.cnbc.com/select/401k-hardship-withdrawals/)
+
+[https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70](https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70)
