@@ -242,3 +242,21 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 [https://www.democracynow.org/2025/12/19/headlines/trumps_presidential_walk_of_fame_now_features_bronze_plaques_with_hyperpartisan_captions](https://www.democracynow.org/2025/12/19/headlines/trumps_presidential_walk_of_fame_now_features_bronze_plaques_with_hyperpartisan_captions)
 
 [https://www.thebanner.com/national/new-plaques-unveiled-presidential-walk-of-fame-62CJD7RDKBBALDAXHMYESL25IQ/](https://www.thebanner.com/national/new-plaques-unveiled-presidential-walk-of-fame-62CJD7RDKBBALDAXHMYESL25IQ/)
+
+### 2026 March
+
+2026-03-17 Trump said Newsom shouldn’t be president because he has dyslexia. He stated in the Oval Office, ***“…with a low IQ person, you know, ‘cuz Gavin New-Scum has admitted that he has a – that he has learning disabilities. Honestly, I’m all for people with learning disabilities but not for my President, um, I want…I think a President should not have a learning disability, okay? And, I know it’s highly controversial to say such a horrible thing. The President of the United States, Gavin New-Scum admitted that he has learning disabilities, dyslexia….”***
+
+[https://www.cnn.com/2026/03/16/politics/trump-newsom-learning-disability-dyslexia](https://www.cnn.com/2026/03/16/politics/trump-newsom-learning-disability-dyslexia)
+
+[https://www.kltv.com/2026/03/17/trump-says-gov-gavin-newsom-shouldnt-be-president-because-hes-dyslexic/](https://www.kltv.com/2026/03/17/trump-says-gov-gavin-newsom-shouldnt-be-president-because-hes-dyslexic/)
+
+[https://www.youtube.com/shorts/T3zJsOPpjKA](https://www.youtube.com/shorts/T3zJsOPpjKA)
+
+[https://www.bbc.com/news/articles/c4gjnwmm984o](https://www.bbc.com/news/articles/c4gjnwmm984o)
+
+[https://www.youtube.com/watch?v=dQ8L62T-C-w](https://www.youtube.com/watch?v=dQ8L62T-C-w)
+
+[https://www.nbcnews.com/video/shorts/trump-says-people-with-learning-disorders-shouldn-t-be-president-259606085749](https://www.nbcnews.com/video/shorts/trump-says-people-with-learning-disorders-shouldn-t-be-president-259606085749)
+
+[https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/](https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/)
