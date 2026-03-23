@@ -38,6 +38,10 @@ permalink: /categories/women-reproductive-rights/feminism/
 
 [https://www.cnn.com/2023/03/16/us/incel-involuntary-celibate-explained-cec](https://www.cnn.com/2023/03/16/us/incel-involuntary-celibate-explained-cec)
 
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC9780135/](https://pmc.ncbi.nlm.nih.gov/articles/PMC9780135/)
+
+[https://www.youtube.com/watch?v=3aJ1XPicw4o](https://www.youtube.com/watch?v=3aJ1XPicw4o)
+
 [https://en.wikipedia.org/wiki/Manosphere](https://en.wikipedia.org/wiki/Manosphere)
 
 [https://www.pbs.org/newshour/show/why-manosphere-content-is-appealing-to-some-young-men](https://www.pbs.org/newshour/show/why-manosphere-content-is-appealing-to-some-young-men)
