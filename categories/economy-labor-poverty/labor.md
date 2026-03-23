@@ -197,6 +197,15 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.nbcnews.com/business/economy/layoffs-highest-since-pandemic-challenger-rcna247351](https://www.nbcnews.com/business/economy/layoffs-highest-since-pandemic-challenger-rcna247351)
 
+2025-12-31 Under Trump the US economy added 181,000 jobs in all of 2025. For comparison, it added 1.46 million jobs in 2024 under Biden. 
+
+[https://www.nbcnews.com/business/economy/january-jobs-revisions-trump-rcna258398](https://www.nbcnews.com/business/economy/january-jobs-revisions-trump-rcna258398)
+
+[https://equitablegrowth.org/the-state-of-the-u-s-economy-one-year-into-the-second-trump-administration](https://equitablegrowth.org/the-state-of-the-u-s-economy-one-year-into-the-second-trump-administration)
+
+[https://www.wsj.com/economy/jobs/job-growth-last-year-was-far-worse-than-we-thought-heres-why-4308db41](https://www.wsj.com/economy/jobs/job-growth-last-year-was-far-worse-than-we-thought-heres-why-4308db41)
+
+
 ### 2026 January
 
 2026-01-28 Amazon’s Jeff Bezos forked over $75M to fund a documentary about Melania Trump, and in the same month laid off 16,000 Amazon workers.
