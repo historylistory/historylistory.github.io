@@ -180,3 +180,14 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
 [https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/](https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116200371638821370](https://truthsocial.com/@realDonaldTrump/posts/116200371638821370)
+
+2026-03-22 Trump ordered a hand-picked 3” commemorative Trump coin from the Commission of Fine Arts.
+
+[https://www.foxbusiness.com/politics/gold-trump-coin-moves-forward-after-treasury-invokes-rare-authority](https://www.foxbusiness.com/politics/gold-trump-coin-moves-forward-after-treasury-invokes-rare-authority)
+
+[https://time.com/article/2026/03/20/trump-gold-coin-250th-anniversary-commemorative-king-living-person-tradition/](https://time.com/article/2026/03/20/trump-gold-coin-250th-anniversary-commemorative-king-living-person-tradition/)
+
+[https://www.usatoday.com/story/news/nation/2026/03/22/trump-coin-controversy-update/89245184007/](https://www.usatoday.com/story/news/nation/2026/03/22/trump-coin-controversy-update/89245184007/)
+
+[https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430](https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430)
+
