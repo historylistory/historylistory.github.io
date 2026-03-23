@@ -91,3 +91,17 @@ It is also important to note – for context – that the Heritage Foundation Pr
 [https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100](https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100)
 
 [https://lasentinel.net/trump-repeats-baseless-claims-of-somali-pirates-but-remains-silent-on-ice-killings.html](https://lasentinel.net/trump-repeats-baseless-claims-of-somali-pirates-but-remains-silent-on-ice-killings.html)
+
+### 2026 March
+
+2026-03-21 Trump threatened to send ICE agents to airports starting Monday March 23rd if Democrats didn’t agree to fund DHS ICE agents. Trump wrote on Truth Social, “…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
+
+[https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8](https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8)
+
+[https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/](https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/)
+
+[https://www.cbsnews.com/news/airport-delays-dhs-funding/](https://www.cbsnews.com/news/airport-delays-dhs-funding/)
+
+[https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
