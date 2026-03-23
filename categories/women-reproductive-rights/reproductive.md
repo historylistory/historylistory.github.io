@@ -209,6 +209,33 @@ The ban was supported by **ADF International legal communications director Elyss
 
 [https://www.hrc.org/press-releases/10-shocking-facts-about-the-alliance-defending-freedom](https://www.hrc.org/press-releases/10-shocking-facts-about-the-alliance-defending-freedom)
 
+### 2025 July
+
+2025-07-30 Christian nationalist pastors and influencers pushed pronatalism, telling women to “have as many babies as you can afford”. As Doug Wilson said, “Women are the kind of people that people come out of”. 
+
+[https://www.youtube.com/watch?v=7N89iv-FdSQ](https://www.youtube.com/watch?v=7N89iv-FdSQ)
+
+[https://www.youtube.com/watch?v=xKcawN1mtys](https://www.youtube.com/watch?v=xKcawN1mtys)
+
+[https://www.youtube.com/shorts/JGoymv33ZWc](https://www.youtube.com/shorts/JGoymv33ZWc)
+
+[https://www.instagram.com/reel/DT3iI8gDsJC/](https://www.instagram.com/reel/DT3iI8gDsJC/)
+
+[https://ifstudies.org/in-the-news/jd-vance-wants-women-to-have-more-babies-conservative-pro-natalists-say-cheaper-housing-is-key](https://ifstudies.org/in-the-news/jd-vance-wants-women-to-have-more-babies-conservative-pro-natalists-say-cheaper-housing-is-key)
+
+[https://1819news.com/culture/sarah-wilder-have-more-babies-than-you-can-afford](https://1819news.com/culture/sarah-wilder-have-more-babies-than-you-can-afford)
+
+[https://www.msn.com/en-us/news/us/wife-of-trump-official-sparks-backlash-with-have-more-babies-than-you-can-afford-post/ar-AA1N5uoe](https://www.msn.com/en-us/news/us/wife-of-trump-official-sparks-backlash-with-have-more-babies-than-you-can-afford-post/ar-AA1N5uoe)
+
+[https://www.centraloregondaily.com/news/nation-world/women-family-planning-costs-health-policy-concerns/article_2c133ca2-5b26-42b1-b839-0b5be8b3a643.html](https://www.centraloregondaily.com/news/nation-world/women-family-planning-costs-health-policy-concerns/article_2c133ca2-5b26-42b1-b839-0b5be8b3a643.html)
+
+[https://19thnews.org/2025/09/turning-point-usa-erika-kirk-views-gender-roles-marriage-motherhood/](https://19thnews.org/2025/09/turning-point-usa-erika-kirk-views-gender-roles-marriage-motherhood/)
+
+[https://mom.com/news/woman-pretends-formula-churches-help-viral-video](https://mom.com/news/woman-pretends-formula-churches-help-viral-video)
+
+[https://www.wsj.com/us-news/allie-beth-stuckey-christian-podcaster-2220d64c](https://www.wsj.com/us-news/allie-beth-stuckey-christian-podcaster-2220d64c)
+
+
 ### 2025 August
 
 2025-08-01 The Trump administration announced plans to prevent Veterans from accessing abortion care or counseling.
