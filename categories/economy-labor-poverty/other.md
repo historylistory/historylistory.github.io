@@ -110,3 +110,11 @@ permalink: /categories/economy-labor-poverty/other/
 [https://www.bbc.com/news/articles/cy031d1ny7jo](https://www.bbc.com/news/articles/cy031d1ny7jo)
 
 [https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096](https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096)
+
+2026-03-04 Fast-food CEOs did cameos of themselves eating their own food as a promotion to boost sales.
+
+[https://www.today.com/food/trends/mcdonalds-ceo-eats-burger-video-rcna261776](https://www.today.com/food/trends/mcdonalds-ceo-eats-burger-video-rcna261776)
+
+[https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877](https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877)
+
+[https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689](https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689)

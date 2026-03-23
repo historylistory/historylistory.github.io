@@ -8,6 +8,12 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 ### 2021
 
+2021-02-19 Reports indicated Americans were economically “battered” by the pandemic.
+
+[https://www.nefe.org/news/2021/02/majority-of-americans-battered-by-pandemic-unsettled-economy.aspx](https://www.nefe.org/news/2021/02/majority-of-americans-battered-by-pandemic-unsettled-economy.aspx)
+
+[https://www.cbpp.org/research/economy/tracking-the-recovery-from-the-pandemic-recession](https://www.cbpp.org/research/economy/tracking-the-recovery-from-the-pandemic-recession)
+
 2021-10-18 During Trump’s first term and after COVID, numerous suppliers blamed supply chain issues on higher prices and inflation. I haven’t seen prices go down SINCE those claims. 
 
 [https://www.cnbc.com/2021/10/18/supply-chain-chaos-is-hitting-global-growth-and-could-get-worse.html](https://www.cnbc.com/2021/10/18/supply-chain-chaos-is-hitting-global-growth-and-could-get-worse.html)
@@ -34,6 +40,24 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 [https://www.branchspace.com/news/airline-dynamic-pricing-ladders](https://www.branchspace.com/news/airline-dynamic-pricing-ladders)
 
+### 2023
+
+2023-01-01 Concerns of inflated food prices left consumers wondering why prices remained high post-pandemic. Some articles suggested companies were rolling back prices, some suggested price gouging in place of inflation, and some reported the simple economics of price setting.
+
+[https://www.cbsnews.com/amp/news/inflation-beef-coffee-bananas-food-prices-cpi/](https://www.cbsnews.com/amp/news/inflation-beef-coffee-bananas-food-prices-cpi/)
+
+[https://www.cbsnews.com/news/cpi-report-today-inflation-september-2025-tariffs/?ftag=CNM-00-10aab4i](https://www.cbsnews.com/news/cpi-report-today-inflation-september-2025-tariffs/?ftag=CNM-00-10aab4i)
+
+[https://money.com/grocery-prices-may-never-fall](https://money.com/grocery-prices-may-never-fall)
+
+[https://www.wsj.com/business/retail/after-years-of-increases-companies-are-rolling-back-prices-b9d0a448](https://www.wsj.com/business/retail/after-years-of-increases-companies-are-rolling-back-prices-b9d0a448)
+
+[https://www.richmondfed.org/publications/research/econ_focus/2023/q4_feature1](https://www.richmondfed.org/publications/research/econ_focus/2023/q4_feature1)
+
+[https://www.wkbn.com/news/local-news/why-are-grocery-prices-still-high-6-years-post-pandemic/](https://www.wkbn.com/news/local-news/why-are-grocery-prices-still-high-6-years-post-pandemic/)
+
+[https://inequality.org/article/inflation-price-gouging/](https://inequality.org/article/inflation-price-gouging/)
+
 
 ### 2024
 
@@ -42,6 +66,16 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border](https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border)
 
 ### 2025 February
+
+2025-02-05 Global economic growth reached its lowest level since the pandemic.
+
+[https://www.worldbank.org/en/news/press-release/2025/06/10/global-economic-prospects-june-2025-press-release](https://www.worldbank.org/en/news/press-release/2025/06/10/global-economic-prospects-june-2025-press-release)
+
+[https://www.bbc.com/news/business-67914707](https://www.bbc.com/news/business-67914707)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/new-gdp-data-falls-short-trump](https://www.ms.now/rachel-maddow-show/maddowblog/new-gdp-data-falls-short-trump)
+
+[https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring](https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring)
 
 2025-02-06 Everyone saw egg prices soar at the beginning of 2025, but hardly anyone talked about how it was caused by the strain of bird flu that started way back in 2022. When farmers finally rebuilt flocks and replaced sick birds, the prices came down and Trump took the credit.
 
@@ -160,3 +194,13 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/](https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/)
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
+
+### 2026 March
+
+2026-03-04 Fast-food CEOs did cameos of themselves eating their own food as a promotion to boost sales.
+
+[https://www.today.com/food/trends/mcdonalds-ceo-eats-burger-video-rcna261776](https://www.today.com/food/trends/mcdonalds-ceo-eats-burger-video-rcna261776)
+
+[https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877](https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877)
+
+[https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689](https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689)
