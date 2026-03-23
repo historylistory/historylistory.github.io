@@ -26,6 +26,26 @@ permalink: /categories/women-reproductive-rights/feminism/
 
 [https://www.theguardian.com/commentisfree/2022/mar/01/decline-girlboss-culture-career-queen](https://www.theguardian.com/commentisfree/2022/mar/01/decline-girlboss-culture-career-queen)
 
+### 2023
+
+2023-01-01 Manosphere, incels and online misogyny.
+
+[https://www.wired.com/story/donald-trump-manosphere-won/](https://www.wired.com/story/donald-trump-manosphere-won/)
+
+[https://www.unwomen.org/en/articles/explainer/what-is-the-manosphere-and-why-should-we-care](https://www.unwomen.org/en/articles/explainer/what-is-the-manosphere-and-why-should-we-care)
+
+[https://www.netflix.com/tudum/articles/louis-theroux-inside-the-manosphere-release-date-news](https://www.netflix.com/tudum/articles/louis-theroux-inside-the-manosphere-release-date-news)
+
+[https://www.cnn.com/2023/03/16/us/incel-involuntary-celibate-explained-cec](https://www.cnn.com/2023/03/16/us/incel-involuntary-celibate-explained-cec)
+
+[https://en.wikipedia.org/wiki/Manosphere](https://en.wikipedia.org/wiki/Manosphere)
+
+[https://www.pbs.org/newshour/show/why-manosphere-content-is-appealing-to-some-young-men](https://www.pbs.org/newshour/show/why-manosphere-content-is-appealing-to-some-young-men)
+
+[https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD033.pdf](https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD033.pdf)
+
+[https://humanrights.ca/story/online-misogyny-manosphere](https://humanrights.ca/story/online-misogyny-manosphere)
+
 
 ### 2026 February
 
