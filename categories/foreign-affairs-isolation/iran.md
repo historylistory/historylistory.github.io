@@ -919,6 +919,22 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.bbc.com/news/articles/c9d415g55nno](https://www.bbc.com/news/articles/c9d415g55nno)
 
+2026-03-19 Plastics are made with petroleum. The Iran war economic impact would reach consumer plastics such as food packaging, resin and polymer markets…essentially any materials made with plastics.  Since plastics are a cheap way for corporations to pad their profit margins, it is to be expected they will also pass this cost onto the consumers. Also, the aluminum market was affected. 
+
+[https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient](https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient)
+
+[https://www.packagingdive.com/news/iran-war-packaging-effects-disruption-oil-aluminum-plastics/815156/](https://www.packagingdive.com/news/iran-war-packaging-effects-disruption-oil-aluminum-plastics/815156/)
+
+[https://www.plasticstoday.com/resin-pricing/iran-war-creates-a-dire-strait-for-resin-pricing](https://www.plasticstoday.com/resin-pricing/iran-war-creates-a-dire-strait-for-resin-pricing)
+
+[https://www.reuters.com/sustainability/boards-policy-regulation/iran-crisis-lifts-india-bottled-water-prices-erasing-modi-tax-cut-gains-2026-03-19/](https://www.reuters.com/sustainability/boards-policy-regulation/iran-crisis-lifts-india-bottled-water-prices-erasing-modi-tax-cut-gains-2026-03-19/)
+
+[https://www.thejakartapost.com/business/2026/03/16/plastic-packaging-costs-surge-due-to-iran-war-squeezing-food-producers.html](https://www.thejakartapost.com/business/2026/03/16/plastic-packaging-costs-surge-due-to-iran-war-squeezing-food-producers.html)
+
+[https://www.spglobal.com/energy/en/news-research/latest-news/chemicals/030326-war-in-the-middle-east-cools-polymer-trade-in-the-americas-fuels-expectations-of-rising-prices](https://www.spglobal.com/energy/en/news-research/latest-news/chemicals/030326-war-in-the-middle-east-cools-polymer-trade-in-the-americas-fuels-expectations-of-rising-prices)
+
+[https://www.plasticsnews.com/video-livestreams/polymer-points/pn-iran-conflict-plastic-resin-prices-surging-polymer-points/](https://www.plasticsnews.com/video-livestreams/polymer-points/pn-iran-conflict-plastic-resin-prices-surging-polymer-points/)
+
 2026-03-20 Netanyahu said he acted alone on the South Pars strike in Iran, and Trump claimed the U.S. knew nothing about the attack in advance, but another article reports that Israeli officials told them the strike was coordinated with the Trump administration in advance.
 
 [https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/](https://thehill.com/policy/international/5792896-netanyahu-israel-energy-infrastructure-strike-iran/)
