@@ -42,6 +42,18 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 [https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308](https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308)
 
+2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 
+
+[https://en.wikipedia.org/wiki/Evie_Magazine](https://en.wikipedia.org/wiki/Evie_Magazine)
+
+[https://www.wired.com/story/burnt-hair-and-soft-power-a-night-out-with-evie-magazine/](https://www.wired.com/story/burnt-hair-and-soft-power-a-night-out-with-evie-magazine/)
+
+[https://www.wsj.com/style/fashion/evie-magazine-a-conservative-cosmo-meets-the-cultural-moment-8045390f](https://www.wsj.com/style/fashion/evie-magazine-a-conservative-cosmo-meets-the-cultural-moment-8045390f)
+
+[https://www.vanityfair.com/style/story/evie-magazine-brittany-hugoboom?srsltid=AfmBOoq-9TzBohGDDYOva4nuKs9EDsBy8hJk87DUzbgnFUEWueJ69ANY](https://www.vanityfair.com/style/story/evie-magazine-brittany-hugoboom?srsltid=AfmBOoq-9TzBohGDDYOva4nuKs9EDsBy8hJk87DUzbgnFUEWueJ69ANY)
+
+[https://28.co/shop/toxic-breakup](https://28.co/shop/toxic-breakup)
+
 ### 2020
 
 2020-05-27 Trump tweeted out that social media silenced Republicans. In that same tweet, Trump threatened to "strongly regulate or close them down" and started the conversation about totally eliminating mail-in ballots. He wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.

@@ -46,6 +46,21 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751](https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751)
 
+### 2019
+
+2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 
+
+[https://en.wikipedia.org/wiki/Evie_Magazine](https://en.wikipedia.org/wiki/Evie_Magazine)
+
+[https://www.wired.com/story/burnt-hair-and-soft-power-a-night-out-with-evie-magazine/](https://www.wired.com/story/burnt-hair-and-soft-power-a-night-out-with-evie-magazine/)
+
+[https://www.wsj.com/style/fashion/evie-magazine-a-conservative-cosmo-meets-the-cultural-moment-8045390f](https://www.wsj.com/style/fashion/evie-magazine-a-conservative-cosmo-meets-the-cultural-moment-8045390f)
+
+[https://www.vanityfair.com/style/story/evie-magazine-brittany-hugoboom?srsltid=AfmBOoq-9TzBohGDDYOva4nuKs9EDsBy8hJk87DUzbgnFUEWueJ69ANY](https://www.vanityfair.com/style/story/evie-magazine-brittany-hugoboom?srsltid=AfmBOoq-9TzBohGDDYOva4nuKs9EDsBy8hJk87DUzbgnFUEWueJ69ANY)
+
+[https://28.co/shop/toxic-breakup](https://28.co/shop/toxic-breakup)
+
+
 ### 2020
 
 2020-11-24 During an interview on The Chris Buskirk Show, JD Vance said, *”…There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people – especially in America’s leadership class – just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable…”*.
