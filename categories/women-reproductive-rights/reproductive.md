@@ -60,6 +60,8 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://28.co/shop/toxic-breakup](https://28.co/shop/toxic-breakup)
 
+[https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2](https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2)
+
 
 ### 2020
 

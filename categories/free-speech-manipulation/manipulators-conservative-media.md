@@ -54,6 +54,8 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 [https://28.co/shop/toxic-breakup](https://28.co/shop/toxic-breakup)
 
+[https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2](https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2)
+
 ### 2020
 
 2020-05-27 Trump tweeted out that social media silenced Republicans. In that same tweet, Trump threatened to "strongly regulate or close them down" and started the conversation about totally eliminating mail-in ballots. He wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.

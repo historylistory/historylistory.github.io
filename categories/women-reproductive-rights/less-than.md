@@ -26,6 +26,8 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 [https://www.cnn.com/2022/12/27/us/tradwife-1950s-nostalgia-tiktok-cec#:~:text=%E2%80%9CThe%20movement%2C%20more%20generally%2C,Orgad%20wrote%20for%20The%20Conversation](https://www.cnn.com/2022/12/27/us/tradwife-1950s-nostalgia-tiktok-cec).
 
+[https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2](https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2)
+
 ### 2021
 
 2021-01-01 The author of "It's Good to Be a Man" wrote, "**Men were made to rule. They always have and always will**".
