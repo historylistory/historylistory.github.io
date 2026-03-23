@@ -230,3 +230,11 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://www.reuters.com/business/media-telecom/openai-details-layered-protections-us-defense-department-pact-2026-02-28/](https://www.reuters.com/business/media-telecom/openai-details-layered-protections-us-defense-department-pact-2026-02-28/)
 
 [https://openai.com/index/our-agreement-with-the-department-of-war/](https://openai.com/index/our-agreement-with-the-department-of-war/)
+
+2026-03-18 The White House signed an executive order to eliminate fraud. The new task force will be chaired by JD Vance. The executive order claims immigration fraud, “staggering fraud and waste in Minnesota alone”, and assistance programs. One section of the order reads, “Making matters worse, the previous administration adopted policies that weakened the Federal Government’s oversight of State administration and distribution of Federal funds…”. It also states the Task Force would coordinate directly with Homeland Security. Not only does it specifically target the administration’s perceived threats; it outlines more Federal oversight and control. This executive order was signed by a President who had committed fraud and pardoned multiple fraudsters. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/)
+
+[https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/)
+
+[https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6](https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6)

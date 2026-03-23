@@ -44,6 +44,22 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 ### 2025 March
 
+2025-03-11 Trump pardoned Brian Kelsey who was convicted of $90K in campaign finance fraud.
+
+[https://tennesseelookout.com/briefs/former-tennessee-sen-brian-kelsey-gains-trump-pardon-two-weeks-after-heading-to-prison/](https://tennesseelookout.com/briefs/former-tennessee-sen-brian-kelsey-gains-trump-pardon-two-weeks-after-heading-to-prison/)
+
+2025-03-21 Trump pardoned Jason Galanis who was convicted of $200M in fraud.
+
+[https://www.politico.com/news/2025/03/31/trump-pardons-jason-galanis-fraud-00262087](https://www.politico.com/news/2025/03/31/trump-pardons-jason-galanis-fraud-00262087)
+
+[https://www.gov.ca.gov/2026/03/05/trumpcriminals3/](https://www.gov.ca.gov/2026/03/05/trumpcriminals3/)
+
+2025-03-26 Trump pardoned Devon Archer who was convicted of a $60M tribal bond scheme of the Oglala Sioux Nation.
+
+[https://www.whitehouse.gov/presidential-actions/2025/03/executive-grant-of-clemency-for-devon-archer/](https://www.whitehouse.gov/presidential-actions/2025/03/executive-grant-of-clemency-for-devon-archer/)
+
+[https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m](https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m)
+
 2025-03-27 Trump pardoned Trevor Milton. Trevor Milton was convicted of a massive fraud scheme. The DOJ sought over $600M in restitution. 
 [https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
 
@@ -55,6 +71,13 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/](https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/)
 
+2025-03-28 Trump pardoned Carlos Watson who was convicted of $60M in investor fraud.
+
+[https://www.theguardian.com/us-news/2025/mar/29/trump-clemency-ozy-media-co-founder-carlos-watson](https://www.theguardian.com/us-news/2025/mar/29/trump-clemency-ozy-media-co-founder-carlos-watson)
+
+[https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html](https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html)
+
+
 ### 2025 April
 
 2025-04-02 A federal judge dismissed criminal corruption charges against Eric Adams after the Trump DOJ ordered the charges to be dropped.
@@ -65,11 +88,42 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.cbsnews.com/newyork/news/new-york-city-eric-adams-corruption-case-department-of-justice-brad-lander/](https://www.cbsnews.com/newyork/news/new-york-city-eric-adams-corruption-case-department-of-justice-brad-lander/)
 
+2025-04-23 Trump pardoned Michele Fiore who was convicted of $70M in charity fraud.
+
+[https://www.justice.gov/pardon/media/1397926/dl?inline](https://www.justice.gov/pardon/media/1397926/dl?inline)
+
+[https://thenevadaindependent.com/article/opinion-trumps-audacious-fiore-pardon-gets-buried-by-what-came-next](https://thenevadaindependent.com/article/opinion-trumps-audacious-fiore-pardon-gets-buried-by-what-came-next)
+
+2025-04-23 Trump pardoned Paul Walczak who was convicted of $10M in tax fraud.
+
+[https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD067.pdf](https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD067.pdf)
+
+[https://www.nytimes.com/2025/05/27/us/politics/trump-pardon-paul-walczak-tax-crimes.html](https://www.nytimes.com/2025/05/27/us/politics/trump-pardon-paul-walczak-tax-crimes.html)
+
+[https://www.palmbeachpost.com/story/news/trump/2025/05/29/trump-pardon-paul-walczak-tied-gop-donations-biden-diary/83903747007](https://www.palmbeachpost.com/story/news/trump/2025/05/29/trump-pardon-paul-walczak-tied-gop-donations-biden-diary/83903747007)
+
+
 ### 2025 May
 
 2025-05-27 Trump pardoned Todd and Julie Chrisley who were convicted of bank fraud and tax evasion in 2022. Their daughter advocated for the pardon, saying her parents were victims of a weaponized justice system because of their conservative views.
 
 {% include youtubePlayer.html id="f-OcMreCrE0" %}
+
+2025-05-27 Trump pardoned Scott Jenkins who was convicted of $75K in bribery and fraud.
+
+[https://www.bbc.com/news/articles/cwynp1lw0l7o](https://www.bbc.com/news/articles/cwynp1lw0l7o)
+
+[https://virginiamercury.com/2025/06/11/miyares-breaks-with-trump-over-pardon-of-convicted-ex-culpeper-sheriff/](https://virginiamercury.com/2025/06/11/miyares-breaks-with-trump-over-pardon-of-convicted-ex-culpeper-sheriff/)
+
+
+2025-05-28 Trump pardoned Lawrence Duran who was convicted of $205M in Medicare fraud.
+
+[https://www.cato.org/blog/embarrassment-riches](https://www.cato.org/blog/embarrassment-riches)
+
+[https://www.gov.ca.gov/2026/03/05/trumpcriminals3/#](https://www.gov.ca.gov/2026/03/05/trumpcriminals3/#)
+
+[https://www.justice.gov/pardon/media/1402041/dl?inline](https://www.justice.gov/pardon/media/1402041/dl?inline)
+
 
 ### 2025 August
 
@@ -168,7 +222,22 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
+2025-12-19 Trump pardoned Joseph Schwartz who was convicted of $38M in fraud.
+
+[https://www.justice.gov/pardon/media/1418296/dl?inline](https://www.justice.gov/pardon/media/1418296/dl?inline)
+
+[https://arkansasadvocate.com/2025/12/19/nursing-home-owner-pardoned-by-trump-ordered-to-serve-state-sentence/](https://arkansasadvocate.com/2025/12/19/nursing-home-owner-pardoned-by-trump-ordered-to-serve-state-sentence/)
+
+
 ### 2026 January
+
+2026-01-15 Trump pardoned Adriana Camberos who was convicted of $1M in counterfeit fraud. 
+
+[https://www.theguardian.com/us-news/2026/jan/17/trump-pardon-woman-repeat-fraud](https://www.theguardian.com/us-news/2026/jan/17/trump-pardon-woman-repeat-fraud)
+
+[https://www.justice.gov/pardon/media/1424186/dl?inline](https://www.justice.gov/pardon/media/1424186/dl?inline)
+
+[https://inewsource.org/2026/01/16/trump-pardons-south-bay-fraud/](https://inewsource.org/2026/01/16/trump-pardons-south-bay-fraud/)
 
 2026-01-16 Trump pardoned 21 repeat offenders of fraud, insider trading, finance violations, and other schemes.
 
@@ -183,3 +252,13 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://www.nbcnews.com/politics/trump-administration/trump-pardons-former-nfl-players-crimes-perjury-drug-trafficking-rcna258909](https://www.nbcnews.com/politics/trump-administration/trump-pardons-former-nfl-players-crimes-perjury-drug-trafficking-rcna258909)
 
 [https://www.foxnews.com/sports/trump-pardons-5-former-nfl-stars-wide-ranging-crimes](https://www.foxnews.com/sports/trump-pardons-5-former-nfl-stars-wide-ranging-crimes)
+
+### 2026 March
+
+2026-03-18 The White House signed an executive order to eliminate fraud. The new task force will be chaired by JD Vance. The executive order claims immigration fraud, “staggering fraud and waste in Minnesota alone”, and assistance programs. One section of the order reads, “Making matters worse, the previous administration adopted policies that weakened the Federal Government’s oversight of State administration and distribution of Federal funds…”. It also states the Task Force would coordinate directly with Homeland Security. Not only does it specifically target the administration’s perceived threats; it outlines more Federal oversight and control. This executive order was signed by a President who had committed fraud and pardoned multiple fraudsters. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/)
+
+[https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/)
+
+[https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6](https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6)
