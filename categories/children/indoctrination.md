@@ -87,3 +87,21 @@ permalink: /categories/children/indoctrination/
 [https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328](https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328)
 
 [https://nebraskapublicmedia.org/en/news/news-articles/pillen-announces-partnership-to-help-bring-turning-point-usa-clubs-to-nebraska-high-schools/](https://nebraskapublicmedia.org/en/news/news-articles/pillen-announces-partnership-to-help-bring-turning-point-usa-clubs-to-nebraska-high-schools/)
+
+### 2026 March
+
+2026-03-16 US District Judge Timothy Brooks ruled that an Arkansas law requiring the Ten Commandments be placed in schools violates both the Establishment Clause and the Free Exercise Clause of the Constitution. Judge Brooks wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”. 
+
+**Proselytize:** to induce someone to convert to a different faith, religion, or cause. This practice is often considered distinct from, and more aggressive than, evangelism, which is generally viewed as sharing faith without pressure.
+
+FYI: Basic values of human decency can also be found in the non-denominational core “Golden Rules” taught in schools. If teaching core values required religious preference (which it shouldn’t), **then educational systems would also consider the “Five Precepts” of Buddhism, the “Yamas” and “Niyamas” of Hinduism, and an array of other ethical concepts found in the multitude of religions practiced worldwide.** 
+
+https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-injunction-prohibiting-ten-commandments-display-in-arkansas-schools
+
+[https://firstamendment.mtsu.edu/post/judge-strikes-down-ark-law-mandating-schools-display-the-ten-commandments-heres-what-to-know/](https://firstamendment.mtsu.edu/post/judge-strikes-down-ark-law-mandating-schools-display-the-ten-commandments-heres-what-to-know/)
+
+[https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
+
+[https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
+
+[https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library](https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library)

@@ -82,6 +82,22 @@ permalink: /categories/religion/school/
 
 [https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423#:~:text=As%20disputes%20rage%20on%20over,:%20Louisiana%2C%20Arkansas%20and%20Texas](https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423).
 
+2026-03-16 US District Judge Timothy Brooks ruled that an Arkansas law requiring the Ten Commandments be placed in schools violates both the Establishment Clause and the Free Exercise Clause of the Constitution. Judge Brooks wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”. 
+
+**Proselytize:** to induce someone to convert to a different faith, religion, or cause. This practice is often considered distinct from, and more aggressive than, evangelism, which is generally viewed as sharing faith without pressure.
+
+FYI: Basic values of human decency can also be found in the non-denominational core “Golden Rules” taught in schools. If teaching core values required religious preference (which it shouldn’t), **then educational systems would also consider the “Five Precepts” of Buddhism, the “Yamas” and “Niyamas” of Hinduism, and an array of other ethical concepts found in the multitude of religions practiced worldwide.** 
+
+https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-injunction-prohibiting-ten-commandments-display-in-arkansas-schools
+
+[https://firstamendment.mtsu.edu/post/judge-strikes-down-ark-law-mandating-schools-display-the-ten-commandments-heres-what-to-know/](https://firstamendment.mtsu.edu/post/judge-strikes-down-ark-law-mandating-schools-display-the-ten-commandments-heres-what-to-know/)
+
+[https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
+
+[https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
+
+[https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library](https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library)
+
 ### TPUSA Indoctrination
 
 2026-03-12 During a rally in Arkansas to integrate “Club America” in schools, Erika Kirk stated, “…just like you and other governors who have been bold enough to stand alongside us to make sure that Charlie’s dream of having a club America on every single high school campus….someone throws all of your resources on the ground, count it all joy. **You are being persecuted because you believe in Jesus Christ**. Count it all joy….Don’t let anyone disenfranchise you because you’re a young man, **especially a young white male man**. Don’t ever let anyone talk down to you. We need strong men out there. ….God has created you for a purpose and a reason far greater than you and I will ever know on this side of heaven. ***But just know that as long as you’re a part of Turning Point USA***, you have us by your side, and we will be there for you every step of the way. And just like this governor and many others that are out there, **we got your back, always”**. 
