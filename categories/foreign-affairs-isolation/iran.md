@@ -348,7 +348,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 {% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
-### 2025 June
+### 2025 June - Trump Bombs Iran
 
 2025-06-21 Trump announced the US had “completely and totally obliterated” Iranian nuclear sites.
 
@@ -957,4 +957,11 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 March Week #4
 
-Pending
+2026-03-23 First, Trump threatened to bomb Iranian power plants if Iran didn’t open the Strait of Hormuz. Then on the 23rd he said he’d postpone the bombings for five days. He also announced on Truth Social that the US was having “constructive” talks with Iran about negotiations, but when asked Iranian officials said there were no such talks happening. Trump claimed he sent his son-in-law to conduct the so-called talks on Sunday March 22nd, and when asked by reporters who he talked to, Trump replied, “a top person”. 
+
+[https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/](https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/)
+
+[https://www.pbs.org/newshour/world/u-s-wont-strike-irans-power-plants-for-5-days-trump-says-in-turnaround-on-strait-of-hormuz-deadline](https://www.pbs.org/newshour/world/u-s-wont-strike-irans-power-plants-for-5-days-trump-says-in-turnaround-on-strait-of-hormuz-deadline)
+
+[https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants](https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants)
+
