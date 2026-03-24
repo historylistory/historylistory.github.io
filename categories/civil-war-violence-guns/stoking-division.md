@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Propaganda & Divisive Measures"
+title: Stoking Division
 category_slug: civil-war-violence-guns
-subcategory_slug: propaganda-divisive-measures
-permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
+subcategory_slug: stoking-division
+permalink: /categories/civil-war-violence-guns/stoking-division/
 ---
 
 ### 2016
@@ -166,3 +166,18 @@ permalink: /categories/civil-war-violence-guns/propaganda-divisive-measures/
 [https://abcnews.com/US/trump-calls-bad-bunnys-super-bowl-halftime-show/story?id=129980124](https://abcnews.com/US/trump-calls-bad-bunnys-super-bowl-halftime-show/story?id=129980124)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116038200403048483](https://truthsocial.com/@realDonaldTrump/posts/116038200403048483)
+
+### 2026 March
+
+2026-03-22 Trump posted on social media, “Now with the death of Iran, the greatest enemy America has is the Radical Left, Highly Incompetent, Democrat Party! Thank you for your attention to this matter. President DJT.
+
+[https://www.youtube.com/watch?v=87lyEmlTfP0&list=WL&index=2&t=58s](https://www.youtube.com/watch?v=87lyEmlTfP0&list=WL&index=2&t=58s)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116272810363139207](https://truthsocial.com/@realDonaldTrump/posts/116272810363139207)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116269463539535135](https://truthsocial.com/@realDonaldTrump/posts/116269463539535135)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116272713025328785](https://truthsocial.com/@realDonaldTrump/posts/116272713025328785)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116273343074887409](https://truthsocial.com/@realDonaldTrump/posts/116273343074887409)
+
