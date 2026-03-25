@@ -394,3 +394,9 @@ Potteiger continued, *”…Yes. We want death and new life, right? Um, and if i
 [https://www.youtube.com/watch?v=i8Gb7v91K0U&list=WL&index=2](https://www.youtube.com/watch?v=i8Gb7v91K0U&list=WL&index=2)
 
 [https://www.youtube.com/watch?v=br58SIqHk0Q&list=WL&index=4&t=48s](https://www.youtube.com/watch?v=br58SIqHk0Q&list=WL&index=4&t=48s)
+
+2026-03-22 During a Meet the Press interview, Scott Bessent was asked about the post from Trump responding to the death of Robert Mueller by saying he was glad Mueller was dead. The interviewer of Meet the Press asked, “Do you think it’s appropriate for the President of the United States to celebrate the death of an American citizen, someone who’s a bronze star, Purple Heart recipient, who’s served in Vietnam?” Bessent answered, “Kristin, I was with the President in the green room at Davos and there was a video playing of what may have been an illegal raid on his home at Mar-a-Lago – they’re going through his wife’s wardrobe…and I watched the look in his eye, and I think that neither one of us can understand what has been done to the President and to his family”.  
+
+[https://www.thedailybeast.com/scott-bessent-desperately-tries-to-paint-trump-as-a-victim-on-meet-the-press-with-kristen-welker/](https://www.thedailybeast.com/scott-bessent-desperately-tries-to-paint-trump-as-a-victim-on-meet-the-press-with-kristen-welker/)
+
+[https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller](https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller)

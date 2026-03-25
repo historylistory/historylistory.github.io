@@ -53,3 +53,7 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 [https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan](https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan)
 
 [https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html](https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html)
+
+2026-01-18 During an interview, Scott Bessent said Greenland “can only be defended if it is part of the U.S.” after Trump threatened to acquire Greenland.
+
+[https://www.youtube.com/watch?v=55FtfIk8U94](https://www.youtube.com/watch?v=55FtfIk8U94)
