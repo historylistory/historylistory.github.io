@@ -99,3 +99,19 @@ permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 [https://komonews.com/news/local/callers-to-washington-state-department-of-licensing-dol-hotline-press-2-for-spanish-and-get-accented-ai-english-instead](https://komonews.com/news/local/callers-to-washington-state-department-of-licensing-dol-hotline-press-2-for-spanish-and-get-accented-ai-english-instead)
 
 [https://apnews.com/video/callers-to-washington-state-hotline-press-2-for-spanish-and-get-accented-ai-english-instead-d4b7e05c8ca54fb997ddb9aa2393c7f7](https://apnews.com/video/callers-to-washington-state-hotline-press-2-for-spanish-and-get-accented-ai-english-instead-d4b7e05c8ca54fb997ddb9aa2393c7f7)
+
+### 2026 March
+
+2026-03-25 Both Meta and YouTube were found negligent in a landmark social media addiction trial.
+
+[https://www.npr.org/2026/03/25/nx-s1-5746125/meta-youtube-social-media-trial-verdict](https://www.npr.org/2026/03/25/nx-s1-5746125/meta-youtube-social-media-trial-verdict)
+
+[https://www.bbc.com/news/articles/c747x7gz249o](https://www.bbc.com/news/articles/c747x7gz249o)
+
+[https://www.cnn.com/2026/03/25/tech/social-media-addiction-trial-jury-decision](https://www.cnn.com/2026/03/25/tech/social-media-addiction-trial-jury-decision)
+
+[https://finance.yahoo.com/news/meta-youtube-found-negligent-in-landmark-social-media-addiction-lawsuit-174554492.html](https://finance.yahoo.com/news/meta-youtube-found-negligent-in-landmark-social-media-addiction-lawsuit-174554492.html)
+
+[https://www.scientificamerican.com/article/jury-finds-meta-and-youtube-negligent-in-landmark-federal-social-media/](https://www.scientificamerican.com/article/jury-finds-meta-and-youtube-negligent-in-landmark-federal-social-media/)
+
+[https://www.axios.com/2026/03/25/meta-youtube-verdict-social-media-addiction-trial](https://www.axios.com/2026/03/25/meta-youtube-verdict-social-media-addiction-trial)

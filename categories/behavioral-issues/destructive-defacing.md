@@ -12,7 +12,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/](https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/)
 
-### July
+### 2025 July
 
 2025-07-01 Trump fired the entire Commission of Fine Arts in 2025 and sworn in his hand-picked appointees who align with his endeavors to deconstruct historical monuments. 
 
