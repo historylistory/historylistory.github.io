@@ -46,7 +46,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2025 October
 
-2025-10-16 Trump proposed building himself a “victory arch”. **No word about how much the arch would cost taxpayers**, but Trump did share his proposal during a government shutdown while he withheld food benefits from millions of Americans.
+2025-10-16 Trump proposed building himself a “victory arch”. **No word about how much the arch would cost taxpayers**, but Trump did share his proposal during a government shutdown while he withheld food benefits from millions of Americans. The plan was to construct the arch overlooking the Arlington Cemetery, and the structure would be nearly twice the size of both the Lincoln and Jefferson memorials.
 
 [https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
 
