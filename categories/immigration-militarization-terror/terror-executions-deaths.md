@@ -164,4 +164,13 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 [https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
 
+### 2026 March
+
+2026-03-12 In May of 2025 Trump had accused South Africa of white genocide and invited white South Afrikaners to migrate to the U.S. By March 2026, those who migrated to the U.S. decided it would be best to return to South Africa, citing a better cost of living in South Africa, less racism, and concerns over growing violence from the Trump regime such as the execution of American citizens by ICE. One article quotes a South Afrikaner as stating, **“People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.**
+
+[https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/](https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/)
+
+[https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588](https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588)
+
+[https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
  
