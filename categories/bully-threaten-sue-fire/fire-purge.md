@@ -105,6 +105,18 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 ### 2025 July
 
+2025-07-01 Trump fired the entire Commission of Fine Arts in 2025 and sworn in his hand-picked appointees who align with his endeavors to deconstruct historical monuments. 
+
+[https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/](https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/)
+
+[https://www.washingtonpost.com/politics/2026/03/17/white-house-ballroom-trump-appointees-qualifications/](https://www.washingtonpost.com/politics/2026/03/17/white-house-ballroom-trump-appointees-qualifications/)
+
+[https://en.wikipedia.org/wiki/Will_Scharf](https://en.wikipedia.org/wiki/Will_Scharf)
+
+[https://www.washingtonpost.com/politics/2026/03/17/white-house-ballroom-trump-appointees-qualifications/](https://www.washingtonpost.com/politics/2026/03/17/white-house-ballroom-trump-appointees-qualifications/)
+
+[https://www.nytimes.com/2026/02/19/us/politics/trump-ballroom-fine-arts-commission.html](https://www.nytimes.com/2026/02/19/us/politics/trump-ballroom-fine-arts-commission.html)
+
 2025-07-11 Pam Bondi fired the Justice Department’s top ethics advisor Joseph Tirrell. For context, Joseph Tirrell wanted to investigate Kash Patel for accepting luxury gift items from Connor McGregor because accepting those luxury items violated the FBI ethics codes.
 
 [https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/](https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/)
