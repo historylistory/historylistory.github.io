@@ -101,3 +101,13 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 [https://abcnews.com/International/live-updates/iran-live-updates-idf-targets-iranian-internal-security?id=130743836&entryId=130805767](https://abcnews.com/International/live-updates/iran-live-updates-idf-targets-iranian-internal-security?id=130743836&entryId=130805767)
 
 [https://www.irishstar.com/culture/entertainment/david-muir-donald-trump-iran-36827739](https://www.irishstar.com/culture/entertainment/david-muir-donald-trump-iran-36827739)
+
+2026-03-26 The Treasury announced it would be putting Trump’s signature on the dollar bill. 
+
+[https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389](https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389)
+
+[https://www.cnn.com/2026/03/26/politics/trump-signature-paper-currency-treasury](https://www.cnn.com/2026/03/26/politics/trump-signature-paper-currency-treasury)
+
+[https://fortune.com/2026/03/27/trump-name-on-dollar-not-treasury-secretary/](https://fortune.com/2026/03/27/trump-name-on-dollar-not-treasury-secretary/)
+
+[https://home.treasury.gov/news/press-releases/sb0425](https://home.treasury.gov/news/press-releases/sb0425)
