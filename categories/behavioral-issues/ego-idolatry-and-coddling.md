@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Ego, Idolatry, and Trophies
+title: Ego, Idolatry, and Coddling
 category_slug: behavioral-issues
-subcategory_slug: ego-idolatry-and-trophies
-permalink: /categories/behavioral-issues/ego-idolatry-and-trophies/
+subcategory_slug: ego-idolatry-and-coddling
+permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 ---
 
 ### 2015 (context)
