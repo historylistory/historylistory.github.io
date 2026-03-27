@@ -6,6 +6,18 @@ subcategory_slug: other
 permalink: /categories/economy-labor-poverty/other/
 ---
 
+### Is it an oligarchy?
+
+https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessing-the-rise-of-oligarchy
+
+[https://www.theguardian.com/us-news/2025/jan/23/what-is-oligarchy](https://www.theguardian.com/us-news/2025/jan/23/what-is-oligarchy)
+
+[https://www.hks.harvard.edu/faculty-research/policycast/oligarchy-open-what-happens-now-us-forced-confront-its-plutocracy](https://www.hks.harvard.edu/faculty-research/policycast/oligarchy-open-what-happens-now-us-forced-confront-its-plutocracy)
+
+[https://www.youtube.com/watch?v=xOgBF3RIUv8&list=WL&index=4](https://www.youtube.com/watch?v=xOgBF3RIUv8&list=WL&index=4)
+
+[https://www.bbc.com/news/blogs-echochambers-27074746](https://www.bbc.com/news/blogs-echochambers-27074746)
+
 ### 2025 March
 
 2025-03-10 Canadian visitors boycotted tourism in the U.S., which by 2026 news outlets reported a possible long-term loss in the U.S. economy.
