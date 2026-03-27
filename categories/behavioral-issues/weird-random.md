@@ -60,6 +60,16 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html](https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html)
 
+2026-03-20 GOP members fell hard for an AI-generated female MAGA influencer “Jessica Foster” as she posed in her crop-top army uniform and offered feet picks.
+
+[https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
+
+[https://www.washingtonpost.com/technology/2026/03/20/jessica-foster-maga-dream-girl-ai-fake/](https://www.washingtonpost.com/technology/2026/03/20/jessica-foster-maga-dream-girl-ai-fake/)
+
+[https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
+
+[https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
+
 2026-03-26 Melania Trump presented a humanoid robot to a White House AI summit.
 
 [https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)

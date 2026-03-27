@@ -23,3 +23,13 @@ permalink: /categories/military-veterans/other/
 [https://thehill.com/policy/defense/5776683-erika-kirk-air-force-academy-board/](https://thehill.com/policy/defense/5776683-erika-kirk-air-force-academy-board/)
 
 [https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html](https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html)
+
+2026-03-20 GOP members fell hard for an AI-generated female MAGA influencer “Jessica Foster” as she posed in her crop-top army uniform and offered feet picks.
+
+[https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
+
+[https://www.washingtonpost.com/technology/2026/03/20/jessica-foster-maga-dream-girl-ai-fake/](https://www.washingtonpost.com/technology/2026/03/20/jessica-foster-maga-dream-girl-ai-fake/)
+
+[https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
+
+[https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
