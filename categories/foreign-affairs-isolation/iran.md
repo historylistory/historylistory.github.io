@@ -965,3 +965,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants](https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants)
 
+2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
+
+[https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
+
+[https://www.npr.org/2026/03/25/nx-s1-5759313/israel-says-plan-to-expand-into-lebanon-will-provide-defensive-buffer](https://www.npr.org/2026/03/25/nx-s1-5759313/israel-says-plan-to-expand-into-lebanon-will-provide-defensive-buffer)
+
+[https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/](https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/)
