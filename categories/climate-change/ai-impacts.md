@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: AI Environmental Impacts
-category_slug: ai-data-big-brother-doge
-subcategory_slug: ai-environmental-impacts
-permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
+title: AI Impacts
+category_slug: climate-change
+subcategory_slug: ai-impacts
+permalink: /categories/climate-change/ai-impacts/
 ---
 
 ### 2025 September

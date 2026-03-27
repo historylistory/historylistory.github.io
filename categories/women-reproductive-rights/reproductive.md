@@ -284,6 +284,16 @@ It would also make it a felony to give someone information about where to get a
 
 ### 2026 March
 
+2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.
+
+[https://rx.costco.com/fertility](https://rx.costco.com/fertility)
+
+[https://abc7.com/post/costco-launches-program-cut-fertility-drug-prices-members/18708097/](https://abc7.com/post/costco-launches-program-cut-fertility-drug-prices-members/18708097/)
+
+[https://www.usatoday.com/story/news/health/2026/03/17/costco-discount-fertility-treatments-ivf/89186184007](https://www.usatoday.com/story/news/health/2026/03/17/costco-discount-fertility-treatments-ivf/89186184007)
+
+[https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html](https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html)
+
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat.  It would also require death certificates be issued. 
 
 [https://www.legislature.ohio.gov/legislation/136/hb754](https://www.legislature.ohio.gov/legislation/136/hb754)

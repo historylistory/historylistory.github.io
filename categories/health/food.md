@@ -76,7 +76,7 @@ permalink: /categories/health/food/
 
 [https://www.empower.com/the-currency/play/protein-food-consumer-trend-news](https://www.empower.com/the-currency/play/protein-food-consumer-trend-news)
 
-*** But are Americans really that protein deficient? ***
+**But are Americans really that protein deficient?**
 
 2003 [National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/18469286/)
 
@@ -138,7 +138,7 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 [https://www.usatoday.com/story/news/health/2026/01/07/old-food-pyramid-versus-rfk-jr-new-food-pyramid/88068047007/](https://www.usatoday.com/story/news/health/2026/01/07/old-food-pyramid-versus-rfk-jr-new-food-pyramid/88068047007/)
 
 
-*** But are Americans really that protein deficient? ***
+**But are Americans really that protein deficient?**
 
 2003 [National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/18469286/)
 

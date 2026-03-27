@@ -44,7 +44,7 @@ permalink: /categories/religion/performative-behavior/
 
 [https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/](https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/)
 
-### 2026
+### 2026 February
 
 2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt statis if leaders “say something bad about him”. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
 
@@ -55,3 +55,19 @@ permalink: /categories/religion/performative-behavior/
 [https://www.c-span.org/clip/white-house-event/el-salvador-president-speaks-at-national-prayer-breakfast-about-crackdown-on-gangs/5191994](https://www.c-span.org/clip/white-house-event/el-salvador-president-speaks-at-national-prayer-breakfast-about-crackdown-on-gangs/5191994)
 
 [https://x.com/i/trending/2020539207320781122](https://x.com/i/trending/2020539207320781122)
+
+### 2026 March
+
+2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
+
+[https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
+
+[https://www.youtube.com/watch?v=2NrJU2aqGvQ](https://www.youtube.com/watch?v=2NrJU2aqGvQ)
+
+[https://www.youtube.com/watch?v=erZ6A5Wmy00](https://www.youtube.com/watch?v=erZ6A5Wmy00)
+
+[https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-christian-worship-prayers-pray-for-violence-pentagon-b2945765.html](https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-christian-worship-prayers-pray-for-violence-pentagon-b2945765.html)
+
+[https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy](https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy)
+
+[https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/](https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/)
