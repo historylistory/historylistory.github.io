@@ -312,3 +312,13 @@ Potteiger continued, *”…Yes. We want death and new life, right? Um, and if i
 [https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/](https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/)
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
+
+2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, ***“Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.***
+
+[https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor](https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor)
+
+[https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes](https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes)
+
+[https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s](https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s)
+
+[https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
