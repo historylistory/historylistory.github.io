@@ -76,6 +76,18 @@ permalink: /categories/health/food/
 
 [https://www.empower.com/the-currency/play/protein-food-consumer-trend-news](https://www.empower.com/the-currency/play/protein-food-consumer-trend-news)
 
+*** But are Americans really that protein deficient? ***
+2003 [National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/18469286/)
+2021 [National Library of Medicine](https://www.ncbi.nlm.nih.gov/books/NBK589212/)
+2023 [Nutrition Studies.org](https://nutritionstudies.org/how-common-is-protein-deficiency/)
+2024 [Mayo Clinic](https://www.mayoclinichealthsystem.org/hometown-health/speaking-of-health/are-you-getting-too-much-protein)
+2025 [Harvard.edu](https://hsph.harvard.edu/news/protein-is-important-but-were-eating-too-much-experts-say)
+2025 [Science Direct.com](https://www.sciencedirect.com/science/article/abs/pii/S0002916525002540?)
+2025 [Science Focus.com](https://www.sciencefocus.com/the-human-body/overeating-protein-driving-up-fat-levels)
+2026 [Johns Hopkins](https://publichealth.jhu.edu/2026/americas-protein-obsession-explained)
+2026 [FactCheck.org](https://www.factcheck.org/2026/02/americans-dont-need-dramatically-more-protein-despite-officials-claims/)
+Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_King)
+
 
 ### 2025 August
 
@@ -114,6 +126,18 @@ permalink: /categories/health/food/
 [https://www.hhs.gov/press-room/historic-reset-federal-nutrition-policy.html](https://www.hhs.gov/press-room/historic-reset-federal-nutrition-policy.html)
 
 [https://www.usatoday.com/story/news/health/2026/01/07/old-food-pyramid-versus-rfk-jr-new-food-pyramid/88068047007/](https://www.usatoday.com/story/news/health/2026/01/07/old-food-pyramid-versus-rfk-jr-new-food-pyramid/88068047007/)
+
+*** But are Americans really that protein deficient? ***
+2003 [National Library of Medicine](https://pubmed.ncbi.nlm.nih.gov/18469286/)
+2021 [National Library of Medicine](https://www.ncbi.nlm.nih.gov/books/NBK589212/)
+2023 [Nutrition Studies.org](https://nutritionstudies.org/how-common-is-protein-deficiency/)
+2024 [Mayo Clinic](https://www.mayoclinichealthsystem.org/hometown-health/speaking-of-health/are-you-getting-too-much-protein)
+2025 [Harvard.edu](https://hsph.harvard.edu/news/protein-is-important-but-were-eating-too-much-experts-say)
+2025 [Science Direct.com](https://www.sciencedirect.com/science/article/abs/pii/S0002916525002540?)
+2025 [Science Focus.com](https://www.sciencefocus.com/the-human-body/overeating-protein-driving-up-fat-levels)
+2026 [Johns Hopkins](https://publichealth.jhu.edu/2026/americas-protein-obsession-explained)
+2026 [FactCheck.org](https://www.factcheck.org/2026/02/americans-dont-need-dramatically-more-protein-despite-officials-claims/)
+Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_King)
 
 ### 2026 February
 
