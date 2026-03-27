@@ -450,6 +450,12 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 March
 
+2026-03-06 Following Anthropic’s ethical refusal to allow their AI to hold unchecked power over weapons systems, the Trump administration followed through on a retaliatory threat to designate the company a supply chain risk. On March 25th 2026 Anthropic sued the Pentagon for the stigmatizing AI supply-chain risk label.
+
+[https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk](https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk)
+
+[https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8](https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8)
+
 2026-03-06 In a social media post, Trump demanded “UNCONDITIONAL SURRENDER” from Iran.
 
 [https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks](https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks)

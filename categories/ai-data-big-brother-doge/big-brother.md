@@ -231,6 +231,12 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://openai.com/index/our-agreement-with-the-department-of-war/](https://openai.com/index/our-agreement-with-the-department-of-war/)
 
+2026-03-06 Following Anthropic’s ethical refusal to allow their AI to hold unchecked power over weapons systems, the Trump administration followed through on a retaliatory threat to designate the company a supply chain risk. On March 25th 2026 Anthropic sued the Pentagon for the stigmatizing AI supply-chain risk label.
+
+[https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk](https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk)
+
+[https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8](https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8)
+
 2026-03-18 The White House signed an executive order to eliminate fraud. The new task force will be chaired by JD Vance. The executive order claims immigration fraud, “staggering fraud and waste in Minnesota alone”, and assistance programs. One section of the order reads, “Making matters worse, the previous administration adopted policies that weakened the Federal Government’s oversight of State administration and distribution of Federal funds…”. It also states the Task Force would coordinate directly with Homeland Security. Not only does it specifically target the administration’s perceived threats; it outlines more Federal oversight and control. This executive order was signed by a President who had committed fraud and pardoned multiple fraudsters. 
 
 [https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/)
