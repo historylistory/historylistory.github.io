@@ -965,6 +965,18 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants](https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants)
 
+2026-03-24 In a statement, former Pentagon chief and widely regarded former Marine Jim Mattis said, “I can’t identify a lot of good options” to resolve the conflict (in Iran) without significant loss or long-term commitment. He also said, “I think that what we’re seeing is a situation where targetry never makes up for a lack of strategy”. FYI nicknames: “Warrior Monk”, “Mad-Dog Mattis”, and “General Chaos”. 
+
+[https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s](https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s)
+
+[https://www.axios.com/2026/03/24/mattis-trump-iran-strait-hormuz](https://www.axios.com/2026/03/24/mattis-trump-iran-strait-hormuz)
+
+[https://www.militarytimes.com/2013/04/05/mattis-the-man-the-myths-and-the-influential-general-s-deep-bond-with-his-marines/](https://www.militarytimes.com/2013/04/05/mattis-the-man-the-myths-and-the-influential-general-s-deep-bond-with-his-marines/)
+
+[https://www.militarytimes.com/news/pentagon-congress/2024/10/17/mattis-feared-trump-would-order-a-surprise-nuclear-strike-book-claims/](https://www.militarytimes.com/news/pentagon-congress/2024/10/17/mattis-feared-trump-would-order-a-surprise-nuclear-strike-book-claims/)
+
+[https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/](https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/)
+
 2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
 
 [https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
