@@ -38,6 +38,12 @@ permalink: /categories/religion/performative-behavior/
 
 [https://www.thedailybeast.com/trump-leads-maga-prayer-circle-after-great-guy-charlie-kirk-shot/](https://www.thedailybeast.com/trump-leads-maga-prayer-circle-after-great-guy-charlie-kirk-shot/)
 
+2025-12-23 Watch Adam Mockler debate moral bigotry and moral clarity.
+
+[https://www.youtube.com/watch?v=x0rikuQA7cg](https://www.youtube.com/watch?v=x0rikuQA7cg)
+
+[https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/](https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/)
+
 ### 2026
 
 2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt statis if leaders “say something bad about him”. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.

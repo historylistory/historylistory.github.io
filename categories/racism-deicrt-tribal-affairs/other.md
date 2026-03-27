@@ -46,6 +46,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://x.com/TPUSA/status/1976301627662340207](https://x.com/TPUSA/status/1976301627662340207)
 
+### 2025 December
+
+2025-12-23 Watch Adam Mockler debate moral bigotry and moral clarity.
+
+[https://www.youtube.com/watch?v=x0rikuQA7cg](https://www.youtube.com/watch?v=x0rikuQA7cg)
+
+[https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/](https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/)
+
 ### 2026 January
 
 2026-01-17 Far right activist and pardoned J6er Jake Lang was chased off by protestors when he tried to hold an anti-Islam protest in Minneapolis.

@@ -198,6 +198,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.the-independent.com/news/world/americas/us-politics/katie-miller-cnn-tucker-carlson-b2874941.html](https://www.the-independent.com/news/world/americas/us-politics/katie-miller-cnn-tucker-carlson-b2874941.html)
 
+### 2025 December
+
+2025-12-23 Watch Adam Mockler debate moral bigotry and moral clarity.
+
+[https://www.youtube.com/watch?v=x0rikuQA7cg](https://www.youtube.com/watch?v=x0rikuQA7cg)
+
+[https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/](https://www.mediaite.com/media/tv/youre-lying-right-now-cnns-scott-jennings-gets-cornered-by-guest-about-trump-official-who-claimed-nazi-streak/)
+
 ### 2026 January
 
 2026-01-08 Elon Musk reposted a white solidarity post on X.
