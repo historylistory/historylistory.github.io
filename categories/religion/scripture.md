@@ -20,6 +20,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ### Counterfeit Christianity
 
+***1 Corinthians 13:2-3*** “If I have the gift of prophecy and can fathom all mysteries and all knowledge, and if I have a faith that can move mountains, but do not have love, I am nothing. If I give all I possess to the poor and give over my body to hardship that I may boast, but do not have love, I gain nothing”. 
+
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
 
 ***Luke 6:22-26*** “Woe to you when everyone speaks well of you, for that is how their ancestors treated the false prophets. But blessed are you when people revile you and hate you and speak all manner of evil about you on account of my name, for this is how they treated the true prophets”. 
@@ -39,6 +41,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Matthew 15:8*** “These people honor me with their lips, but their hearts are far from me”.
 
+***Matthew 23:1-4*** “For they preach, but do not practice. They tie up heavy burdens, hard to bear, and lay them on people’s shoulders, but they themselves are not willing to move them with their finger”. 
+
 ***Matthew 24:24*** “For false messiahs and false prophets will appear and perform great signs and wonders to deceive, if possible, even the elect”.
 
 ***Matthew 25:41-43*** “Depart from me, you who are cursed, into the eternal fire prepared for the devil and his angels”.
@@ -52,10 +56,14 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not up to us to be offended when God’s mercy reaches farther than we expected).
 
+***Luke 10:36*** “Who was a neighbor to the man who fell among thieves?” 
+***Luke 10:37*** “The one who showed him mercy”. “Go and do likewise”. 
+
 ***Mark 12:31*** “Love your neighbor as yourself”.
 
 ***Matthew 5:1-12*** “Blessed are the meek, the merciful, the pure of heart and the peacemakers”.
 
+***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
 
 
 
@@ -64,11 +72,15 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ***Luke 18:25*** “Indeed, it is easier for a camel to go through the eye of a needle than for someone who is rich to enter the kingdom of God”.
 
 ***Mark 8:36*** “For what shall it profit a man, if he shall gain the whole world, and lose his own soul?”
+***Mark 8:36-37*** “For what will it profit a man if he gains the whole world, and loses his soul? Or what will a man give in exchange for his soul?”
 
 ***Mark 10:25*** “It is easier for a camel to go through the eye of a needle than for a rich man to enter the kingdom of God”.
 
+***Matthew 6:19-21*** “Do not store up for yourselves treasures on earth, where moths and vermin destroy, and where thieves break in and steal. But store up for yourselves treasures in heaven, where moths and vermin do not destroy, and where thieves do not break in and steal. For where your treasure is, there your heart will be also”. 
+
 ***Matthew 6:24*** “No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money”.
 
+***Matthew 16:24*** “Whoever wants to be my disciple must deny themselves and take up their cross and follow me”. 
 
 
 
@@ -140,6 +152,8 @@ Jesus worked and healed during the Sabbath
 
 ### LOVE
 
+***1 Corinthians 13:2-3*** “If I have the gift of prophecy and can fathom all mysteries and all knowledge, and if I have a faith that can move mountains, but do not have love, I am nothing. If I give all I possess to the poor and give over my body to hardship that I may boast, but do not have love, I gain nothing”. 
+
 ***1 Corinthians 13:4-7*** “Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres”.
 
 
@@ -147,10 +161,12 @@ Jesus worked and healed during the Sabbath
 
 ### Poverty
 
+***Luke 4:18-19 quoting Isaiah 61:1-2*** “The Spirit of the Lord is upon me, because he has anointed me to proclaim good news to the poor. He has sent me to proclaim freedom for the prisoners and recovery of sight for the blind, to set the oppressed free, to proclaim the year of the Lord’s favor”. 
+
+***Matthew 6:19-21*** “do not store up for yourselves treasures on earth, where moths and vermin destroy, and where thieves break in and steal. But store up for yourselves treasures in heaven, where moths and vermin do not destroy, and where thieves do not break in and steal. For where your treasure is, there your heart will be also”. 
+
 ***Matthew 25:35-40*** “For I was hungry, and you gave me something to eat; I was thirsty, and you gave me something to drink”. I was a stranger, and you welcomed me in. I needed clothes, and you clothed me. I was sick, and you looked after me. I was in prison, and you came to visit me.” 
-
 “Lord, when did we see you hungry, or thirsty, or a stranger, or needing clothes, or sick, or in prison?”
-
 “Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
 
 ***Proverbs 14:31*** “Whoever oppresses the poor shows contempt for their Maker, but whoever is kind to the needy honors God”.
@@ -172,6 +188,8 @@ Jesus worked and healed during the Sabbath
 ***Hebrews 4;12*** “The word of God is living and active”.
 
 ***Isaiah 43:19*** “See, I am doing a new thing! Now it springs up; do you not perceive it?”
+
+***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 ***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
 
