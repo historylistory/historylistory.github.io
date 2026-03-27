@@ -241,3 +241,15 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 2026-02-24 During the State of the Union, Trump quipped about killing Venezuelans in boat strikes, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
+
+### 2026 March
+
+2026-03-26 The US Treasury blocked funds for captured Maduro and his wife to pay their legal fees. Judge Alvin Hellerstein asked, “What’s the interest of the government now in blocking those funds? We are doing business in Venezuela. The defendant is here; Flores is here. They present no further national security threat”. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.kktv.com/2026/03/26/nicols-maduros-lawyer-argues-against-us-blocking-funding-drug-trafficking-case-defense/](https://www.kktv.com/2026/03/26/nicols-maduros-lawyer-argues-against-us-blocking-funding-drug-trafficking-case-defense/)
+
+[https://www.nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html](https://www.nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html)
+
+[https://www.reuters.com/legal/government/venezuelas-maduro-due-back-us-court-dispute-over-legal-fees-2026-03-26](https://www.reuters.com/legal/government/venezuelas-maduro-due-back-us-court-dispute-over-legal-fees-2026-03-26)

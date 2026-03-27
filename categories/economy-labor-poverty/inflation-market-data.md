@@ -6,6 +6,18 @@ subcategory_slug: inflation-market-data
 permalink: /categories/economy-labor-poverty/inflation-market-data/
 ---
 
+### 2020
+
+2020-03-16 During the first Trump administration and the pandemic the stock market crashed. 
+
+[https://en.wikipedia.org/wiki/2020_stock_market_crash#:~:text=Though%20the%20crash%20began%20on,Treasury%20securities%20fell%20to%201.59%25.](https://en.wikipedia.org/wiki/2020_stock_market_crash#:~:text=Though%20the%20crash%20began%20on,Treasury%20securities%20fell%20to%201.59%25.)
+
+[https://www.cnbc.com/2020/06/10/stock-market-futures-open-to-close-news.html](https://www.cnbc.com/2020/06/10/stock-market-futures-open-to-close-news.html)
+
+[https://www.pvamu.edu/blog/opinion-the-u-s-stock-market-crash-of-march-2020-lessons-from-economic-history/](https://www.pvamu.edu/blog/opinion-the-u-s-stock-market-crash-of-march-2020-lessons-from-economic-history/)
+
+[https://www.pbs.org/newshour/economy/worst-day-on-wall-street-since-1987-as-virus-fears-spread](https://www.pbs.org/newshour/economy/worst-day-on-wall-street-since-1987-as-virus-fears-spread)
+
 ### 2021
 
 2021-02-19 Reports indicated Americans were economically “battered” by the pandemic.
@@ -204,3 +216,11 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877](https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877)
 
 [https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689](https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689)
+
+2026-03-26 Wall Street suffered its worst day since the start of the Corona Virus pandemic. The price of crude oil topped $110 a barrel. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html](https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html)
+
+[https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/](https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/)

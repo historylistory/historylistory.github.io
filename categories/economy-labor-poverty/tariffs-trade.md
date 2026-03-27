@@ -204,3 +204,20 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.spglobal.com/energy/en/news-research/latest-news/chemicals/030326-war-in-the-middle-east-cools-polymer-trade-in-the-americas-fuels-expectations-of-rising-prices](https://www.spglobal.com/energy/en/news-research/latest-news/chemicals/030326-war-in-the-middle-east-cools-polymer-trade-in-the-americas-fuels-expectations-of-rising-prices)
 
 [https://www.plasticsnews.com/video-livestreams/polymer-points/pn-iran-conflict-plastic-resin-prices-surging-polymer-points/](https://www.plasticsnews.com/video-livestreams/polymer-points/pn-iran-conflict-plastic-resin-prices-surging-polymer-points/)
+
+2026-03-26 Wall Street suffered its worst day since the start of the Corona Virus pandemic. **The price of crude oil topped $110 a barrel.** 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html](https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html)
+
+[https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/](https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/)
+
+
+2026-03-26 Ukrainian drones struck ports and refineries along the Baltic sea, halting at least 40% of Russian oil export capacity. Zelenskyy reported that the U.S. was making any security guarantees for Ukraine contingent upon Ukraine giving up its defense of the Eastern Donbas region. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/](https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/)
+
+[https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/](https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/)

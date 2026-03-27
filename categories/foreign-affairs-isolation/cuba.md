@@ -48,5 +48,26 @@ permalink: /categories/foreign-affairs-isolation/cuba/
 [https://www.youtube.com/watch?v=mIkrpjKnspw](https://www.youtube.com/watch?v=mIkrpjKnspw)
 {% include youtubePlayer.html id="mIkrpjKnspw" %}
 
+2026-03-26 Democrats proposed a bill to block Trump from using any federal funds to take military action in Cuba without Congressional authorization. 
 
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
+[https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba](https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba)
+
+[https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/](https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/)
+
+2026-03-26 Cuban doctors reported several deaths in direct relation to the US oil blockade, citing a severe shortage in food, medicine and equipment. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/cuban-doctors-endure-burnout-blackouts-once-vaunted-healthcare-declines-2026-03-26/](https://www.reuters.com/business/healthcare-pharmaceuticals/cuban-doctors-endure-burnout-blackouts-once-vaunted-healthcare-declines-2026-03-26/)
+
+[https://www.ctvnews.ca/world/article/cuban-childrens-heart-hospital-makes-tough-choices-amid-us-blockade/](https://www.ctvnews.ca/world/article/cuban-childrens-heart-hospital-makes-tough-choices-amid-us-blockade/)
+
+[https://www.nytimes.com/2026/03/26/world/americas/cubas-health-system-us-oil-blockade.html](https://www.nytimes.com/2026/03/26/world/americas/cubas-health-system-us-oil-blockade.html)
+
+2206-03-27 Mexico Navy reported on a search and rescue effort to locate two ships carrying humanitarian aid to Cuba that went missing. At least 9 crewmembers and a 4-year-old child were among those on the rescue ships. The crew consisted of members from Cuba, France, Poland and the United States. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.cnn.com/2026/03/27/americas/cuba-nuestra-america-boats-missing-intl](https://www.cnn.com/2026/03/27/americas/cuba-nuestra-america-boats-missing-intl)

@@ -564,3 +564,13 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents](https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents)
 
 [https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html](https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html)
+
+2026-03-26 In the case of Anthropic refusing to allow unchecked use of their AI tools for autonomous weapons and mass surveillance, District Court Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.politico.com/news/2026/03/26/judge-pauses-anthropics-supply-chain-risk-designation-00847682](https://www.politico.com/news/2026/03/26/judge-pauses-anthropics-supply-chain-risk-designation-00847682)
+
+[https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/](https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/)
+
+[https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)

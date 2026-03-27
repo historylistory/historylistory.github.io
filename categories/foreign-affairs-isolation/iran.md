@@ -977,6 +977,20 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/](https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/)
 
+2026-03-24 House Democrat leaders chose not to force a vote on an Iran war powers resolution until after a 2-week recess in mid-April. Demand Progress Senior Policy Advisor Cavan Kharrazian stated, “This is a moment for anti-war leadership, not hesitation. The House should be on the record now, especially when reporting suggests the votes are there to pass a war powers resolution”. Ryan Grim wrote on social media, “Gregory Meeks is now suggesting he might back away from a War Powers vote just as (and honestly because) it now may have the votes to pass. Dems secretly want this war to continue bc it hurts Trump”. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://x.com/ryangrim/status/2036631611014594992](https://x.com/ryangrim/status/2036631611014594992)
+
+[https://www.democracynow.org/2026/3/27/headlines/house_democratic_leaders_delay_vote_on_iran_war_powers_resolution_until_at_least_mid_april](https://www.democracynow.org/2026/3/27/headlines/house_democratic_leaders_delay_vote_on_iran_war_powers_resolution_until_at_least_mid_april)
+
+[https://www.commondreams.org/newswire/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate](https://www.commondreams.org/newswire/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate)
+
+[https://www.cbsnews.com/news/senate-iran-war-powers-resolution-vote-trump/](https://www.cbsnews.com/news/senate-iran-war-powers-resolution-vote-trump/)
+
+[https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/](https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/)
+
 2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
 
 [https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
@@ -1005,3 +1019,21 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy](https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy)
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/](https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/)
+
+2026-03-26 Trump said he would delay his ultimatum for Iran to open the Strait of Hormuz or face attacks on energy infrastructure. The previous deadlines were March 23rd and March 27th. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.democracynow.org/2026/3/27/headlines/trump_again_delays_ultimatum_for_iran_to_open_strait_of_hormuz](https://www.democracynow.org/2026/3/27/headlines/trump_again_delays_ultimatum_for_iran_to_open_strait_of_hormuz)
+
+[https://www.reuters.com/world/asia-pacific/trump-pauses-attacks-irans-energy-plants-says-talks-are-going-well-2026-03-26/](https://www.reuters.com/world/asia-pacific/trump-pauses-attacks-irans-energy-plants-says-talks-are-going-well-2026-03-26/)
+
+2026-03-26 Trump claimed Iran gifted him ***“eight big boats of oil”*** which he later changed to ten. Ten big boats of oil. He said, **“And they’ll tell you we’re not negotiating. We will not negotiate.  Of course they negotiated. They’ve been obliterated”. Who wouldn’t negotiate? They are begging to make a deal. We’ll see if we can make the right deal”.** 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.thedailybeast.com/trump-leaks-big-reveal-about-irans-mystery-gift-to-us/](https://www.thedailybeast.com/trump-leaks-big-reveal-about-irans-mystery-gift-to-us/)
+
+[https://ca.news.yahoo.com/trump-reveals-present-claims-iran-163102551.html](https://ca.news.yahoo.com/trump-reveals-present-claims-iran-163102551.html)
+
+[https://nypost.com/2026/03/26/us-news/trump-says-iran-gifted-him-10-big-boats-of-oil/](https://nypost.com/2026/03/26/us-news/trump-says-iran-gifted-him-10-big-boats-of-oil/)

@@ -191,3 +191,11 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 [https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/](https://www.politico.eu/article/iran-abbas-araghchi-says-russia-and-china-providing-military-cooperation/)
 
 [https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/](https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/)
+
+2026-03-26 Ukrainian drones struck ports and refineries along the Baltic sea, halting at least 40% of Russian oil export capacity. Zelenskyy reported that the U.S. was making any security guarantees for Ukraine contingent upon Ukraine giving up its defense of the Eastern Donbas region. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/](https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/)
+
+[https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/](https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/)

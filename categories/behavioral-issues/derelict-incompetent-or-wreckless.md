@@ -411,3 +411,25 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659](https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659)
 
 [https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
+
+2026-03-24 House Democrat leaders chose not to force a vote on an Iran war powers resolution until after a 2-week recess in mid-April. Demand Progress Senior Policy Advisor Cavan Kharrazian stated, “This is a moment for anti-war leadership, not hesitation. The House should be on the record now, especially when reporting suggests the votes are there to pass a war powers resolution”. Ryan Grim wrote on social media, “Gregory Meeks is now suggesting he might back away from a War Powers vote just as (and honestly because) it now may have the votes to pass. Dems secretly want this war to continue bc it hurts Trump”. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://x.com/ryangrim/status/2036631611014594992](https://x.com/ryangrim/status/2036631611014594992)
+
+[https://www.democracynow.org/2026/3/27/headlines/house_democratic_leaders_delay_vote_on_iran_war_powers_resolution_until_at_least_mid_april](https://www.democracynow.org/2026/3/27/headlines/house_democratic_leaders_delay_vote_on_iran_war_powers_resolution_until_at_least_mid_april)
+
+[https://www.commondreams.org/newswire/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate](https://www.commondreams.org/newswire/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate)
+
+[https://www.cbsnews.com/news/senate-iran-war-powers-resolution-vote-trump/](https://www.cbsnews.com/news/senate-iran-war-powers-resolution-vote-trump/)
+
+[https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/](https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/)
+
+2026-03-26 Democrats proposed a bill to block Trump from using any federal funds to take military action in Cuba without Congressional authorization. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba](https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba)
+
+[https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/](https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/)

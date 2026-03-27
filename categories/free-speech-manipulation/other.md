@@ -39,3 +39,15 @@ permalink: /categories/free-speech-manipulation/other/
 [https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/](https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/)
 
 [https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/](https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/)
+
+### 2026 March
+
+2026-03-26 In the case of Anthropic refusing to allow unchecked use of their AI tools for autonomous weapons and mass surveillance, District Court Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.politico.com/news/2026/03/26/judge-pauses-anthropics-supply-chain-risk-designation-00847682](https://www.politico.com/news/2026/03/26/judge-pauses-anthropics-supply-chain-risk-designation-00847682)
+
+[https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/](https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/)
+
+[https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)

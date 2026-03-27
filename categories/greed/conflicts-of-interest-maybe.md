@@ -93,3 +93,25 @@ permalink: /categories/greed/conflicts-of-interest-maybe/
 [https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774](https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774)
 
 [https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/](https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/)
+
+### 2026 March
+
+2026-03-25 House GOP leaders blocked a motion to subpoena Donald Trump Jr. over his venture capital firm investing in a rare earth mineral company months before it **received a $620M loan from the Pentagon.**
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.cnbc.com/2026/03/25/donald-trump-jr-subpoena.html](https://www.cnbc.com/2026/03/25/donald-trump-jr-subpoena.html)
+
+[https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454](https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454)
+
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, ***“…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.*** Dozens of million-dollar bets were being made on the prediction market platform PolyMarket about Iran. 
+
+[https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
+
+[https://www.commondreams.org/news/traders-bet-trump-iran](https://www.commondreams.org/news/traders-bet-trump-iran)
+
+[https://thehill.com/homenews/senate/5798756-murphy-trump-oil-iran-insider-trading/](https://thehill.com/homenews/senate/5798756-murphy-trump-oil-iran-insider-trading/)
+
+[https://x.com/ChrisMurphyCT/status/2036277990489764135](https://x.com/ChrisMurphyCT/status/2036277990489764135)
+
+[https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html](https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html)
