@@ -972,3 +972,18 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.npr.org/2026/03/25/nx-s1-5759313/israel-says-plan-to-expand-into-lebanon-will-provide-defensive-buffer](https://www.npr.org/2026/03/25/nx-s1-5759313/israel-says-plan-to-expand-into-lebanon-will-provide-defensive-buffer)
 
 [https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/](https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/)
+
+
+2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
+
+[https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
+
+[https://www.youtube.com/watch?v=2NrJU2aqGvQ](https://www.youtube.com/watch?v=2NrJU2aqGvQ)
+
+[https://www.youtube.com/watch?v=erZ6A5Wmy00](https://www.youtube.com/watch?v=erZ6A5Wmy00)
+
+[https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-christian-worship-prayers-pray-for-violence-pentagon-b2945765.html](https://www.the-independent.com/news/world/americas/us-politics/pete-hegseth-christian-worship-prayers-pray-for-violence-pentagon-b2945765.html)
+
+[https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy](https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy)
+
+[https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/](https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/)
