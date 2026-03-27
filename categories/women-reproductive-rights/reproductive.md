@@ -303,3 +303,9 @@ It would also make it a felony to give someone information about where to get a
 [https://www.cincinnati.com/story/news/politics/2026/03/17/ohio-bill-would-require-fetal-birth-death-certificates/89183531007/](https://www.cincinnati.com/story/news/politics/2026/03/17/ohio-bill-would-require-fetal-birth-death-certificates/89183531007/)
 
 [https://www.youtube.com/watch?v=g55ZtN2ka2g&list=WL&index=3&t=39s](https://www.youtube.com/watch?v=g55ZtN2ka2g&list=WL&index=3&t=39s)
+
+2026-03-26 During a CPAC convention far-right podcaster Benny Johnson told the CPAC crowd to “out-breed” the Libs.  Some of the quotes include, ***“Having children and starting a family is the culture war right there”***, and ***“Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”***. Among a multitude of other things left to unpack there, **acting as though women are designed to be breeding stock for political agendas**. 
+
+[https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
+
+[https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)

@@ -181,3 +181,8 @@ permalink: /categories/civil-war-violence-guns/stoking-division/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116273343074887409](https://truthsocial.com/@realDonaldTrump/posts/116273343074887409)
 
+2026-03-26 During a CPAC convention far-right podcaster Benny Johnson told the CPAC crowd to “out-breed” the Libs.  Some of the quotes include, ***“Having children and starting a family is the culture war right there”***, and ***“Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”***. Among a multitude of other things left to unpack there, **acting as though women are designed to be breeding stock for political agendas**. 
+
+[https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
+
+[https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
