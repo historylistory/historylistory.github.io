@@ -176,3 +176,5 @@ Also out of left field, one conservative commentator praised the win as a show o
 [https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
 
 [https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
+
+[https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
