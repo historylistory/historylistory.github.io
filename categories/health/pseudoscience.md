@@ -24,6 +24,18 @@ permalink: /categories/health/pseudoscience/
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
 
+### 2025 November
+
+2025-11-01 Injecting peptides became the newest health trend.
+
+[https://www.cnn.com/2025/11/15/health/peptides-unregulated-influencers](https://www.cnn.com/2025/11/15/health/peptides-unregulated-influencers)
+
+[https://www.theguardian.com/wellness/2026/feb/05/injectable-peptides-trend](https://www.theguardian.com/wellness/2026/feb/05/injectable-peptides-trend)
+
+[https://www.npr.org/2026/02/23/nx-s1-5716162/peptides-science-muscle-growth-longevity-wellness](https://www.npr.org/2026/02/23/nx-s1-5716162/peptides-science-muscle-growth-longevity-wellness)
+
+[https://www.bbc.com/news/articles/cdr268m5pxro](https://www.bbc.com/news/articles/cdr268m5pxro)
+
 ### 2026 February
 
 2026-02-06 RFK claimed the keto diet can cure schizophrenia with no actual data or supporting evidence.

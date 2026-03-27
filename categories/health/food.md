@@ -58,6 +58,25 @@ permalink: /categories/health/food/
 
 [https://www.reuters.com/legal/litigation/rfk-jr-pushed-food-companies-cut-artificial-dyes-heres-why-theyre-moving-slowly-2026-01-28/](https://www.reuters.com/legal/litigation/rfk-jr-pushed-food-companies-cut-artificial-dyes-heres-why-theyre-moving-slowly-2026-01-28/)
 
+### 2025 July 
+
+2025-07-01 Protein was the new trend and food companies were aggressively adding protein to their products – even coffee!
+
+[https://www.usatoday.com/story/money/food/2026/01/13/high-protein-menu-options-retailers-restaurants/88082566007/](https://www.usatoday.com/story/money/food/2026/01/13/high-protein-menu-options-retailers-restaurants/88082566007/)
+
+[https://www.cnbc.com/2025/07/22/protein-craze-general-mills-pepsico-kraft-heinz.html](https://www.cnbc.com/2025/07/22/protein-craze-general-mills-pepsico-kraft-heinz.html)
+
+[https://fortune.com/2025/10/14/doritos-pop-tarts-protein-foods-trend-wellness-pepsico/](https://fortune.com/2025/10/14/doritos-pop-tarts-protein-foods-trend-wellness-pepsico/)
+
+[https://www.cnbc.com/2026/01/07/rfk-jr-nutrition-guidelines-protein-processed-food.html](https://www.cnbc.com/2026/01/07/rfk-jr-nutrition-guidelines-protein-processed-food.html)
+
+[https://fortune.com/2026/01/07/protein-craze-starbucks-chipotle-rfk-nutrition-guidelines/](https://fortune.com/2026/01/07/protein-craze-starbucks-chipotle-rfk-nutrition-guidelines/)
+
+[https://www.wired.com/story/rfk-jr-says-hes-ending-the-war-on-protein-it-doesnt-exist/](https://www.wired.com/story/rfk-jr-says-hes-ending-the-war-on-protein-it-doesnt-exist/)
+
+[https://www.empower.com/the-currency/play/protein-food-consumer-trend-news](https://www.empower.com/the-currency/play/protein-food-consumer-trend-news)
+
+
 ### 2025 August
 
 2025-08-04 News outlets reported 21 infections tied to the consumption of raw milk.
