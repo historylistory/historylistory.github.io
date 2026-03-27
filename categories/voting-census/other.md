@@ -79,3 +79,21 @@ permalink: /categories/voting-census/other/
 [https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/](https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/)
 
 [https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/](https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/)
+
+### 2026 March
+
+2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+
+[https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
+
+[https://www.youtube.com/watch?v=U-8SGdG5AVY](https://www.youtube.com/watch?v=U-8SGdG5AVY)
+
+[https://www.youtube.com/shorts/aeeULQ384v4](https://www.youtube.com/shorts/aeeULQ384v4)
+
+[https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
+
+2026-03-25 Watch Adam Mockler arguments about the legality of ICE, free and fair elections, and the Iran war (the meat of the interview is at timestamp 7:33). 
+
+[https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
+
+[https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)

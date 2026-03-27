@@ -324,6 +324,16 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
+2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+
+[https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
+
+[https://www.youtube.com/watch?v=U-8SGdG5AVY](https://www.youtube.com/watch?v=U-8SGdG5AVY)
+
+[https://www.youtube.com/shorts/aeeULQ384v4](https://www.youtube.com/shorts/aeeULQ384v4)
+
+[https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
+
 2026-03-24 The “Border Czar” Tom Homan and Transportation Secretary Sean Duffy shared conflicting stories about ICE at our nation’s airports. Duffy claimed that ICE agents are well-trained on X-ray machines and identifying security risks, saying quote, “They know how to run the X-ray machines because they are, again, under homeland security”. Homan said they were NOT trained and won’t be handling that type of security detail, saying quote, “I don’t see an ICE agent looking at an X-ray machine, because we’re not trained in that”. 
 
 [https://time.com/article/2026/03/23/ice-airports-homan-duffy-trump-administration/](https://time.com/article/2026/03/23/ice-airports-homan-duffy-trump-administration/)
@@ -333,3 +343,9 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 [https://www.nbcnews.com/politics/politics-news/tom-homan-ice-crowded-airport-security-tsa-screenings-wait-times-rcna264618](https://www.nbcnews.com/politics/politics-news/tom-homan-ice-crowded-airport-security-tsa-screenings-wait-times-rcna264618)
 
 [https://thehill.com/policy/transportation/5795316-homan-ice-tsa-plan-dhs-shutdown/](https://thehill.com/policy/transportation/5795316-homan-ice-tsa-plan-dhs-shutdown/)
+
+2026-03-25 Watch Adam Mockler arguments about the legality of ICE, free and fair elections, and the Iran war (the meat of the interview is at timestamp 7:33). 
+
+[https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
+
+[https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)

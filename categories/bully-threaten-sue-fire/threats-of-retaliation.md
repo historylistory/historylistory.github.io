@@ -542,6 +542,17 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
+2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+
+[https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
+
+[https://www.youtube.com/watch?v=U-8SGdG5AVY](https://www.youtube.com/watch?v=U-8SGdG5AVY)
+
+[https://www.youtube.com/shorts/aeeULQ384v4](https://www.youtube.com/shorts/aeeULQ384v4)
+
+[https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
+
+
 2026-03-26 Trump posted on social media he planned to sign an emergency Executive Order to get TSA agents paid during the second government shutdown. This came after Democrats made multiple attempts to pass a bill asking for the same thing and Trump initially responded by sending ICE agents to the airports where they did not offer help and instead stood around playing on their phones. Keeping in mind, ICE agents not wearing masks or body cameras was why we had the shutdown in the first place, and the GOP refused to allow those guardrails while they continued to fund agents during the shutdown.
 
 [https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)

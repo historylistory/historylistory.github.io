@@ -986,6 +986,12 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/](https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/)
 
 
+2026-03-25 Watch Adam Mockler arguments about the legality of ICE, free and fair elections, and the Iran war (the meat of the interview is at timestamp 7:33). 
+
+[https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
+
+[https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
+
 2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
 
 [https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
