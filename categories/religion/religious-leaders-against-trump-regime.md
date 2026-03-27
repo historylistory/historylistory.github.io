@@ -6,6 +6,22 @@ subcategory_slug: religious-leaders-against-trump-regime
 permalink: /categories/religion/religious-leaders-against-trump-regime/
 ---
 
+### Context and Interesting Finds
+
+(this article is from 2017) 
+
+[https://theconversation.com/taxing-the-rich-to-help-the-poor-heres-what-the-bible-says-88627 ](https://theconversation.com/taxing-the-rich-to-help-the-poor-heres-what-the-bible-says-88627 )
+
+(this is from 1961 when Pope John wrote taxation must be proportioned to the capacity of the people contributing)
+
+[https://www.vatican.va/content/john-xxiii/en/encyclicals/documents/hf_j-xxiii_enc_15051961_mater.html](https://www.vatican.va/content/john-xxiii/en/encyclicals/documents/hf_j-xxiii_enc_15051961_mater.html)
+
+
+(this is from 2013 when the Pope denounced the trickle down economy concept) 
+
+[https://www.washingtonpost.com/business/economy/pope-francis-denounces-trickle-down-economic-theories-in-critique-of-inequality/2013/11/26/e17ffe4e-56b6-11e3-8304-caf30787c0a9_story.html](https://www.washingtonpost.com/business/economy/pope-francis-denounces-trickle-down-economic-theories-in-critique-of-inequality/2013/11/26/e17ffe4e-56b6-11e3-8304-caf30787c0a9_story.html)
+
+
 ### 2025 January
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a "disgrace" and an "embarrassment". Trump demanded an apology from Reverend Mariann Edgar Budde.
@@ -62,6 +78,29 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law#:~:text=built%20this%20country.%E2%80%9D-,S.B.,meet%20the%20requirements%20of%20S.B](https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law).
 
 [https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423#:~:text=As%20disputes%20rage%20on%20over,:%20Louisiana%2C%20Arkansas%20and%20Texas](https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423).
+
+### 2025 June
+
+2025-06-01 Religious leaders vehemently condemned the Big Beautiful Bill, and GOP leaders using prayer to ask for the passage of bills that would hurt the most vulnerable. All to benefit the rich.
+
+[https://nationalcouncilofchurches.us/ncc-condemns-big-brutal-bill](https://nationalcouncilofchurches.us/ncc-condemns-big-brutal-bill)
+
+[https://wordandway.org/2025/06/11/faith-leaders-lawmakers-argue-gop-bill-benefits-the-ultra-wealthy-by-hurting-the-poor](https://wordandway.org/2025/06/11/faith-leaders-lawmakers-argue-gop-bill-benefits-the-ultra-wealthy-by-hurting-the-poor)
+
+[https://www.youtube.com/watch?v=HW7KJXKYsSQ&list=WL&index=6](https://www.youtube.com/watch?v=HW7KJXKYsSQ&list=WL&index=6)
+
+[https://mazon.org/news/blog/faith-leaders-unite-in-call-to-protect-snap-and-medicaid](https://mazon.org/news/blog/faith-leaders-unite-in-call-to-protect-snap-and-medicaid)
+
+[https://www.ncronline.org/news/one-big-beautiful-bill-takes-poor-give-wealthy-usccb-says](https://www.ncronline.org/news/one-big-beautiful-bill-takes-poor-give-wealthy-usccb-says)
+
+[https://www.chicagotribune.com/2026/03/25/no-kings-protests-donald-trump/](https://www.chicagotribune.com/2026/03/25/no-kings-protests-donald-trump/)
+
+[https://wisconsinexaminer.com/2026/03/27/some-religious-leaders-say-opposition-to-trump-is-a-matter-of-faith/](https://wisconsinexaminer.com/2026/03/27/some-religious-leaders-say-opposition-to-trump-is-a-matter-of-faith/)
+
+[https://www.newsfromthestates.com/article/some-religious-leaders-say-opposition-trump-matter-faith](https://www.newsfromthestates.com/article/some-religious-leaders-say-opposition-trump-matter-faith)
+
+[https://religionunplugged.com/news/when-who-and-what-of-a-new-christian-protest-against-trump](https://religionunplugged.com/news/when-who-and-what-of-a-new-christian-protest-against-trump)
+
 
 ### 2026 February
 
