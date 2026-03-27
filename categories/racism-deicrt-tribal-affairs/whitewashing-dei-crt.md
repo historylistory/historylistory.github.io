@@ -213,3 +213,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 [https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html](https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html)
 
 [https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s](https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s)
+
+2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, leaving some senior military officials to question if women and minorities were being singled out. In the same article presenting this information, the article wrote that Chief of Staff Ricky Buria told the Army Secretary Daniel Driscoll about assigning Major General Antoinette R. Gant command of the Military District of Washington **President Trump would not want to stand next to a Black female officer at military events.**
+
+[https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html](https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html)
+
+[https://www.theguardian.com/us-news/2026/mar/27/pete-hegseth-cuts-black-men-women-military-promotion-list](https://www.theguardian.com/us-news/2026/mar/27/pete-hegseth-cuts-black-men-women-military-promotion-list)
+
+[https://www.rollingstone.com/politics/politics-news/army-secretary-trump-black-female-officer-1235538305/](https://www.rollingstone.com/politics/politics-news/army-secretary-trump-black-female-officer-1235538305/)
+
+[https://thehill.com/policy/defense/5804541-pete-hegseth-pentagon-promotion-list/](https://thehill.com/policy/defense/5804541-pete-hegseth-pentagon-promotion-list/)
+
+[https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms](https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms)
+
+[https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html](https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html)
