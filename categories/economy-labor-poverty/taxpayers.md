@@ -46,6 +46,20 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.gov.ca.gov/2025/07/02/heres-how-president-trumps-tax-cuts-for-the-ultra-rich-will-hurt-you/](https://www.gov.ca.gov/2025/07/02/heres-how-president-trumps-tax-cuts-for-the-ultra-rich-will-hurt-you/)
 
+2025-01-20 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade.
+
+[https://www.americanprogress.org/article/7-ways-the-big-beautiful-bill-cuts-taxes-for-the-rich/](https://www.americanprogress.org/article/7-ways-the-big-beautiful-bill-cuts-taxes-for-the-rich/)
+
+[https://inthesetimes.com/article/trump-tax-cuts-2024-election-rich-corporations](https://inthesetimes.com/article/trump-tax-cuts-2024-election-rich-corporations)
+
+[https://www.cbpp.org/research/federal-tax/by-the-numbers-harmful-republican-megabill-favors-the-wealthy-and-leaves](https://www.cbpp.org/research/federal-tax/by-the-numbers-harmful-republican-megabill-favors-the-wealthy-and-leaves)
+
+[https://democrats-budget.house.gov/resources/fact-sheet/trumps-big-ugly-law-steals-poor-give-ultra-rich](https://democrats-budget.house.gov/resources/fact-sheet/trumps-big-ugly-law-steals-poor-give-ultra-rich)
+
+[https://www.cbpp.org/research/federal-tax/by-the-numbers-house-republican-tax-agenda-favors-the-wealthy-and-leaves](https://www.cbpp.org/research/federal-tax/by-the-numbers-house-republican-tax-agenda-favors-the-wealthy-and-leaves)
+
+[https://www.budget.senate.gov/chairman/newsroom/press/extending-trumps-tax-cuts-for-the-wealthy-will-shrink-the-economy-cbo-finds/](https://www.budget.senate.gov/chairman/newsroom/press/extending-trumps-tax-cuts-for-the-wealthy-will-shrink-the-economy-cbo-finds/)
+
 ### 2025 May
 
 2025-05-20 (**for** **context – because most low wage workers are near, at or below the poverty line**) The Trump administration announced plans to pass a ***lackluster "No Tax For Tips"*** bill. The bill ended up being temporary in nature, featured an income cap up to an unlivable $25,000 per year, and excluded  payroll and state taxes. Altogether the bill offered little or no benefit to low-wage workers.
