@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Ego, Idolatry, and Renaming
+title: Ego, Idolatry, and Trophies
 category_slug: behavioral-issues
-subcategory_slug: ego-idolatry-and-renaming
-permalink: /categories/behavioral-issues/ego-idolatry-and-renaming/
+subcategory_slug: ego-idolatry-and-trophies
+permalink: /categories/behavioral-issues/ego-idolatry-and-trophies/
 ---
 
 ### 2015 (context)
