@@ -191,6 +191,18 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-trophies/
 
 [https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430](https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430)
 
+2026-03-25 Speaker Mike Johnson announced the White House made up a special award to present to Trump called the “America First” prize. 
+
+[https://www.usatoday.com/story/news/politics/2026/03/26/trump-given-america-first-award-republican-party/89330333007/](https://www.usatoday.com/story/news/politics/2026/03/26/trump-given-america-first-award-republican-party/89330333007/)
+
+[https://www.nj.com/politics/2026/03/trump-receives-another-award-that-was-just-invented.html](https://www.nj.com/politics/2026/03/trump-receives-another-award-that-was-just-invented.html)
+
+[https://www.theguardian.com/us-news/2026/mar/26/trump-mike-johnson-america-first-award](https://www.theguardian.com/us-news/2026/mar/26/trump-mike-johnson-america-first-award)
+
+[https://www.youtube.com/watch?v=R3826ZVTKmE&list=WL&index=2](https://www.youtube.com/watch?v=R3826ZVTKmE&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=v5PVnCR5GOE&list=WL&index=3](https://www.youtube.com/watch?v=v5PVnCR5GOE&list=WL&index=3)
+
 2026-03-26 The Treasury announced it would be putting Trump’s signature on the dollar bill. 
 
 [https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389](https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389)
