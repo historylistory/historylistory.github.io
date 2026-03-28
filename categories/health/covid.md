@@ -6,7 +6,7 @@ subcategory_slug: covid
 permalink: /categories/health/covid/
 ---
 
-### 2020
+### 2020 March
 
 2020-03-24 During a press conference Trump falsely claimed that COVID would “disappear” by Easter. 
 
@@ -23,6 +23,18 @@ permalink: /categories/health/covid/
 
 [https://www.youtube.com/watch?v=uXxuUJJz4VE](https://www.youtube.com/watch?v=uXxuUJJz4VE)
 {% include youtubePlayer.html id="uXxuUJJz4VE" %}
+
+2020-03-27 Trump signed in a $2.2T stimulus bill called the CARES Act. 
+
+[https://home.treasury.gov/policy-issues/coronavirus/about-the-cares-act](https://home.treasury.gov/policy-issues/coronavirus/about-the-cares-act)
+
+[https://en.wikipedia.org/wiki/CARES_Act](https://en.wikipedia.org/wiki/CARES_Act)
+
+2020-03-27 Apple released a dedicated COVID-19 app with screening tools, symptom checkers, and CDC guidelines.
+
+[https://www.apple.com/newsroom/2020/03/apple-releases-new-covid-19-app-and-website-based-on-CDC-guidance/](https://www.apple.com/newsroom/2020/03/apple-releases-new-covid-19-app-and-website-based-on-CDC-guidance/)
+
+### 2020 April
 
 2020-04-23 During a press conference, Trump mused over the idea of injecting the body with disinfectant to treat COVID. When a reporter cautioned Trump not to perpetuate misinformation, Trump angrily backfired.
 
@@ -117,3 +129,9 @@ permalink: /categories/health/covid/
 [https://www.usatoday.com/story/news/politics/2026/02/12/rfk-jr-cocaine-toilet-seats-theo-von-podcast-substance-abuse-recovery/88650599007/](https://www.usatoday.com/story/news/politics/2026/02/12/rfk-jr-cocaine-toilet-seats-theo-von-podcast-substance-abuse-recovery/88650599007/)
 
 [https://www.protectourcare.org/protect-our-care-statement-on-anniversary-of-rfk-jr-s-confirmation-as-trump-health-secretary/](https://www.protectourcare.org/protect-our-care-statement-on-anniversary-of-rfk-jr-s-confirmation-as-trump-health-secretary/)
+
+### 2026 March
+
+2026-03-27 A new COVID variant Cicada – which was discovered originally in November 2024 in South Africa – had now hit 23 countries. According to some sources, this is the virus’ 75th mutation. 
+
+[https://news.northeastern.edu/2026/03/27/new-covid-19-cicada-variant/](https://news.northeastern.edu/2026/03/27/new-covid-19-cicada-variant/)
