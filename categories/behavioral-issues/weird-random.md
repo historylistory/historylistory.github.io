@@ -24,6 +24,18 @@ permalink: /categories/behavioral-issues/weird-random/
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
+### 2025 October
+
+2025-10-14 While on the Benny Johnson podcast to promote his book, Eric Trump claimed his father – Donald Trump – was saving the church, saving God, and saving religion.
+
+[https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god](https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god)
+
+[https://www.sacbee.com/opinion/op-ed/article312759013.html](https://www.sacbee.com/opinion/op-ed/article312759013.html)
+
+[https://www.yahoo.com/news/articles/eric-trump-sparks-backlash-claiming-171615792.html](https://www.yahoo.com/news/articles/eric-trump-sparks-backlash-claiming-171615792.html)
+
+[https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html](https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html)
+
 ### 2026 March
 
 2026-03-09 Trump bought his cabinet members Florsheim Oxfords, guessing the sizes. Photos show some of the cabinet members swimming in the shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.

@@ -93,6 +93,18 @@ permalink: /categories/religion/politics/
 
 [https://www.whitehouse.gov/fact-sheets/2025/02/fact-sheet-president-donald-j-trump-establishes-white-house-faith-office/](https://www.whitehouse.gov/fact-sheets/2025/02/fact-sheet-president-donald-j-trump-establishes-white-house-faith-office/)
 
+### 2025 October
+
+2025-10-14 While on the Benny Johnson podcast to promote his book, Eric Trump claimed his father – Donald Trump – was saving the church, saving God, and saving religion.
+
+[https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god](https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god)
+
+[https://www.sacbee.com/opinion/op-ed/article312759013.html](https://www.sacbee.com/opinion/op-ed/article312759013.html)
+
+[https://www.yahoo.com/news/articles/eric-trump-sparks-backlash-claiming-171615792.html](https://www.yahoo.com/news/articles/eric-trump-sparks-backlash-claiming-171615792.html)
+
+[https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html](https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html)
+
 ### 2026 March
 
 2026-03-03 Several sources reported that servicemembers were calling in complaints because their commanders were framing the war in Iran as a biblical mandate, and that commanders were telling them Trump was anointed by God to light the signal fire in Iran to cause Armageddon. The Military Religious Freedom Foundation reported receiving hundreds of complaints from servicemembers across all branches of the military.
