@@ -163,21 +163,11 @@ permalink: /categories/economy-labor-poverty/labor/
 
 {% include youtubePlayer.html id="NrIovX4XgPc" %}
 
-### 2025 October
+### 2025 October Shutdown
 
-2025-10-09 During a White House press conference, Trump responded to a reporter question about backpay after the shutdown. He responded, “**I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way**”.
+This will have its own section under ***Economy-Labor-Poverty*** called **"Shutdowns"**
 
-{% include youtubePlayer.html id="k0nZfIO2B2U" %}
-
-2025-10-15 A US District Judge had to step in and block the Trump administration from going forward with their plans to mass-fire thousands of federal employees who had been furloughed during the shutdown.
-
-[https://apnews.com/article/shutdown-layoffs-judge-trump-fdcb16f91c94d7bf73977e8968210b0e](https://apnews.com/article/shutdown-layoffs-judge-trump-fdcb16f91c94d7bf73977e8968210b0e)
-
-[https://www.politico.com/news/2025/10/15/trump-administration-layoffs-order-00609833](https://www.politico.com/news/2025/10/15/trump-administration-layoffs-order-00609833)
-
-[https://www.afge.org/publication/federal-judge-issues-immediate-halt-of-trump-administrations-illegal-firing-of-federal-workers-during-shutdown/](https://www.afge.org/publication/federal-judge-issues-immediate-halt-of-trump-administrations-illegal-firing-of-federal-workers-during-shutdown/)
-
-[https://www.reuters.com/world/us-judge-says-she-will-likely-block-trumps-mass-layoffs-during-government-2025-10-15/](https://www.reuters.com/world/us-judge-says-she-will-likely-block-trumps-mass-layoffs-during-government-2025-10-15/)
+So anything related to shutdowns will be there, including weaponizing SNAP benefits and healthcare, and violating the Hatch Act.
 
 ### 2025 November
 
@@ -220,7 +210,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2026 February
 
-2026-02-05 The Trump administration advanced a plan to strip job protections from federal workers by reclassifying them under Schedule F.
+2026-02-05 The Trump administration advanced a plan to **strip job protections** from federal workers by reclassifying them under Schedule F.
 
 [https://www.npr.org/2026/02/06/nx-s1-5704171/trump-fire-federal-employees-schedule-f](https://www.npr.org/2026/02/06/nx-s1-5704171/trump-fire-federal-employees-schedule-f)
 
@@ -244,16 +234,6 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2026 March
 
-2026-03-13 Senator Patty Murray asked for a measure to fund Department of Homeland Security agencies that **weren’t** involved in immigration enforcement. It was an attempt to get TSA agents paid. The Republican party blocked the attempt to fund TSA, FEMA, and other agencies. 
-
-[https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/](https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/)
-
-[https://www.pbs.org/newshour/politics/watch-live-senate-meets-to-consider-dhs-funding-to-end-shutdown](https://www.pbs.org/newshour/politics/watch-live-senate-meets-to-consider-dhs-funding-to-end-shutdown)
-
-[https://www.appropriations.senate.gov/news/minority/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-and-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice](https://www.appropriations.senate.gov/news/minority/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-and-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice)
-
-[https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s](https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s)
-
 2026-03-16 Leaked DOGE deposition videos went viral, revealing that DOGE employees used OpenAI’s ChatGPT to determine which agencies and grants to cut, starting with any that referenced DEI. They used AI to indiscriminately take jobs away from dedicated and hard-working people.  
 
 [https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
@@ -269,27 +249,3 @@ permalink: /categories/economy-labor-poverty/labor/
 [https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
-
-2026-03-17 Hundreds of TSA workers quit due to no pay over the second government shutdown. This time the government shutdown happened after DHS executed Alex Pretti. Democrats demanded that one of hte six remaining funding bills for DHS be stripped, as well as requesting a code of conduct for officers and unmasking - none of which the GOP would concede to. Unlike the last shutdown, the Trump Administration did not hold SNAP benefits as leverage this time. However, during this shutdown airlines were asking passengers to donate gift cards so employees could survive. According to online sources, the Trump Administration continued to pay the salaries of select DHS agents patrolling our streets for immigration crackdown and were asking for $200B to fund the war in Iran which they said wasn’t a war and would be “over soon”. 
-
-[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
-
-[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
-
-[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
-
-[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
-
-[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
-
-2026-03-26 Trump posted on social media he planned to sign an emergency Executive Order to get TSA agents paid during the second government shutdown. This came after Democrats made multiple attempts to pass a bill asking for the same thing and Trump initially responded by sending ICE agents to the airports where they did not offer help and instead stood around playing on their phones. Keeping in mind, ICE agents not wearing masks or body cameras was why we had the shutdown in the first place, and the GOP refused to allow those guardrails while they continued to fund agents during the shutdown.
-
-[https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)
-
-[https://abcnews.com/Politics/trump-hell-sign-order-directing-dhs-pay-tsa/story?id=131441186](https://abcnews.com/Politics/trump-hell-sign-order-directing-dhs-pay-tsa/story?id=131441186)
-
-[https://www.cbsnews.com/news/trump-order-tsa-pay-as-dhs-shutdown-drags-on/](https://www.cbsnews.com/news/trump-order-tsa-pay-as-dhs-shutdown-drags-on/)
-
-[https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents](https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents)
-
-[https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html](https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html)

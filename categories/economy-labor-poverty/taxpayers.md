@@ -82,6 +82,18 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/](https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/)
 
+### 2025 August
+
+2025-08-05 Trump stated that DOGE cuts would be "surgical". Instead, the Trump administration made indiscriminate cuts to a wide chunk of agricultural, educational, scientific, research, environmental, and civil engineering services designed to help millions of Americans thrive. After Elon Musk left DOGE, the Trump administration continued to make slashing cuts across the board, primarily in Democrat-led cities as a retaliatory measure.
+
+[https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
+
+[https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE](https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE)
+
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
+
 ### 2025 September
 
 2025-09-14 (context/spending) Trump asked Congress for an ***additional $58M*** to increase security for his administration. Taxpayer expense.

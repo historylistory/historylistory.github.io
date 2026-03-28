@@ -52,6 +52,18 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 [https://www.computerweekly.com/news/366625236/US-cyber-agency-CISA-faces-stiff-budget-cuts#](https://www.computerweekly.com/news/366625236/US-cyber-agency-CISA-faces-stiff-budget-cuts)
 
+### 2025 August
+
+2025-08-05 Trump stated that DOGE cuts would be "surgical". Instead, the Trump administration made indiscriminate cuts to a wide chunk of agricultural, educational, scientific, research, environmental, and civil engineering services designed to help millions of Americans thrive. After Elon Musk left DOGE, the Trump administration continued to make slashing cuts across the board, primarily in Democrat-led cities as a retaliatory measure.
+
+[https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
+
+[https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE](https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE)
+
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
+
 ### 2025 September
 
 2025-09-24 The Trump administration continued to rehire many federal workers formerly let go by DOGE but only gave them until the end of October to return. The rehiring would cost taxpayers. The fact that the Trump administration had to rehire crucial workers back to federal positions goes against their previous claim August 5th that their firings would be done with “surgical precision”.
