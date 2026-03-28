@@ -80,6 +80,18 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 {% include youtubePlayer.html id="zgcuAHjcrkk" %}
 
+### 2026 January
+
+2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
+
+[https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
+
+[https://www.pbs.org/newshour/politics/doj-subpoenas-minnesota-gov-walz-and-other-officials-in-obstruction-investigation](https://www.pbs.org/newshour/politics/doj-subpoenas-minnesota-gov-walz-and-other-officials-in-obstruction-investigation)
+
+[https://www.mprnews.org/story/2026/01/06/timeline-of-fraud-investigations-that-shaped-walz-tenure](https://www.mprnews.org/story/2026/01/06/timeline-of-fraud-investigations-that-shaped-walz-tenure)
+
+[https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/](https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/)
+
 ### 2026 February
 
 2026-02-03 DHS submitted an administrative subpoena against a 67-year-old man from Pennsylvania after he wrote an email to them asking to “apply principles of common sense and decency” in their treatment of a man seeking asylum from Afghanistan. DHS issued the subpoena to Google just hours after the man sent the email so they could access the man’s computer and Gmail. Two weeks later, they showed up to his front door for questioning. The ACLU had to get involved to challenge the subpoena and the violation of his First Amendment rights.

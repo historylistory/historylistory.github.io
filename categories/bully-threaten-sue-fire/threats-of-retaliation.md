@@ -406,11 +406,19 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html](https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html)
 
+2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
+
+[https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
+
+[https://www.pbs.org/newshour/politics/doj-subpoenas-minnesota-gov-walz-and-other-officials-in-obstruction-investigation](https://www.pbs.org/newshour/politics/doj-subpoenas-minnesota-gov-walz-and-other-officials-in-obstruction-investigation)
+
+[https://www.mprnews.org/story/2026/01/06/timeline-of-fraud-investigations-that-shaped-walz-tenure](https://www.mprnews.org/story/2026/01/06/timeline-of-fraud-investigations-that-shaped-walz-tenure)
+
+[https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/](https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/)
+
 2026-01-19 Trump sent a message to the Norwegian Prime Minister Jonas Gahr Store demanding the Nobel Prize, blamed Norway for not giving him the prize, then insisted in the same message he needed “Complete and Total Control of Greenland”. He also added in the message, “I no longer feel an obligation to think purely of Peace”.
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
-
- 
 
 2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in an effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
 

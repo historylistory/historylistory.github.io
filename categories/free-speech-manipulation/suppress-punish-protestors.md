@@ -170,6 +170,25 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/](https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/)
 
+### 2025 July
+
+2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the time of the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign. 
+
+[https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial](https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial)
+
+[https://www.spokesman.com/stories/2026/jan/10/bajun-mavalwalla-ii-makes-first-public-statement-f/](https://www.spokesman.com/stories/2026/jan/10/bajun-mavalwalla-ii-makes-first-public-statement-f/)
+
+[https://www.justice.gov/usao-edwa/pr/defendants-charged-assaulting-federal-law-enforcement-officers-other-offenses-during](https://www.justice.gov/usao-edwa/pr/defendants-charged-assaulting-federal-law-enforcement-officers-other-offenses-during)
+
+[https://www.msn.com/en-us/news/insight/us-attorney-quits-over-ice-protest-case/gm-GM2CE84762](https://www.msn.com/en-us/news/insight/us-attorney-quits-over-ice-protest-case/gm-GM2CE84762)
+
+[https://www.youtube.com/watch?v=ujr8ktg4epY&t=458s](https://www.youtube.com/watch?v=ujr8ktg4epY&t=458s)
+
+[https://www.cbsnews.com/news/justice-department-prosecutors-immigration/](https://www.cbsnews.com/news/justice-department-prosecutors-immigration/)
+
+[https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/](https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/)
+
+
 ### 2025 September
 
 2025-09-18 In a Scott Jennings podcast interview, Brendan Carr questioned whether The View on ABC still qualifies as a news program and is or isn't subject to FCC's Equal Time rule.
