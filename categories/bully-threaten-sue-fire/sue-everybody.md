@@ -88,20 +88,6 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.npr.org/2024/12/16/nx-s1-5230274/abc-settles-with-trump-for-15-million-now-he-wants-to-sue-other-news-outlets](https://www.npr.org/2024/12/16/nx-s1-5230274/abc-settles-with-trump-for-15-million-now-he-wants-to-sue-other-news-outlets)
 
-### 2025 January
-
-2026-01-12 After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
-
-[https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1](https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1)
-
-[https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview](https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview)
-
-[https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html](https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html)
-
-[https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912](https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912)
-
-[https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
-
 ### 2025 June
 
 2025-06-02 Paramount Global paid Trump $16M to settle a lawsuit.
@@ -167,6 +153,18 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 [https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
 
 ### 2026 January
+
+2026-01-12 After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
+
+[https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1](https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1)
+
+[https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview](https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview)
+
+[https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html](https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html)
+
+[https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912](https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912)
+
+[https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
 
 2026-01-29 Trump sued the IRS and Treasury for $10B for leaked tax information.
 
