@@ -1,10 +1,39 @@
 ---
 layout: subcategory
-title: Feminism
+title: Feminism v Manosphere
 category_slug: women-reproductive-rights
-subcategory_slug: feminism
-permalink: /categories/women-reproductive-rights/feminism/
+subcategory_slug: feminism-v-manosphere
+permalink: /categories/women-reproductive-rights/feminism-v-manosphere/
 ---
+
+### Are far right men insecure?  
+
+[https://www.youtube.com/watch?v=92iotrec96g](https://www.youtube.com/watch?v=92iotrec96g)
+
+[https://www.stopthepresses.news/p/the-males-of-maga-manspread-their](https://www.stopthepresses.news/p/the-males-of-maga-manspread-their)
+
+[https://theconversation.com/friday-essay-epic-fury-the-men-of-maga-might-be-the-most-emotional-us-leaders-ever-277227](https://theconversation.com/friday-essay-epic-fury-the-men-of-maga-might-be-the-most-emotional-us-leaders-ever-277227)
+
+[https://msmagazine.com/2025/03/07/trump-vance-insecurity-misogyny-international-stage/](https://msmagazine.com/2025/03/07/trump-vance-insecurity-misogyny-international-stage/)
+
+[https://www.theguardian.com/commentisfree/2026/feb/04/minneapolis-two-versions-of-masculinity-alex-pretti-maga-male-power](https://www.theguardian.com/commentisfree/2026/feb/04/minneapolis-two-versions-of-masculinity-alex-pretti-maga-male-power)
+
+[https://journals.sagepub.com/doi/abs/10.1177/0146167220963577](https://journals.sagepub.com/doi/abs/10.1177/0146167220963577)
+
+[https://www.cnn.com/2025/07/17/politics/epstein-birthday-letter-trump](https://www.cnn.com/2025/07/17/politics/epstein-birthday-letter-trump)
+
+[https://www.theguardian.com/us-news/article/2024/aug/31/jd-vance-podcast-feminism-immigration](https://www.theguardian.com/us-news/article/2024/aug/31/jd-vance-podcast-feminism-immigration)
+
+[https://www.politico.com/news/2024/07/12/rfk-jr-sexual-assault-apology-00167867](https://www.politico.com/news/2024/07/12/rfk-jr-sexual-assault-apology-00167867)
+
+[https://www.nydailynews.com/2022/04/18/fox-news-host-jesse-watters-says-he-let-air-out-of-colleagues-tires-so-he-could-drive-her-home/](https://www.nydailynews.com/2022/04/18/fox-news-host-jesse-watters-says-he-let-air-out-of-colleagues-tires-so-he-could-drive-her-home/)
+
+[https://www.nytimes.com/2022/04/22/health/tucker-carlson-testosterone.html](https://www.nytimes.com/2022/04/22/health/tucker-carlson-testosterone.html)
+
+[https://www.equimundo.org/maga-manhood/](https://www.equimundo.org/maga-manhood/)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC8332002/](https://pmc.ncbi.nlm.nih.gov/articles/PMC8332002/)
+
 
 ### 2006
 

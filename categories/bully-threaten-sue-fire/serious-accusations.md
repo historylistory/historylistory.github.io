@@ -147,6 +147,10 @@ permalink: /categories/bully-threaten-sue-fire/serious-accusations/
 
 ### 2026 January
 
+2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
+
+[https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
+
 2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
 
 [https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
