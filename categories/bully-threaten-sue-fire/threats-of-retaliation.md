@@ -62,6 +62,18 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114756567645919781](https://truthsocial.com/@realDonaldTrump/posts/114756567645919781)
 
+2026-01-12 After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
+
+[https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1](https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1)
+
+[https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview](https://www.theguardian.com/us-news/2026/jan/18/white-house-press-secretary-cbs-trump-interview)
+
+[https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html](https://www.independent.co.uk/bulletin/news/karoline-leavitt-threatens-cbs-lawsuit-trump-b2902791.html)
+
+[https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912](https://people.com/white-house-warned-cbs-donald-trump-would-sue-if-his-interview-was-edited-11887912)
+
+[https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
+
 2025-01-20 Trump signed executive order 14172 directing federal agencies to refer to the Gulf of Mexico as the Gulf of America.
 
 [https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy#:~:text=The%20Gulf%20of%20Mexico%20has,Trump%20on%20January%2020%2C%202025](https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy).
