@@ -224,3 +224,9 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html](https://www.independent.co.uk/news/world/middle-east/oil-prices-brent-crude-strait-of-hormuz-iran-b2946891.html)
 
 [https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/](https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/)
+
+2026-03-27 Sony raised its global price of the PlayStation5 due to microchip shortages, effective April 2 2026. 
+
+[https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)
+
+[https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news](https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news)
