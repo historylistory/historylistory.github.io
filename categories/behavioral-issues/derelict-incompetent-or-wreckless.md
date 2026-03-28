@@ -433,3 +433,17 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba](https://democrats-foreignaffairs.house.gov/2026/3/meeks-jayapal-introduce-legislation-to-block-trump-from-attacking-cuba)
 
 [https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/](https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/)
+
+2026-03-26 Mysterious trading patterns emerged on the PolyMarket trading app (whose investors include a venture capital firm owned by Donald Trump Jr), causing people to suspect insider-trading within Trump’s ranks. As one YouTuber puts it: this type of concern is being reported on in major news outlets, meaning opposing nations could identify insider accounts and infer US battle plans since they are already making huge bets on world events and then cashing out. **That puts American servicemembers’ lives at risk.** 
+
+[https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket](https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket)
+
+[https://www.cbsnews.com/news/polymarket-insider-trading-rules-iran-war-venezuela/](https://www.cbsnews.com/news/polymarket-insider-trading-rules-iran-war-venezuela/)
+
+[https://www.nbcnews.com/business/consumer/insider-trading-prediction-markets-trump-rules-rcna265452](https://www.nbcnews.com/business/consumer/insider-trading-prediction-markets-trump-rules-rcna265452)
+
+[https://www.axios.com/2026/03/25/trump-iran-oil-insider-trading](https://www.axios.com/2026/03/25/trump-iran-oil-insider-trading)
+
+[https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny](https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny)
+
+[https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
