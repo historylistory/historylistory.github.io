@@ -51,3 +51,11 @@ permalink: /categories/free-speech-manipulation/other/
 [https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/](https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/)
 
 [https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)
+
+2026-03-28 This was the date of the third No Kings Protest rally. The White House said in a statement, “The only people who care about these Trump Derangement therapy sessions are the reporters who are paid to cover them”. 
+
+[https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration](https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration)
+
+[https://www.bbc.com/news/articles/cq8wy7g1gd1o](https://www.bbc.com/news/articles/cq8wy7g1gd1o)
+
+[https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/](https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/)

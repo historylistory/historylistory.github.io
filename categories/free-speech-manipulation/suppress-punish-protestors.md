@@ -230,3 +230,13 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 [https://www.nyclu.org/commentary/why-banning-protest-around-houses-of-worship-adds-fuel-to-trumps-fight-against-free-speech](https://www.nyclu.org/commentary/why-banning-protest-around-houses-of-worship-adds-fuel-to-trumps-fight-against-free-speech)
 
 [https://www.thejewishnews.com/jewish-telegraphic-agency/pro-israel-and-anti-zionist-jews-clash-at-nyc-council-hearing-on-protest-buffer-zones/article_212c3af2-a0d1-4162-a9c1-56682a42eae4.html](https://www.thejewishnews.com/jewish-telegraphic-agency/pro-israel-and-anti-zionist-jews-clash-at-nyc-council-hearing-on-protest-buffer-zones/article_212c3af2-a0d1-4162-a9c1-56682a42eae4.html)
+
+### 2026 March
+
+2026-03-28 This was the date of the third No Kings Protest rally. The White House said in a statement, “The only people who care about these Trump Derangement therapy sessions are the reporters who are paid to cover them”. 
+
+[https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration](https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration)
+
+[https://www.bbc.com/news/articles/cq8wy7g1gd1o](https://www.bbc.com/news/articles/cq8wy7g1gd1o)
+
+[https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/](https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/)
