@@ -80,6 +80,8 @@ permalink: /recommended-links/
 
 [Indivisible](https://indivisible.org/)
 
+[50501](https://www.fiftyfifty.one/)
+
 [ACLU](https://www.aclu.org/)
 
 [HavenWatch](https://havenwatch.org/)
