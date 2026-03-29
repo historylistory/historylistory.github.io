@@ -14,6 +14,31 @@ permalink: /recommended-links/
 
 [Project 2026 PDF](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
 
+### GET INVOLVED
+
+[Mobilize](https://www.mobilize.us/)
+
+[Indivisible](https://indivisible.org/)
+
+[50501](https://www.fiftyfifty.one/)
+
+[MIRAC](https://www.miracmn.com/)
+
+[ACLU](https://www.aclu.org/)
+
+[HavenWatch](https://havenwatch.org/)
+
+[Goods Unite Us](https://www.goodsuniteus.com/)
+
+[5 Calls](https://5calls.org)
+
+[People for the American Way](https://www.peoplefor.org/)
+
+[Ballotpedia](https://www.ballotpedia.org)
+
+[USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
+
+[US Vote Foundation](https://www.usvotefoundation.org)
 
 ### All Else
 
@@ -74,26 +99,3 @@ permalink: /recommended-links/
 [WHERE TO FILE?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
 
 
-### GET INVOLVED
-
-[Mobilize](https://www.mobilize.us/)
-
-[Indivisible](https://indivisible.org/)
-
-[50501](https://www.fiftyfifty.one/)
-
-[ACLU](https://www.aclu.org/)
-
-[HavenWatch](https://havenwatch.org/)
-
-[Goods Unite Us](https://www.goodsuniteus.com/)
-
-[5 Calls](https://5calls.org)
-
-[People for the American Way](https://www.peoplefor.org/)
-
-[Ballotpedia](https://www.ballotpedia.org)
-
-[USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
-
-[US Vote Foundation](https://www.usvotefoundation.org)
