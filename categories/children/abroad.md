@@ -74,6 +74,12 @@ permalink: /categories/children/abroad/
 
 ### 2026 March
 
+2026-03-04 News outlets published the names of the children killed by the U.S. Tomahawk missile that hit the school in Minab, Iran.
+
+[https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike](https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike)
+
+[https://www.usatoday.com/story/graphics/2026/03/06/iran-girls-school-strike/88968796007/](https://www.usatoday.com/story/graphics/2026/03/06/iran-girls-school-strike/88968796007/)
+
 2026-03-10 When asked about the US bombing a girl’s school in Iran, Trump claimed that Iran launched a Tomahawk missile on itself. Meanwhile, Pete Hegseth and Karoline Leavitt contradicted Trump’s certainty, saying it was still under investigation.
 
 [https://apnews.com/video/trump-claims-iran-also-has-access-to-tomahawk-missiles-when-asked-about-girls-school-strike-85ba5b1dbb6d4f1e96c37fa5567f1b85](https://apnews.com/video/trump-claims-iran-also-has-access-to-tomahawk-missiles-when-asked-about-girls-school-strike-85ba5b1dbb6d4f1e96c37fa5567f1b85)

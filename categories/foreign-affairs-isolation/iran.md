@@ -460,6 +460,12 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 [https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/](https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/)
 
+2026-03-04 News outlets published the names of the children killed by the U.S. Tomahawk missile that hit the school in Minab, Iran.
+
+[https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike](https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike)
+
+[https://www.usatoday.com/story/graphics/2026/03/06/iran-girls-school-strike/88968796007/](https://www.usatoday.com/story/graphics/2026/03/06/iran-girls-school-strike/88968796007/)
+
 2026-03-04 Numerous explanations emerged as to why the US started a war with Iran.
 
 Trump said it was because he believed Iran was about to strike first. Trump also said it was because Iran was developing long range missiles that would threaten European allies, despite a Defense assessment from 2025 stating to the contrary that Tehran would not have ballistic missiles until 2035.
