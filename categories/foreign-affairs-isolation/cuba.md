@@ -71,3 +71,10 @@ permalink: /categories/foreign-affairs-isolation/cuba/
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
 [https://www.cnn.com/2026/03/27/americas/cuba-nuestra-america-boats-missing-intl](https://www.cnn.com/2026/03/27/americas/cuba-nuestra-america-boats-missing-intl)
+
+2026-03-28 The missing aid boats headed to Cuba were found. 
+
+[https://www.youtube.com/watch?v=DCl0pOdWckU&list=WL&index=3](https://www.youtube.com/watch?v=DCl0pOdWckU&list=WL&index=3)
+
+[https://www.nbcnews.com/world/cuba/missing-aid-boats-land-cuba-located-mexican-navy-rcna265641](https://www.nbcnews.com/world/cuba/missing-aid-boats-land-cuba-located-mexican-navy-rcna265641)
+

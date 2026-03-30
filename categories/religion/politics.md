@@ -153,6 +153,10 @@ The interviewer, *”I want him to be I think Saul of Tarsus, Talarico of Tarsus
 
 Potteiger continued, *”…Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”*
 
+The question is, was this interpretation of scripture, or was it intentional? What was also noted by some listeners (not verified): At the beginning of the podcast, the host said, **“The man of Washington”** and Brooks replied, **“Not yet – soon”.**   
+
+[https://www.youtube.com/watch?v=FJvb1g0BGb8&list=WL&index=2](https://www.youtube.com/watch?v=FJvb1g0BGb8&list=WL&index=2)
+
 [https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/](https://www.reddit.com/r/Christianity/comments/1rwg6ya/joshua_haymes_brooks_potteiger_pete_hegseths/)
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)

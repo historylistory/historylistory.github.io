@@ -153,3 +153,9 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 [https://www.youtube.com/watch?v=7QldP6hff84](https://www.youtube.com/watch?v=7QldP6hff84)
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
+
+2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 
+
+[https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s)
+
+[https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/](https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/)

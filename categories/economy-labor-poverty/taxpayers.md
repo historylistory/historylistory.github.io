@@ -210,3 +210,9 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html](https://www.yahoo.com/news/articles/republican-demands-iran-pay-trump-163712593.html)
 
 [https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
+
+2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 
+
+[https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s)
+
+[https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/](https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/)
