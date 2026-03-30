@@ -12,8 +12,4 @@ permalink: /purpose/
 
 **Encourage civic awareness** by asking readers to remain informed, attentive, and engaged.
 
-*A contact option isn't available yet, but may be added in the future*
 
-This file was last edited on **March 30, 2026**
-
-The most recent incident added was **approximately** from **March 29, 2026** but there may be more events prior to this date I need to add.
