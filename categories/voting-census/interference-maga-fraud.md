@@ -84,6 +84,10 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 [https://www.theguardian.com/us-news/2024/apr/27/fake-electors-2020-presidential-election](https://www.theguardian.com/us-news/2024/apr/27/fake-electors-2020-presidential-election)
 
+2024-07-26 Trump told followers at a Turning Point rally that they **only****have to****vote this one time and won't have to vote again**, because the votes will be "**fixed**".
+
+[https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
+
 2024-10-02 Special Counsel Jack Smith released 165 pages outlining Trump’s efforts to overturn the 2020 elections, involvement with the January 6 insurrection, and proof that Trump **knew** he had lost the 2020 elections.
 
 [https://www.brennancenter.org/our-work/analysis-opinion/jack-smiths-new-filing-against-trump-proof-process-not-politics](https://www.brennancenter.org/our-work/analysis-opinion/jack-smiths-new-filing-against-trump-proof-process-not-politics)

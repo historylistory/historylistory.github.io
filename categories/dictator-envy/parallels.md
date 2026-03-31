@@ -51,3 +51,10 @@ permalink: /categories/dictator-envy/parallels/
 [https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748](https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748)
 
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+### 2026 March
+
+2026-03-30 Watch this video:
+
+[https://www.youtube.com/watch?v=SkRw83GV-wA](https://www.youtube.com/watch?v=SkRw83GV-wA)
+
