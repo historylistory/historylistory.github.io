@@ -151,3 +151,25 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 [https://abcnews.com/US/wireStory/worse-prison-911-calls-interviews-reveal-problems-ices-130814529](https://abcnews.com/US/wireStory/worse-prison-911-calls-interviews-reveal-problems-ices-130814529)
 
 [https://www.miamiherald.com/news/politics-government/article314928484.html](https://www.miamiherald.com/news/politics-government/article314928484.html)
+
+2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
+
+[https://www.change.org/](https://www.change.org/)
+
+[https://c.org/rwjMpM6cX5](https://c.org/rwjMpM6cX5)
+
+[https://www.change.org/p/close-dilley-ice-detention-center-protect-children](https://www.change.org/p/close-dilley-ice-detention-center-protect-children)
+
+[https://www.instagram.com/msrachelforlittles](https://www.instagram.com/msrachelforlittles)
+
+[https://www.youtube.com/@msrachel](https://www.youtube.com/@msrachel)
+
+[https://www.chron.com/culture/article/ms-rachel-texas-ice-letter-22160474.php](https://www.chron.com/culture/article/ms-rachel-texas-ice-letter-22160474.php)
+
+[https://www.chron.com/news/article/dilley-ice-children-videos-22083880.php](https://www.chron.com/news/article/dilley-ice-children-videos-22083880.php)
+
+[https://www.motherjones.com/politics/2026/03/ms-rachel-ice-dilley-detention-center-accurso/](https://www.motherjones.com/politics/2026/03/ms-rachel-ice-dilley-detention-center-accurso/)
+
+[https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786](https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786)
+
+[https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368](https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368)

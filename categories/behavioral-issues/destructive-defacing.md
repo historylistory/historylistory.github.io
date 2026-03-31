@@ -119,3 +119,12 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump](https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump)
 
+2026-03-31 A judge temporarily blocked Trump’s White House ballroom project, writing, “The President of the United States is the steward of the White House for future generations of First Families. He is not, however, the owner”. 
+
+[https://www.cnbc.com/2026/03/31/trump-white-house-ballroom-judge.html](https://www.cnbc.com/2026/03/31/trump-white-house-ballroom-judge.html)
+
+[https://www.politico.com/news/2026/03/31/trump-white-house-ballroom-lawsuit-order-00852455](https://www.politico.com/news/2026/03/31/trump-white-house-ballroom-lawsuit-order-00852455)
+
+[https://www.cnn.com/2026/03/31/politics/judge-rules-that-white-house-ballroom-contstuction-stop](https://www.cnn.com/2026/03/31/politics/judge-rules-that-white-house-ballroom-contstuction-stop)
+
+[https://www.reuters.com/world/us-judge-halts-trumps-400-million-white-house-ballroom-project-now-2026-03-31/](https://www.reuters.com/world/us-judge-halts-trumps-400-million-white-house-ballroom-project-now-2026-03-31/)

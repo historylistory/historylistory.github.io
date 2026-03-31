@@ -87,3 +87,48 @@ permalink: /categories/behavioral-issues/weird-random/
 [https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)
 
 [https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192](https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192)
+
+2026-03-27 Rob Schneider wrote on X calling to reinstate the military draft.
+
+[https://x.com/RobSchneider/status/2037596986715852893](https://x.com/RobSchneider/status/2037596986715852893)
+
+[https://variety.com/2026/film/news/rob-schneider-restore-military-draft-iran-war-1236702208/](https://variety.com/2026/film/news/rob-schneider-restore-military-draft-iran-war-1236702208/)
+
+[https://deadline.com/2026/03/rob-schneider-u-s-military-draft-1236768913/](https://deadline.com/2026/03/rob-schneider-u-s-military-draft-1236768913/)
+
+[https://www.usatoday.com/story/entertainment/celebrities/2026/03/30/rob-schneider-draft-military-comments/89386885007/](https://www.usatoday.com/story/entertainment/celebrities/2026/03/30/rob-schneider-draft-military-comments/89386885007/)
+
+[https://www.theguardian.com/film/2026/mar/30/rob-schneider-calls-on-us-to-restore-military-draft](https://www.theguardian.com/film/2026/mar/30/rob-schneider-calls-on-us-to-restore-military-draft)
+
+[https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/](https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/)
+
+2026-03-28 During a Benny Johnson podcast JD Vance said he believed UFO’s and aliens were ‘demons’. 
+
+[https://x.com/bennyjohnson/status/2037611400223179189](https://x.com/bennyjohnson/status/2037611400223179189)
+
+[https://www.theguardian.com/us-news/2026/mar/30/jd-vance-alien-ufo-are-demons](https://www.theguardian.com/us-news/2026/mar/30/jd-vance-alien-ufo-are-demons)
+
+[https://www.fox29.com/news/jd-vance-tells-conservative-podcast-he-believes-ufos-demons](https://www.fox29.com/news/jd-vance-tells-conservative-podcast-he-believes-ufos-demons)
+
+[https://www.huffpost.com/entry/jd-vance-aliens-demons-devil_n_69c93d9de4b0a014076f69bb](https://www.huffpost.com/entry/jd-vance-aliens-demons-devil_n_69c93d9de4b0a014076f69bb)
+
+[https://thehill.com/homenews/administration/5806206-vance-obsessed-ufo-mystery/](https://thehill.com/homenews/administration/5806206-vance-obsessed-ufo-mystery/)
+
+2026-03-28 A US Army Apache helicopter did a suspended flyby of Kid Rock’s mansion.
+
+[https://www.cnbc.com/2026/03/31/kid-rock-army-helicopter-suspended.html](https://www.cnbc.com/2026/03/31/kid-rock-army-helicopter-suspended.html)
+
+[https://www.politico.com/news/2026/03/31/army-suspends-kid-rock-flyby-crew-00853101](https://www.politico.com/news/2026/03/31/army-suspends-kid-rock-flyby-crew-00853101)
+
+[https://www.newschannel5.com/news/newschannel-5-investigates/u-s-army-suspends-apache-helicopter-flight-crews-involved-in-kid-rock-no-kings-flybys](https://www.newschannel5.com/news/newschannel-5-investigates/u-s-army-suspends-apache-helicopter-flight-crews-involved-in-kid-rock-no-kings-flybys)
+
+[https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters](https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters)
+
+2026-03-31 Someone installed a giant golden ‘throne’ (toilet) at the National Mall in Washington.
+
+[https://www.usatoday.com/videos/news/2026/03/31/golden-toilet-throne-installed-on-national-mall-in-washington/89399992007/](https://www.usatoday.com/videos/news/2026/03/31/golden-toilet-throne-installed-on-national-mall-in-washington/89399992007/)
+
+[https://globalnews.ca/news/11752868/golden-toilet-donald-trump-national-mall-washington-dc/](https://globalnews.ca/news/11752868/golden-toilet-donald-trump-national-mall-washington-dc/)
+
+[https://www.washingtonpost.com/dc-md-va/2026/03/30/trump-toilet-statue-golden-throne-national-mall/](https://www.washingtonpost.com/dc-md-va/2026/03/30/trump-toilet-statue-golden-throne-national-mall/)
+

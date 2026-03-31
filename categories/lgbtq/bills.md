@@ -65,3 +65,17 @@ permalink: /categories/lgbtq/bills/
 
 {% include youtubePlayer.html id="f1M9sNhaEM4" %}
   (March 10, 2026)
+
+2026-03-31 SCOTUS blocked Colorado’s ban on conversion therapy.
+
+[https://www.scotusblog.com/2026/03/supreme-court-sides-with-therapist-in-challenge-to-colorados-ban-on-conversion-therapy/](https://www.scotusblog.com/2026/03/supreme-court-sides-with-therapist-in-challenge-to-colorados-ban-on-conversion-therapy/)
+
+[https://www.bbc.com/news/articles/c1j75rz77x5o](https://www.bbc.com/news/articles/c1j75rz77x5o)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/trump-congress-dhs-shutdown-ice-tsa-immigration-election-live-updates-rcna265888](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-congress-dhs-shutdown-ice-tsa-immigration-election-live-updates-rcna265888)
+
+[https://www.aljazeera.com/news/2026/3/31/us-supreme-court-rejects-colorado-ban-on-lgbtq-child-conversion](https://www.aljazeera.com/news/2026/3/31/us-supreme-court-rejects-colorado-ban-on-lgbtq-child-conversion)
+
+[https://www.foxnews.com/politics/supreme-court-overturns-ban-so-called-conversion-therapy-first-amendment-grounds](https://www.foxnews.com/politics/supreme-court-overturns-ban-so-called-conversion-therapy-first-amendment-grounds)
+
+[https://www.cpr.org/2026/03/31/supreme-court-overturns-colorado-ban-on-conversion-therapy/](https://www.cpr.org/2026/03/31/supreme-court-overturns-colorado-ban-on-conversion-therapy/)

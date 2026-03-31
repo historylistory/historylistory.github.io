@@ -594,3 +594,19 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/](https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/)
 
 [https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)
+
+2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
+
+[https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
+
+[https://www.cbsnews.com/live-updates/iran-war-gas-price-4-dollar-gallon-oil-trump-isfahan-desalination-plant/](https://www.cbsnews.com/live-updates/iran-war-gas-price-4-dollar-gallon-oil-trump-isfahan-desalination-plant/)
+
+[https://apnews.com/article/trump-iran-threat-desalination-plants-war-f624bed66bee79f68454d581ae1d624a](https://apnews.com/article/trump-iran-threat-desalination-plants-war-f624bed66bee79f68454d581ae1d624a)
+
+[https://www.cnn.com/2026/03/30/world/live-news/iran-war-us-israel-trump](https://www.cnn.com/2026/03/30/world/live-news/iran-war-us-israel-trump)
+
+[https://www.usatoday.com/live-story/news/world/2026/03/30/iran-war-live-updates-united-states-donald-trump/89378502007/](https://www.usatoday.com/live-story/news/world/2026/03/30/iran-war-live-updates-united-states-donald-trump/89378502007/)
+
+[https://www.cbc.ca/player/play/video/9.7147083](https://www.cbc.ca/player/play/video/9.7147083)
+
+[https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932](https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932)
