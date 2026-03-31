@@ -199,3 +199,11 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 [https://www.nbcnews.com/tech/crypto/binance-pardon-trump-changpeng-zhao-crypto-rcna239371](https://www.nbcnews.com/tech/crypto/binance-pardon-trump-changpeng-zhao-crypto-rcna239371)
 
 [https://x.com/cz_binance/status/1981404850832494666](https://x.com/cz_binance/status/1981404850832494666)
+
+### 2026 March
+
+2026-03-27 Trump attended a Saudi investor meeting in Miami.
+
+[https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455](https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455)
+
+[https://www.youtube.com/watch?v=vEuuPpq_AMQ](https://www.youtube.com/watch?v=vEuuPpq_AMQ)

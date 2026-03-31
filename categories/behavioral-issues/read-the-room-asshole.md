@@ -154,8 +154,28 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
 
+2026-03-28 Trump frequented his golf course in West Palm while the war in Iran was going on.
+
+[https://www.huffpost.com/entry/the-country-is-at-war-trump-is-at-the-golf-course_n_69cac235e4b010178ee645a4](https://www.huffpost.com/entry/the-country-is-at-war-trump-is-at-the-golf-course_n_69cac235e4b010178ee645a4)
+
+[https://www.pennlive.com/nation-world/2026/03/donald-trump-criticized-for-another-golf-trip-during-iran-war-failed-president.html](https://www.pennlive.com/nation-world/2026/03/donald-trump-criticized-for-another-golf-trip-during-iran-war-failed-president.html)
+
+[https://nationaltoday.com/us/fl/palm-beach/news/2026/03/28/trump-criticized-for-golfing-amid-iran-war/](https://nationaltoday.com/us/fl/palm-beach/news/2026/03/28/trump-criticized-for-golfing-amid-iran-war/)
+
+[https://www.newsweek.com/bushs-comment-war-golf-viral-trump-palm-beach-club-11683141](https://www.newsweek.com/bushs-comment-war-golf-viral-trump-palm-beach-club-11683141)
+
 2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 
 
 [https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s)
 
 [https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/](https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/)
+
+2026-03-30 When asked about the war in Iran, Trump veered off topic to discuss his ballroom and share pictures.
+
+[https://www.youtube.com/watch?v=N299fC18CMs](https://www.youtube.com/watch?v=N299fC18CMs)
+
+[https://www.nbcwashington.com/video/news/national-international/trump-iran-war-white-house-ballroom/4083374/](https://www.nbcwashington.com/video/news/national-international/trump-iran-war-white-house-ballroom/4083374/)
+
+[https://www.msn.com/en-us/news/insight/trump-s-drape-talk-overshadows-iran-war-address/gm-GMF03DF269?gemSnapshotKey=GMF03DF269-snapshot-0](https://www.msn.com/en-us/news/insight/trump-s-drape-talk-overshadows-iran-war-address/gm-GMF03DF269?gemSnapshotKey=GMF03DF269-snapshot-0)
+
+[https://ca.news.yahoo.com/jon-stewart-slams-trump-dodging-035741312.html](https://ca.news.yahoo.com/jon-stewart-slams-trump-dodging-035741312.html)

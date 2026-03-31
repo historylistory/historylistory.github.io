@@ -225,6 +225,16 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 [https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/](https://fortune.com/2026/03/18/oil-prices-110-crude-brent-iran-war-israel-strait-hormuz-lng/)
 
+2026-03-26 OECD said Trump’s war was projected to cause inflation to jump from 2.4% to 4.2%.
+
+[https://thehill.com/business/5802000-inflation-us-israeli-conflict-iran/](https://thehill.com/business/5802000-inflation-us-israeli-conflict-iran/)
+
+[https://finance.yahoo.com/news/war-hits-global-economy-us-100000814.html](https://finance.yahoo.com/news/war-hits-global-economy-us-100000814.html)
+
+[https://www.newsnationnow.com/business/your-money/war-iran-inflation-oecd/](https://www.newsnationnow.com/business/your-money/war-iran-inflation-oecd/)
+
+[https://nypost.com/2026/03/26/business/us-inflation-will-soar-to-4-2-if-iran-war-drags-on-says-oecd/](https://nypost.com/2026/03/26/business/us-inflation-will-soar-to-4-2-if-iran-war-drags-on-says-oecd/)
+
 2026-03-27 Sony raised its global price of the PlayStation5 due to microchip shortages, effective April 2 2026. 
 
 [https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)

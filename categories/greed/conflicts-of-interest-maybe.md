@@ -115,3 +115,9 @@ permalink: /categories/greed/conflicts-of-interest-maybe/
 [https://x.com/ChrisMurphyCT/status/2036277990489764135](https://x.com/ChrisMurphyCT/status/2036277990489764135)
 
 [https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html](https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html)
+
+2026-03-27 Trump attended a Saudi investor meeting in Miami.
+
+[https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455](https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455)
+
+[https://www.youtube.com/watch?v=vEuuPpq_AMQ](https://www.youtube.com/watch?v=vEuuPpq_AMQ)

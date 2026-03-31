@@ -265,3 +265,11 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
+
+2026-03-27 During CPAC Franklin Graham said we have to get Trump re-elected for a third term. Later on he said in a statement to reporters that he “mis-spoke” and meant we had to get Trump’s policies re-elected.
+
+[https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 ](https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 )
+
+[https://churchleaders.com/news/2215561-franklin-graham-trump-reelection-cpac.html](https://churchleaders.com/news/2215561-franklin-graham-trump-reelection-cpac.html)
+
+[https://www.christianpost.com/news/franklin-graham-says-he-misspoke-in-cpac-speech.html](https://www.christianpost.com/news/franklin-graham-says-he-misspoke-in-cpac-speech.html)
