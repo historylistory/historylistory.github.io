@@ -210,6 +210,12 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 
 ### 2026 February
 
+2026-02-03 The Washington Post laid off a third of their staff.
+
+[https://www.bbc.com/news/articles/cwyn05d1494o](https://www.bbc.com/news/articles/cwyn05d1494o)
+
+[https://www.npr.org/2026/02/04/nx-s1-5699328/washington-post-layoffs-jobs-bezos](https://www.npr.org/2026/02/04/nx-s1-5699328/washington-post-layoffs-jobs-bezos)
+
 2026-02-05 The Trump administration advanced a plan to **strip job protections** from federal workers by reclassifying them under Schedule F.
 
 [https://www.npr.org/2026/02/06/nx-s1-5704171/trump-fire-federal-employees-schedule-f](https://www.npr.org/2026/02/06/nx-s1-5704171/trump-fire-federal-employees-schedule-f)
@@ -217,12 +223,6 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 [https://www.nteu.org/schedulef](https://www.nteu.org/schedulef)
 
 [https://federalnewsnetwork.com/workforce/2026/02/trump-administration-advances-plan-to-strip-job-protections-from-career-federal-employees/](https://federalnewsnetwork.com/workforce/2026/02/trump-administration-advances-plan-to-strip-job-protections-from-career-federal-employees/)
-
-2026-02-03 The Washington Post laid off a third of their staff.
-
-[https://www.bbc.com/news/articles/cwyn05d1494o](https://www.bbc.com/news/articles/cwyn05d1494o)
-
-[https://www.npr.org/2026/02/04/nx-s1-5699328/washington-post-layoffs-jobs-bezos](https://www.npr.org/2026/02/04/nx-s1-5699328/washington-post-layoffs-jobs-bezos)
 
 2026-02-28 The Bureau of Labor Statistics reported a sharp drop of over 92,000 jobs in February 2026 with an unemployment rate of 4.4%.
 

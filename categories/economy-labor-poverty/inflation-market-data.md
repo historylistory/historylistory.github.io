@@ -197,15 +197,7 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 [https://www.bloomberg.com/news/articles/2026-02-18/fed-minutes-show-several-officials-point-to-rate-hike-scenario](https://www.bloomberg.com/news/articles/2026-02-18/fed-minutes-show-several-officials-point-to-rate-hike-scenario)
 
-2026-03-19 Israel bombed the South Pars gas field, which holds 75% of gas in Iran. 
 
-[https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl](https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl)
-
-[https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news](https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news)
-
-[https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/](https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/)
-
-[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
 ### 2026 March
 
@@ -216,6 +208,16 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877](https://www.newsweek.com/mcdonalds-ceo-viral-eats-new-burger-product-11602877)
 
 [https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689](https://www.nbcnews.com/pop-culture/pop-culture-news/mcdonalds-burger-king-beef-ceos-viral-video-rcna261689)
+
+2026-03-19 Israel bombed the South Pars gas field, which holds 75% of gas in Iran. 
+
+[https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl](https://www.cnn.com/2026/03/19/middleeast/iran-qatar-south-pars-gas-field-explainer-intl)
+
+[https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news](https://www.theguardian.com/world/live/2026/mar/19/iran-war-live-updates-oil-prices-gas-field-strikes-pentagon-more-funds-trump-news)
+
+[https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/](https://www.cbsnews.com/live-updates/iran-war-israel-strike-south-pars-gas-field-trump-threat-oil-gas-prices/)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
 2026-03-26 Wall Street suffered its worst day since the start of the Corona Virus pandemic. The price of crude oil topped $110 a barrel. 
 

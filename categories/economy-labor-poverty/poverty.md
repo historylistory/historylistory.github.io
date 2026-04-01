@@ -39,7 +39,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829](https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829)
 
-2025-05-20 (**for** **context – because most low wage workers are near, at or below the poverty line**) The Trump administration announced plans to pass a lackluster "No Tax For Tips" bill. The bill ended up being temporary in nature, featured an income cap up to an unlivable $25,000 per year, and excluded  payroll and state taxes. Altogether the bill offered little or no benefit to low-wage workers.
+2025-05-20 (**for context – because most low wage workers are near, at or below the poverty line**) The Trump administration announced plans to pass a lackluster "No Tax For Tips" bill. The bill ended up being temporary in nature, featured an income cap up to an unlivable $25,000 per year, and excluded  payroll and state taxes. Altogether the bill offered little or no benefit to low-wage workers.
 
 [https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/](https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/)
 
@@ -51,7 +51,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 ### 2025 June
 
-2025-06-30 A news outlet reported that DeSantis vetoed funding on several projects intended to help Floridians including stormwater funding, homeless housing, and $200,000 for a Samaritan Resource Center program to help homeless people get job training and assistance with housing.
+2025-06-30 DeSantis vetoed funding on several projects intended to help Floridians including stormwater funding, homeless housing, and $200,000 for a Samaritan Resource Center program to help homeless people get job training and assistance with housing.
 
 [https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/)
 
@@ -305,7 +305,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 {% include youtubePlayer.html id="iMI-jsOUDQk" %}
 
-2026-03-10 Sources uncovered that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
+2026-03-10 News agencies reported that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
 
 [https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab](https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab)
 

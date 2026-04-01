@@ -164,7 +164,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/](https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/)
 
-2026-03-10 Sources uncovered that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, ***spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts***. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
+2026-03-10 News agencies reported that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, ***spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts***. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
 
 [https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab](https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab)
 
