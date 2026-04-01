@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/cuba/
 
 ### 2026 February
 
-2026-02-10 Due to the Trump pressure campaign, Cuba is not able to fuel their airplanes.
+2026-02-10 Due to the Trump pressure campaign, Cuba was not able to fuel their airplanes.
 
 [https://globalnews.ca/news/11659635/cuba-fuel-shortage-trump-blockade-explained/](https://globalnews.ca/news/11659635/cuba-fuel-shortage-trump-blockade-explained/)
 

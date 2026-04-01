@@ -86,6 +86,8 @@ permalink: /recommended-links/
 
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
+[Gaza - Gym Rat In Gaza on Instagram](https://www.instagram.com/gym_rat_in_gaza/?hl=en)
+
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)

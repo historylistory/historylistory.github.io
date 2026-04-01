@@ -12,7 +12,7 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/](https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/)
 
-2025-03-13 Trump reiterated his fixation multiple times to make Canada the 51st state.
+2025-03-13 Trump fixated on making Canada the 51st state.
 
 [https://abcnews.com/Politics/trump-talking-making-canada-51st-state/story?id=119767909](https://abcnews.com/Politics/trump-talking-making-canada-51st-state/story?id=119767909)
 

@@ -28,6 +28,16 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 
 [https://www.aljazeera.com/news/2025/11/7/hungarian-leader-viktor-orban-to-meet-us-president-donald-trump](https://www.aljazeera.com/news/2025/11/7/hungarian-leader-viktor-orban-to-meet-us-president-donald-trump)
 
+2026-02-13 Trump endorsed Viktor Orban ahead of their upcoming elections in April. Trump also sent Rubio and Vance to visit him. 
+
+[https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest](https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest)
+
+[https://www.politico.eu/article/trump-affirms-complete-and-total-endorsement-of-orban-amid-clash-with-eu/](https://www.politico.eu/article/trump-affirms-complete-and-total-endorsement-of-orban-amid-clash-with-eu/)
+
+[https://www.themarysue.com/donald-trump-endorses-russian-aligned-viktor-orban-for-hungary-pm/](https://www.themarysue.com/donald-trump-endorses-russian-aligned-viktor-orban-for-hungary-pm/)
+
+[https://thehill.com/homenews/administration/5737415-donald-trump-endorses-viktor-orban-hungary/](https://thehill.com/homenews/administration/5737415-donald-trump-endorses-viktor-orban-hungary/)
+
 ### Vladimir Putin (Russia)
 
 2025-04-14 Trump praised Vladimir Putin numerous times (article).
@@ -67,3 +77,5 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 2025-06-03 A news outlet reported that Trump kept a copy of Adolf Hitler speeches next to his bedside.
 
 [https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html](https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html)
+
+

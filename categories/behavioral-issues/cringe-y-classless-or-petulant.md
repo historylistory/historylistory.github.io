@@ -429,7 +429,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
 
-2025-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
 

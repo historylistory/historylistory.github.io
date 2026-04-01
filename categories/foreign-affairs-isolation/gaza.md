@@ -22,7 +22,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2021
 
-2021-09-16 (Context) News outlets reported that Larry Ellison offered Netanyahu a post at Oracle.
+2021-09-16 (Context) News outlets reported that Larry Ellison allegedly offered Netanyahu a post at Oracle.
 
 [https://www.haaretz.com/israel-news/2021-09-16/ty-article/.highlight/larry-ellison-netanyahu-trial-witness-offers-ex-pm-seat-on-oracle-board/0000017f-dbd9-d3a5-af7f-fbff9ae80000](https://www.haaretz.com/israel-news/2021-09-16/ty-article/.highlight/larry-ellison-netanyahu-trial-witness-offers-ex-pm-seat-on-oracle-board/0000017f-dbd9-d3a5-af7f-fbff9ae80000)
 
@@ -98,6 +98,10 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2025 July
 
+2025-07-13 News outlets reported Israel and the U.S. pushing efforts to relocate Palestinians to Sudan or Libya.
+
+[https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
+
 2025-07-25 BBC interviewed a U.S. Green Beret Colonel Anthony Aguilar and his first-person account of Israeli forces shooting at Palestinians trying to get aid.
 
 [https://www.bbc.com/news/videos/cy8k8045nx9o](https://www.bbc.com/news/videos/cy8k8045nx9o)
@@ -106,9 +110,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://x.com/charliekirk11/status/1949908699411288130](https://x.com/charliekirk11/status/1949908699411288130)
 
-2025-07-13 News outlets reported Israel and the U.S. pushing efforts to relocate Palestinians to Sudan or Libya.
 
-[https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 
 ### 2025 August
 
@@ -142,7 +144,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.reuters.com/sustainability/society-equity/israel-seeks-make-gaza-city-unliveable-says-un-expert-francesca-albanese-2025-09-15/](https://www.reuters.com/sustainability/society-equity/israel-seeks-make-gaza-city-unliveable-says-un-expert-francesca-albanese-2025-09-15/)
 
-2025-09-15 News outlets reported that Netanyahu told Trump about the strikes **50 minutes before the attack**.
+2025-09-15 News outlets reported that Netanyahu told Trump about the Israeli strikes on Qatar **50 minutes before the attack**. This was after the White House stated they were never informed.
 
 [https://www.timesofisrael.com/netanyahu-told-trump-about-doha-strike-in-advance-he-didnt-say-no-report/](https://www.timesofisrael.com/netanyahu-told-trump-about-doha-strike-in-advance-he-didnt-say-no-report/)
 
@@ -184,7 +186,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://apnews.com/article/israel-hamas-hostages-trump-peace-plan-e3d0ce091be56cc29207e566ff1603af](https://apnews.com/article/israel-hamas-hostages-trump-peace-plan-e3d0ce091be56cc29207e566ff1603af)
 
-2025-10-10 News outlets report that even after the ceasefire in Gaza, Israeli forces continued to strike Gaza and kill Palestinians. Israeli Prime Minister and the Foreign Ministry accused Hamas of violating the ceasefire and responsible for the consequences. 
+2025-10-10 Even after the ceasefire in Gaza, Israeli forces continued to strike Gaza and kill Palestinians. Israeli Prime Minister and the Foreign Ministry accused Hamas of violating the ceasefire and responsible for the consequences. 
 
 [https://www.bbc.com/news/articles/cgjdy5eevn2o](https://www.bbc.com/news/articles/cgjdy5eevn2o)
 
@@ -194,7 +196,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2025 December
 
-2025-12-17 News media reported winter floods devastated Gaza killing several people.
+2025-12-17 Winter floods devastated Gaza, killing several people.
 
 [https://www.aljazeera.com/gallery/2025/12/29/winter-floods-wreak-havoc-on-gaza-displacement-camps-as-israel-blocks-aid](https://www.aljazeera.com/gallery/2025/12/29/winter-floods-wreak-havoc-on-gaza-displacement-camps-as-israel-blocks-aid)
 
