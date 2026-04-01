@@ -14,11 +14,22 @@ permalink: /categories/j6/pardons/
 
 ### 2025 January
 
-2025-01-20 Trump blanket-pardoned an estimated 1500 January 6th insurrectionists.
+2025-01-20 During the first day of Trump’s second term, he granted a blanket pardon to nearly 1600 J6 insurrectionists. Multiple members he pardoned were involved in sexual criminal cases, some of which involved children. Not only did he put them back out on the streets, but many of them were also repeat offenders once released.
+
+There’s video of the oversight committee hearing September 18 2025 where Representative Crocket listed some of the violent offenders and gory details of what they did when they assaulted their victims, but I don’t want to say those things out loud here because they are terrible, so I will provide you with a link below and you can watch for yourself.
+
+[https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
+
+{% include youtubePlayer.html id="n_S5sYC1nKw" %}
+
+[https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
+
+[https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/](https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/)
 
 [https://www.jan-6.com/violent-rioters?gad_source=1&gad_campaignid=22652988915&gbraid=0AAAAA9WFESVyAbTpSlvPmWix-vf1o2Ty7&gclid=Cj0KCQjwuKnGBhD5ARIsAD19Rsav-iqkdcTMw8jNQD9QgyTLZZHqFkthzkAt3gIXZXSUmri0-R2vB5saAo4NEALw_wcB](https://www.jan-6.com/violent-rioters?gad_source=1&gad_campaignid=22652988915&gbraid=0AAAAA9WFESVyAbTpSlvPmWix-vf1o2Ty7&gclid=Cj0KCQjwuKnGBhD5ARIsAD19Rsav-iqkdcTMw8jNQD9QgyTLZZHqFkthzkAt3gIXZXSUmri0-R2vB5saAo4NEALw_wcB)
 
 ### 2025 August
+
 
 2025-08-07 Jared Wise was hired on as a senior advisor to the Department of Justice, despite being at the J6 riots and caught on camera saying "Kill 'em all".
 
@@ -30,7 +41,7 @@ permalink: /categories/j6/pardons/
 
 [https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot](https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot)
 
-2025-08-28 News outlets reported that J6ers were receiving **refunds** for their criminal fines.
+2025-08-28 J6 insurrectionists received  **refunds** for their criminal fines.
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010](https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010)
 
@@ -58,7 +69,7 @@ permalink: /categories/j6/pardons/
 
 ### 2025 November
 
-2025-11-08 News outlets reported that a high profile J6-er John Banuelos was arrested on sexual assault and kidnapping charges. For context, Trump pardoned this person.
+2025-11-08 High profile J6-er John Banuelos was arrested on sexual assault and kidnapping charges. Trump pardoned this person.
 
 [https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
 
