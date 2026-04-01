@@ -6,6 +6,14 @@ subcategory_slug: manipulators-conservative-media
 permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 ---
 
+### 1988
+
+1988-01-01 Doug Wilson - founder of Canon Press - tried to buy Christianity Today. You know - Canon Press - where you can get the book “It’s Good to be a Man”.
+
+[https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/](https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/)
+
+[https://julieroys.com/christianity-today-rejects-10-million-buy-out-offer-by-doug-wilson-affiliated-publisher/?](https://julieroys.com/christianity-today-rejects-10-million-buy-out-offer-by-doug-wilson-affiliated-publisher/?)
+
 ### 2004
 
 2004-10-28 The Center for Public Integrity noted that more than 95% of Sinclair Broadcasting Group’s contributions go to Republicans. The article raised questions about whether the industry’s corporate goals may be affecting news coverage.
@@ -41,6 +49,8 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 2018-03-08 (context) MIT conducted a study showing that social media was designed to spread lies six times faster and is incentivized to go viral when laced with anger, fear or hate.
 
 [https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308](https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308)
+
+### 2019
 
 2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 
 
@@ -156,7 +166,6 @@ Remember: rage bait sells. 
 
 [https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/](https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/)
 
- 
 
 2025-09-14 During a prayer vigil for Kirk, Kari Lake spun the narrative that the suspect was "brainwashed" by woke. She went on to “warn” parents not to send their children to universities, which she labeled "indoctrination camps". This is important because she is the senior advisor for the US Agency for Global Media and could potentially hold a lot of unchecked power in the media. For context, Kari Lake also helped stir controversy in 2022 when she demanded ballots be counted by hand.
 
@@ -186,13 +195,6 @@ Remember: rage bait sells. 
 
 [https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html](https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html)
 
-### 2025 October
-
-1988-01-01 Doug Wilson - founder of Canon Press - tried to buy Christianity Today. You know - Canon Press - where you can get the book “It’s Good to be a Man”.
-
-[https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/](https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/)
-
-[https://julieroys.com/christianity-today-rejects-10-million-buy-out-offer-by-doug-wilson-affiliated-publisher/?](https://julieroys.com/christianity-today-rejects-10-million-buy-out-offer-by-doug-wilson-affiliated-publisher/?)
 
 ### 2025 November
 
