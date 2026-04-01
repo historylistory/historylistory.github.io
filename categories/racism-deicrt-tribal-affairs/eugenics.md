@@ -34,7 +34,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 ### 2020
 
-From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”.
+2020-03-06 From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”.
 
 [https://www.npr.org/2020/03/06/812940401/trump-administration-poised-to-start-collecting-dna-from-immigration-detainees](https://www.npr.org/2020/03/06/812940401/trump-administration-poised-to-start-collecting-dna-from-immigration-detainees)
 

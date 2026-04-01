@@ -74,7 +74,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2018
 
-2018-01-12 News outlets reported that Trump referred to African countries Haiti and El Salvador as **shithole** nations, and during an Oval Office meeting stated that Haitian immigrants “all have AIDS”.
+2018-01-12 Trump referred to African countries Haiti and El Salvador as **shithole** nations, and during an Oval Office meeting stated that Haitian immigrants “all have AIDS”.
 
 [https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946](https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946)
 
@@ -118,7 +118,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2021
 
-2021-05-20 On multiple occasions Trump referred to the COVID virus as "Chinese virus", "China virus", "Wuhan virus" and "Kung Flu".
+2021-05-20 On multiple occasions Trump referred to the COVID virus as "Chinese virus", "China virus", "Wuhan virus" and "Kung Flu". Former White House Press Secretary Ari Fleischer tweeted out in frustration "Wait a minute…After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it."
 
 {% include youtubePlayer.html id="dl78PQGJpiI" %}
 
@@ -208,7 +208,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://x.com/NancyMace/status/1937864426410869062](https://x.com/NancyMace/status/1937864426410869062)
 
-2025-06-25 Andy Ogles tweets out "Zohran 'little muhammad' Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York" and calls for him to be deported
+2025-06-25 Andy Ogles posted on social media "Zohran 'little muhammad' Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York" and calls for him to be deported
 
 [https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2](https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2)
 

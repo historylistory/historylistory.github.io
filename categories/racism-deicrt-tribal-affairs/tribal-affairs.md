@@ -16,7 +16,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 ### 2025 January
 
-2025-01-28 News outlets reported potential ICE profiling after the Navajo Nation in Arizona issued a warning to citizens that dozens of their tribe members were being stopped, questioned, and detained based solely on their appearance.
+2025-01-28 The Navajo Nation in Arizona issued a warning to citizens that dozens of their tribe members were being stopped, questioned, and detained based solely on their appearance.
 
 [https://www.cnn.com/2025/01/27/us/navajo-detained-ice-indigenous-immigration-trump](https://www.cnn.com/2025/01/27/us/navajo-detained-ice-indigenous-immigration-trump)
 

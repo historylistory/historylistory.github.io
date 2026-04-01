@@ -138,7 +138,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2025 October
 
-2025-10-15 News outlets reported that Kristi Noem made an AI generated video featuring a masked Black man attacking DHS.
+2025-10-15 Kristi Noem posted an AI generated video featuring a masked Black man attacking DHS.
 
 [https://www.facebook.com/ATLBlackStar/posts/kristi-noems-dhs-post-backfired-spectacularly-after-an-ai-generated-video-masked/1177441884248646/](https://www.facebook.com/ATLBlackStar/posts/kristi-noems-dhs-post-backfired-spectacularly-after-an-ai-generated-video-masked/1177441884248646/)
 
@@ -156,13 +156,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2025 December
 
-2025-12-03 Tom Emmer went on Fox News claiming 80% of crimes being committed in Minnesota were being committed by Somalis.
+2025-12-03 Tom Emmer claimed on Fox News that 80% of crimes being committed in Minnesota were being committed by Somalis.
 
 [https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
 
 ### 2026 January
 
-2026-01-03 Both House.Gov and Congress.gov features documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
+2026-01-03 Both House.Gov and Congress.gov has documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
 
 [https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
 

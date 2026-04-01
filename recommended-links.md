@@ -76,6 +76,8 @@ permalink: /recommended-links/
 
 [Campaign: Donor Lookup on OpenSecrets](https://www.opensecrets.org/donor-lookup)
 
+[NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers)
+
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 
 [Economy: Federal Spending Tracker](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
