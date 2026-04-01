@@ -674,6 +674,61 @@ section {
   }
 }
 
+/* ---- Contact form ---- */
+
+.contact-form {
+  max-width: 500px;
+  margin-top: 20px;
+
+  label {
+    display: block;
+    font-weight: 600;
+    margin-bottom: 4px;
+    margin-top: 14px;
+    font-size: 14px;
+  }
+
+  input[type="text"],
+  input[type="email"],
+  select,
+  textarea {
+    width: 100%;
+    padding: 10px 12px;
+    font-size: 15px;
+    border: 2px solid #ddd;
+    border-radius: 6px;
+    box-sizing: border-box;
+    outline: none;
+    font-family: inherit;
+    transition: border-color 0.2s;
+
+    &:focus {
+      border-color: #369;
+    }
+  }
+
+  textarea {
+    resize: vertical;
+  }
+
+  button[type="submit"] {
+    margin-top: 18px;
+    padding: 10px 24px;
+    font-size: 15px;
+    font-weight: 600;
+    color: #fff;
+    background-color: #369;
+    border: none;
+    border-radius: 6px;
+    cursor: pointer;
+    transition: background-color 0.2s;
+
+    &:hover {
+      background-color: #247;
+    }
+  }
+}
+
 /* ---- Wayback Machine archive links ---- */
 
 .archive-link {

@@ -4,13 +4,32 @@ title: Contact
 permalink: /contact/
 ---
 
-If you have questions, concerns, corrections or updates feel free to email me.
+If you have questions, concerns, corrections or updates feel free to use the form below.
 
-HistoryListory8647 [at] gmail [dot] com ***I know this looks strange; I’m just obfuscating it to avoid bots until I get a form setup!
+This site is managed by one person. Response times may vary depending on the volume of emails received. Thank you for your patience. Please note that this website is a personal project and not an official source.
 
-Also ~ This site is managed by one person. Response times may vary depending on the volume of emails received. Thank you for your patience. Please note that this website is a personal project and not an official source.
+<form action="https://formspree.io/f/mreolzyr" method="POST" class="contact-form">
+  <label for="contact-name">Name</label>
+  <input type="text" id="contact-name" name="name" required>
 
+  <label for="contact-email">Email</label>
+  <input type="email" id="contact-email" name="email" required>
 
+  <label for="contact-subject">Subject</label>
+  <select id="contact-subject" name="subject">
+    <option value="correction">Correction</option>
+    <option value="suggestion">Suggestion / New Link</option>
+    <option value="question">Question</option>
+    <option value="other">Other</option>
+  </select>
+
+  <label for="contact-message">Message</label>
+  <textarea id="contact-message" name="message" rows="6" required></textarea>
+
+  <input type="text" name="_gotcha" style="display:none">
+
+  <button type="submit">Send Message</button>
+</form>
 
 This file was last edited on **March 31, 2026**
 
