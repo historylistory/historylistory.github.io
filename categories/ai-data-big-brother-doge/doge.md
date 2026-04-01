@@ -20,18 +20,6 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 [https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639](https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639)
 
-### 2025 August
-
-2025-08-05 Trump stated that DOGE cuts would be "surgical". Instead, the Trump administration made indiscriminate cuts to a wide chunk of agricultural, educational, scientific, research, environmental, and civil engineering services designed to help millions of Americans thrive. After Elon Musk left DOGE, the Trump administration continued to make slashing cuts across the board, primarily in Democrat-led cities as a retaliatory measure.
-
-[https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/?cclt=Ca_42~Or_1~Pr_1~In_1~Gr_2~Sg_1~IA_C&gad_source=1&gad_campaignid=22484667074&gbraid=0AAAAACSU9eyORczgPXLni2Oyxh5DcMIAn&gclid=CjwKCAjwxfjGBhAUEiwAKWPwDoONPyNz80GFcS6vsTqhyUt40-kp4DG8X4LvyzFZMSNmVOfFdjm2FxoCtUwQAvD_BwE](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/?cclt=Ca_42~Or_1~Pr_1~In_1~Gr_2~Sg_1~IA_C&gad_source=1&gad_campaignid=22484667074&gbraid=0AAAAACSU9eyORczgPXLni2Oyxh5DcMIAn&gclid=CjwKCAjwxfjGBhAUEiwAKWPwDoONPyNz80GFcS6vsTqhyUt40-kp4DG8X4LvyzFZMSNmVOfFdjm2FxoCtUwQAvD_BwE)
-
-[https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
-
-[https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE](https://en.wikipedia.org/wiki/US_federal_agencies_targeted_by_DOGE)
-
-{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
-
 ### 2025 June
 
 2025-06-24 The Trump administration scrambled to rehire key federal workers after the sweeping and unscrupulous DOGE firings. Estimates suggest the actions by DOGE between firings and rehiring had cost American taxpayers roughly $135B.

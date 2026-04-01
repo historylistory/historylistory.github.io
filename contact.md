@@ -4,9 +4,11 @@ title: Contact
 permalink: /contact/
 ---
 
-I will be creating a contact form shortly, so if you have questions, concerns, corrections or updates feel free to email me.
+If you have questions, concerns, corrections or updates feel free to email me.
 
-This site is managed by one person. Response times may vary depending on the volume of emails received. Thank you for your patience. Please note that this website is a personal project and not an official source.
+HistoryListory8647 [at] gmail [dot] com ***I know this looks strange; I’m just obfuscating it to avoid bots until I get a form setup!
+
+Also ~ This site is managed by one person. Response times may vary depending on the volume of emails received. Thank you for your patience. Please note that this website is a personal project and not an official source.
 
 
 

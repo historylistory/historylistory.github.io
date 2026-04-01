@@ -75,13 +75,6 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://x.com/jmj/status/1717404589262025031](https://x.com/jmj/status/1717404589262025031)
 
 
-
-### 2024 December
-
-2024-12-27 Algorithms are designed to survey our behavior. Why do you think Trump plays buddy-buddy with all our tech giants?
-
-[https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
-
 ### 2024 May
 
 2024-05-06 According to a few articles, lawmakers allegedly admitted the reason they wanted TikTok banned was over pro-Palestinian content. 
@@ -98,6 +91,12 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://x.com/NathanJRobinson/status/1787176314023092727](https://x.com/NathanJRobinson/status/1787176314023092727)
 
+
+### 2024 December
+
+2024-12-27 Algorithms are designed to survey our behavior. Why do you think Trump plays buddy-buddy with all our tech giants?
+
+[https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
 
 
 ### 2025 January
