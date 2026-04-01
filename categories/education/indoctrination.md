@@ -78,7 +78,7 @@ permalink: /categories/education/indoctrination/
 
 [https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/](https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/)
 
-2025-08-25 Americans United posted an article about PragerU's Christian Nationalist agenda in our education system.
+2025-08-25 Americans United posted an article about PragerU's Christian Nationalist agenda in our education system. They wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools. 
 
 [https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/](https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/)
 

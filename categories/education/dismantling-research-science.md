@@ -24,7 +24,6 @@ permalink: /categories/education/dismantling-research-science/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
- 
 
 2025-01-20 Trump rescinded Executive Order 14143 Providing for the Appointment of Alumni of AmeriCorps to the Competitive Service.
 
