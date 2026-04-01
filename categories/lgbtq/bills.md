@@ -12,17 +12,20 @@ permalink: /categories/lgbtq/bills/
 
 [https://senate.mo.gov/23info/BTS_Web/Bill.aspx?SessionType=r&BillID=44406](https://senate.mo.gov/23info/BTS_Web/Bill.aspx?SessionType=r&BillID=44406)
 
+
+
+### 2024
+
 2024-02-29 Missouri passed HB 2885 to classify teachers as sex offenders for supporting social transition or for using preferred pronouns.
 
 [https://www.cnn.com/2024/03/08/us/missouri-lawmakers-felony-transgender-students-reaj](https://www.cnn.com/2024/03/08/us/missouri-lawmakers-felony-transgender-students-reaj)
 
 [https://house.mo.gov/Bill.aspx?bill=HB2885&year=2024&code=R](https://house.mo.gov/Bill.aspx?bill=HB2885&year=2024&code=R)
 
-### 2024
-
 2024-08-28 Missouri passed SB728 which is very similar to SB134, prohibiting encouragement of gender identity and requiring teachers to inform parents within 24 hours.
 
 [https://www.senate.mo.gov/24info/BTS_Web/Bill.aspx?SessionType=R&BillID=246](https://www.senate.mo.gov/24info/BTS_Web/Bill.aspx?SessionType=R&BillID=246)
+
 
 ### 2025
 
@@ -44,7 +47,7 @@ permalink: /categories/lgbtq/bills/
 
 [https://www.whitehouse.gov/presidential-actions/2025/02/keeping-men-out-of-womens-sports/](https://www.whitehouse.gov/presidential-actions/2025/02/keeping-men-out-of-womens-sports/)
 
-2025-09-05 A news outlet reported that the DOJ considered banning guns specifically from anyone who is transgender.
+2025-09-05 The DOJ considered banning guns specifically from anyone who is transgender.
 
 [https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/](https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/)
 
