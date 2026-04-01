@@ -16,7 +16,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 July
 
-2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work.
+2025-07-10 ICE detained Iraq war veteran George Retes while he was on his way to work.
 
 [https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable](https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable)
 
@@ -72,7 +72,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 December
 
-2025-12-12 The Trump administration began collecting data on all immigrants who are in any way affiliated with the Department of Veteran’s Affairs. For context, the VA system recruits foreign workers through the use of National Interest Waivers and still suffers a drastic staffing shortage.
+2025-12-12 The Trump administration collected data on all immigrants who are in any way affiliated with the Department of Veteran’s Affairs. For context, the VA system recruits foreign workers through the use of National Interest Waivers and still suffers a drastic staffing shortage.
 
 [https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report](https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report)
 

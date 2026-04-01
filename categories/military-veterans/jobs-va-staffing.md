@@ -30,7 +30,7 @@ permalink: /categories/military-veterans/jobs-va-staffing/
 
 ### 2025 December
 
-2025-12-15 Several news outlets reported the Trump administration plans to eliminate tens of thousands of VA health care jobs, reportedly around 35,000.
+2025-12-15 The Trump administration planned to eliminate tens of thousands of VA health care jobs, reportedly around 35,000.
 
 [https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
 

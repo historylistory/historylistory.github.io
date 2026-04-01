@@ -78,7 +78,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2026 February
 
-2026-02-17 According to news articles, Kristi Noem diverted resources away from a search and rescue mission with the Coast Guard to find a missing service member so she could send them to enforce immigration. 
+2026-02-17 Kristi Noem diverted resources away from a search and rescue mission with the Coast Guard to find a missing service member so she could send them to enforce immigration. 
 
 [https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904](https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904)
 

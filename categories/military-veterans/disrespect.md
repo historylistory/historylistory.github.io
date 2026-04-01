@@ -22,7 +22,7 @@ permalink: /categories/military-veterans/disrespect/
 
 ### 2020
 
-2020-09-04 Reports emerged that Trump called fallen soldiers ‘suckers’ and ‘losers’.
+2020-09-04 Trump called fallen soldiers ‘suckers’ and ‘losers’.
 
 [https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/](https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/)
 

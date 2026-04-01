@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/health-well-being/
 
 ### 2025 February
 
-2025-02-24 The Trump administration started integrating AI to automate both general population healthcare and VA health care claims.
+2025-02-24 The Trump administration integrated AI to automate both general population healthcare and VA health care claims.
 
 [https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials](https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials)
 
@@ -24,13 +24,13 @@ permalink: /categories/military-veterans/health-well-being/
 
 ### 2025 June
 
-2025-06-30 A news outlet reported that DeSantis vetoed $400,000 for the Transition House Homeless Veterans Program in Osceola County.
+2025-06-30 DeSantis vetoed $400,000 for the Transition House Homeless Veterans Program in Osceola County.
 
 [https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/)
 
 ### 2025 July
 
-2025-07-03 A news outlet reported that DeSantis vetoed funds set aside for a veteran program called “Patriot Passport” designed to allow permanent Florida residents who are veterans to ride transit lines for free.
+2025-07-03 DeSantis vetoed funds set aside for a veteran program called “Patriot Passport” designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
 [https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/](https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/)
 
