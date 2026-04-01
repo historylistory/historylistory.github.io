@@ -40,7 +40,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2024 May
 
-2024-05-06 Trump violated a gag order again. According to AI, Trump violated ten separate gag orders.
+2024-05-06 Trump violated a gag order again. Trump violated ten separate gag orders.
 
 [https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/](https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/)
 
@@ -226,6 +226,14 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 February
 
+2026-02-03 Trump called on Republicans to push to nationalize future elections.
+
+[https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections](https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections)
+
+[https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260](https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab)
+
 2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 
 [https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
@@ -238,13 +246,6 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent](https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent)
 
-2026-02-03 Trump called on Republicans to push to nationalize future elections.
-
-[https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections](https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections)
-
-[https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260](https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260)
-
-[https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab)
 
 2026-02-20 Mark Zuckerberg and his entourage wore Ray-Ban smart glasses during court proceedings.
 

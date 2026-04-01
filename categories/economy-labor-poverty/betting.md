@@ -12,9 +12,11 @@ This section is still in progress
 
 ### 2020
 
-2020-01-01 The online prediction market Polymarket was launched. In 2026 the prediction market users started targeting and threatening people reporting on stats they were betting on. 
+2020-06-01 The online prediction market Polymarket was launched. It gained rapid traction during the 2020 presidential election and again in 2024. In 2026 the prediction market users started targeting and threatening people reporting on stats they were betting on.
 
 [https://www.wired.com/story/why-this-was-the-wildest-week-for-prediction-markets-yet/](https://www.wired.com/story/why-this-was-the-wildest-week-for-prediction-markets-yet/)
+
+[https://finance.yahoo.com/news/polymarket-launches-u-prediction-market-191600195.html](https://finance.yahoo.com/news/polymarket-launches-u-prediction-market-191600195.html)
 
 [https://www.washingtonpost.com/technology/2026/03/17/israel-journalist-polymarket-iran-strike/](https://www.washingtonpost.com/technology/2026/03/17/israel-journalist-polymarket-iran-strike/)
 

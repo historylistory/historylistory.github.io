@@ -24,7 +24,7 @@ permalink: /categories/economy-labor-poverty/farming/
 
 ### 2021
 
-2021 News outlets reported that JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+2021-08-13 News outlets reported that JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
 
 [https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/](https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/)
 
@@ -123,7 +123,7 @@ permalink: /categories/economy-labor-poverty/farming/
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
-2025-11-10 News outlets reported that the Trump Administration **Agriculture Department** threatened to penalize states that don’t “undo” steps to fully fund SNAP.
+2025-11-10 The Trump Administration **Agriculture Department** threatened to penalize states that don’t “undo” steps to fully fund SNAP.
 
 [https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/](https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/)
 

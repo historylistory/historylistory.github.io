@@ -102,7 +102,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.cnbc.com/2021/01/15/trump-criminal-investigation-manhattan-da-probes-seven-springs-estate.html](https://www.cnbc.com/2021/01/15/trump-criminal-investigation-manhattan-da-probes-seven-springs-estate.html)
 
-### 2025 February
+### 2021 February
 
 2021-02-20 Fulton County DA investigated election interference involving Trump, Rudy Giuliani, and others.
 
@@ -110,7 +110,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.wabe.org/fulton-election-case/](https://www.wabe.org/fulton-election-case/)
 
-### 2025 October
+### 2021 October
 
 2021-10-21 Westchester County investigated Trump for inflating property values on one statement and lowering those values on other statements to avoid taxes.
 
