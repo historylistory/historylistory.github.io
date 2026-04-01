@@ -14,7 +14,7 @@ permalink: /categories/health/autism/
 
 ### 2025 April
 
-2025-04-11 During a press conference, RFK made an outlandish promise to find the definitive cause of autism by September, four months after the press conference.
+2025-04-11 During a press conference, RFK promised to find the definitive cause of autism by September, four months after the press conference.
 
 [https://www.bbc.com/news/articles/cj0z9nmzvdlo](https://www.bbc.com/news/articles/cj0z9nmzvdlo)
 

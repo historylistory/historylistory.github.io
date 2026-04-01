@@ -42,13 +42,10 @@ permalink: /categories/health/healthcare/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
- 
-
 2025-01-20 Trump rescinded Executive Order 14009 Strengthening Medicaid and the Affordable Care Act.
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
- 
 
 2025-01-20 Trump rescinded Executive Order 14070 Continuing To Strengthen Americans’ Access to Affordable, Quality Health Coverage.
 
@@ -106,7 +103,7 @@ permalink: /categories/health/healthcare/
 
 {% include youtubePlayer.html id="1dQ6_X2z-DA" %}
 
-2025-10-21 Americans begin receiving letters stating they should expect their health insurance prices to soar, double, and even quadruple.
+2025-10-21 Americans received letters stating they should expect their health insurance prices to soar, double, and even quadruple.
 
 [https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/](https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/)
 
@@ -118,7 +115,7 @@ permalink: /categories/health/healthcare/
 
 ### 2025 November
 
-2025-11-04 Trump announced plans to lower weight loss drug prices.
+2025-11-04 Trump said he would lower weight loss drug prices.
 
 [https://www.whitehouse.gov/fact-sheets/2025/11/fact-sheet-president-donald-j-trump-announces-major-developments-in-bringing-most-favored-nation-pricing-to-american-patients/](https://www.whitehouse.gov/fact-sheets/2025/11/fact-sheet-president-donald-j-trump-announces-major-developments-in-bringing-most-favored-nation-pricing-to-american-patients/)
 

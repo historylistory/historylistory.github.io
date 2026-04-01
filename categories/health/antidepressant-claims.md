@@ -8,7 +8,7 @@ permalink: /categories/health/antidepressant-claims/
 
 ### 2025 August
 
-2025-08-28 - RFK blamed school shootings on antidepressants.
+2025-08-28 RFK blamed school shootings on antidepressants.
 
 [https://www.axios.com/2025/08/28/school-shooting-kennedy-antidepressants-claim](https://www.axios.com/2025/08/28/school-shooting-kennedy-antidepressants-claim)
 

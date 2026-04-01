@@ -18,7 +18,7 @@ permalink: /categories/health/child-cancer-disease/
 
 ### 2025 August
 
-2025-08-26 The Trump administration decided to end funding for pediatric brain cancer research after March 2026.
+2025-08-26 The Trump administration ended funding for pediatric brain cancer research after March 2026, halting $4M per year.
 
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 
@@ -28,10 +28,6 @@ permalink: /categories/health/child-cancer-disease/
 
 [https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/](https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/)
 
-### 2025 September
-
-2025-09-15 Funding to the Pediatric Brain Tumor Consortium is set to run out after March 2026, and news outlets report the U.S. government is halting $4M per year in funding.
-
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 
 [https://coloradonewsline.com/2025/09/17/childhood-brain-tumor-research-colorado/](https://coloradonewsline.com/2025/09/17/childhood-brain-tumor-research-colorado/)
@@ -39,6 +35,8 @@ permalink: /categories/health/child-cancer-disease/
 [https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/](https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/)
 
 [https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/](https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/)
+
+### 2025 September
 
 2025-09-17 A bipartisan legislation entitled "Give Kids a Chance Act" was passed despite opposition from some in the pharmaceutical industry. This bill is designed to accelerate the development of new drug combinations for pediatric cancer patients and was introduced by Democrat Senator Bennet and Republican Senator Mullin, proving that we CAN work together despite recent efforts of the Trump administration to instigate civil dispute.
 

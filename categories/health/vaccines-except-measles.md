@@ -86,7 +86,7 @@ permalink: /categories/health/vaccines-except-measles/
 
 ### 2026 February
 
-The FDA blocked review of a flu vaccine developed by Moderna.
+2026-02-01 The FDA blocked review of a flu vaccine developed by Moderna.
 
 [https://www.cidrap.umn.edu/influenza-vaccines/fda-reverses-course-refuses-review-moderna-s-application-new-mrna-flu-vaccine](https://www.cidrap.umn.edu/influenza-vaccines/fda-reverses-course-refuses-review-moderna-s-application-new-mrna-flu-vaccine)
 

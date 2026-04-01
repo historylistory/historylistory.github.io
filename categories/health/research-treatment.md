@@ -16,6 +16,10 @@ permalink: /categories/health/research-treatment/
 
 [https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
 
+2025-01-31 The Trump administration purged federal health agency websites related to LGBTQ health, Civil Rights, Sexual and Gender Minority research, interactive tools for surveilling HIV, viral hepatitis, STDs and TB, and a Social Vulnerability Index. Among the purge they erased medical information on adolescent health such as the CDC's Division of Adolescent and School Health, monitoring health-related behaviors among high schoolers, and the Youth Risk Behavior Surveillance System which tracked nutrition, physical activity, tobacco and drug use, and sexual behavior.
+
+[https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
+
 ### 2025 March
 
 2025-03-26 The Trump administration cut COVID research grants, particularly any documents that mentioned gender identity, DEI, or environmental justice.
@@ -44,7 +48,7 @@ permalink: /categories/health/research-treatment/
 
 ### 2025 August
 
-2025-08-26 The Trump administration decided to end funding for pediatric brain cancer research after March 2026.
+2025-08-26 The Trump administration decided to end funding for pediatric brain cancer research after March 2026. Funding to the Pediatric Brain Tumor Consortium is set to run out after March 2026, and news outlets report the U.S. government is halting $4M per year in funding.
 
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 
@@ -54,16 +58,6 @@ permalink: /categories/health/research-treatment/
 
 [https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/](https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/)
 
-### 2025 September
-
-2025-09-01 The Division of Cancer Prevention and Control was eliminated. Programs for diabetes, heart and stroke prevention, research into long-COVID, Alzheimer's and aging, Inflammatory Bowel Disease, mental health & addiction, childhood chronic disease, and general chronic disease prevention were listed for elimination along with it.
-
-[https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control](https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control)
-
-[https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division](https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division)
-
-2025-09-15 Funding to the Pediatric Brain Tumor Consortium is set to run out after March 2026, and news outlets report the U.S. government is halting $4M per year in funding.
-
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 
 [https://coloradonewsline.com/2025/09/17/childhood-brain-tumor-research-colorado/](https://coloradonewsline.com/2025/09/17/childhood-brain-tumor-research-colorado/)
@@ -71,6 +65,14 @@ permalink: /categories/health/research-treatment/
 [https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/](https://www.statnews.com/2025/09/15/pediatric-brain-tumor-consortium-disbanding-funding-trump/)
 
 [https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/](https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/)
+
+### 2025 September
+
+2025-09-01 The Division of Cancer Prevention and Control was eliminated. Programs for diabetes, heart and stroke prevention, research into long-COVID, Alzheimer's and aging, Inflammatory Bowel Disease, mental health & addiction, childhood chronic disease, and general chronic disease prevention were listed for elimination along with it.
+
+[https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control](https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control)
+
+[https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division](https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division)
 
 2025-09-17 A bipartisan legislation entitled "Give Kids a Chance Act" was passed despite opposition from some in the pharmaceutical industry. This bill is designed to accelerate the development of new drug combinations for pediatric cancer patients and was introduced by Democrat Senator Bennet and Republican Senator Mullin, proving that we CAN work together despite recent efforts of the Trump administration to instigate civil dispute.
 

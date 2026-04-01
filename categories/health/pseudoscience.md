@@ -20,7 +20,7 @@ permalink: /categories/health/pseudoscience/
 
 ### 2025 September
 
-2025-09-09 RFK unveiled his "Make Our Children Healthy Again" initiative, with a sweeping overhaul to policies based on his version of "gold-standard science". Some would argue his “gold standard” pseudoscience lacks merit since he is frequently investigated for using biased, non-scientific claims and reports that don’t *actually* exist.
+2025-09-09 RFK unveiled his "Make Our Children Healthy Again" initiative, with a sweeping overhaul to policies based on his version of "gold-standard science". 
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
 

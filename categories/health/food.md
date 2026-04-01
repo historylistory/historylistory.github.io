@@ -101,10 +101,6 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 ### 2025 August
 
-2025-08-04 News outlets reported 21 infections tied to the consumption of raw milk.
-
-[https://floridaphoenix.com/2025/08/04/doh-21-infections-tied-to-consumption-of-raw-milk-in-northeast-and-central-florida/](https://floridaphoenix.com/2025/08/04/doh-21-infections-tied-to-consumption-of-raw-milk-in-northeast-and-central-florida/)
-
 2025-08-01 A raw milk producer failed health tests that detected high levels of coliform bacteria, which can include E.coli. 
 
 [https://www.kpcw.org/summit-county/2026-01-29/ballerina-farm-pauses-raw-milk-sales-after-samples-fail-health-tests](https://www.kpcw.org/summit-county/2026-01-29/ballerina-farm-pauses-raw-milk-sales-after-samples-fail-health-tests)
@@ -116,6 +112,9 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 [https://www.youtube.com/watch?v=mdOyeNCkC0I](https://www.youtube.com/watch?v=mdOyeNCkC0I)
 {% include youtubePlayer.html id="mdOyeNCkC0I" %}
 
+2025-08-04 News outlets reported 21 infections tied to the consumption of raw milk.
+
+[https://floridaphoenix.com/2025/08/04/doh-21-infections-tied-to-consumption-of-raw-milk-in-northeast-and-central-florida/](https://floridaphoenix.com/2025/08/04/doh-21-infections-tied-to-consumption-of-raw-milk-in-northeast-and-central-florida/)
 
 ### 2025 November
 

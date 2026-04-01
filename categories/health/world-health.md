@@ -40,16 +40,6 @@ permalink: /categories/health/world-health/
 
 ### 2026 January
 
-2026-01-23 The Trump administration announced that it would not be paying the $260M it still owes to the World Health Organization. January 23 2026 marked one year after Trump signed Executive Order 14155 to separate from them.
-
-[https://www.devex.com/news/the-trump-administration-says-it-won-t-pay-what-it-owes-who-111741](https://www.devex.com/news/the-trump-administration-says-it-won-t-pay-what-it-owes-who-111741)
-
-[https://www.cnn.com/2026/01/22/health/who-us-split](https://www.cnn.com/2026/01/22/health/who-us-split)
-
-[https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/](https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/)
-
-### 2026 February
-
 2026-01-21 In a study, Trump’s decision to block USAID resulted in hundreds of thousands of deaths from infectious diseases and malnutrition.
 
 [https://sherman.house.gov/media-center/press-releases/one-year-after-trumps-usaid-shutdown-sherman-meeks-lead-all-foreign](https://sherman.house.gov/media-center/press-releases/one-year-after-trumps-usaid-shutdown-sherman-meeks-lead-all-foreign)
@@ -61,3 +51,14 @@ permalink: /categories/health/world-health/
 [https://www.bbc.com/news/articles/cx2jjpm7zv8o](https://www.bbc.com/news/articles/cx2jjpm7zv8o)
 
 [https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(25)01186-9/fulltext](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(25)01186-9/fulltext)
+
+2026-01-23 The Trump administration announced that it would not be paying the $260M it still owes to the World Health Organization. January 23 2026 marked one year after Trump signed Executive Order 14155 to separate from them.
+
+[https://www.devex.com/news/the-trump-administration-says-it-won-t-pay-what-it-owes-who-111741](https://www.devex.com/news/the-trump-administration-says-it-won-t-pay-what-it-owes-who-111741)
+
+[https://www.cnn.com/2026/01/22/health/who-us-split](https://www.cnn.com/2026/01/22/health/who-us-split)
+
+[https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/](https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/)
+
+
+

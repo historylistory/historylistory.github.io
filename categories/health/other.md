@@ -8,7 +8,7 @@ permalink: /categories/health/other/
 
 ### 2025 December
 
-The Biden administration enforced a rule lowering the amount of formaldehyde it is safe for humans to be around. In December of 2025, the Trump administration not only rolled those safety standards back, but they also increased the amount of formaldehyde that is “safe” for humans to be around. Iowa AG Brenna Bird asked the Trump administration in 2026 to further loosen formaldehyde restrictions for farmers.
+2025-12-01 The Biden administration enforced a rule lowering the amount of formaldehyde it is safe for humans to be around. In December of 2025, the Trump administration not only rolled those safety standards back, but they also increased the amount of formaldehyde that is “safe” for humans to be around. Iowa AG Brenna Bird asked the Trump administration in 2026 to further loosen formaldehyde restrictions for farmers.
 
 {% include youtubePlayer.html id="BG3G-lZ5zck" %}
 
