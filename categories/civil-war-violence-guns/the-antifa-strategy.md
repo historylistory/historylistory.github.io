@@ -16,7 +16,7 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 ### 2025 August
 
-2025-08-25 During an interview with Sean Hannity, Stephen Miller floated the idea that Democrats are a domestic extremist group. 
+2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group. 
 
 [https://www.foxnews.com/video/6377384186112](https://www.foxnews.com/video/6377384186112)
 

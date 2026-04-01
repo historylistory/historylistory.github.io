@@ -20,7 +20,7 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 January
 
-2025-01-20****Page 303 of Project 2025 aims to direct the USDA to end community eligibility programs and universal free school meals. 
+2025-01-20 Page 303 of Project 2025 aims to direct the USDA to end community eligibility programs and universal free school meals. 
 
 Project 2025 calls **school meals and programs for more children as “entitlements” and a “waste” of taxpayer money**.
 
