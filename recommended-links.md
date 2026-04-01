@@ -14,9 +14,9 @@ permalink: /recommended-links/
 
 [Project 2026 PDF](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
 
-### GET INVOLVED
+### SPOTLIGHT LINK
 
-**SPOTLIGHT LINK:** 2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
+2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
 
 [https://www.change.org/](https://www.change.org/)
 
@@ -37,6 +37,10 @@ permalink: /recommended-links/
 [https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786](https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786)
 
 [https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368](https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368)
+
+### GET INVOLVED
+
+[Change.org](https://www.change.org/)
 
 [Mobilize](https://www.mobilize.us/)
 
