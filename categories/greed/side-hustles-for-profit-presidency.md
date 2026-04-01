@@ -8,7 +8,7 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 
 ### 1995
 
-1995 Trump tried to introduce Trump Ice water.
+1995 Trump tried to sell Trump Ice water.
 
 [https://en.wikipedia.org/wiki/Trump_Ice](https://en.wikipedia.org/wiki/Trump_Ice)
 
@@ -16,7 +16,7 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 
 ### 2007
 
-2007-05-01 Trump tried to introduce Trump Steaks, which didn’t last.
+2007-05-01 Trump tried to sell Trump Steaks, which didn’t last.
 
 [https://en.wikipedia.org/wiki/Trump_Steaks](https://en.wikipedia.org/wiki/Trump_Steaks)
 

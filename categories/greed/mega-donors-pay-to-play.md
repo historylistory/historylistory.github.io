@@ -151,7 +151,7 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 [https://news.mongabay.com/short-article/2025/06/meatpacking-giant-jbs-debuts-on-nyse-six-months-after-5m-trump-donation/](https://news.mongabay.com/short-article/2025/06/meatpacking-giant-jbs-debuts-on-nyse-six-months-after-5m-trump-donation/)
 
-2025-01-17 (for context – life rafts and off ramps) Several businesses donated to Trump’s inaugural fund, which some critics have called “pay to play”. 
+2025-01-17 Several businesses donated to Trump’s inaugural fund (pay to play”). 
 
 [https://www.goodsuniteus.com/](https://www.goodsuniteus.com/)
 
