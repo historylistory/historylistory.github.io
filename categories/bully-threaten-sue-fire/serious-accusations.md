@@ -60,11 +60,7 @@ permalink: /categories/bully-threaten-sue-fire/serious-accusations/
 
 [https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/](https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/)
 
-2025-09-26 After Trump alleged Portland ICE facilities were under siege by Antifa, city leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
-
-{% include youtubePlayer.html id="k2wVMYCAfyc" %}
-
-2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa. Trump tweeted on social media that Portland was "war ravaged" and that he planned to authorize "**full force**". Secretary Lori Chavez-DeRemer reposted. City leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
+2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa. Trump tweeted on social media that Portland was "war ravaged" and that he planned to authorize "**full force**". Secretary Lori Chavez-DeRemer reposted. City leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker. After Trump alleged Portland ICE facilities were under siege by Antifa, city leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115276694936263266](https://truthsocial.com/@realDonaldTrump/posts/115276694936263266)
 

@@ -30,8 +30,6 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed](https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed)
 
- 
-
 2020-11-16 Trump sued the Wisconsin TV Station over a political advertisement created by a liberal super PAC.
 
 [https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/](https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/)

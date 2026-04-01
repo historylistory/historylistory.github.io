@@ -60,7 +60,7 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.pbs.org/newshour/show/carla-hayden-on-her-time-as-a-pioneering-librarian-of-congress-and-getting-fired-by-trump](https://www.pbs.org/newshour/show/carla-hayden-on-her-time-as-a-pioneering-librarian-of-congress-and-getting-fired-by-trump)
 
-2025-05-10 According to AI, Trump terminated Register of Copyrights Shira Perlmutter after she refused to rubber-stamp Elon Musk's efforts to mine troves of copyrighted works to train AI models. Trump replaced her with his personal lawyer Todd Blanche.
+2025-05-10 Trump terminated Register of Copyrights Shira Perlmutter after she refused to rubber-stamp Elon Musk's efforts to mine troves of copyrighted works to train AI models. Trump replaced her with his personal lawyer Todd Blanche.
 
 [https://democrats-cha.house.gov/media/press-releases/morelles-statement-abrupt-firing-shira-perlmutter-register-copyrights#:~:text=%E2%80%9CDonald%20Trump's%20termination%20of%20Register,works%20to%20train%20AI%20models](https://democrats-cha.house.gov/media/press-releases/morelles-statement-abrupt-firing-shira-perlmutter-register-copyrights).
 
