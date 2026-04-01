@@ -20,7 +20,7 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 
 ### 2025 May
 
-2025-05-22 ICE began showing up at immigration hearings to arrest people.
+2025-05-22 ICE started showing up at immigration hearings to arrest people. 
 
 [https://www.foxnews.com/politics/ice-begins-new-nationwide-effort-arrest-illegal-aliens-immigration-hearings](https://www.foxnews.com/politics/ice-begins-new-nationwide-effort-arrest-illegal-aliens-immigration-hearings)
 

@@ -246,14 +246,16 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 ### 2026 February
 
+2026-02-13 Former ICE attorney Ryan Schwank left the agency stating, “"I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken." The full video is on CSPAN, but some of the clips I watched he cited he was duty bound to report that the legally required training for ICE was deficient, cut down by at least 240 hours, instructors were receiving secretive orders to violate the Constitution, and they ceased all the legal instruction regarding use of force to name a few.
+
+[https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
+
+{% include youtubePlayer.html id="s6TrCEeJW0M" %}
+
 2026-02-16 Two ICE agents were suspended and faced a criminal investigation for lying about shooting a Venezuelan immigrant Julio Cesar Sosa Celles and his cousin Alfredo Alejandro Aljouro on **January 14****th****2026**. DHS claimed the two attacked ICE agents with a snow shovel and broom, and Kristi Noem claimed it was an “attempted murder of federal law enforcement”, but video evidence contradicted DHS and Noem’s claims.
 
 [https://www.bbc.com/news/articles/cy8l9jp1z3yo](https://www.bbc.com/news/articles/cy8l9jp1z3yo)
 
 [https://www.cnn.com/2026/02/15/us/ice-shooting-dhs-doj-false-statements](https://www.cnn.com/2026/02/15/us/ice-shooting-dhs-doj-false-statements)
 
-2026-02-13 Former ICE attorney Ryan Schwank left the agency stating, “"I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken." The full video is on CSPAN, but some of the clips I watched he cited he was duty bound to report that the legally required training for ICE was deficient, cut down by at least 240 hours, instructors were receiving secretive orders to violate the Constitution, and they ceased all the legal instruction regarding use of force to name a few.
 
-[https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
-
-{% include youtubePlayer.html id="s6TrCEeJW0M" %}

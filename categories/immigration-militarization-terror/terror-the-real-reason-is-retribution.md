@@ -16,14 +16,16 @@ permalink: /categories/immigration-militarization-terror/terror-the-real-reason-
 
 ### 2026 January
 
+2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
+
+[https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
+
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
 [https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
 
 [https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085](https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085)
 
-### 2026 February
 
-2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
 
-[https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
+

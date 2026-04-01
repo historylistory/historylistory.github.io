@@ -201,7 +201,7 @@ permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villa
 
 ### 2025 November
 
-2025-11-27 Trump posted on social media, claiming that “hundreds of thousands of refugees from Somalia are completely taking over the once great State of Minnesota. Somalian gangs are roving the streets looking for “prey” as our wonderful people stay locked in their apartments and houses hoping against hope that they will be left alone”. He also made similar posts roughly a week prior. As part of this post, Trump made it a point to attack Governor Tim Walz, calling Minnesota a “hub of money laundering”. During an interview on CNN, Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+2025-11-27 Trump wrote on social media, “hundreds of thousands of refugees from Somalia are completely taking over the once great State of Minnesota. Somalian gangs are roving the streets looking for “prey” as our wonderful people stay locked in their apartments and houses hoping against hope that they will be left alone”. He also made similar posts roughly a week prior. As part of this post, Trump made it a point to attack Governor Tim Walz, calling Minnesota a “hub of money laundering”. During an interview on CNN, Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
 
 {% include youtubePlayer.html id="lOlZlti8bUA" %}
 

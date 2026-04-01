@@ -78,7 +78,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 February
 
-2025-02-14 News outlets began to report on how the rerouting of agents from original duties to immigration enforcement has led agents away from focusing on drug, weapon and human trafficking, particularly that of child sex trafficking.
+2025-02-14 Media reported on how the rerouting of agents from original duties to immigration enforcement has led agents away from focusing on drug, weapon and human trafficking, particularly that of child sex trafficking.
 
 [https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf](https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf)
 

@@ -114,7 +114,7 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 ### 2025 October
 
-2025-10-15 News outlets reported that Trump considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented about the U.S. not receiving more immigrants from places like Norway or Sweden.
+2025-10-15 News outlets reported that Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented about the U.S. not receiving more immigrants from places like Norway or Sweden.
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
 
@@ -139,7 +139,6 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 [https://www.powershealth.org/about-us/newsroom/health-library/2025/11/14/trump-administration-expands-visa-denials-to-include-common-chronic-illnesses](https://www.powershealth.org/about-us/newsroom/health-library/2025/11/14/trump-administration-expands-visa-denials-to-include-common-chronic-illnesses)
 
  
-
 2025-11-26 After an Afghan national shot two National Guard troops in DC, the Trump administration weaponized the tragedy. Kristi Noem suggested the suspect was radicalized in the U.S., and Trump used the shooting to ban Afghan asylum seekers from entering the country. For context, Operation Allies Welcome was a program set up to allow Afghans targeted by Taliban for working with U.S. forces to reach asylum, and many of them have waited 20 or more years to work through a rigorous vetting process to get here. By singling out Afghani immigrants, current Afghani residents of the U.S. reportedly fear for their safety.  The Trump administration blamed Biden for the shooting even though the suspect was vetted during both the Biden and Trump administrations.
 
 [https://www.npr.org/2025/11/27/nx-s1-5622991/afghan-refugee-program-national-guard-shooting-suspect](https://www.npr.org/2025/11/27/nx-s1-5622991/afghan-refugee-program-national-guard-shooting-suspect)

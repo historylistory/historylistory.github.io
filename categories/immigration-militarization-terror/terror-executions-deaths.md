@@ -100,12 +100,6 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 [https://www.theguardian.com/us-news/2026/jan/28/stephen-miller-ice-minneapolis-trump](https://www.theguardian.com/us-news/2026/jan/28/stephen-miller-ice-minneapolis-trump)
 
-2026-01-24 Stephen Miller took to social media to call Alex Pretti an assassin, then later backtracked, stating the CBP mishandled the scene and violated protocol.
-
-[https://komonews.com/news/nation-world/stephen-miller-admits-cbp-may-have-violated-protocol-in-fatal-alex-pretti-shooting](https://komonews.com/news/nation-world/stephen-miller-admits-cbp-may-have-violated-protocol-in-fatal-alex-pretti-shooting)
-
-[https://www.theguardian.com/us-news/2026/jan/28/stephen-miller-ice-minneapolis-trump](https://www.theguardian.com/us-news/2026/jan/28/stephen-miller-ice-minneapolis-trump)
-
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 
 2026-01-26 After the killing of Alex Pretti, Dan Bovino was demoted and set to leave Minnesota.
