@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 ### 2019
 
-2019-01-24 Maduro initially cut diplomatic ties with the U.S.
+2019-01-24 Maduro cut diplomatic ties with the U.S.
 
 [https://www.union-bulletin.com/news/national/us-venezuela-agree-to-restore-diplomatic-ties-7-years-after-they-were-cut-off/article_fa8afb98-c79e-5faf-a39c-64be2cba07d4.html#:~:text=The%20announcement%20represents%20a%20sharp,%2C%20ultimately%2C%20a%20democratic%20election](https://www.union-bulletin.com/news/national/us-venezuela-agree-to-restore-diplomatic-ties-7-years-after-they-were-cut-off/article_fa8afb98-c79e-5faf-a39c-64be2cba07d4.html).
 

@@ -12,7 +12,7 @@ permalink: /categories/foreign-affairs-isolation/the-un/
 
 [https://geneva.usmission.gov/2018/06/21/remarks-on-the-un-human-rights-council/](https://geneva.usmission.gov/2018/06/21/remarks-on-the-un-human-rights-council/)
 
-2018-08-31 News outlets reported the Trump administration eliminated funding during its first term to the United Nations Palestinian refugee agency.
+2018-08-31 The Trump administration eliminated funding during its first term to the United Nations Palestinian refugee agency.
 
 [https://www.nbcnews.com/news/world/trump-administration-cuts-funding-united-nations-palestinian-refugee-agency-n905616](https://www.nbcnews.com/news/world/trump-administration-cuts-funding-united-nations-palestinian-refugee-agency-n905616)
 

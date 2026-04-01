@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/board-of-peace/
 
 ### 2026 January
 
-2026-01-21 Trump created a “Board of Peace” during the World Economic Forum to eventually replace the existing UN Charter. The new charter would exclude countries like Canada and include countries like Russia and China. He also announced that a **$1B contribution** would secure permanent membership, and **he would be chairman for life.** One of Trump’s first pledges of the Board’s mission was **“looking over the Unite dNations and making sure it runs properly”.**  
+2026-01-21 Trump created a “Board of Peace” during the World Economic Forum to eventually replace the existing UN Charter. The new charter would exclude countries like Canada and include countries like Russia and China. He also announced that a **$1B contribution** would secure permanent membership, and **he would be chairman for life.** One of Trump’s first pledges of the Board’s mission was **“looking over the United Nations and making sure it runs properly”.**  
 
 [https://www.whitehouse.gov/articles/2026/01/president-trump-ratifies-board-of-peace-in-historic-ceremony-opening-path-to-hope-and-dignity-for-gazans/](https://www.whitehouse.gov/articles/2026/01/president-trump-ratifies-board-of-peace-in-historic-ceremony-opening-path-to-hope-and-dignity-for-gazans/)
 

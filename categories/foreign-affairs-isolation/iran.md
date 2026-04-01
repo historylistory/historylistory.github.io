@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/iran/
 
 ### 1856 Treaty of Friendship and Commerce
 
-1956-02-22 Treaty of Friendship and Commerce
+1856-02-22 Treaty of Friendship and Commerce
 
 ### 1914 Sykes-Picot Agreement
 
@@ -232,7 +232,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 ### 2016
 
-2016-01-01 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
+2016-04-27 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323](https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323)
 
@@ -294,7 +294,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 ### 2020
 
-2016-01-01 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
+2020-01-08 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323](https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323)
 
@@ -332,7 +332,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 ### 2024
 
-2016-01-01 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
+2024-11-04 In 2016, 2020, and 2024 Trump campaigned against any wars in the Middle East and bashed his predecessors for it. He even claimed Kamala Harris would start a war in Iran if she had won the presidency.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323](https://www.nbcnews.com/politics/donald-trump/trump-campaign-endless-wars-iran-no-end-date-rcna261323)
 
@@ -514,35 +514,6 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765](https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765)
 
-2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
-
-[https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925](https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925)
-
-[https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html](https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html)
-
-[https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194](https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194)
-
-[https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/](https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/)
-
-[https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool](https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool)
-
-[https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda](https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda)
-
-[https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html](https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html)
-
-[https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/](https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/)
-
-[https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid](https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid)
-
-[https://www.facebook.com/reel/1191452519854617](https://www.facebook.com/reel/1191452519854617)
-
-[https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574](https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574)
-
-[https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574](https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574)
-
-[https://x.com/whitehouse/status/2029741548791853331?s=48](https://x.com/whitehouse/status/2029741548791853331?s=48)
-
-[https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
 2026-03-05 The US asked Ukraine for help shooting down Iranian drones.
 
@@ -635,6 +606,36 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 
 [https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran](https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran)
+
+2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
+
+[https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925](https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925)
+
+[https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html](https://www.the-independent.com/news/world/americas/us-politics/nfl-white-house-iran-video-b2937535.html)
+
+[https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194](https://www.nbcnews.com/politics/white-house/white-house-iran-war-social-media-videos-video-games-football-baseball-rcna263194)
+
+[https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/](https://www.mediaite.com/media/entertainment/trump-white-house-drops-bonkers-war-hype-video-smash-cutting-through-hollywood-clips/)
+
+[https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool](https://kimatv.com/news/nation-world/white-house-posts-action-movie-montage-with-real-iran-bombing-footage-labels-it-justice-breaking-bad-top-gun-maverick-better-call-saul-john-wick-tropic-thunder-deadpool)
+
+[https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda](https://www.vox.com/politics/482361/iran-war-white-house-video-game-propaganda)
+
+[https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html](https://www.nytimes.com/2026/03/11/arts/television/iran-war-trump-memes-social-media-videos.html)
+
+[https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/](https://www.washingtonpost.com/politics/2026/03/12/nfl-iran-war-white-house/)
+
+[https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid](https://www.cnn.com/2026/03/05/world/video/iran-war-propaganda-call-of-duty-stelter-nc-digvid)
+
+[https://www.facebook.com/reel/1191452519854617](https://www.facebook.com/reel/1191452519854617)
+
+[https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574](https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574)
+
+[https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574](https://abcnews.com/Politics/white-house-posts-called-hype-videos-combining-real/story?id=130825574)
+
+[https://x.com/whitehouse/status/2029741548791853331?s=48](https://x.com/whitehouse/status/2029741548791853331?s=48)
+
+[https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
 2026-03-10 The first six days of the war in Iran cost American taxpayers $11B.
 
