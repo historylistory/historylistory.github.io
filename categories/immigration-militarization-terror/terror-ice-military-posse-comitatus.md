@@ -349,3 +349,4 @@ permalink: /categories/immigration-militarization-terror/terror-ice-military-pos
 [https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
 
 [https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
+

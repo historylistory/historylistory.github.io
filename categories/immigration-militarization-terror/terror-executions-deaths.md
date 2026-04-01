@@ -168,3 +168,4 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 [https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
  
+
