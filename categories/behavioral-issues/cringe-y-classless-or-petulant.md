@@ -295,6 +295,16 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2026 January
 
+2026-01-14 During his visit to a Ford plant, Trump flipped off an autoworker and mouthed for him to fuck off.
+
+[https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip](https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip)
+
+[https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/](https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/)
+
+2026-01-15 During a White House press briefing Karoline Leavitt berated and humiliated a journalist for asking about comments made by Trump to cancel the 2026 mid-term elections. She stated, “…only someone like you would take that so seriously and pose it as a question in that way”. When the journalist asked if ICE agents were doing everything correctly after the killing of Nicole Good, Karoline spouted, “Oh, okay. So you’re a biased reporter with a left-wing opinion. Yeah, because you’re a left-wing hack. You’re not a reporter. You’re posing in this room as a journalist. And it’s so clear by the premise of your question. And you and the people in the media who have such biases but fake like you’re a journalist – you shouldn’t even be sitting in that seat. But you’re pretending like you’re a journalist, but you’re a left-wing activist”.
+
+{% include youtubePlayer.html id="qaMIDqrcM44" %}
+
 2026-01-21 During his speech in Davos Trump kept repeatedly calling Greenland Iceland. The speech was recorded and replayed everywhere across the globe. Press Secretary Karoline Leavitt came to Trump’s defense, asserting blatant lies online to Libby Dean “*no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here*”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “***They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it***”. Also at the World Economic Forum, Trump stated, “**but sometimes you need a dictator**”.
 
 [https://www.usatoday.com/story/news/politics/2026/01/21/trump-iceland-greenland-speech-davos-switzerland/88283786007/](https://www.usatoday.com/story/news/politics/2026/01/21/trump-iceland-greenland-speech-davos-switzerland/88283786007/)
@@ -304,18 +314,6 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy](https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy)
 
 [https://www.thedailybeast.com/trump-issues-sinister-warning-americans-need-a-dictator/](https://www.thedailybeast.com/trump-issues-sinister-warning-americans-need-a-dictator/)
-
-2026-01-14 During his visit to a Ford plant, Trump flipped off an autoworker and mouthed for him to fuck off.
-
-[https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip](https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip)
-
-[https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/](https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/)
-
- 
-
-2026-01-15 During a White House press briefing Karoline Leavitt berated and humiliated a journalist for asking about comments made by Trump to cancel the 2026 mid-term elections. She stated, “…only someone like you would take that so seriously and pose it as a question in that way”. When the journalist asked if ICE agents were doing everything correctly after the killing of Nicole Good, Karoline spouted, “Oh, okay. So you’re a biased reporter with a left-wing opinion. Yeah, because you’re a left-wing hack. You’re not a reporter. You’re posing in this room as a journalist. And it’s so clear by the premise of your question. And you and the people in the media who have such biases but fake like you’re a journalist – you shouldn’t even be sitting in that seat. But you’re pretending like you’re a journalist, but you’re a left-wing activist”.
-
-{% include youtubePlayer.html id="qaMIDqrcM44" %}
 
 ### 2026 February
 
@@ -334,6 +332,32 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/](https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/)
 
 ### 2026 March
+
+2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+
+[https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
+
+[https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/](https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/)
+
+[https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
+
+[https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)
+
+[https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier](https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier)
+
+[https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html](https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html)
+
+[https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/](https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/)
+
+[https://people.com/trump-promises-donors-access-national-security-briefings-11925725](https://people.com/trump-promises-donors-access-national-security-briefings-11925725)
+
+[https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html](https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html)
+
+[https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1](https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1)
+
+[https://www.youtube.com/watch?v=qepYRy2BTAg](https://www.youtube.com/watch?v=qepYRy2BTAg)
+
+{% include youtubePlayer.html id="qepYRy2BTAg" %}
 
 2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
 
@@ -364,32 +388,6 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://x.com/whitehouse/status/2029741548791853331?s=48](https://x.com/whitehouse/status/2029741548791853331?s=48)
 
 [https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
-
-2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
-
-[https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
-
-[https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/](https://www.salon.com/2026/03/09/fox-news-erased-fallen-soldiers-to-make-trump-look-better/)
-
-[https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9](https://apnews.com/article/baseball-cap-fox-news-trump-dover-dignified-transfer-29a8f2c1a4a6b2218d18daa2eb5109d9)
-
-[https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer](https://www.fastcompany.com/91505360/trump-wears-hat-dignified-transfer)
-
-[https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier](https://www.cnn.com/2026/03/13/politics/trump-fundraise-email-soldier)
-
-[https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html](https://www.nytimes.com/2026/03/14/us/politics/fund-raising-email-trump-ritual.html)
-
-[https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/](https://www.clarionledger.com/story/news/2026/03/16/trump-email-says-donors-can-get-national-security-updates-qanon-deep-state-news/89182701007/)
-
-[https://people.com/trump-promises-donors-access-national-security-briefings-11925725](https://people.com/trump-promises-donors-access-national-security-briefings-11925725)
-
-[https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html](https://www.yahoo.com/news/articles/trump-reaaaaaally-didnt-journalist-asking-152826530.html)
-
-[https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1](https://www.youtube.com/watch?v=KXqZNuxKUlQ&list=WL&index=1)
-
-[https://www.youtube.com/watch?v=qepYRy2BTAg](https://www.youtube.com/watch?v=qepYRy2BTAg)
-
-{% include youtubePlayer.html id="qepYRy2BTAg" %}
 
 2026-03-11 The Pentagon banned press reporters from taking photos inside the press briefing room after they published ‘unflattering’ photos of Pete Hegseth.
 

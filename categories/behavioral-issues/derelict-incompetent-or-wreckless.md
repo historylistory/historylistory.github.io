@@ -160,15 +160,15 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824](https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824)
 
-2025-09-17 During a Judiciary Committee Hearing following the Kirk shooting, Congresswoman Jasmine Crocket grilled Patel over his mishandling of the investigation.
-
-{% include youtubePlayer.html id="ruzO8pTcW54" %}
-
 2025-09-11 (context) Trump assigned a former NFL player to the ambassador of the Bahamas. The video of Herschel Walker stumbling through foreign policy questions from Ted Cruz about the Bahamas can be found on YouTube. On February 19th of the following year, during a press conference Trump couldn’t remember where he assigned Walker, stating, “…and now he’s going to be the ambassador of…come on, name the country, Herschel…”.
 
 {% include youtubePlayer.html id="08n2IItLPgE" %}
 
 [https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders](https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders)
+
+2025-09-17 During a Judiciary Committee Hearing following the Kirk shooting, Congresswoman Jasmine Crocket grilled Patel over his mishandling of the investigation.
+
+{% include youtubePlayer.html id="ruzO8pTcW54" %}
 
 ### 2025 October
 
@@ -203,8 +203,6 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://www.huffpost.com/entry/mike-johnson-cnn-supercut-i-dont-know_n_690a0f03e4b04ad08e188350](https://www.huffpost.com/entry/mike-johnson-cnn-supercut-i-dont-know_n_690a0f03e4b04ad08e188350)
 
 [https://publicwitness.wordandway.org/p/mike-johnson-doesnt-know-church-state](https://publicwitness.wordandway.org/p/mike-johnson-doesnt-know-church-state)
-
- 
 
 2025-11-10 Eight Democratic senators joined Republicans in a vote to reopen the government without any concessions like saving affordable health care. During the shutdown, Trump leveraged SNAP benefits for politics and defied judge orders to release them to feed millions of starving Americans, so maybe this is what broke Democrats to cave. This was also when Trump forked over $40B in American taxpayer dollars to help Argentina out while our food pantries were overrun with needy citizens, and nobody voted to take the funds back from that either.
 
@@ -284,6 +282,16 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 {% include youtubePlayer.html id="9pf4HHuszN8" %}
 
+2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
+
+{% include youtubePlayer.html id="iWq2lAFoEa8" %}
+
+[https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/](https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/)
+
+[https://www.cbsnews.com/news/trump-steve-witkoff-iran-enriched-uranium-11-nuclear-bombs/](https://www.cbsnews.com/news/trump-steve-witkoff-iran-enriched-uranium-11-nuclear-bombs/)
+
+[https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/](https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/)
+
 2026-02-27 For the second incident in February 2026, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas, proving there is an ongoing breakdown in communication between agencies.
 
 [https://www.bloomberg.com/news/articles/2026-02-27/pentagon-laser-shoots-down-customs-border-patrol-drone-in-texas](https://www.bloomberg.com/news/articles/2026-02-27/pentagon-laser-shoots-down-customs-border-patrol-drone-in-texas)
@@ -296,15 +304,6 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.thewrap.com/media-platforms/politics/lauren-boebert-stumbles-trying-to-define-inflation/](https://www.thewrap.com/media-platforms/politics/lauren-boebert-stumbles-trying-to-define-inflation/)
 
-2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
-
-{% include youtubePlayer.html id="iWq2lAFoEa8" %}
-
-[https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/](https://www.timesofisrael.com/us-officials-say-diplomatic-path-was-at-dead-end-when-trump-approved-iran-strikes/)
-
-[https://www.cbsnews.com/news/trump-steve-witkoff-iran-enriched-uranium-11-nuclear-bombs/](https://www.cbsnews.com/news/trump-steve-witkoff-iran-enriched-uranium-11-nuclear-bombs/)
-
-[https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/](https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/)
 
 ### 2026 March
 
@@ -381,8 +380,6 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s](https://www.youtube.com/watch?v=SmSXS6ptXzc&list=WL&index=10&t=61s)
 
 [https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
-
-### 2026 March
 
 2026-03-16 Leaked DOGE deposition videos went viral, revealing that DOGE employees used OpenAI’s ChatGPT to determine which agencies and grants to cut, starting with any that referenced DEI. They used AI to indiscriminately take jobs away from dedicated and hard-working people.  
 
