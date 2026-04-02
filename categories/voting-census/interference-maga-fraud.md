@@ -149,3 +149,19 @@ permalink: /categories/voting-census/interference-maga-fraud/
 2026-03-18 Trump tweeted out, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)
+
+### 2026 April
+
+2026-04-01 American Action Network (a dark money PAC?) mailed out misleading fliers in Nebraska saying Democrat Cavanaugh supports the Trump agenda. 
+
+[https://nebraskapublicmedia.org/es/news/news-articles/senator-wants-nebraska-to-exempt-overtime-tips-from-state-taxes/](https://nebraskapublicmedia.org/es/news/news-articles/senator-wants-nebraska-to-exempt-overtime-tips-from-state-taxes/)
+
+[https://en.wikipedia.org/wiki/American_Action_Network](https://en.wikipedia.org/wiki/American_Action_Network)
+
+[https://www.johncavanaugh.org/](https://www.johncavanaugh.org/)
+
+[https://www.reddit.com/r/Omaha/comments/1s9u98n/what_is_this_bullshit/](https://www.reddit.com/r/Omaha/comments/1s9u98n/what_is_this_bullshit/)
+
+[https://www.politifact.com/factchecks/list/?category=&ruling=barely-true&speaker=american-action-network](https://www.politifact.com/factchecks/list/?category=&ruling=barely-true&speaker=american-action-network)
+
+[https://www.foxnews.com/politics/scoop-house-speaker-mike-johnsons-allies-unleash-10m-campaign-spotlight-trump-tax-cuts](https://www.foxnews.com/politics/scoop-house-speaker-mike-johnsons-allies-unleash-10m-campaign-spotlight-trump-tax-cuts)

@@ -234,3 +234,15 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 [https://www.reuters.com/world/us/top-noem-aide-entered-cockpit-before-firing-pilot-over-missing-blanket-sources-2026-02-23/](https://www.reuters.com/world/us/top-noem-aide-entered-cockpit-before-firing-pilot-over-missing-blanket-sources-2026-02-23/)
 
 [https://www.wsj.com/politics/policy/chaos-kristi-noem-homeland-security-f095ac95?gaa_at=eafs&gaa_n=AWEtsqdkNjQ0dQ8iygKNK9rrMC7lqzHKk3X6ynvDCICTH3750-PLnH5KesuyE7gZl2A%3D&gaa_ts=699c5793&gaa_sig=u7RVfFCbDVttyJFAzLJ14heSVqdLdynPtgWq4IpBxzGmBiEfmBL4XLYHA5fvLF3F_gl9gybr3-2N6Y5G7GTfdQ%3D%3D](https://www.wsj.com/politics/policy/chaos-kristi-noem-homeland-security-f095ac95?gaa_at=eafs&gaa_n=AWEtsqdkNjQ0dQ8iygKNK9rrMC7lqzHKk3X6ynvDCICTH3750-PLnH5KesuyE7gZl2A%3D&gaa_ts=699c5793&gaa_sig=u7RVfFCbDVttyJFAzLJ14heSVqdLdynPtgWq4IpBxzGmBiEfmBL4XLYHA5fvLF3F_gl9gybr3-2N6Y5G7GTfdQ%3D%3D)
+
+### 2026 April
+
+2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. 
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/](https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/)
+
+[https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/](https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/)
+
+[https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755](https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755)

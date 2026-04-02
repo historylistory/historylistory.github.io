@@ -95,3 +95,15 @@ permalink: /categories/military-veterans/other/
 [https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
+
+### 2026 April
+
+2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. 
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/](https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/)
+
+[https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/](https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/)
+
+[https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755](https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755)

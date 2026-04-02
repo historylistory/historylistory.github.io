@@ -33,3 +33,4 @@ permalink: /categories/behavioral-issues/lies-flooding-the-zone/
 2025-09-23 Trump claimed multiple times that he has ended 7-to-10 wars.
 
 {% include youtubePlayer.html id="xAE9__z9bTM" %}
+
