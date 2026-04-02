@@ -964,6 +964,22 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 March Week #4
 
+2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+
+[https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
+
+[https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/](https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/)
+
+[https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war](https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war)
+
+[https://www.theguardian.com/us-news/cpac](https://www.theguardian.com/us-news/cpac)
+
+[https://www.youtube.com/shorts/xMqVQbctsmo](https://www.youtube.com/shorts/xMqVQbctsmo)
+
+[https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s](https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s)
+
+{% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
+
 2026-03-23 First, Trump threatened to bomb Iranian power plants if Iran didn’t open the Strait of Hormuz. Then on the 23rd he said he’d postpone the bombings for five days. He also announced on Truth Social that the US was having “constructive” talks with Iran about negotiations, but when asked Iranian officials said there were no such talks happening. Trump claimed he sent his son-in-law to conduct the so-called talks on Sunday March 22nd, and when asked by reporters who he talked to, Trump replied, “a top person”. 
 
 [https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/](https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/)
@@ -1060,3 +1076,27 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.cbc.ca/player/play/video/9.7147083](https://www.cbc.ca/player/play/video/9.7147083)
 
 [https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932](https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932)
+
+2026-03-30 Israel passed a death penalty law specifically for Palestinians.
+
+[https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law](https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law)
+
+[https://www.theguardian.com/world/2026/mar/31/israel-death-penalty-law-international-criticism](https://www.theguardian.com/world/2026/mar/31/israel-death-penalty-law-international-criticism)
+
+[https://www.bbc.com/news/articles/cp8dkd6lnjdo](https://www.bbc.com/news/articles/cp8dkd6lnjdo)
+
+[https://www.reuters.com/world/asia-pacific/eight-muslim-majority-countries-condemn-israels-new-death-penalty-law-2026-04-02/](https://www.reuters.com/world/asia-pacific/eight-muslim-majority-countries-condemn-israels-new-death-penalty-law-2026-04-02/)
+
+[https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill](https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill)
+
+[https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes](https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes)
+
+2026-03-31 Israel IDF gave residents in Beirut 1 hour to evacuate before bombing. Israel said it would establish security sites in southern Lebanon and control the entire area up to the Latani river, keeping 600,000+ people from returning home. The defense minister reported plans to completely demolish all homes in that area. 
+
+[https://www.pbs.org/newshour/world/israel-steps-up-bombing-in-lebanon-as-iran-keeps-stranglehold-on-shipping](https://www.pbs.org/newshour/world/israel-steps-up-bombing-in-lebanon-as-iran-keeps-stranglehold-on-shipping)
+
+[https://www.aljazeera.com/news/2026/3/18/israel-bombs-central-beirut-killing-6-strafes-south-east-lebanon](https://www.aljazeera.com/news/2026/3/18/israel-bombs-central-beirut-killing-6-strafes-south-east-lebanon)
+
+[https://www.youtube.com/watch?v=CLOvmLkYq0o](https://www.youtube.com/watch?v=CLOvmLkYq0o)
+
+[https://www.youtube.com/watch?v=X3mMj0gDZe8&list=WL&index=5&t=25s](https://www.youtube.com/watch?v=X3mMj0gDZe8&list=WL&index=5&t=25s)

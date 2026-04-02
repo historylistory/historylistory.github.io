@@ -267,6 +267,24 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
 
+
+2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+
+[https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
+
+[https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/](https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/)
+
+[https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war](https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war)
+
+[https://www.theguardian.com/us-news/cpac](https://www.theguardian.com/us-news/cpac)
+
+[https://www.youtube.com/shorts/xMqVQbctsmo](https://www.youtube.com/shorts/xMqVQbctsmo)
+
+[https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s](https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s)
+
+{% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
+
+
 2026-03-27 During CPAC Franklin Graham said we have to get Trump re-elected for a third term. Later on he said in a statement to reporters that he “mis-spoke” and meant we had to get Trump’s policies re-elected.
 
 [https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 ](https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 )

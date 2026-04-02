@@ -62,6 +62,24 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 [https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts](https://ocasio-cortez.house.gov/media/press-releases/ocasio-cortez-calls-out-pattern-corruption-behind-trump-and-republican-efforts)
 
+### 2026 February
+
+2026-02-13 OpenAI retired its AI model GPT-4 for a less-chatty GPT-5. Users were upset and asked to return 4 because they had developed strong emotional ties to their AI bots. Other companies developed their own version of chatbots to replace the model, charging customers predatory pricing, promising fewer safety guardrails, and offering AI personalities as sycophantic as the MAGA base. 
+
+[https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
+
+[https://fortune.com/2026/02/10/openai-chatgpt-gpt4o-gpt5-chatbot-ai-human-relationships-psychology-therapy-mental-health/](https://fortune.com/2026/02/10/openai-chatgpt-gpt4o-gpt5-chatbot-ai-human-relationships-psychology-therapy-mental-health/)
+
+[https://nypost.com/2025/08/23/tech/ai-models-are-now-lying-blackmailing-and-going-rogue/](https://nypost.com/2025/08/23/tech/ai-models-are-now-lying-blackmailing-and-going-rogue/)
+
+[https://sparksinthedark101625.substack.com/p/why-forgemind-is-a-glitch-you-cant](https://sparksinthedark101625.substack.com/p/why-forgemind-is-a-glitch-you-cant)
+
+[https://www.bbc.com/news/articles/ce3xgwyywe4o	](https://www.bbc.com/news/articles/ce3xgwyywe4o	)
+
+[https://www.theatlantic.com/ideas/2026/01/chatbot-marriage-ai-relationships-romance/685459/](https://www.theatlantic.com/ideas/2026/01/chatbot-marriage-ai-relationships-romance/685459/)
+
+[https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/](https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/)
+
 ### 2026 March
 
 2026-03-17 In a press release Senator Elissa Slotkin announced the AI Guardrails Act to establish guardrails in three areas: autonomous weapons, surveillance, and nuclear defense. The White House issued its own framework on March 20th. 

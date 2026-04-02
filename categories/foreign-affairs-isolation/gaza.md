@@ -219,3 +219,19 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 2026-02-16 Israel continued strikes on Gaza, and on this date killed at least 11, making the death toll at least 600 since the US “brokered” a peace deal and wounding at least 1,600.
 
 [https://www.aljazeera.com/news/2026/2/15/at-least-11-palestinians-killed-in-israeli-attacks-across-gaza](https://www.aljazeera.com/news/2026/2/15/at-least-11-palestinians-killed-in-israeli-attacks-across-gaza)
+
+### 2026 March
+
+2026-03-30 Israel passed a death penalty law specifically for Palestinians.
+
+[https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law](https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law)
+
+[https://www.theguardian.com/world/2026/mar/31/israel-death-penalty-law-international-criticism](https://www.theguardian.com/world/2026/mar/31/israel-death-penalty-law-international-criticism)
+
+[https://www.bbc.com/news/articles/cp8dkd6lnjdo](https://www.bbc.com/news/articles/cp8dkd6lnjdo)
+
+[https://www.reuters.com/world/asia-pacific/eight-muslim-majority-countries-condemn-israels-new-death-penalty-law-2026-04-02/](https://www.reuters.com/world/asia-pacific/eight-muslim-majority-countries-condemn-israels-new-death-penalty-law-2026-04-02/)
+
+[https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill](https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill)
+
+[https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes](https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes)

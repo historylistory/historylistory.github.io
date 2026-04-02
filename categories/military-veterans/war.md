@@ -146,6 +146,23 @@ permalink: /categories/military-veterans/war/
 
 {% include youtubePlayer.html id="AXwyCbAm6t4" %}
 
+2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+
+[https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
+
+[https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/](https://www.cbsnews.com/news/cpac-republicans-trump-iran-war-bannon/)
+
+[https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war](https://www.theguardian.com/us-news/2026/mar/29/cpac-maga-anxiety-iran-war)
+
+[https://www.theguardian.com/us-news/cpac](https://www.theguardian.com/us-news/cpac)
+
+[https://www.youtube.com/shorts/xMqVQbctsmo](https://www.youtube.com/shorts/xMqVQbctsmo)
+
+[https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s](https://www.youtube.com/watch?v=aYZC0-FKEJM&t=16s)
+
+{% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
+
+
 2026-03-24 In a statement, former Pentagon chief and widely regarded former Marine Jim Mattis said, “I can’t identify a lot of good options” to resolve the conflict (in Iran) without significant loss or long-term commitment. He also said, “I think that what we’re seeing is a situation where targetry never makes up for a lack of strategy”. FYI nicknames: “Warrior Monk”, “Mad-Dog Mattis”, and “General Chaos”. 
 
 [https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s](https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s)

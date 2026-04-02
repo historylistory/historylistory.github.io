@@ -213,3 +213,14 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://home.treasury.gov/news/press-releases/sb0425](https://home.treasury.gov/news/press-releases/sb0425)
 
+2026-03-31 Trump shared images of a towering 50-story glass skyscraper he wants for his presidential library. It has a golden escalator and the lobby will feature the Saudi jet he was gifted, a theater featuring a gold statue of himself, his “walk of fame”, and other things.
+
+[https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4](https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4)
+
+[https://www.reuters.com/world/us/huge-glass-skyscraper-envisioned-trump-presidential-library-ai-video-2026-03-31/](https://www.reuters.com/world/us/huge-glass-skyscraper-envisioned-trump-presidential-library-ai-video-2026-03-31/)
+
+[https://www.wsj.com/politics/elections/trump-reveals-presidential-library-design-a-glass-tower-in-miami-93869254](https://www.wsj.com/politics/elections/trump-reveals-presidential-library-design-a-glass-tower-in-miami-93869254)
+
+[https://newrepublic.com/post/208455/donald-trump-presidential-library-make-money-hotel](https://newrepublic.com/post/208455/donald-trump-presidential-library-make-money-hotel)
+
+[https://www.theatlantic.com/ideas/2026/04/trump-library-money-power-jet/686643/](https://www.theatlantic.com/ideas/2026/04/trump-library-money-power-jet/686643/)

@@ -6,6 +6,19 @@ subcategory_slug: ai-bad-behavior-influence
 permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 ---
 
+### 2025 
+
+2025-01-01 People developed relationships with AI chatbots.
+
+[https://www.wired.com/story/couples-retreat-with-3-ai-chatbots-and-humans-who-love-them-replika-nomi-chatgpt/](https://www.wired.com/story/couples-retreat-with-3-ai-chatbots-and-humans-who-love-them-replika-nomi-chatgpt/)
+
+[https://www.youtube.com/watch?v=_d08BZmdZu8&t=264s](https://www.youtube.com/watch?v=_d08BZmdZu8&t=264s)
+
+[https://www.theguardian.com/commentisfree/2025/nov/15/somebody-to-love-should-ai-relationships-stay-taboo-or-will-they-become-the-intelligent-choice](https://www.theguardian.com/commentisfree/2025/nov/15/somebody-to-love-should-ai-relationships-stay-taboo-or-will-they-become-the-intelligent-choice)
+
+[https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
+
+
 ### 2025 July
 
 2025-07-09 A news article reported that Elon Musk’s Grok gave step-by-step instructions how to break in and rape.
@@ -91,6 +104,23 @@ permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 [https://www.fastcompany.com/91493794/meta-patents-ai-dead-people-posting](https://www.fastcompany.com/91493794/meta-patents-ai-dead-people-posting)
 
 [https://futurism.com/future-society/meta-patented-ai-die-keeps-posting](https://futurism.com/future-society/meta-patented-ai-die-keeps-posting)
+
+2026-02-13 OpenAI retired its AI model GPT-4 for a less-chatty GPT-5. Users were upset and asked to return 4 because they had developed strong emotional ties to their AI bots. Other companies developed their own version of chatbots to replace the model, charging customers predatory pricing, promising fewer safety guardrails, and offering AI personalities as sycophantic as the MAGA base. 
+
+[https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
+
+[https://fortune.com/2026/02/10/openai-chatgpt-gpt4o-gpt5-chatbot-ai-human-relationships-psychology-therapy-mental-health/](https://fortune.com/2026/02/10/openai-chatgpt-gpt4o-gpt5-chatbot-ai-human-relationships-psychology-therapy-mental-health/)
+
+[https://nypost.com/2025/08/23/tech/ai-models-are-now-lying-blackmailing-and-going-rogue/](https://nypost.com/2025/08/23/tech/ai-models-are-now-lying-blackmailing-and-going-rogue/)
+
+[https://sparksinthedark101625.substack.com/p/why-forgemind-is-a-glitch-you-cant](https://sparksinthedark101625.substack.com/p/why-forgemind-is-a-glitch-you-cant)
+
+[https://www.bbc.com/news/articles/ce3xgwyywe4o	](https://www.bbc.com/news/articles/ce3xgwyywe4o	)
+
+[https://www.theatlantic.com/ideas/2026/01/chatbot-marriage-ai-relationships-romance/685459/](https://www.theatlantic.com/ideas/2026/01/chatbot-marriage-ai-relationships-romance/685459/)
+
+[https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/](https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/)
+
 
 2026-02-27 An AI-integrated phone tree for customer service with the Washington State DOL hotline gave option 2 for Spanish, then offered an English-speaking chatbot with a heavy Spanish accent.
 
