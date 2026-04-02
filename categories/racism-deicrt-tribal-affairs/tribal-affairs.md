@@ -52,6 +52,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 {% include youtubePlayer.html id="F6doRiySIB0" %}
 
+### 2025 September
+
+2025-09-15 Jacqueline De Leon of the Native American Rights Fund was interviewed by Katie Phang, stating how Native American rights are impacted by voting discrimination rulings. She discussed Section 2 of the Voting Rights Act potentially being on the chopping block by fall.
+
+{% include youtubePlayer.html id="rRl5uTme5Kw" %}
+
 ### 2025 November
 
 2025-11-28 Elaine Miles, a member of the Confederated Tribes of the Umatilla Indian Reservation and known for her acting role in Northern Exposure, was detained and questioned by ICE. News outlets reported that when she provided her tribal identification card, ICE accused her of providing a fake ID. (For context, the Navajo Nations had issued a warning to citizens back in January 2025 for ICE agents profiling Native Americans).

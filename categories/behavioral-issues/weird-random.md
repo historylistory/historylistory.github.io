@@ -24,6 +24,12 @@ permalink: /categories/behavioral-issues/weird-random/
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
+### 2024
+
+2024-06-19 Trump claimed that Joan Rivers voted for him in 2016, even though she passed in 2014
+
+[https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303](https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303)
+
 ### 2025 October
 
 2025-10-14 While on the Benny Johnson podcast to promote his book, Eric Trump claimed his father – Donald Trump – was saving the church, saving God, and saving religion.

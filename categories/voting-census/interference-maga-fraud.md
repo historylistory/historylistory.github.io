@@ -16,7 +16,7 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 ### 2017
 
-2017-01-25 News outlets report Steve Bannon, Tiffany Trump and Steven Mnuchin were all registered to vote in more than one state.
+2017-01-25 News outlets reported that Steve Bannon, Tiffany Trump and Steven Mnuchin were all registered to vote in more than one state.
 
 [https://www.theguardian.com/us-news/2017/jan/25/steve-bannon-voter-registration-trump-election-voter-fraud](https://www.theguardian.com/us-news/2017/jan/25/steve-bannon-voter-registration-trump-election-voter-fraud)
 
@@ -112,7 +112,7 @@ permalink: /categories/voting-census/interference-maga-fraud/
 
 ### 2025 October
 
-2025-10-13 A Rolling Stone news article headline read, “The Right’s secret plan to help billionaires buy elections”.
+2025-10-13 A Rolling Stone news article headline reads, “The Right’s secret plan to help billionaires buy elections”.
 
 [https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/](https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/)
 
