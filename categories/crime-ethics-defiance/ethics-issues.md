@@ -48,35 +48,21 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2009
 
-2009-05-30 In 2009 Republicans pissed their pants over the Obamas attending a Broadway play, yet in 2025 through 2026 they made zero mention of
-
-JD Vance pressuring the Army Corps of Engineers to release river water for his birthday,
-
-Kash Patel using a government jet to visit his girlfriend numerous times,
-
-Kristi Noem spending $250M in taxpayer money to fund a selfie-campaign disguised as ICE commercials,
-
-Trump destroying the White House for his ballroom,
-
-The Trump administration stealing of SNAP funds from children,
-
-The Trump administration spending billions and trillions in taxpayer money to fund an elective war in Iran,
-
-Trump suing the DOJ and making taxpayers give him $230M,
-
-Trump sending $40B in American taxpayer dollars to fund Argentina,
-
-DOGE firings that cost American taxpayers roughly $135B,
-
-Forcing American taxpayers to fund rich private schools while cutting funding to public schools,
-
-Passing tariff costs onto American taxpayers,
-
-Charging American taxpayers $125M to rebrand the Department of Defense as the Department of War,
-
-Forcing taxpayers to foot the bill for a lawsuit Trump filed with the IRS and Treasury for $10B, or
-
-Rerouting $8B in national emergency funds into building the border wall.
+2009-05-30 In 2009 Republicans pissed their pants over the Obamas attending a Broadway play, yet in 2025 through 2026 they took little accountability for:
+~~~ JD Vance pressuring the Army Corps of Engineers to release river water for his birthday,
+~~~ Kash Patel using a government jet to visit his girlfriend numerous times,
+~~~ Kristi Noem spending $250M in taxpayer money to fund a selfie-campaign disguised as ICE commercials,
+~~~ Trump destroying the White House for his ballroom,
+~~~ The Trump administration stealing of SNAP funds from children,
+~~~ The Trump administration spending billions and trillions in taxpayer money to fund an elective war in Iran,
+~~~ Trump suing the DOJ and making taxpayers give him $230M,
+~~~ Trump sending $40B in American taxpayer dollars to fund Argentina,
+~~~ DOGE firings that cost American taxpayers roughly $135B,
+~~~ Forcing American taxpayers to fund rich private schools while cutting funding to public schools,
+~~~ Passing tariff costs onto American taxpayers,
+~~~ Charging American taxpayers $125M to rebrand the Department of Defense as the Department of War,
+~~~ Forcing taxpayers to foot the bill for a lawsuit Trump filed with the IRS and Treasury for $10B, or
+~~~ Rerouting $8B in national emergency funds into building the border wall.
 
 [https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/](https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/)
 
