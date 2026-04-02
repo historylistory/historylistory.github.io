@@ -6,12 +6,6 @@ subcategory_slug: declaring-christian-superiority
 permalink: /categories/religion/declaring-christian-superiority/
 ---
 
-### 2021
-
-2021-11-01 I just want to start this section off by showing you something I found about Doug Wilson, the leader of the Christian Nationalist movement and Pete Hegseth’s mentor. Have you seen this imagery on canonplus.com of his flamethrower antics, sitting amidst fireballs smoking a cigar?
-
-[https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
-
 ### 2025 January
 
 2025-01-20 Project 2025 page 589 mandates additional pay in observance of Sundays but completely bypasses all other religious observances. If you do for one, you must do for everybody.

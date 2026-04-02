@@ -46,7 +46,7 @@ permalink: /categories/religion/performative-behavior/
 
 ### 2026 February
 
-2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt statis if leaders “say something bad about him”. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
+2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt status if leaders “say something bad about" him. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
 
 {% include youtubePlayer.html id="7hmzdUBt0M4" %}
 
@@ -58,7 +58,7 @@ permalink: /categories/religion/performative-behavior/
 
 ### 2026 March
 
-2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
+2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. Weaponizing faith for domination and power might be a sin. 
 
 [https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
 

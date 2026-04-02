@@ -16,7 +16,7 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2021
 
-2021-11-01 It’s scarier more than it is cringe, but anyone see Doug Wilson’s creepy flamethrower videos?
+2021-11-01 Check out Doug Wilson’s creepy flamethrower videos on his website.
 
 [https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
 

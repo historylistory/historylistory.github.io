@@ -42,7 +42,11 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 2019-02-28 Fox News published an article claiming that the Trump administration spearheaded an initiative to end criminalization of homosexuality worldwide. They also claimed in that article that LGBTQ+ groups called it a stunt and were skeptical. 
 [https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt](https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt)
 
+### 2023
 
+2023-03-03 In a news story out of Tennessee Ken Peters of Patriot Church offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
+
+[https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 
 ### 2024
 

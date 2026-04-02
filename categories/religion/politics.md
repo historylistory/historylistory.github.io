@@ -38,7 +38,7 @@ permalink: /categories/religion/politics/
 
 ### 2016
 
-2016-11-08 Michele Bachmann and David Barton hosted "Election Coverage in the Spirit of Faith", which was organized by Kenneth Copeland ministries.
+2016-11-08 Michele Bachmann and David Barton hosted "Election Coverage in the Spirit of Faith", which was organized by Kenneth Copeland ministries. Weaponizing faith for control in politics might be a sin.
 
 [https://www.peoplefor.org/rightwingwatch/post/michele-bachmann-on-donald-trumps-victory-the-lord-did-this](https://www.peoplefor.org/rightwingwatch/post/michele-bachmann-on-donald-trumps-victory-the-lord-did-this)
 
@@ -73,7 +73,7 @@ permalink: /categories/religion/politics/
 
 ### 2023
 
-2023-03-03 A news outlet reported that Ken Peters of Patriot Church in Tennessee aims to blend religion and politics. In the news video Peters offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
+2023-03-03 In a news story out of Tennessee Ken Peters of Patriot Church offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 

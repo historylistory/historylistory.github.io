@@ -30,7 +30,7 @@ There are roughly **400,000 churches** in the U.S. nationwide, but only **12,000
 
 ### 1996
 
-1996-01-01 Peter Wagner started the New Apostolic Reformation. Context: They follow the Seven Mountain Mandate, dominion theology, and they make up approximately 41% of America.
+1996 Peter Wagner started the New Apostolic Reformation. Context: They follow the Seven Mountain Mandate, dominion theology, and they make up approximately 41% of America.
 
 [https://www.gotquestions.org/New-Apostolic-Reformation.html](https://www.gotquestions.org/New-Apostolic-Reformation.html)
 

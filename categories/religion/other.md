@@ -6,7 +6,13 @@ subcategory_slug: other
 permalink: /categories/religion/other/
 ---
 
-### April
+### 2021 
+
+2021-11-01 Check out Doug Wilson’s creepy flamethrower videos on his website.
+
+[https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
+
+### 2025 April
 
 2025-04-21 The day Pope Francis died, MJT tweeted, “Today there were major shifts in global leaderships. Evil is being defeated by the hand of God”.
 
