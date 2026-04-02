@@ -54,7 +54,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2024 March
 
-2024-03-01 The phrase "Didn't Earn It" started to emerge more on social media.
+2024-03-01 The phrase "Didn't Earn It" emerged.
 
 2024-03-01(For context – just interesting comparison to anti-DEI) Around this time, the US Department of Education updated their FAFSA form to include more racial subcategories for whites.
 

@@ -50,7 +50,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
 
-2017-08-15 David Duke submitted a social media post thanking Trump for his **kind words about the protesters at the Unite the Right rally**. In his post he referenced ANTIFA.
 
 ### 2022
 
@@ -122,7 +121,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 October
 
-2025-10-14 News outlets reported that residents of Mechanicsburg PA were finding KKK recruitment handouts in their children’s Halloween candy after they held an annual Halloween parade. Following the discovery, residents held a Note hate in Our State town hall on October 29th to protest.
+2025-10-14 Residents of Mechanicsburg PA were finding KKK recruitment handouts in their children’s Halloween candy after they held an annual Halloween parade. Following the discovery, residents held a Note hate in Our State town hall on October 29th to protest.
 
 [https://www.pa.gov/agencies/phrc/phrc-news---information/newsroom/phrc-hosts--no-hate-in-our-state--town-hall-in-mechanicsburg](https://www.pa.gov/agencies/phrc/phrc-news---information/newsroom/phrc-hosts--no-hate-in-our-state--town-hall-in-mechanicsburg)
 
@@ -152,7 +151,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 November
 
-2025-11-03 News outlets and online sources begin to report on a rift between the MAGAverse and Ben Shapiro, particularly after Shapiro criticized Tucker Carlson for featuring Nick Fuentes and normalizing white supremacy.
+2025-11-03 Right wing podcaster Ben Shapiro criticized Tucker Carlson for featuring Nick Fuentes and normalizing white supremacy.
 
 [https://www.jpost.com/diaspora/antisemitism/article-873261](https://www.jpost.com/diaspora/antisemitism/article-873261)
 
@@ -214,7 +213,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.newsnationnow.com/politics/elon-musk-repost-white-diatribe/](https://www.newsnationnow.com/politics/elon-musk-repost-white-diatribe/)
 
-2026-01-09 The White House started sharing posts using the neo-nazi anthem “We’ll have our home again”.
+2026-01-09 The White House shared posts with the neo-nazi anthem “We’ll have our home again”.
 
 [https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html](https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html)
 
@@ -240,10 +239,10 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.timesofisrael.com/larry-ellison-renamed-superyacht-whose-name-backwards-was-im-a-nazi/](https://www.timesofisrael.com/larry-ellison-renamed-superyacht-whose-name-backwards-was-im-a-nazi/)
 
-2026-01-17 Border Patrol Chief Bovino was caught on video cosplaying in a bizarre Nazi overcoat.
+2026-01-17 Border Patrol Chief Bovino was caught on video cosplaying in a Nazi overcoat.
 
 [https://www.msn.com/en-us/news/world/border-patrol-chief-bovino-accused-of-nazi-cosplay-with-bizarre-uniform-in-minneapolis/ar-AA1UpVJo](https://www.msn.com/en-us/news/world/border-patrol-chief-bovino-accused-of-nazi-cosplay-with-bizarre-uniform-in-minneapolis/ar-AA1UpVJo)
 
-2026-01-19 Nick Fuentes and the Tate brothers drew intense backlash at a Miami beach nightclub for playing Heil Hitler.
+2026-01-19 Nick Fuentes and the Tate brothers caused a scene at a Miami beach nightclub for playing Heil Hitler.
 
 [https://www.miamiherald.com/news/local/community/miami-dade/article314415845.html](https://www.miamiherald.com/news/local/community/miami-dade/article314415845.html)
