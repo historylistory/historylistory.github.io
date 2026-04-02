@@ -42,7 +42,7 @@ permalink: /categories/religion/school/
 
 ### Bibles
 
-2024-03-26 (context for later) Trump announced the rebranding of the Lee Greenwood Bible as the Trump Bible. Trump bibles are manufactured in China for $3 each and sold in the US for $59.99.
+2024-03-26 Trump announced the rebranding of the Lee Greenwood Bible as the Trump Bible. Trump bibles are manufactured in China for $3 each and sold in the US for $59.99.
 
 [https://www.thenation.com/article/politics/trump-bibles-lee-greenwood/#](https://www.thenation.com/article/politics/trump-bibles-lee-greenwood/)
 
@@ -62,13 +62,13 @@ permalink: /categories/religion/school/
 
 ### Private Schools
 
-2024-06-03 News outlets reported that billions of taxpayer dollars now fund private religious schools, leaving out religious minorities while digging into public school funding.
+2024-06-03 Billions of taxpayer dollars now fund private religious schools, leaving out religious minorities while digging into public school funding.
 
 [https://www.washingtonpost.com/nation/2024/06/03/tax-dollars-religious-schools/](https://www.washingtonpost.com/nation/2024/06/03/tax-dollars-religious-schools/)
 
 [https://www.washingtonpost.com/video/national/billions-of-taxpayer-dollars-now-go-to-religious-schools/2024/06/03/094449c2-9e9b-44d9-83b2-4eb5a6354465_video.html](https://www.washingtonpost.com/video/national/billions-of-taxpayer-dollars-now-go-to-religious-schools/2024/06/03/094449c2-9e9b-44d9-83b2-4eb5a6354465_video.html)
 
-2025-04-29 Religious charter schools in Oklahoma requested taxpayer money grants to fund their schools, which threatens to drain funds that should go to public education.
+2025-04-29 Religious charter schools in Oklahoma requested taxpayer money grants to fund their schools, draining funds that should go to public education.
 
 [https://www.nea.org/nea-today/all-news-articles/will-supreme-court-force-states-fund-religious-charter-schools](https://www.nea.org/nea-today/all-news-articles/will-supreme-court-force-states-fund-religious-charter-schools)
 

@@ -68,6 +68,10 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 {% include youtubePlayer.html id="xk94il8L820" %}
 
+2025-04-29 Religious charter schools in Oklahoma requested taxpayer money grants to fund their schools, draining funds that should go to public education.
+
+[https://www.nea.org/nea-today/all-news-articles/will-supreme-court-force-states-fund-religious-charter-schools](https://www.nea.org/nea-today/all-news-articles/will-supreme-court-force-states-fund-religious-charter-schools)
+
 ### 2025 May
 
 2025-05-02 The Trump administration cut funding to after-school care programs, leaving increased strain on working families, gaps in learning and support since it also affects summer school programs, and disrupted partnerships between cities and nonprofits. 
