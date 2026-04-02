@@ -82,7 +82,7 @@ permalink: /categories/women-reproductive-rights/feminism-v-manosphere/
 
 ### 2026 February
 
-2026-02-02 Texas A&M announced it would be cutting Women’s Studies due to policy on race and gender topics. So Stephen Miller’s anti-women’s study agenda sort of came to fruition.
+2026-02-02 Texas A&M announced it would be cutting Women’s Studies due to policy on race and gender topics. 
 
 [https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/](https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/)
 

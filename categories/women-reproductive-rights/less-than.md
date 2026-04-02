@@ -153,7 +153,7 @@ An excerpt from Project 2026 on the Heritage Foundation website, titled **Saving
 
 [https://www.nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html](https://www.nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html)
 
-2026-02-04 Elon Musk reposted from PubWanghaf “It breaks my heart to say but in order to save this country we are probably going to have to do things that make women sad :(“. In his repost, Elon Musk wrote “True words”.
+2026-02-04 Elon Musk reposted from PubWanghaf "It breaks my heart to say but in order to save this country we are probably going to have to do things that make women sad". In his repost, Elon Musk wrote “True words”.
 
 [https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists](https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists)
 
