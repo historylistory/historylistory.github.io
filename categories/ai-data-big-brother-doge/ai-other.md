@@ -6,6 +6,21 @@ subcategory_slug: ai-other
 permalink: /categories/ai-data-big-brother-doge/ai-other/
 ---
 
+### 2025 November
+
+2025-11-24 Free open-source AI agent framework OpenClaw was released. It isn’t quite a chatbot. It acts on behalf of the user to run shell commands, manage files, and navigate browsers. 
+
+[https://www.malwarebytes.com/blog/news/2026/02/openclaw-what-is-it-and-can-you-use-it-safely](https://www.malwarebytes.com/blog/news/2026/02/openclaw-what-is-it-and-can-you-use-it-safely)
+
+[https://news.northeastern.edu/2026/02/10/open-claw-ai-assistant/](https://news.northeastern.edu/2026/02/10/open-claw-ai-assistant/)
+
+[https://www.digitalocean.com/resources/articles/what-is-openclaw](https://www.digitalocean.com/resources/articles/what-is-openclaw)
+
+[https://www.clarifai.com/blog/what-is-openclaw/](https://www.clarifai.com/blog/what-is-openclaw/)
+
+[https://www.youtube.com/watch?v=R_2YN1MungI&list=WL&index=2&t=197s](https://www.youtube.com/watch?v=R_2YN1MungI&list=WL&index=2&t=197s)
+
+
 ### 2026 February
 
 2026-02-02 Adobe announced plans to completely get rid of Adobe Animate by March 1st and instead reinvest in AI. The company later changed their announcement after huge backlash from investors and businesses.

@@ -285,6 +285,13 @@ It would also make it a felony to give someone information about where to get a
 
 [https://msmagazine.com/2025/11/24/south-carolina-abortion-sb-323/](https://msmagazine.com/2025/11/24/south-carolina-abortion-sb-323/)
 
+### 2025 December
+
+2025-12-26 Karoline Leavitt announced she’s pregnant.
+
+[https://www.youtube.com/watch?v=GDRPN6cmWEg](https://www.youtube.com/watch?v=GDRPN6cmWEg)
+
+
 ### 2026 March
 
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.

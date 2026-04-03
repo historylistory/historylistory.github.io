@@ -166,6 +166,30 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 
 [https://www.courthousenews.com/european-leaders-in-phone-call-voiced-distrust-of-us-over-ukraine-report/](https://www.courthousenews.com/european-leaders-in-phone-call-voiced-distrust-of-us-over-ukraine-report/)
 
+2025-12-31 (abroad) Reports from late 2025 and early 2026 showed systemic torture and execution of Russian soldiers by their commands, involving methods of beating, electrocution, sexual assault, being bound in ties and wrap, tied to trees in the winter and left to freeze, hit in the head with guns and shovels, and multiple other methods.
+
+[https://www.bbc.com/news/articles/cz7gw3l395ro](https://www.bbc.com/news/articles/cz7gw3l395ro)
+
+[https://www.theguardian.com/world/2025/oct/30/russian-army-chiefs-torturing-and-executing-soldiers-who-refuse-to-fight-in-ukraine-report-says](https://www.theguardian.com/world/2025/oct/30/russian-army-chiefs-torturing-and-executing-soldiers-who-refuse-to-fight-in-ukraine-report-says)
+
+[https://www.rferl.org/a/ukraine-russia-war-torture-prisoners-human-rights/32131995.html](https://www.rferl.org/a/ukraine-russia-war-torture-prisoners-human-rights/32131995.html)
+
+[https://www.cbsnews.com/news/russia-soldiers-killed-american-russell-bentley-fought-pro-moscow-forces-sentenced/](https://www.cbsnews.com/news/russia-soldiers-killed-american-russell-bentley-fought-pro-moscow-forces-sentenced/)
+
+[https://news.un.org/en/story/2023/09/1141417](https://news.un.org/en/story/2023/09/1141417)
+
+[https://news.un.org/en/story/2024/09/1154706](https://news.un.org/en/story/2024/09/1154706)
+
+[https://www.ndtv.com/world-news/russia-ukraine-war-russian-soldiers-allege-torture-execution-for-refusing-orders-in-ukraine-war-11133124](https://www.ndtv.com/world-news/russia-ukraine-war-russian-soldiers-allege-torture-execution-for-refusing-orders-in-ukraine-war-11133124)
+
+[https://www.dw.com/en/why-does-the-russian-armys-brutal-culture-go-unchecked/a-74750242](https://www.dw.com/en/why-does-the-russian-armys-brutal-culture-go-unchecked/a-74750242)
+
+[https://www.nytimes.com/interactive/2025/12/31/world/europe/russia-military-abuse-soldiers.html](https://www.nytimes.com/interactive/2025/12/31/world/europe/russia-military-abuse-soldiers.html)
+
+[https://www.youtube.com/watch?v=FOH2DMFFjmM](https://www.youtube.com/watch?v=FOH2DMFFjmM)
+
+[https://www.youtube.com/watch?v=J-wYTmHSx3c&list=WL&index=1](https://www.youtube.com/watch?v=J-wYTmHSx3c&list=WL&index=1)
+
 ### 2026 March
 
 2026-03-05 The US asked Ukraine for help shooting down Iranian drones.

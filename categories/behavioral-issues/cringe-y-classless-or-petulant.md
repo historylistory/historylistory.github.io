@@ -269,6 +269,24 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://www.foxnews.com/politics/white-house-trolls-democrats-over-ballroom-meltdown-adds-cocaine-clinton-obama-scandals-timeline](https://www.foxnews.com/politics/white-house-trolls-democrats-over-ballroom-meltdown-adds-cocaine-clinton-obama-scandals-timeline)
 
+
+
+### 2025 November
+
+2025-11-20 Karoline Leavitt had Getty images scrub a photo of her because it was too ‘unflattering’. 
+
+[https://newrepublic.com/post/208387/white-house-blocks-photo-karoline-leavitt-turkey-neck](https://newrepublic.com/post/208387/white-house-blocks-photo-karoline-leavitt-turkey-neck)
+
+[https://people.com/karoline-leavitt-photo-removed-unflattering-11938189](https://people.com/karoline-leavitt-photo-removed-unflattering-11938189)
+
+[https://www.irishstar.com/news/us-news/karoline-leavitt-picture-deleted-turkey-36947655](https://www.irishstar.com/news/us-news/karoline-leavitt-picture-deleted-turkey-36947655)
+
+[https://www.comicsands.com/white-house-leavitt-photo](https://www.comicsands.com/white-house-leavitt-photo)
+
+[https://www.thelist.com/2137365/unflattering-photos-karoline-leavitt-doesnt-want-you-to-see/](https://www.thelist.com/2137365/unflattering-photos-karoline-leavitt-doesnt-want-you-to-see/)
+
+
+
 ### 2025 December
 
 2025-12-10 The U.S. seized a Venezuelan oil tanker amidst allegations of piracy. DHS posted a content video of the seizure to the hip hop tune of “Momma Said Knock You Out” by LL Cool J.
