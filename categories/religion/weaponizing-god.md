@@ -31,3 +31,16 @@ There is much to cover; still trying to gather. However, such events are peppere
 [https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy](https://www.pbs.org/newshour/politics/at-pentagon-christian-service-hegseth-prays-for-violence-against-those-who-deserve-no-mercy)
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/](https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/)
+
+
+### 2026 April
+
+2026-04-01 Pope Leo condemned the war in Iran, saying leaders who start wars have hands full of blood. He said, “Even though you make many prayers, I will not listen.  Your hands are full of blood”. This came after Pete Hegseth prayed for “overwhelming violence” against his enemies, invoking the name of Jesus Christ for bloodshed. 
+
+[https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2](https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2)
+
+[https://ewtnvatican.com/articles/pope-leo-xiv-god-does-not-hear-prayers-for-war](https://ewtnvatican.com/articles/pope-leo-xiv-god-does-not-hear-prayers-for-war)
+
+[https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/](https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/)
+
+[https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war](https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war)

@@ -260,3 +260,21 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 [https://www.nbcnews.com/video/shorts/trump-says-people-with-learning-disorders-shouldn-t-be-president-259606085749](https://www.nbcnews.com/video/shorts/trump-says-people-with-learning-disorders-shouldn-t-be-president-259606085749)
 
 [https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/](https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/)
+
+### 2026 April
+
+2026-04-01 Trump appeared as a “silent observer” for the Supreme Court hearing on his Executive Order to end birthright citizenship and the 14th Amendment.
+
+[https://www.bbc.com/news/videos/ce8l27p3jr8o](https://www.bbc.com/news/videos/ce8l27p3jr8o)
+
+[https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/](https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/)
+
+[https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump](https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump)
+
+[https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing](https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing)
+
+[https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration](https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration)
+
+[https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case](https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case)
+
+[https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)

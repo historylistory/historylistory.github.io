@@ -119,6 +119,21 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump](https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump)
 
+
+
+2026-03-30 The press learned the massive ballroom project also includes a massive military complex/bunker below.
+
+[https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/](https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/)
+
+[https://www.wonkette.com/p/judge-rules-bulldozers-down-for-trumps](https://www.wonkette.com/p/judge-rules-bulldozers-down-for-trumps)
+
+[https://www.nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html](https://www.nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html)
+
+[https://www.aol.com/articles/karoline-leavitt-blasts-nyt-ballroom-132647609.html](https://www.aol.com/articles/karoline-leavitt-blasts-nyt-ballroom-132647609.html)
+
+[https://people.com/donald-trump-says-military-is-building-complex-under-white-house-ballroom-11936999](https://people.com/donald-trump-says-military-is-building-complex-under-white-house-ballroom-11936999)
+
+
 2026-03-31 A judge temporarily blocked Trump’s White House ballroom project, writing, “The President of the United States is the steward of the White House for future generations of First Families. He is not, however, the owner”. 
 
 [https://www.cnbc.com/2026/03/31/trump-white-house-ballroom-judge.html](https://www.cnbc.com/2026/03/31/trump-white-house-ballroom-judge.html)
@@ -128,3 +143,6 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.cnn.com/2026/03/31/politics/judge-rules-that-white-house-ballroom-contstuction-stop](https://www.cnn.com/2026/03/31/politics/judge-rules-that-white-house-ballroom-contstuction-stop)
 
 [https://www.reuters.com/world/us-judge-halts-trumps-400-million-white-house-ballroom-project-now-2026-03-31/](https://www.reuters.com/world/us-judge-halts-trumps-400-million-white-house-ballroom-project-now-2026-03-31/)
+
+### 2026 April
+

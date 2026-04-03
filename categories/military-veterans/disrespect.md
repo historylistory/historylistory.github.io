@@ -119,3 +119,17 @@ permalink: /categories/military-veterans/disrespect/
 [https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms](https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms)
 
 [https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html](https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html)
+
+### 2026 April
+
+2026-04-01 Hegseth nullified the investigation into the pilot who used an Apache helicopter to perform a low fly-by of Kid Rock’s mansion. So now MAGA leaders are undermining Army control over investigations into military matters. In an X post Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
+
+[https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html](https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html)
+
+[https://x.com/PeteHegseth/status/2039109100282196436](https://x.com/PeteHegseth/status/2039109100282196436)
+
+[https://www.npr.org/2026/04/01/nx-s1-5769800/suspension-lifted-helicopter-pilots-kid-rock](https://www.npr.org/2026/04/01/nx-s1-5769800/suspension-lifted-helicopter-pilots-kid-rock)
+
+[https://abc7.com/post/army-says-reviewing-helicopters-flying-low-hovering-kid-rocks-home/18816103](https://abc7.com/post/army-says-reviewing-helicopters-flying-low-hovering-kid-rocks-home/18816103)
+
+[https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)

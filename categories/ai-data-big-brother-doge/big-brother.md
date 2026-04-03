@@ -40,6 +40,17 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 
 [https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf](https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf)
 
+### 2017
+
+2017-04-01 Project Mavin is a Palantir-run system which helps the Pentagon pick bomb targets. 
+
+[https://en.wikipedia.org/wiki/Project_Maven](https://en.wikipedia.org/wiki/Project_Maven)
+
+[https://www.democracynow.org/2026/3/31/project_maven_manson_bloomberg_ai_warfare](https://www.democracynow.org/2026/3/31/project_maven_manson_bloomberg_ai_warfare)
+
+[https://www.youtube.com/watch?v=rsZH6ZNV1CY&list=WL&index=3&t=17s](https://www.youtube.com/watch?v=rsZH6ZNV1CY&list=WL&index=3&t=17s)
+
+
 ### 2021
 
 2021-06-04 Legislation was passed to require new automobiles to have a “kill switch”. It was implemented under the HALT Drunk Driving Act. In its most extreme form, it would allow government officials to remotely activate cars in the case of drunk drivers. Ron DeSantis posted to X, “The idea that the federal government would require auto manufacturers to equip cars with a ‘kill switch’ that can be controlled by the government is something you’d expect in Orwell’s 1984”. Rumors and controversies have spread, with many consumers worried that the function would be used for other purposes outside of safety or infringes upon privacy. 

@@ -111,3 +111,15 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 2026-02-10 Buddhist monks walked 108 days from Texas to Washington DC in a walk for peace.
 
 [https://www.usatoday.com/story/news/nation/2026/02/10/buddhist-monks-peace-walk-washington-dc-photos/88596132007/](https://www.usatoday.com/story/news/nation/2026/02/10/buddhist-monks-peace-walk-washington-dc-photos/88596132007/)
+
+### 2026 April
+
+2026-04-01 Pope Leo condemned the war in Iran, saying leaders who start wars have hands full of blood. He said, “Even though you make many prayers, I will not listen.  Your hands are full of blood”. This came after Pete Hegseth prayed for “overwhelming violence” against his enemies, invoking the name of Jesus Christ for bloodshed. 
+
+[https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2](https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2)
+
+[https://ewtnvatican.com/articles/pope-leo-xiv-god-does-not-hear-prayers-for-war](https://ewtnvatican.com/articles/pope-leo-xiv-god-does-not-hear-prayers-for-war)
+
+[https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/](https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/)
+
+[https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war](https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war)

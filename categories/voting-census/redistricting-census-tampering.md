@@ -121,3 +121,25 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 [https://abcnews.go.com/Politics/supreme-court-allows-california-move-forward-new-congressional/story?id=129858465](https://abcnews.go.com/Politics/supreme-court-allows-california-move-forward-new-congressional/story?id=129858465)
 
 [https://www.opb.org/article/2026/02/05/supreme-court-lets-california-use-its-new-congressional-map/](https://www.opb.org/article/2026/02/05/supreme-court-lets-california-use-its-new-congressional-map/)
+
+### 2026 March
+
+2026-03-31 Trump signed an Executive Order to force a federal voter list. It instructs DHS to gather a list of voters in each state and have the USPS transmit ballots ONLY to persons enrolled in the list. It forces nationalizing voting, puts the postal service in the role of an election enforcement agency, creates a huge financial strain, challenges the Constitution, complicates mail-in ballots and forces the case to eliminate mail-in ballots (a third of US voters use mail-in ballots). It’s just another GOP attempt to suppress and interfere with votes.  There has been no proof of voter fraud. The GOP simply wants to tamper with results because they can’t win a fair election and they have no integrity.
+
+[https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order](https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order)
+
+[https://www.nbcnews.com/politics/elections/trump-signs-executive-order-create-federal-voter-lists-rcna266092](https://www.nbcnews.com/politics/elections/trump-signs-executive-order-create-federal-voter-lists-rcna266092)
+
+[https://www.bostonherald.com/2026/04/01/healey-responds-to-trump-executive-order-creating-verified-voter-list-restricting-mail-in-voting/](https://www.bostonherald.com/2026/04/01/healey-responds-to-trump-executive-order-creating-verified-voter-list-restricting-mail-in-voting/)
+
+[https://www.whitehouse.gov/presidential-actions/2026/03/ensuring-citizenship-verification-and-integrity-in-federal-elections/](https://www.whitehouse.gov/presidential-actions/2026/03/ensuring-citizenship-verification-and-integrity-in-federal-elections/)
+
+[https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-to-create-national-list-of-eligible-voters](https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-to-create-national-list-of-eligible-voters)
+
+[https://coloradosun.com/2026/04/01/trump-signs-executive-order-in-hope-of-tightening-mail-in-voting/](https://coloradosun.com/2026/04/01/trump-signs-executive-order-in-hope-of-tightening-mail-in-voting/)
+
+[https://www.aclu.org/press-releases/voting-rights-groups-challenge-executive-order-on-mail-in-ballots-as-illegal-interference-in-elections](https://www.aclu.org/press-releases/voting-rights-groups-challenge-executive-order-on-mail-in-ballots-as-illegal-interference-in-elections)
+
+[https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer](https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer)
+
+[https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html](https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html)

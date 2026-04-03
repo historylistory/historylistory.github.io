@@ -211,6 +211,22 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.pbs.org/newshour/politics/trump-threatens-to-use-insurrection-act-to-put-down-protests-in-minneapolis](https://www.pbs.org/newshour/politics/trump-threatens-to-use-insurrection-act-to-put-down-protests-in-minneapolis)
 
+2026-01-24 Stephen Miller was implicated in accusations of encouraging DHS agents to force confrontations leading up to the killing of Alex Pretti.
+
+[https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements](https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements)
+
+[https://www.cnn.com/2026/01/27/politics/stephen-miller-alex-pretti-trump](https://www.cnn.com/2026/01/27/politics/stephen-miller-alex-pretti-trump)
+
+[https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
+
+[https://www.youtube.com/watch?v=vcpe9YceyyQ](https://www.youtube.com/watch?v=vcpe9YceyyQ)
+
+[https://newrepublic.com/post/208362/stephen-miller-orders-ice-alex-pretti-death](https://newrepublic.com/post/208362/stephen-miller-orders-ice-alex-pretti-death)
+
+[https://www.nbcrightnow.com/national/trump-aide-miller-says-minneapolis-agents-may-have-breached-protocol/article_ccdc814a-ee9c-5a33-8577-0322697b789b.html](https://www.nbcrightnow.com/national/trump-aide-miller-says-minneapolis-agents-may-have-breached-protocol/article_ccdc814a-ee9c-5a33-8577-0322697b789b.html)
+
+[https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
+
 2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)

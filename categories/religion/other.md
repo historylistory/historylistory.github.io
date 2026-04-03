@@ -75,3 +75,15 @@ permalink: /categories/religion/other/
 [https://arktimes.com/arkansas-blog/2026/03/12/videos-show-turning-point-usa-supporters-shoving-hitting-protestors-after-erika-kirk-event-why-were-protestors-arrested](https://arktimes.com/arkansas-blog/2026/03/12/videos-show-turning-point-usa-supporters-shoving-hitting-protestors-after-erika-kirk-event-why-were-protestors-arrested)
 
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
+
+### 2026 April
+
+2026-03-29 Israel blocked the Latin Patriarch of Jerusalem from entering the Church of the Holy Sepulcher on Palm Sunday to celebrate mass.  
+
+[https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2](https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2)
+
+[https://lpj.org/en/news/joint-press-release-the-latin-patriarchate-of-jerusalem-and-the-custo](https://lpj.org/en/news/joint-press-release-the-latin-patriarchate-of-jerusalem-and-the-custo)
+
+[https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669](https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669)
+
+[https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html](https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html)

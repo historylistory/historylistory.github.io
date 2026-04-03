@@ -270,6 +270,22 @@ Remember: rage bait sells. 
 
 ### 2026 January
 
+2026-01-24 Stephen Miller was implicated in accusations of encouraging DHS agents to force confrontations leading up to the killing of Alex Pretti.
+
+[https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements](https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements)
+
+[https://www.cnn.com/2026/01/27/politics/stephen-miller-alex-pretti-trump](https://www.cnn.com/2026/01/27/politics/stephen-miller-alex-pretti-trump)
+
+[https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
+
+[https://www.youtube.com/watch?v=vcpe9YceyyQ](https://www.youtube.com/watch?v=vcpe9YceyyQ)
+
+[https://newrepublic.com/post/208362/stephen-miller-orders-ice-alex-pretti-death](https://newrepublic.com/post/208362/stephen-miller-orders-ice-alex-pretti-death)
+
+[https://www.nbcrightnow.com/national/trump-aide-miller-says-minneapolis-agents-may-have-breached-protocol/article_ccdc814a-ee9c-5a33-8577-0322697b789b.html](https://www.nbcrightnow.com/national/trump-aide-miller-says-minneapolis-agents-may-have-breached-protocol/article_ccdc814a-ee9c-5a33-8577-0322697b789b.html)
+
+[https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
+
 2026-01-27 US Representative Ilhan Omar was attacked by a far-right activist during a town hall. After the attack, Trump responded with a conspiracy theory and accused Omar of “staging the attack”. This was not the first time he had used conspiracy to turn fault away from far-right political violence, as he had also done this after the murder of Rob Reiner and his wife, the violent assault of Nancy Pelosi’s husband, and after the insurrection.
 
 [https://www.cnn.com/2026/01/29/politics/ilhan-omar-trump-conspiracy-theory](https://www.cnn.com/2026/01/29/politics/ilhan-omar-trump-conspiracy-theory)

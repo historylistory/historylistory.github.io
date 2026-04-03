@@ -130,6 +130,20 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters](https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters)
 
+
+2026-03-30 The press learned the massive ballroom project also includes a massive military complex/bunker below.
+
+[https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/](https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/)
+
+[https://www.wonkette.com/p/judge-rules-bulldozers-down-for-trumps](https://www.wonkette.com/p/judge-rules-bulldozers-down-for-trumps)
+
+[https://www.nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html](https://www.nytimes.com/2026/04/02/us/politics/trump-ballroom-military-bunker.html)
+
+[https://www.aol.com/articles/karoline-leavitt-blasts-nyt-ballroom-132647609.html](https://www.aol.com/articles/karoline-leavitt-blasts-nyt-ballroom-132647609.html)
+
+[https://people.com/donald-trump-says-military-is-building-complex-under-white-house-ballroom-11936999](https://people.com/donald-trump-says-military-is-building-complex-under-white-house-ballroom-11936999)
+
+
 2026-03-31 Someone installed a giant golden ‘throne’ (toilet) at the National Mall in Washington.
 
 [https://www.usatoday.com/videos/news/2026/03/31/golden-toilet-throne-installed-on-national-mall-in-washington/89399992007/](https://www.usatoday.com/videos/news/2026/03/31/golden-toilet-throne-installed-on-national-mall-in-washington/89399992007/)
@@ -137,4 +151,22 @@ permalink: /categories/behavioral-issues/weird-random/
 [https://globalnews.ca/news/11752868/golden-toilet-donald-trump-national-mall-washington-dc/](https://globalnews.ca/news/11752868/golden-toilet-donald-trump-national-mall-washington-dc/)
 
 [https://www.washingtonpost.com/dc-md-va/2026/03/30/trump-toilet-statue-golden-throne-national-mall/](https://www.washingtonpost.com/dc-md-va/2026/03/30/trump-toilet-statue-golden-throne-national-mall/)
+
+### 2026 April
+
+2026-04-01 Trump appeared as a “silent observer” for the Supreme Court hearing on his Executive Order to end birthright citizenship and the 14th Amendment.
+
+[https://www.bbc.com/news/videos/ce8l27p3jr8o](https://www.bbc.com/news/videos/ce8l27p3jr8o)
+
+[https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/](https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/)
+
+[https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump](https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump)
+
+[https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing](https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing)
+
+[https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration](https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration)
+
+[https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case](https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case)
+
+[https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
 
