@@ -20,13 +20,10 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ### Counterfeit Christianity
 
-***1 Corinthians 13:2-3*** “If I have the gift of prophecy and can fathom all mysteries and all knowledge, and if I have a faith that can move mountains, but do not have love, I am nothing. If I give all I possess to the poor and give over my body to hardship that I may boast, but do not have love, I gain nothing”. 
 
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
 
 ***Luke 6:22-26*** “Woe to you when everyone speaks well of you, for that is how their ancestors treated the false prophets. But blessed are you when people revile you and hate you and speak all manner of evil about you on account of my name, for this is how they treated the true prophets”. 
-
-***Mark 12:31*** “Love your neighbor as yourself”.
 
 ***Matthew 7:15*** "Watch out for false prophets. They come to you in sheep's clothing, but inwardly they are ferocious wolves".
 
@@ -67,7 +64,9 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
 
+### Forgiveness
 
+***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 ### Greed
 
@@ -130,9 +129,10 @@ Mark S. Smith — The Early History of God (Canaanite religion)
 
 ***Matthew 25:35-40*** “For I was hungry, and you gave me something to eat; I was thirsty, and you gave me something to drink”. I was a stranger, and you welcomed me in. I needed clothes, and you clothed me. I was sick, and you looked after me. I was in prison, and you came to visit me.” 
 
-“Lord, when did we see you hungry, or thirsty, or a stranger, or needing clothes, or sick, or in prison?”
-
-“Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
+~~~ text 
+~~~ “Lord, when did we see you hungry, or thirsty, or a stranger, or needing clothes, or sick, or in prison?”
+~~~ “Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
+~~~ 
 
 
 
@@ -158,7 +158,7 @@ Jesus worked and healed during the Sabbath
 
 ***1 Corinthians 13:4-7*** “Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres”.
 
-
+***Mark 12:31*** “Love your neighbor as yourself”.
 
 
 ### Poverty
@@ -174,13 +174,9 @@ Jesus worked and healed during the Sabbath
 ***Proverbs 14:31*** “Whoever oppresses the poor shows contempt for their Maker, but whoever is kind to the needy honors God”.
 
 
-
-
-
 ### Tuning Out, Turning a Blind Eye, Burying One's Head
 
 ***Matthew 7:13-14*** “Broad is the road that leads to destruction, and many enter through it. But small is the gate and narrow the road that leads to life, and only a few find it”.
-
 
 
 ### Where to file this?
@@ -190,8 +186,6 @@ Jesus worked and healed during the Sabbath
 ***Hebrews 4;12*** “The word of God is living and active”.
 
 ***Isaiah 43:19*** “See, I am doing a new thing! Now it springs up; do you not perceive it?”
-
-***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 ***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
 
