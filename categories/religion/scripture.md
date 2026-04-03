@@ -28,6 +28,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Mark 12:31*** “Love your neighbor as yourself”.
 
+***Matthew 7:15*** "Watch out for false prophets. They come to you in sheep's clothing, but inwardly they are ferocious wolves".
+
 ***Matthew 7:21*** “Not everyone who says to me, ‘Lord, Lord,’ will enter the kingdom of heaven, but only the one who does the will of my Father who is in heaven”. 
 
 ***Matthew 7:22*** “Many will say to me on that day, ‘Lord, Lord, did we not prophesy in your name and in your name drive out demons and in your name perform many miracles?”
