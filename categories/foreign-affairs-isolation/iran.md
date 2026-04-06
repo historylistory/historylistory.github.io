@@ -980,6 +980,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 {% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
 
+
+
+
+
 2026-03-23 First, Trump threatened to bomb Iranian power plants if Iran didn’t open the Strait of Hormuz. Then on the 23rd he said he’d postpone the bombings for five days. He also announced on Truth Social that the US was having “constructive” talks with Iran about negotiations, but when asked Iranian officials said there were no such talks happening. Trump claimed he sent his son-in-law to conduct the so-called talks on Sunday March 22nd, and when asked by reporters who he talked to, Trump replied, “a top person”. 
 
 [https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/](https://www.reuters.com/world/iran-war-live-trump-deadline-looms-iran-vows-hit-gulf-power-water-2026-03-23/)
@@ -987,6 +991,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.pbs.org/newshour/world/u-s-wont-strike-irans-power-plants-for-5-days-trump-says-in-turnaround-on-strait-of-hormuz-deadline](https://www.pbs.org/newshour/world/u-s-wont-strike-irans-power-plants-for-5-days-trump-says-in-turnaround-on-strait-of-hormuz-deadline)
 
 [https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants](https://www.aljazeera.com/news/2026/3/23/trump-postpones-military-strikes-on-iranian-power-plants)
+
+
+
+
 
 2026-03-24 In a statement, former Pentagon chief and widely regarded former Marine Jim Mattis said, “I can’t identify a lot of good options” to resolve the conflict (in Iran) without significant loss or long-term commitment. He also said, “I think that what we’re seeing is a situation where targetry never makes up for a lack of strategy”. FYI nicknames: “Warrior Monk”, “Mad-Dog Mattis”, and “General Chaos”. 
 
@@ -1014,6 +1022,14 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/](https://demandprogress.org/house-dem-leaders-waver-on-iran-vote-as-trump-prepares-to-escalate/)
 
+
+
+
+
+2026-03-25 Witcoff said they delivered a 15-point ceasefire plan to Iran via Pakistan.
+
+[https://www.aljazeera.com/economy/2026/3/25/us-iran-mediation-what-are-each-sides-demands-and-is-a-deal-possible](https://www.aljazeera.com/economy/2026/3/25/us-iran-mediation-what-are-each-sides-demands-and-is-a-deal-possible)
+
 2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
 
 [https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
@@ -1028,6 +1044,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
 
 [https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
+
+
+
+
 
 2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
 
@@ -1061,6 +1081,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://nypost.com/2026/03/26/us-news/trump-says-iran-gifted-him-10-big-boats-of-oil/](https://nypost.com/2026/03/26/us-news/trump-says-iran-gifted-him-10-big-boats-of-oil/)
 
+
+
+
+
 2026-03-29 Israel blocked the Latin Patriarch of Jerusalem from entering the Church of the Holy Sepulcher on Palm Sunday to celebrate mass.  
 
 [https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2](https://www.youtube.com/watch?v=hyPPkp36nso&list=WL&index=2)
@@ -1070,6 +1094,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669](https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669)
 
 [https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html](https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html)
+
+
+
+
 
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
@@ -1102,6 +1130,10 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes](https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes)
 
+
+
+
+
 2026-03-31 Israel IDF gave residents in Beirut 1 hour to evacuate before bombing. Israel said it would establish security sites in southern Lebanon and control the entire area up to the Latani river, keeping 600,000+ people from returning home. The defense minister reported plans to completely demolish all homes in that area. 
 
 [https://www.pbs.org/newshour/world/israel-steps-up-bombing-in-lebanon-as-iran-keeps-stranglehold-on-shipping](https://www.pbs.org/newshour/world/israel-steps-up-bombing-in-lebanon-as-iran-keeps-stranglehold-on-shipping)
@@ -1111,3 +1143,44 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.youtube.com/watch?v=CLOvmLkYq0o](https://www.youtube.com/watch?v=CLOvmLkYq0o)
 
 [https://www.youtube.com/watch?v=X3mMj0gDZe8&list=WL&index=5&t=25s](https://www.youtube.com/watch?v=X3mMj0gDZe8&list=WL&index=5&t=25s)
+
+### 2026 April
+
+
+2026-04-03 The U.S. military conducted a Search and Rescue mission for an F-15 fighter pilot who was shot down in Iran.
+
+[https://www.youtube.com/watch?v=YvImlSbIMu8&list=WL&index=7](https://www.youtube.com/watch?v=YvImlSbIMu8&list=WL&index=7)
+
+[https://www.bbc.com/news/articles/cm2k1dgz142o](https://www.bbc.com/news/articles/cm2k1dgz142o)
+
+[https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued](https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued)
+
+[https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/](https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/)
+
+2026-04-03 Iran dropped anti-Trump administration propaganda videos. 
+
+[https://www.youtube.com/watch?v=KEj2w9m8srE&list=WL&index=5](https://www.youtube.com/watch?v=KEj2w9m8srE&list=WL&index=5)
+
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+
+[https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
+
+[https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/](https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/)
+
+[https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates](https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates)
+
+[https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions](https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions)
+
+[https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/](https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/)
+
+[https://www.bbc.com/news/articles/cvg0q6wdzp1o](https://www.bbc.com/news/articles/cvg0q6wdzp1o)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/](https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
+
+[https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)

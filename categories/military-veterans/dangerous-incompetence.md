@@ -109,3 +109,17 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 [https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny](https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny)
 
 [https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
+
+### 2026 April
+
+2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides. 
+
+[https://www.youtube.com/watch?v=g5u7wrYxLUg&list=WL&index=5](https://www.youtube.com/watch?v=g5u7wrYxLUg&list=WL&index=5)
+
+[https://www.militarytimes.com/news/your-military/2026/04/02/pentagon-expands-firearm-access-for-off-duty-military-members-on-base/](https://www.militarytimes.com/news/your-military/2026/04/02/pentagon-expands-firearm-access-for-off-duty-military-members-on-base/)
+
+[https://www.military.com/daily-news/headlines/2026/04/02/new-order-lets-troops-carry-personal-guns-base.html](https://www.military.com/daily-news/headlines/2026/04/02/new-order-lets-troops-carry-personal-guns-base.html)
+
+[https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases](https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases)
+
+[https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/](https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/)

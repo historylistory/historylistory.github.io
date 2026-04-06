@@ -226,3 +226,15 @@ permalink: /categories/military-veterans/war/
 [https://www.cbc.ca/player/play/video/9.7147083](https://www.cbc.ca/player/play/video/9.7147083)
 
 [https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932](https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932)
+
+### 2026 April
+
+2026-04-03 The U.S. military conducted a Search and Rescue mission for an F-15 fighter pilot who was shot down in Iran.
+
+[https://www.youtube.com/watch?v=YvImlSbIMu8&list=WL&index=7](https://www.youtube.com/watch?v=YvImlSbIMu8&list=WL&index=7)
+
+[https://www.bbc.com/news/articles/cm2k1dgz142o](https://www.bbc.com/news/articles/cm2k1dgz142o)
+
+[https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued](https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued)
+
+[https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/](https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/)

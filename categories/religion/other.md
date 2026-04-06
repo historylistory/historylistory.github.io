@@ -76,7 +76,7 @@ permalink: /categories/religion/other/
 
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
-### 2026 April
+
 
 2026-03-29 Israel blocked the Latin Patriarch of Jerusalem from entering the Church of the Holy Sepulcher on Palm Sunday to celebrate mass.  
 
@@ -87,3 +87,25 @@ permalink: /categories/religion/other/
 [https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669](https://www.nbcnews.com/world/israel/israeli-police-block-catholic-figures-palm-sunday-mass-jerusalem-holy-rcna265669)
 
 [https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html](https://www.vaticannews.va/en/church/news/2026-03/israeli-police-stop-latin-patriarch-of-jerusalem-from-entering.html)
+
+### 2026 April
+
+2026-04-01 During the White House Easter luncheon, Trump’s spiritual adviser Paula White likened Trump to Jesus.
+
+[https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/](https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/paula-white-cain-trump-jesus-christ-controversy-b2951338.html](https://www.the-independent.com/news/world/americas/us-politics/paula-white-cain-trump-jesus-christ-controversy-b2951338.html)
+
+[https://www.salon.com/2026/04/05/paula-white-likens-trumps-troubles-to-jesus-christ-at-easter-lunch/](https://www.salon.com/2026/04/05/paula-white-likens-trumps-troubles-to-jesus-christ-at-easter-lunch/)
+
+[https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus](https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus)
+
+[https://premierchristian.news/us/news/article/trump-compared-to-jesus-at-white-house-prayers](https://premierchristian.news/us/news/article/trump-compared-to-jesus-at-white-house-prayers)
+
+[https://www.thedailybeast.com/white-house-scrambles-to-wipe-trump-easter-meltdown-supreme-court-justices-footage/](https://www.thedailybeast.com/white-house-scrambles-to-wipe-trump-easter-meltdown-supreme-court-justices-footage/)
+
+[https://www.mediaite.com/media/news/white-house-deletes-bonkers-trump-easter-event-where-he-got-compared-to-jesus/](https://www.mediaite.com/media/news/white-house-deletes-bonkers-trump-easter-event-where-he-got-compared-to-jesus/)
+
+[https://x.com/metzgov/status/2039462014968316313](https://x.com/metzgov/status/2039462014968316313)
+
+[https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s](https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s)

@@ -478,3 +478,29 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
 
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
+
+### 2026 April
+
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+
+[https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
+
+[https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/](https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/)
+
+[https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates](https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates)
+
+[https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions](https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions)
+
+[https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/](https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/)
+
+[https://www.bbc.com/news/articles/cvg0q6wdzp1o](https://www.bbc.com/news/articles/cvg0q6wdzp1o)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/](https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
+
+[https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)

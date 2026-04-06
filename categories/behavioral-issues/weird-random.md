@@ -88,6 +88,11 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
 
+2026-03-25 The White House scrambled to erase footage they didn’t expect to become public.
+
+[https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html](https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html)
+
+
 2026-03-26 Melania Trump presented a humanoid robot to a White House AI summit.
 
 [https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)

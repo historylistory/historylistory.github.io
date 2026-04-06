@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Farmer Bailouts, Jobs & Subsidies"
+title: Farmer Assistance
 category_slug: agriculture
-subcategory_slug: farmer-bailouts-jobs-subsidies
-permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
+subcategory_slug: farmer-assistance
+permalink: /categories/agriculture/farmer-assistance/
 ---
 
 ### 2020
@@ -59,3 +59,17 @@ permalink: /categories/agriculture/farmer-bailouts-jobs-subsidies/
 [https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture](https://www.mpi.govt.nz/dmsdocument/27282-New-Zealand-Agriculture)
 
 [https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8](https://www.youtube.com/watch?v=-YJ-ZhDG7Jo&list=WL&index=8)
+
+
+
+2026-03-24 Trump’s Agriculture Department shut down millions of dollars in programs designed to help first time and underserved farmers. 
+
+[https://youngfarmers.org/2026/03/release-usda-terminates-lcm/](https://youngfarmers.org/2026/03/release-usda-terminates-lcm/)
+
+[https://civileats.com/2026/03/25/usda-cancels-land-access-program-for-young-farmers/](https://civileats.com/2026/03/25/usda-cancels-land-access-program-for-young-farmers/)
+
+[https://afrotech.com/usda-ends-nearly-300m-program-aiding-black-farmers](https://afrotech.com/usda-ends-nearly-300m-program-aiding-black-farmers)
+
+[https://www.youtube.com/watch?v=ViUm9RJnX54](https://www.youtube.com/watch?v=ViUm9RJnX54)
+
+[https://www.youtube.com/watch?v=OrtAkbItdus](https://www.youtube.com/watch?v=OrtAkbItdus)
