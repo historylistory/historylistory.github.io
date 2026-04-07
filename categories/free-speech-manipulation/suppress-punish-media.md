@@ -275,3 +275,15 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 2026-03-18 Trump tweeted out, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)
+
+### 2026 April
+
+2026-04-06 Trump threatened to imprison any journalists who reported the downed-fighter jet search and rescue story.
+
+[https://www.nbcnews.com/politics/donald-trump/trump-iran-press-conference-jail-journalist-fighter-jet-pilot-rcna266958](https://www.nbcnews.com/politics/donald-trump/trump-iran-press-conference-jail-journalist-fighter-jet-pilot-rcna266958)
+
+[https://www.reuters.com/business/media-telecom/trump-threatens-jail-reporter-who-revealed-iran-airman-rescue-2026-04-06/](https://www.reuters.com/business/media-telecom/trump-threatens-jail-reporter-who-revealed-iran-airman-rescue-2026-04-06/)
+
+[https://www.cnn.com/2026/04/06/politics/journalist-missing-airmen-trump-jail](https://www.cnn.com/2026/04/06/politics/journalist-missing-airmen-trump-jail)
+
+[https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/](https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/)

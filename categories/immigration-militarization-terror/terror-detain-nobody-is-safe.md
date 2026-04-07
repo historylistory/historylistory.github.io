@@ -125,3 +125,15 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 [https://www.today.com/video/columbia-says-ice-agents-lied-to-access-dorm-detain-student-258411077587](https://www.today.com/video/columbia-says-ice-agents-lied-to-access-dorm-detain-student-258411077587)
 
 [https://www.aljazeera.com/news/2026/2/26/columbia-university-says-us-immigration-agents-lied-to-detain-student](https://www.aljazeera.com/news/2026/2/26/columbia-university-says-us-immigration-agents-lied-to-detain-student)
+
+### 2026 April
+
+2026-04-02 ICE detained biochemistry student Annie Ramos on an Army installation in Louisiana days after her wedding to a U.S. Army Staff Sergeant. Ramos has no criminal history and teaches Sunday school. 
+
+[https://www.theguardian.com/us-news/2026/apr/06/ice-agents-detain-wife-of-us-soldier](https://www.theguardian.com/us-news/2026/apr/06/ice-agents-detain-wife-of-us-soldier)
+
+[https://www.cbsnews.com/news/us-soldier-newlywed-wife-detained-louisiana-military-base/](https://www.cbsnews.com/news/us-soldier-newlywed-wife-detained-louisiana-military-base/)
+
+[https://www.nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html](https://www.nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html)
+
+[https://abcnews.com/US/ice-arrests-newlywed-wife-army-soldier-military-base/story?id=131780087](https://abcnews.com/US/ice-arrests-newlywed-wife-army-soldier-military-base/story?id=131780087)

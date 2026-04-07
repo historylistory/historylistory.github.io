@@ -249,3 +249,17 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 [https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
+
+### 2026 April
+
+2026-04-07 San Francisco launched the first round of layoffs to counter Trump’s federal budget cuts. 
+
+[https://sfstandard.com/2026/04/06/city-layoffs-begin-lurie-hands-127-pink-slips](https://sfstandard.com/2026/04/06/city-layoffs-begin-lurie-hands-127-pink-slips)
+
+[https://www.ktvu.com/news/san-francisco-layoffs-begin-deficit-nears-1-billion](https://www.ktvu.com/news/san-francisco-layoffs-begin-deficit-nears-1-billion)
+
+[https://www.nbcbayarea.com/video/news/local/san-francisco-layoffs-city-workers/4064311/](https://www.nbcbayarea.com/video/news/local/san-francisco-layoffs-city-workers/4064311/)
+
+[https://www.sfchronicle.com/sf/article/mayor-lurie-layoffs-workers-deficit-22191898.php](https://www.sfchronicle.com/sf/article/mayor-lurie-layoffs-workers-deficit-22191898.php)
+
+[https://www.cbsnews.com/sanfrancisco/video/san-francisco-mayor-comments-on-recent-layoffs-to-city-staffing/](https://www.cbsnews.com/sanfrancisco/video/san-francisco-mayor-comments-on-recent-layoffs-to-city-staffing/)
