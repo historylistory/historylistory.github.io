@@ -439,3 +439,13 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s](https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s)
 
 [https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
+
+### 2026 April
+
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
+
+[https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
+
+[https://www.youtube.com/watch?v=S2dxrtOgvEY](https://www.youtube.com/watch?v=S2dxrtOgvEY)
+
+[https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video](https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video)

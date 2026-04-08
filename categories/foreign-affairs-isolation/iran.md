@@ -1146,6 +1146,13 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 April
 
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
+
+[https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
+
+[https://www.youtube.com/watch?v=S2dxrtOgvEY](https://www.youtube.com/watch?v=S2dxrtOgvEY)
+
+[https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video](https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video)
 
 2026-04-03 The U.S. military conducted a Search and Rescue mission for an F-15 fighter pilot who was shot down in Iran.
 
@@ -1184,3 +1191,17 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
+
+2026-04-07 Trump made a threat to Iran that “a while civilization will die tonight” unless Iran agrees to open the Strait of Hormuz.
+
+[https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059](https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059)
+
+[https://www.bbc.com/news/articles/cwyk7xgkzvzo](https://www.bbc.com/news/articles/cwyk7xgkzvzo)
+
+[https://www.bbc.com/news/videos/c0krp3mpxg5o](https://www.bbc.com/news/videos/c0krp3mpxg5o)
+
+[https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached](https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached)
+
+[https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/](https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/)
+
+[https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)

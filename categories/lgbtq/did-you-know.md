@@ -6,6 +6,20 @@ subcategory_slug: did-you-know
 permalink: /categories/lgbtq/did-you-know/
 ---
 
+### 2019 
+
+ 
+2019-01-01 Tulsi Gabbard touted working for her father’s anti-gay group, backing conversion therapy, and fighting same-sex marriage.
+
+[https://www.cnn.com/2019/01/13/politics/kfile-tulsi-gabbard-lgbt](https://www.cnn.com/2019/01/13/politics/kfile-tulsi-gabbard-lgbt)
+
+[https://www.hawaiinewsnow.com/2024/03/21/after-change-heart-lawmaker-who-led-charge-against-same-sex-marriage-apologizes/](https://www.hawaiinewsnow.com/2024/03/21/after-change-heart-lawmaker-who-led-charge-against-same-sex-marriage-apologizes/)
+
+[https://en.wikipedia.org/wiki/Mike_Gabbard](https://en.wikipedia.org/wiki/Mike_Gabbard)
+
+[https://thehill.com/homenews/house/425177-gabbard-worked-for-anti-lgbtq-group-run-by-her-father-report/](https://thehill.com/homenews/house/425177-gabbard-worked-for-anti-lgbtq-group-run-by-her-father-report/)
+
+
 ### 2024
 
 2024-07-15 The Grindr dating app crashed during the Republican National Convention.

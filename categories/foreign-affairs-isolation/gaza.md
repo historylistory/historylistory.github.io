@@ -160,6 +160,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.bbc.com/news/articles/c8641wv0n4go](https://www.bbc.com/news/articles/c8641wv0n4go)
 
+
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
 
 {% include youtubePlayer.html id="0_Bwix9IjOE" %}

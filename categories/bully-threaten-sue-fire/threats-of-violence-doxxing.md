@@ -215,3 +215,44 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.cbc.ca/player/play/video/9.7147083](https://www.cbc.ca/player/play/video/9.7147083)
 
 [https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932](https://www.dw.com/en/iran-war-trump-threatens-to-blow-up-desalination-plants/live-76586932)
+
+### 2026 April
+
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+
+[https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
+
+[https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/](https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/)
+
+[https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates](https://www.npr.org/2026/04/05/nx-s1-5774368/iran-war-updates)
+
+[https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions](https://www.theguardian.com/us-news/2026/apr/05/trump-iran-threats-politician-reactions)
+
+[https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/](https://www.usatoday.com/story/news/world/2026/04/05/iran-war-live-updates-trump-threat-strait-hormuz--live/89474925007/)
+
+[https://www.bbc.com/news/articles/cvg0q6wdzp1o](https://www.bbc.com/news/articles/cvg0q6wdzp1o)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/](https://time.com/article/2026/04/05/trump-power-plants-iran-hormuz/)
+
+[https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work](https://www.aljazeera.com/news/2026/4/6/trumps-bridge-day-threat-can-a-last-ditch-ceasefire-plan-work)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
+
+[https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
+
+
+2026-04-07 Trump made a threat to Iran that “a while civilization will die tonight” unless Iran agrees to open the Strait of Hormuz.
+
+[https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059](https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059)
+
+[https://www.bbc.com/news/articles/cwyk7xgkzvzo](https://www.bbc.com/news/articles/cwyk7xgkzvzo)
+
+[https://www.bbc.com/news/videos/c0krp3mpxg5o](https://www.bbc.com/news/videos/c0krp3mpxg5o)
+
+[https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached](https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached)
+
+[https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/](https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/)
+
+[https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
