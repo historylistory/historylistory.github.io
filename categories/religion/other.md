@@ -109,3 +109,15 @@ permalink: /categories/religion/other/
 [https://x.com/metzgov/status/2039462014968316313](https://x.com/metzgov/status/2039462014968316313)
 
 [https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s](https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s)
+
+2026-04-03 On Good Friday ahead of the White House Easter luncheon, the Pentagon posted on X, “Just a friendly reminder: There will be a Protestant Service (No Catholic Mass) for Good Friday today at the Pentagon Chapel”. This upset White House employees because they felt it was divisive and exclusive.
+
+[https://www.youtube.com/watch?v=avCfzmlRd60&list=WL&index=1](https://www.youtube.com/watch?v=avCfzmlRd60&list=WL&index=1)
+
+[https://www.foxnews.com/media/huffpost-panned-report-suggesting-pentagon-excluded-catholics-from-attending-good-friday-service](https://www.foxnews.com/media/huffpost-panned-report-suggesting-pentagon-excluded-catholics-from-attending-good-friday-service)
+
+[https://www.msn.com/en-gb/news/other/hegseth-faces-backlash-after-pentagon-drops-catholic-good-friday-mass/gm-GMA95EC2B8](https://www.msn.com/en-gb/news/other/hegseth-faces-backlash-after-pentagon-drops-catholic-good-friday-mass/gm-GMA95EC2B8)
+
+[https://nationaltoday.com/us/va/arlington-va/news/2026/04/03/pentagon-criticized-for-protestant-only-good-friday-service-but-theres-a-liturgical-reason/](https://nationaltoday.com/us/va/arlington-va/news/2026/04/03/pentagon-criticized-for-protestant-only-good-friday-service-but-theres-a-liturgical-reason/)
+
+[https://www.christiannewswire.com/faith-leaders-troubled-the-department-of-war-is-restricting-religious-freedom-after-holding-a-protestant-only-good-friday-service-at-the-pentagon/](https://www.christiannewswire.com/faith-leaders-troubled-the-department-of-war-is-restricting-religious-freedom-after-holding-a-protestant-only-good-friday-service-at-the-pentagon/)
