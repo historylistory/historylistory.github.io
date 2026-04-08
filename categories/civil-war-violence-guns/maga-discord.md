@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: MAGA Discord
-category_slug: behavioral-issues
+category_slug: civil-war-violence-guns
 subcategory_slug: maga-discord
-permalink: /categories/behavioral-issues/maga-discord/
+permalink: /categories/civil-war-violence-guns/maga-discord/
 ---
 
 ### Comment
