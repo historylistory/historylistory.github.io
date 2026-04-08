@@ -49,6 +49,16 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ***2 Thessalonians 2:3*** “Let no one deceive you by any means; for that day will not come unless the falling away comes first, and the man of sin is revealed, the son of perdition”.
 
 
+### Divided House
+
+***Luke 9:49-50*** “Master,” said John, “we saw someone driving out demons in your name and we tried to stop him, because he is not one of us.” “Do not stop him,” Jesus said, “for whoever is not against you is for you.”
+
+***Luke 11:17*** “Any kingdom divided against itself will be ruined, and a house divided against itself will fall.”
+
+***Mark 3:25*** “If a house is divided against itself, that house cannot stand.”
+
+***Matthew 12:25*** “Every kingdom divided against itself will be ruined, and every city or household divided against itself will not stand.”
+
 
 
 ### Empathy & Mercy
@@ -64,9 +74,7 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
 
-### Forgiveness
 
-***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 ### Greed
 
@@ -135,6 +143,9 @@ Mark S. Smith — The Early History of God (Canaanite religion)
 ~~~ 
 
 
+### Judgement
+
+***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 
 ### Lifestyle
@@ -192,7 +203,5 @@ Jesus worked and healed during the Sabbath
 ***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
 
 ***John 16:12-13*** “I have much more to say to you, more than you can now bear. But when he, the Spirit of truth, come, he will guide you into all truth”.
-
-***Luke 9:49-50*** “Master,” said John, “we saw someone driving out demons in your name and we tried to stop him, because he is not one of us.” “Do not stop him,” Jesus said, “for whoever is not against you is for you.”
 
 ***2 Timothy 3:16*** “All Scripture is God-breathed and useful for teaching”.
