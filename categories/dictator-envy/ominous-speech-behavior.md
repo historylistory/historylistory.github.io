@@ -30,6 +30,19 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 
 ### 2024
 
+
+2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
+
 2024-07-26 Trump told followers at a Turning Point rally that they **only****have to****vote this one time and won't have to vote again**, because the votes will be "**fixed**".
 
 [https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
@@ -111,3 +124,17 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 [https://fortune.com/2026/03/27/trump-name-on-dollar-not-treasury-secretary/](https://fortune.com/2026/03/27/trump-name-on-dollar-not-treasury-secretary/)
 
 [https://home.treasury.gov/news/press-releases/sb0425](https://home.treasury.gov/news/press-releases/sb0425)
+
+### 2026 April
+
+2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)

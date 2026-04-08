@@ -6,6 +6,21 @@ subcategory_slug: war-crimes
 permalink: /categories/crime-ethics-defiance/war-crimes/
 ---
 
+### 2024 July
+
+
+2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
+
 ### 2025 July
 
 2025-07-13 News outlets reported Israel and the U.S. pushing efforts to relocate Palestinians to Sudan or Libya.
@@ -126,3 +141,15 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
+
+2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)

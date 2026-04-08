@@ -44,6 +44,21 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/](https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/)
 
+### 2024 July
+
+2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
+
+
 ### 2024 September
 
 2024-09-10 Trump claimed the Harris debate was "rigged" and threatened ABC after their moderator fact-checked Trump’s claim that migrants were eating pets. Prior to the debate, Trump went on Fox News Town Hall with Sean Hannity and preemptively accused ABC of not being fair by saying "They're very nasty, and I think a lot of people are going to be watching to see how nasty and unfair they are".
@@ -329,3 +344,15 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
 
+
+2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+
+[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
+
+[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
+
+[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
+
+[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
+
+[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
