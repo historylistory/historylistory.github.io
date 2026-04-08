@@ -274,5 +274,18 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.cnn.com/2026/02/15/us/ice-shooting-dhs-doj-false-statements](https://www.cnn.com/2026/02/15/us/ice-shooting-dhs-doj-false-statements)
 
+### 2026 April
 
+2026-04-07 Another ICE involved shooting, this time in San Jose California off I-5. DHS claims the alleged gang member weaponized their vehicle and tried to run over an agent. 
 
+[https://www.nbcnews.com/news/us-news/live-blog/live-updates-ice-involved-shooting-san-jose-california-rcna267108](https://www.nbcnews.com/news/us-news/live-blog/live-updates-ice-involved-shooting-san-jose-california-rcna267108)
+
+[https://www.theguardian.com/us-news/2026/apr/07/ice-agents-shooting-california](https://www.theguardian.com/us-news/2026/apr/07/ice-agents-shooting-california)
+
+[https://www.youtube.com/watch?v=50g2cjHJG_E](https://www.youtube.com/watch?v=50g2cjHJG_E)
+
+[https://abc7news.com/post/dashcam-video-shows-what-happened-before-ice-agents-opened-fire-traffic-stop-stanislaus-county/18853888/](https://abc7news.com/post/dashcam-video-shows-what-happened-before-ice-agents-opened-fire-traffic-stop-stanislaus-county/18853888/)
+
+[https://www.nbcbayarea.com/news/local/ice-shooting-investigation-interstate-5-stanislaus/4064875/](https://www.nbcbayarea.com/news/local/ice-shooting-investigation-interstate-5-stanislaus/4064875/)
+
+[https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california](https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california)
