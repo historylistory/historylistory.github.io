@@ -44,3 +44,18 @@ There is much to cover; still trying to gather. However, such events are peppere
 [https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/](https://www.lgbtqnation.com/2026/04/pope-says-that-god-doesnt-listen-to-donald-trumps-prayers/)
 
 [https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war](https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war)
+
+
+2026-04-03 Leader of the Archdiocese for Military Services Timothy Broglio rebuked Hegseth for invoking Jesus to stoke war with Iran.
+
+[https://www.thedailybeast.com/militarys-top-catholic-rebukes-pentagon-pete-for-war-boasts/](https://www.thedailybeast.com/militarys-top-catholic-rebukes-pentagon-pete-for-war-boasts/)
+
+[https://www.theguardian.com/us-news/2026/apr/03/us-military-archbishop-iran](https://www.theguardian.com/us-news/2026/apr/03/us-military-archbishop-iran)
+
+[https://www.youtube.com/shorts/Nru2b0Iz5qo](https://www.youtube.com/shorts/Nru2b0Iz5qo)
+
+[https://www.msn.com/en-in/news/insight/pope-us-catholic-leaders-rebuke-hegseth-s-war-prayers/gm-GM8798F056](https://www.msn.com/en-in/news/insight/pope-us-catholic-leaders-rebuke-hegseth-s-war-prayers/gm-GM8798F056)
+
+[https://www.osvnews.com/archbishop-broglio-war-in-iran-likely-not-justified-under-catholic-teaching-on-legitimate-defense/](https://www.osvnews.com/archbishop-broglio-war-in-iran-likely-not-justified-under-catholic-teaching-on-legitimate-defense/)
+
+[https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/](https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/)

@@ -187,8 +187,12 @@ Jesus worked and healed during the Sabbath
 
 ***Isaiah 43:19*** “See, I am doing a new thing! Now it springs up; do you not perceive it?”
 
+***John 7:38*** “The one who believes in me, as the scripture has said, will have streams of living water flow from deep within him.”
+
 ***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
 
 ***John 16:12-13*** “I have much more to say to you, more than you can now bear. But when he, the Spirit of truth, come, he will guide you into all truth”.
+
+***Luke 9:49-50*** “Master,” said John, “we saw someone driving out demons in your name and we tried to stop him, because he is not one of us.” “Do not stop him,” Jesus said, “for whoever is not against you is for you.”
 
 ***2 Timothy 3:16*** “All Scripture is God-breathed and useful for teaching”.
