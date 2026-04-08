@@ -84,3 +84,19 @@ This is why I brought this up. It might not be related to universal childcare, b
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 
 [https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
+
+### 2026 April
+
+2026-04-04 The White House requested a $1.5T budget for the Pentagon. During an event at the White House Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.  In other words, Trump wants to funnel American taxpayer dollars into funding Israel’s power-grabbing war in the Middle East. 
+
+[https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=qEURbAHBPvg](https://www.youtube.com/watch?v=qEURbAHBPvg)
+
+[https://www.youtube.com/watch?v=5GFcmIVM3Yc](https://www.youtube.com/watch?v=5GFcmIVM3Yc)
+
+[https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/](https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/)
+
+[https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars](https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars)
+
+[https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)

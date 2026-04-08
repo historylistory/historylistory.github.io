@@ -61,6 +61,19 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
 
+2026-02-28 The US, in joint efforts with Israel, bombed Iran. Only one of the news outlets reported over 200 people including 170 schoolchildren were killed on the first day of bombings. The US did not seek Congressional or international approval and did not provide proof there was an imminent threat warranting the bombing. For context, Trump stated several months ago that the US already destroyed nuclear bombs in Iran and ran on the platform that the US would never start a war in the Middle East. Trump said after the bombing, “When we are finished, take over your government. It will be yours to take”. 
+
+[https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/why-trump-war-iran-benefits](https://www.ms.now/rachel-maddow-show/maddowblog/why-trump-war-iran-benefits)
+
+[https://www.cnn.com/2026/02/28/middleeast/maps-iran-tehran-attack-vis-intl](https://www.cnn.com/2026/02/28/middleeast/maps-iran-tehran-attack-vis-intl)
+
+[https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran](https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran)
+
+[https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked](https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked)
+
+
 ### 2026 March
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
