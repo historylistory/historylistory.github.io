@@ -356,3 +356,15 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
+
+2026-04-09 The DOJ announced that Pam Bondi will not be attending the April 14 deposition for which she was subpoenaed to testify about the Epstein files, stating that because she is no longer sitting as Attorney General she is excused. 
+
+[https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
+
+[https://www.cnn.com/2026/04/08/politics/pam-bondi-epstein-deposition-justice-department](https://www.cnn.com/2026/04/08/politics/pam-bondi-epstein-deposition-justice-department)
+
+[https://www.cbsnews.com/news/bondi-deposition-subpoena-house-oversight-committee-epstein/](https://www.cbsnews.com/news/bondi-deposition-subpoena-house-oversight-committee-epstein/)
+
+[https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt](https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)

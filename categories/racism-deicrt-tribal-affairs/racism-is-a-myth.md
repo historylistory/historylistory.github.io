@@ -37,3 +37,23 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 {% include youtubePlayer.html id="PpObco-roz8" %}
 
 {% include youtubePlayer.html id="5MnMqlP10lM" %}
+
+### 2026
+
+2026-04-08 Former Fort Bragg employee Courtney Williams was arrested on 1917 espionage charges after allegedly leaking classified information to a journalist from Politico. This was after she shared information about ***sexual and race-based harassment*** at Fort Bragg and the story was published by Seth Harp “The Fort Bragg Cartel”. 
+
+[https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee](https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee)
+
+[https://www.thedailybeast.com/keystone-kash-patel-announces-first-arrest-after-donald-trumps-threats-against-media/](https://www.thedailybeast.com/keystone-kash-patel-announces-first-arrest-after-donald-trumps-threats-against-media/)
+
+[https://www.nbcnews.com/politics/national-security/former-army-employee-charged-leaking-classified-info-journalist-rcna267366](https://www.nbcnews.com/politics/national-security/former-army-employee-charged-leaking-classified-info-journalist-rcna267366)
+
+[https://www.militarytimes.com/news/your-military/2026/04/09/former-army-employee-charged-with-leaking-classified-information-to-journalist/](https://www.militarytimes.com/news/your-military/2026/04/09/former-army-employee-charged-with-leaking-classified-information-to-journalist/)
+
+[https://www.justice.gov/opa/pr/former-army-employee-and-top-secret-clearance-holder-arrested-and-charged-leaking-classified](https://www.justice.gov/opa/pr/former-army-employee-and-top-secret-clearance-holder-arrested-and-charged-leaking-classified)
+
+[https://www.military.com/daily-news/2026/04/09/army-veteran-charged-sharing-classified-details-of-elite-commando-unit.html](https://www.military.com/daily-news/2026/04/09/army-veteran-charged-sharing-classified-details-of-elite-commando-unit.html)
+
+[https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/](https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
