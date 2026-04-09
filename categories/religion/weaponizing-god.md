@@ -45,6 +45,12 @@ There is much to cover; still trying to gather. However, such events are peppere
 
 [https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war](https://www.ms.now/opinion/pete-hegseth-pope-leo-iran-war)
 
+2026-04-01 Trump’s pastor Franklin Graham weaponized the book of Esther during a Presidential prayer at the White House, “Father, you tell us in the book of Esther that the Persians, the Iranians, were wanting to kill every Jew, woman, child, and do it all in one day”. He went on to politicize faith, calling Iranians the “wicked regime”, accused Iran of wanting to kill all Jews, compared Trump to Queen Esther, and claimed that Trump was “raised up for such a time as this”. This was during the war in Iran started by the U.S. and Israel, and during the same Easter prayer breakfast when Paula White compared Trump to Jesus. Fact-check: the villain in the book of Esther was not the Persians. Giving politics a biblical narrative to gain power and control is probably a sin. 
+
+[https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3](https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3)
+
+[https://www.youtube.com/shorts/9lmpBqaiGtI](https://www.youtube.com/shorts/9lmpBqaiGtI)
+
 
 2026-04-03 Leader of the Archdiocese for Military Services Timothy Broglio rebuked Hegseth for invoking Jesus to stoke war with Iran.
 

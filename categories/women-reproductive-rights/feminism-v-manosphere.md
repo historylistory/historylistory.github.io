@@ -55,6 +55,17 @@ permalink: /categories/women-reproductive-rights/feminism-v-manosphere/
 
 [https://www.theguardian.com/commentisfree/2022/mar/01/decline-girlboss-culture-career-queen](https://www.theguardian.com/commentisfree/2022/mar/01/decline-girlboss-culture-career-queen)
 
+### 2021
+
+
+2021-11-11 Heritage Foundation’s Scott Yenor said, “Every effort must be made not to recruit women into engineering, but rather to recruit and demand more of men who become engineers. Ditto for med school and the law and every trade…If every Nobel Prize winner is a man, that’s not a failure. It’s kind of a cause for celebration. Why can’t our celebration of male excellence in sports be translated into all facets of life? More successful men will mean more happy citizenry and a stronger nation…Such medicated, quarrelsome, and meddlesome women gain their meaning through the seeming participation in the global project. They are agents of the new world – but not new life. Such women are now the backbone of every left-wing cosmopolitan party in the Western world. From the Greens in Germany to the Democratic party in America. And if our ideal woman is a childless media scold or a barren bureaucratic apparatchik, there is no question whether we can have a future. We can’t. There is a question of whether we deserve one”. 
+
+[https://www.youtube.com/watch?v=cmz_zrsP1wU&list=WL&index=1&t=335s](https://www.youtube.com/watch?v=cmz_zrsP1wU&list=WL&index=1&t=335s)
+
+[https://www.ms.now/ali-velshi/project-2025-heritage-foundation-plan-american-women-abortion-education-family](https://www.ms.now/ali-velshi/project-2025-heritage-foundation-plan-american-women-abortion-education-family)
+
+AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-foundation-engineering-women/](https://www.snopes.com/fact-check/heritage-foundation-engineering-women/)
+
 ### 2023
 
 2023-01-01 Manosphere, incels and online misogyny.
