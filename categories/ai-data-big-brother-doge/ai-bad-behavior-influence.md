@@ -155,3 +155,15 @@ permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 [https://www.scientificamerican.com/article/jury-finds-meta-and-youtube-negligent-in-landmark-federal-social-media/](https://www.scientificamerican.com/article/jury-finds-meta-and-youtube-negligent-in-landmark-federal-social-media/)
 
 [https://www.axios.com/2026/03/25/meta-youtube-verdict-social-media-addiction-trial](https://www.axios.com/2026/03/25/meta-youtube-verdict-social-media-addiction-trial)
+
+### 2026 April
+
+2026-04-08 Anthropic says the Claude Mythos Preview is not ready to launch publicly because of the ways cybercriminals and spies could use it.
+
+[https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s](https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s)
+
+[https://www.nbcnews.com/tech/security/anthropic-project-glasswing-mythos-preview-claude-gets-limited-release-rcna267234](https://www.nbcnews.com/tech/security/anthropic-project-glasswing-mythos-preview-claude-gets-limited-release-rcna267234)
+
+[https://www.anthropic.com/glasswing](https://www.anthropic.com/glasswing)
+
+[https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release](https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release)

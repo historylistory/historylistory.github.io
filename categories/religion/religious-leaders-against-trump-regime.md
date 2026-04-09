@@ -137,3 +137,19 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.osvnews.com/archbishop-broglio-war-in-iran-likely-not-justified-under-catholic-teaching-on-legitimate-defense/](https://www.osvnews.com/archbishop-broglio-war-in-iran-likely-not-justified-under-catholic-teaching-on-legitimate-defense/)
 
 [https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/](https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/)
+
+2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+
+[https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
+
+[https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html](https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html)
+
+[https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/](https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/)
+
+[https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350](https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350)
+
+[https://www.thefp.com/p/why-the-vatican-and-the-white-house](https://www.thefp.com/p/why-the-vatican-and-the-white-house)
+
+[https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142](https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142)
+
+PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)

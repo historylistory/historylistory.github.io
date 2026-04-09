@@ -317,6 +317,18 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/](https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/)
 
+2026-03-11 On the YouTube channel Sutherland Institute Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
+
+[https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD](https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD)
+
+[https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1](https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1)
+
+2026-03-16 During a Newsmax interview with Carl Higbie ‘Frontline’ Trump-ally Michael Savage called poverty the “homeless industrial complex” and said, “It’s a racket bigger than the crack business in the State of California. Of course it’s not for the homeless. Donors who own these dilapidated hotels sell them to the State at inflated prices, then their wives or girlfriends or daughters decorate them at inflated prices, and the homeless bums don’t even wanna go in there on top of it all because they don’t have the freedom to destroy the society that they have in the streets. It’s crazy, I’ve been long-saying they shouldn’t have the freedom to live in the streets. Take the freedom away from them! Put them in **internment camps 100 miles away from cities** and give them the care that they need”. Carl Hibie chuckled, “homeless internment camps is definitely going to get noticed on the internet, so…”.
+
+[https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s](https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s)
+
+[https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums](https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums)
+
 2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 
 
 [https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s)

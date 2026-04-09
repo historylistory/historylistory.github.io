@@ -180,6 +180,9 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority](https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority)
 
+2026-03-08 On this edition of Newsmax’s Savage Nation Michael Savage said, “I’m sick of the racialist vermin who follow Tucker Carlson and that psychotic Candy – whatever her name is. You’re basically crypto-Nazis, no matter what you say….Carlson and Candace espouse Nazi bloodline testing…” among other things.
+
+[https://www.mediamatters.org/michael-savage/newsmaxs-michael-savage-im-sick-racialist-vermin-who-follow-tucker-carlson-and](https://www.mediamatters.org/michael-savage/newsmaxs-michael-savage-im-sick-racialist-vermin-who-follow-tucker-carlson-and)
 
 2026-03-12 Candace Owens broke with Trump over foreign policy and Israel/Iran stance.
 
@@ -271,3 +274,31 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 [https://www.foxnews.com/politics/trumps-iran-threat-rattles-gop-republicans-break-ranks](https://www.foxnews.com/politics/trumps-iran-threat-rattles-gop-republicans-break-ranks)
 
 [https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/](https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/)
+
+2026-04-07 Ro Khanna and Martha MacCallum got into an exchange over Trump’s war crime threat to exterminate the Iranian civilization. 
+
+[https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
+
+[https://nationaltoday.com/us/ny/new-york/news/2026/04/07/dem-lawmaker-clashes-with-fox-news-host-over-claims-iranians-support-trumps-genocidal-threat/](https://nationaltoday.com/us/ny/new-york/news/2026/04/07/dem-lawmaker-clashes-with-fox-news-host-over-claims-iranians-support-trumps-genocidal-threat/)
+
+[https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/](https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/)
+
+[https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)
+
+2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+
+[https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
+
+[https://www.cnn.com/2026/04/09/politics/video/rfk-health-podcast-michaelson-tell-040912aseg1-cnni-politics-fast](https://www.cnn.com/2026/04/09/politics/video/rfk-health-podcast-michaelson-tell-040912aseg1-cnni-politics-fast)
+
+[https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/](https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/)
+
+[https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
+
+2026-04-08 The House Freedom Caucus posted against Trump and Johnsons ICE reconciliation package via social media, writing, “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”. 
+
+[https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10](https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10)
+
+[https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS](https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS)
+
+[https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)

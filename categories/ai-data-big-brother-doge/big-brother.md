@@ -264,3 +264,15 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/](https://broadbandbreakfast.com/federal-judge-temporarily-blocks-the-pentagon-from-branding-ai-firm-anthropic-a-supply-chain-risk/)
 
 [https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)
+
+### 2026 April
+
+2026-04-08 The White House is requesting access to personal medical records for federal workers, retirees, and their families.
+
+[https://www.cnn.com/2026/04/08/health/trump-federal-workers-medical-records-kff](https://www.cnn.com/2026/04/08/health/trump-federal-workers-medical-records-kff)
+
+[https://www.regulations.gov/document/OPM-2025-0206-0049](https://www.regulations.gov/document/OPM-2025-0206-0049)
+
+[https://arstechnica.com/health/2026/04/trump-admin-seeks-medical-records-of-federal-workers-for-vague-reasons/](https://arstechnica.com/health/2026/04/trump-admin-seeks-medical-records-of-federal-workers-for-vague-reasons/)
+
+[https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/](https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/)

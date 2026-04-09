@@ -342,6 +342,12 @@ permalink: /categories/behavioral-issues/soulless/
 
 {% include youtubePlayer.html id="iMI-jsOUDQk" %}
 
+2026-03-11 On the YouTube channel Sutherland Institute Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
+
+[https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD](https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD)
+
+[https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1](https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1)
+
 2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
 
 [https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
@@ -373,6 +379,12 @@ permalink: /categories/behavioral-issues/soulless/
 [https://www.youtube.com/watch?v=AmukYDYYm44](https://www.youtube.com/watch?v=AmukYDYYm44)
 
 {% include youtubePlayer.html id="AmukYDYYm44" %}
+
+2026-03-16 During a Newsmax interview with Carl Higbie ‘Frontline’ Trump-ally Michael Savage called poverty the “homeless industrial complex” and said, “It’s a racket bigger than the crack business in the State of California. Of course it’s not for the homeless. Donors who own these dilapidated hotels sell them to the State at inflated prices, then their wives or girlfriends or daughters decorate them at inflated prices, and the homeless bums don’t even wanna go in there on top of it all because they don’t have the freedom to destroy the society that they have in the streets. It’s crazy, I’ve been long-saying they shouldn’t have the freedom to live in the streets. Take the freedom away from them! Put them in **internment camps 100 miles away from cities** and give them the care that they need”. Carl Hibie chuckled, “homeless internment camps is definitely going to get noticed on the internet, so…”.
+
+[https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s](https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s)
+
+[https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums](https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums)
 
 2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
 

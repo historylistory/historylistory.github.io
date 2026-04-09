@@ -41,3 +41,15 @@ permalink: /categories/health/pseudoscience/
 2026-02-06 RFK claimed the keto diet can cure schizophrenia with no actual data or supporting evidence.
 
 [https://www.scientificamerican.com/article/rfk-jr-keto-diet-can-cure-schizophrenia-heres-what-the-science-says/](https://www.scientificamerican.com/article/rfk-jr-keto-diet-can-cure-schizophrenia-heres-what-the-science-says/)
+
+### 2026 April
+
+2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+
+[https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
+
+[https://www.cnn.com/2026/04/09/politics/video/rfk-health-podcast-michaelson-tell-040912aseg1-cnni-politics-fast](https://www.cnn.com/2026/04/09/politics/video/rfk-health-podcast-michaelson-tell-040912aseg1-cnni-politics-fast)
+
+[https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/](https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/)
+
+[https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)

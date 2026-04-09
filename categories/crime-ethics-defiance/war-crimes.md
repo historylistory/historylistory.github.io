@@ -153,3 +153,13 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
+
+2026-04-07 Ro Khanna and Martha MacCallum got into an exchange over Trump’s war crime threat to exterminate the Iranian civilization. 
+
+[https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
+
+[https://nationaltoday.com/us/ny/new-york/news/2026/04/07/dem-lawmaker-clashes-with-fox-news-host-over-claims-iranians-support-trumps-genocidal-threat/](https://nationaltoday.com/us/ny/new-york/news/2026/04/07/dem-lawmaker-clashes-with-fox-news-host-over-claims-iranians-support-trumps-genocidal-threat/)
+
+[https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/](https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/)
+
+[https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)

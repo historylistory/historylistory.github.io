@@ -193,3 +193,13 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 [https://www.cbsnews.com/live-updates/dhs-shutdown-2026-senate-funding-day-42/](https://www.cbsnews.com/live-updates/dhs-shutdown-2026-senate-funding-day-42/)
 
 [https://www.foxnews.com/politics/house-gop-rams-through-new-dhs-funding-plan-shutdowns-end-remains-air](https://www.foxnews.com/politics/house-gop-rams-through-new-dhs-funding-plan-shutdowns-end-remains-air)
+
+### 2026 April
+
+2026-04-08 The House Freedom Caucus posted against Trump and Johnsons ICE reconciliation package via social media, writing, “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”. 
+
+[https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10](https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10)
+
+[https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS](https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS)
+
+[https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)

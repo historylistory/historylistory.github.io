@@ -26,7 +26,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115307915499158903](https://truthsocial.com/@realDonaldTrump/posts/115307915499158903)
 
-### 2026
+### 2026 March
 
 2026-03-05 Trump indicated Cuba would be next (following Iran), stating it is “going to fall”.
 
@@ -34,6 +34,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 [https://www.pbs.org/newshour/politics/watch-trump-suggests-u-s-and-cuba-will-soon-make-a-deal-after-rubio-is-finished-with-iran](https://www.pbs.org/newshour/politics/watch-trump-suggests-u-s-and-cuba-will-soon-make-a-deal-after-rubio-is-finished-with-iran)
 
+### 2026 April
 
 2026-04-06 Trump threatened to imprison any journalists who reported the downed-fighter jet search and rescue story.
 
@@ -44,3 +45,19 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 [https://www.cnn.com/2026/04/06/politics/journalist-missing-airmen-trump-jail](https://www.cnn.com/2026/04/06/politics/journalist-missing-airmen-trump-jail)
 
 [https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/](https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/)
+
+2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+
+[https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
+
+[https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html](https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html)
+
+[https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/](https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/)
+
+[https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350](https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350)
+
+[https://www.thefp.com/p/why-the-vatican-and-the-white-house](https://www.thefp.com/p/why-the-vatican-and-the-white-house)
+
+[https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142](https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142)
+
+PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)

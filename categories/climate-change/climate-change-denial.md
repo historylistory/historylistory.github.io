@@ -111,3 +111,8 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://www.npr.org/2025/12/19/nx-s1-5648270/trump-weather-climate-national-center-atmospheric-research-ncar](https://www.npr.org/2025/12/19/nx-s1-5648270/trump-weather-climate-national-center-atmospheric-research-ncar)
 
+### 2026 April
+
+2026-04-02 The Artemis crew took a photo of earth and posted a side-by-side comparison to 1972, showing a now less-vibrant one.
+
+[https://www.usatoday.com/story/news/nation/2026/04/04/artemis-ii-photo-earth-space-blue-marble/89465526007/](https://www.usatoday.com/story/news/nation/2026/04/04/artemis-ii-photo-earth-space-blue-marble/89465526007/)

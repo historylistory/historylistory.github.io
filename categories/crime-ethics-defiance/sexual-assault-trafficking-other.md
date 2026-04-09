@@ -93,3 +93,21 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 [https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes](https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes)
 
 [https://www.bbc.com/news/articles/ce3ex92557jo](https://www.bbc.com/news/articles/ce3ex92557jo)
+
+### 2026 April
+
+2026-04-06 Mediaite posted about allegations over GOP lawmaker Tony Gonzales (R-TX) making sexual demands from his campaign director to “squeeze my balls” back in 2020. This was years before the same GOP lawmaker admitted his 2024 affair with a congressional staffer who later died by suicide.
+
+[https://www.youtube.com/watch?v=vUxm-DYRBnI&list=WL&index=4&t=41s](https://www.youtube.com/watch?v=vUxm-DYRBnI&list=WL&index=4&t=41s)
+
+[https://www.sacurrent.com/news/san-antonio-news/report-rep-tony-gonzales-sent-sexually-charged-texts-to-campaign-aide-in-2020/](https://www.sacurrent.com/news/san-antonio-news/report-rep-tony-gonzales-sent-sexually-charged-texts-to-campaign-aide-in-2020/)
+
+[https://nypost.com/2026/04/06/us-news/disgraced-gop-rep-tony-gonzales-sent-lewd-texts-to-staffer-years-before-affair-with-ex-aide-who-burned-herself-to-death/](https://nypost.com/2026/04/06/us-news/disgraced-gop-rep-tony-gonzales-sent-lewd-texts-to-staffer-years-before-affair-with-ex-aide-who-burned-herself-to-death/)
+
+[https://www.dailymail.co.uk/news/article-15709575/congressman-Tony-Gonzales-texts-second-aide-affair.html](https://www.dailymail.co.uk/news/article-15709575/congressman-Tony-Gonzales-texts-second-aide-affair.html)
+
+[https://www.newsweek.com/tony-gonzales-texting-allegations-11791166](https://www.newsweek.com/tony-gonzales-texting-allegations-11791166)
+
+[https://www.tmz.com/2026/04/06/congressman-tony-gonzales-asked-separate-staffer-for-nudes/](https://www.tmz.com/2026/04/06/congressman-tony-gonzales-asked-separate-staffer-for-nudes/)
+
+PAY WALL [https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/](https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/)
