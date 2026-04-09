@@ -376,3 +376,12 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 [https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt](https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt)
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
+
+
+2025-04-09 During remarks at the White House Melania Trump claimed she had no knowledge to Epstein’s abuses and called on Congress to allow victims to testify on Capitol Hill. 
+
+[https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement](https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement)
+
+[https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html](https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html)
+
+[https://www.bbc.com/news/articles/c3ex07l1qvpo](https://www.bbc.com/news/articles/c3ex07l1qvpo)

@@ -137,3 +137,11 @@ Trump has invited this person into the White House for dinner. 
 [https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/](https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/)
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
+
+2025-04-09 During remarks at the White House Melania Trump claimed she had no knowledge to Epstein’s abuses and called on Congress to allow victims to testify on Capitol Hill. 
+
+[https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement](https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement)
+
+[https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html](https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html)
+
+[https://www.bbc.com/news/articles/c3ex07l1qvpo](https://www.bbc.com/news/articles/c3ex07l1qvpo)

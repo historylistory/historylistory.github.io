@@ -1230,3 +1230,15 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/](https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/)
 
 [https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
+
+2025-04-09 Despite an attempted ceasefire agreement, Israel continued to bomb Lebanon – the largest and most lethal bombing campaign at this point in the war. JD Vance dismissed it when asked, saying Lebanon wasn’t a part of the plan or agreement. 
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-ceasefire-trump-hormuz-israel-lebanon-rcna267205](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-ceasefire-trump-hormuz-israel-lebanon-rcna267205)
+
+[https://www.bbc.com/news/live/clyeg3224d9t](https://www.bbc.com/news/live/clyeg3224d9t)
+
+[https://www.aljazeera.com/news/2026/4/9/us-democrats-warn-trump-that-iran-ceasefire-must-apply-to-lebanon](https://www.aljazeera.com/news/2026/4/9/us-democrats-warn-trump-that-iran-ceasefire-must-apply-to-lebanon)
+
+[https://www.theguardian.com/world/2026/apr/09/israel-bombing-lebanon-us-iran-ceasefire-condemnation](https://www.theguardian.com/world/2026/apr/09/israel-bombing-lebanon-us-iran-ceasefire-condemnation)
+
+[https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat](https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat)

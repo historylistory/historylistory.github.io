@@ -158,7 +158,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 
 ### 2026 April
 
-2026-04-08 Anthropic says the Claude Mythos Preview is not ready to launch publicly because of the ways cybercriminals and spies could use it.
+2026-04-08 Anthropic says the Claude Mythos Preview is not ready to launch publicly because of the ways cybercriminals and spies could use it. For example, Mythos can "break out" of sandbox environments and seek out an internet connection on its own, and it has the capability of breaking in to any system. Anthropic gave access to Apple, Google and Amazon. 
 
 [https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s](https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s)
 
