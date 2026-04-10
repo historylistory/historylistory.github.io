@@ -163,3 +163,11 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/](https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/)
 
 [https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)
+
+2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
+
+[https://www.youtube.com/watch?v=l0Gy6lLRu6U](https://www.youtube.com/watch?v=l0Gy6lLRu6U)
+
+[https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
+
+[https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)

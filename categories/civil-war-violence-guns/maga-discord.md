@@ -116,6 +116,9 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.aljazeera.com/opinions/2026/2/22/the-carlson-huckabee-interview-may-be-the-wake-up-call-americans-needed](https://www.aljazeera.com/opinions/2026/2/22/the-carlson-huckabee-interview-may-be-the-wake-up-call-americans-needed)
 
+2025-11-10 MAGA v. Tucker Carlson for interviewing Nick Fuentes.
+
+[https://thehill.com/video/ben-shapiro-mark-levin-torch-tucker-carlson-for-fuentes-interview-rising/11248536/](https://thehill.com/video/ben-shapiro-mark-levin-torch-tucker-carlson-for-fuentes-interview-rising/11248536/)
 
 2025-11-24 Ron Johnson criticized deficit spending and tariff strategies, arguing they could hurt long-term fiscal stability.
 
@@ -179,6 +182,12 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 2026-03-05 Andy Biggs questioned military posture and federal overreach tied to Trump policy directions.
 
 [https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority](https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority)
+
+2026-03-06 Nick Fuentes v Mark Levine over the war in Iran. 
+
+[https://www.youtube.com/watch?v=-Ud4NK0nKTA](https://www.youtube.com/watch?v=-Ud4NK0nKTA)
+
+[https://www.theguardian.com/media/2026/mar/06/conservative-media-open-warfare-over-iran](https://www.theguardian.com/media/2026/mar/06/conservative-media-open-warfare-over-iran)
 
 2026-03-08 On this edition of Newsmax’s Savage Nation Michael Savage said, “I’m sick of the racialist vermin who follow Tucker Carlson and that psychotic Candy – whatever her name is. You’re basically crypto-Nazis, no matter what you say….Carlson and Candace espouse Nazi bloodline testing…” among other things.
 
@@ -285,6 +294,21 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)
 
+2026-04-07 Roger Stone v Laura Loomer embarrassing discord over the war in Iran.
+
+~~~
+~~~ Stone wrote: “BREAKING: @LauraLoomer reportedly despondent over her failure to goad President Trump into WWIII, killing millions”
+
+~~~ Loomer wrote: “Stop spewing IRGC talking points Roger. You disrespect President Trump when you repeat the lies that he is getting us into WW3 that are masterminded by your friend Tulsi Gabbard (whose 2028 campaign for President you’re running around telling everyone you’re running), and the lies spread by your buddies Tucker Carlson and Alex Jones who want the 25th Amendment to be used against Trump.”
+
+~~~ Stone wrote: “Laura, you’re delusional and slipping into insanity. I’ve known Donald Trump for 50 years – you’ve known him for 50 minutes. He was revolted when you spread the rumor that you were having sex with him”…and further wrote, “I may now be forced to sue you – giving me access to all your financial records, where I will find out whose been financing your serial lies. This will be really fun since no lawyer will agree to represent you, and the only lawyer who will rep you, Larry Klayman, has been suspended from the practice of law by the bar in all relevant jurisdictions…stop calling yourself an ‘independent’ investigative journalist because you’re PAID to post your bullshit on social media – and we both know what women who are paid to do things are called”.
+~~~
+
+[https://x.com/LauraLoomer/status/2041664958912430501](https://x.com/LauraLoomer/status/2041664958912430501)
+
+[https://x.com/RogerJStoneJr/status/2041680652962295825](https://x.com/RogerJStoneJr/status/2041680652962295825)
+
+
 2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 [https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
@@ -302,3 +326,4 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 [https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS](https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS)
 
 [https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)
+

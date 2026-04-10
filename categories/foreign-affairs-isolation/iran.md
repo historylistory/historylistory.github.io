@@ -1231,6 +1231,20 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
 
+2026-04-07 Trump and Hegseth declared victory over Iran with a 10-point deal that didn’t make sense. The Strait of Hormuz was open before the U.S. and Israel initiated attacks on Iran, Iran gets to keep any uranium they already had, and it totally disrupted the negotiations already in place by Obama. 
+
+[https://truthsocial.com/@realDonaldTrump/posts/116365796713313030](https://truthsocial.com/@realDonaldTrump/posts/116365796713313030)
+
+[https://www.npr.org/2026/04/08/nx-s1-5771492/iran-war-goals-unmet-ceasefire-strait-hormuz-trump](https://www.npr.org/2026/04/08/nx-s1-5771492/iran-war-goals-unmet-ceasefire-strait-hormuz-trump)
+
+[https://www.pbs.org/newshour/politics/fact-checking-trump-and-hegseths-claims-of-u-s-victory-in-the-iran-war](https://www.pbs.org/newshour/politics/fact-checking-trump-and-hegseths-claims-of-u-s-victory-in-the-iran-war)
+
+[https://www.france24.com/en/live-news/20260408-trump-to-afp-iran-deal-total-and-complete-victory-for-us](https://www.france24.com/en/live-news/20260408-trump-to-afp-iran-deal-total-and-complete-victory-for-us)
+
+[https://www.youtube.com/watch?v=kumzM-MrMeg](https://www.youtube.com/watch?v=kumzM-MrMeg)
+
+[https://www.en-hrana.org/day-38-of-u-s-and-israeli-attacks-on-iran-highest-rate-of-strikes-in-the-past-ten-days/](https://www.en-hrana.org/day-38-of-u-s-and-israeli-attacks-on-iran-highest-rate-of-strikes-in-the-past-ten-days/)
+
 2025-04-09 Despite an attempted ceasefire agreement, Israel continued to bomb Lebanon – the largest and most lethal bombing campaign at this point in the war. JD Vance dismissed it when asked, saying Lebanon wasn’t a part of the plan or agreement. 
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-ceasefire-trump-hormuz-israel-lebanon-rcna267205](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-ceasefire-trump-hormuz-israel-lebanon-rcna267205)

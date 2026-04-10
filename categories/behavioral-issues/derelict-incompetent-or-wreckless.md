@@ -459,6 +459,21 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/](https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/)
 
+2026-04-07 Trump and Hegseth declared victory over Iran with a 10-point deal that didn’t make sense. The Strait of Hormuz was open before the U.S. and Israel initiated attacks on Iran, Iran gets to keep any uranium they already had, and it totally disrupted the negotiations already in place by Obama. 
+
+[https://truthsocial.com/@realDonaldTrump/posts/116365796713313030](https://truthsocial.com/@realDonaldTrump/posts/116365796713313030)
+
+[https://www.npr.org/2026/04/08/nx-s1-5771492/iran-war-goals-unmet-ceasefire-strait-hormuz-trump](https://www.npr.org/2026/04/08/nx-s1-5771492/iran-war-goals-unmet-ceasefire-strait-hormuz-trump)
+
+[https://www.pbs.org/newshour/politics/fact-checking-trump-and-hegseths-claims-of-u-s-victory-in-the-iran-war](https://www.pbs.org/newshour/politics/fact-checking-trump-and-hegseths-claims-of-u-s-victory-in-the-iran-war)
+
+[https://www.france24.com/en/live-news/20260408-trump-to-afp-iran-deal-total-and-complete-victory-for-us](https://www.france24.com/en/live-news/20260408-trump-to-afp-iran-deal-total-and-complete-victory-for-us)
+
+[https://www.youtube.com/watch?v=kumzM-MrMeg](https://www.youtube.com/watch?v=kumzM-MrMeg)
+
+[https://www.en-hrana.org/day-38-of-u-s-and-israeli-attacks-on-iran-highest-rate-of-strikes-in-the-past-ten-days/](https://www.en-hrana.org/day-38-of-u-s-and-israeli-attacks-on-iran-highest-rate-of-strikes-in-the-past-ten-days/)
+
+
 2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after he tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
 
 [https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran](https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran)

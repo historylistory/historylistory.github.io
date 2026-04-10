@@ -505,6 +505,20 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
 
+2026-04-07 Roger Stone v Laura Loomer embarrassing discord over the war in Iran.
+
+~~~
+~~~ Stone wrote: “BREAKING: @LauraLoomer reportedly despondent over her failure to goad President Trump into WWIII, killing millions”
+
+~~~ Loomer wrote: “Stop spewing IRGC talking points Roger. You disrespect President Trump when you repeat the lies that he is getting us into WW3 that are masterminded by your friend Tulsi Gabbard (whose 2028 campaign for President you’re running around telling everyone you’re running), and the lies spread by your buddies Tucker Carlson and Alex Jones who want the 25th Amendment to be used against Trump.”
+
+~~~ Stone wrote: “Laura, you’re delusional and slipping into insanity. I’ve known Donald Trump for 50 years – you’ve known him for 50 minutes. He was revolted when you spread the rumor that you were having sex with him”…and further wrote, “I may now be forced to sue you – giving me access to all your financial records, where I will find out whose been financing your serial lies. This will be really fun since no lawyer will agree to represent you, and the only lawyer who will rep you, Larry Klayman, has been suspended from the practice of law by the bar in all relevant jurisdictions…stop calling yourself an ‘independent’ investigative journalist because you’re PAID to post your bullshit on social media – and we both know what women who are paid to do things are called”.
+~~~
+
+[https://x.com/LauraLoomer/status/2041664958912430501](https://x.com/LauraLoomer/status/2041664958912430501)
+
+[https://x.com/RogerJStoneJr/status/2041680652962295825](https://x.com/RogerJStoneJr/status/2041680652962295825)
+
 2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 [https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
@@ -514,3 +528,4 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 [https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/](https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/)
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
+
