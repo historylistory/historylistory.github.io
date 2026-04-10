@@ -173,6 +173,17 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://x.com/AFpost/status/1978305706018144460](https://x.com/AFpost/status/1978305706018144460)
 
+2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
+
+[https://www.youtube.com/watch?v=GYWFsTrquPs](https://www.youtube.com/watch?v=GYWFsTrquPs)
+
+[https://www.instagram.com/p/DQCH6GzDBDH/](https://www.instagram.com/p/DQCH6GzDBDH/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football](https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football)
+
+[https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
+
+
 2025-10-27 ICE agents used Halo (game) images in their recruitment tactics. One article reported that the administration traded Halo memes with the GameStop account.
 
 [https://mashable.com/article/ice-use-halo-for-social-media-recruitment](https://mashable.com/article/ice-use-halo-for-social-media-recruitment)
@@ -233,6 +244,14 @@ permalink: /categories/behavioral-issues/soulless/
 
 
 ### 2026 January
+
+2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
+
+[https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/](https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin](https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin)
+
+[https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district](https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district)
 
 2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear she was crying.
 
@@ -452,6 +471,14 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
 
+2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
+
+[https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3](https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3)
+
+[https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28](https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28)
+
 ### 2026 April
 
 2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
@@ -461,3 +488,19 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.youtube.com/watch?v=S2dxrtOgvEY](https://www.youtube.com/watch?v=S2dxrtOgvEY)
 
 [https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video](https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video)
+
+2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
+
+[https://www.youtube.com/watch?v=l0Gy6lLRu6U](https://www.youtube.com/watch?v=l0Gy6lLRu6U)
+
+[https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
+
+[https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
+
+2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
+
+[https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom](https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom)
+
+[https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
+
+[https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)

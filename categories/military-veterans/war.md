@@ -238,3 +238,13 @@ permalink: /categories/military-veterans/war/
 [https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued](https://www.axios.com/2026/04/05/iran-f15-crew-member-rescued)
 
 [https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/](https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/)
+
+2026-04-09 Survivors of a deadly attack by Iranian drone strikes in Kuwait March 1st 2026 said they were not prepared or fortified. Pete Hesgeth told officials the unit was fortified and the drone strike was a “squirter”, but soldiers are disputing Hegseth’s claims.
+
+[https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/](https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/)
+
+[https://www.thedailybeast.com/us-soldiers-call-bs-on-pentagon-petes-version-of-deadly-strike/](https://www.thedailybeast.com/us-soldiers-call-bs-on-pentagon-petes-version-of-deadly-strike/)
+
+[https://www.newsnationnow.com/us-news/military/pentagon-misleading-public-kuwait-base/](https://www.newsnationnow.com/us-news/military/pentagon-misleading-public-kuwait-base/)
+
+[https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485](https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485)

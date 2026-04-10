@@ -1242,3 +1242,29 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.theguardian.com/world/2026/apr/09/israel-bombing-lebanon-us-iran-ceasefire-condemnation](https://www.theguardian.com/world/2026/apr/09/israel-bombing-lebanon-us-iran-ceasefire-condemnation)
 
 [https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat](https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat)
+
+2026-04-09 Survivors of a deadly attack by Iranian drone strikes in Kuwait March 1st 2026 said they were not prepared or fortified. Pete Hesgeth told officials the unit was fortified and the drone strike was a “squirter”, but soldiers are disputing Hegseth’s claims.
+
+[https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/](https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/)
+
+[https://www.thedailybeast.com/us-soldiers-call-bs-on-pentagon-petes-version-of-deadly-strike/](https://www.thedailybeast.com/us-soldiers-call-bs-on-pentagon-petes-version-of-deadly-strike/)
+
+[https://www.newsnationnow.com/us-news/military/pentagon-misleading-public-kuwait-base/](https://www.newsnationnow.com/us-news/military/pentagon-misleading-public-kuwait-base/)
+
+[https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485](https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485)
+
+2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after he tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
+
+[https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran](https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran)
+
+[https://www.democracynow.org/2026/4/10/headlines/house_gop_blocks_democratic_effort_to_force_vote_on_iran_war_powers_resolution](https://www.democracynow.org/2026/4/10/headlines/house_gop_blocks_democratic_effort_to_force_vote_on_iran_war_powers_resolution)
+
+[https://www.reuters.com/legal/government/us-republicans-block-bid-rein-trump-iran-war-powers-2026-04-09/](https://www.reuters.com/legal/government/us-republicans-block-bid-rein-trump-iran-war-powers-2026-04-09/)
+
+2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
+
+[https://www.youtube.com/watch?v=l0Gy6lLRu6U](https://www.youtube.com/watch?v=l0Gy6lLRu6U)
+
+[https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
+
+[https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)

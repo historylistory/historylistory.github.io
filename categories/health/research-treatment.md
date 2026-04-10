@@ -79,3 +79,29 @@ permalink: /categories/health/research-treatment/
 [https://www.facebook.com/watch/?v=1699227697408915](https://www.facebook.com/watch/?v=1699227697408915)
 
 [https://www.facebook.com/watch/?v=656096720871687](https://www.facebook.com/watch/?v=656096720871687)
+
+### 2026 April
+
+2026-04-10 Acting CDC director Jay Bhattacharya blocked COVID vaccination reports showing their benefits.  Jay Bhattacharya was one of the authors of the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed.
+
+[https://www.theguardian.com/us-news/2026/apr/10/cdc-chief-covid-vaccine](https://www.theguardian.com/us-news/2026/apr/10/cdc-chief-covid-vaccine)
+
+[https://www.pbs.org/newshour/health/the-trump-administration-just-updated-rules-for-cdcs-vaccine-advisory-panel-allowing-inclusion-of-rfk-jr-allies](https://www.pbs.org/newshour/health/the-trump-administration-just-updated-rules-for-cdcs-vaccine-advisory-panel-allowing-inclusion-of-rfk-jr-allies)
+
+[https://www.wsav.com/news/cdc-delays-covid-vaccine-benefits-report/](https://www.wsav.com/news/cdc-delays-covid-vaccine-benefits-report/)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-delays-publishing-report-showing-covid-vaccine-benefits-wapo-reports-2026-04-09/](https://www.reuters.com/business/healthcare-pharmaceuticals/us-cdc-delays-publishing-report-showing-covid-vaccine-benefits-wapo-reports-2026-04-09/)
+
+[https://arstechnica.com/health/2026/04/cdc-study-shows-covid-shot-benefits-trump-official-blocks-release/](https://arstechnica.com/health/2026/04/cdc-study-shows-covid-shot-benefits-trump-official-blocks-release/)
+
+PAY OR SUB WALL [https://www.washingtonpost.com/health/2026/04/09/covid-vaccine-report-delayed/](https://www.washingtonpost.com/health/2026/04/09/covid-vaccine-report-delayed/)
+
+Great Barrington Declaration links:
+
+[https://en.wikipedia.org/wiki/Great_Barrington_Declaration](https://en.wikipedia.org/wiki/Great_Barrington_Declaration)
+
+[https://gbdeclaration.org](https://gbdeclaration.org)
+
+[https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf](https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf)
+
+[https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns](https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns)

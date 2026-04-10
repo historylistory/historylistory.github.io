@@ -458,3 +458,19 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 [https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases](https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases)
 
 [https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/](https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/)
+
+2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after he tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
+
+[https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran](https://www.theguardian.com/us-news/2026/apr/09/house-democrats-trump-war-powers-resolution-iran)
+
+[https://www.democracynow.org/2026/4/10/headlines/house_gop_blocks_democratic_effort_to_force_vote_on_iran_war_powers_resolution](https://www.democracynow.org/2026/4/10/headlines/house_gop_blocks_democratic_effort_to_force_vote_on_iran_war_powers_resolution)
+
+[https://www.reuters.com/legal/government/us-republicans-block-bid-rein-trump-iran-war-powers-2026-04-09/](https://www.reuters.com/legal/government/us-republicans-block-bid-rein-trump-iran-war-powers-2026-04-09/)
+
+2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
+
+[https://www.youtube.com/watch?v=l0Gy6lLRu6U](https://www.youtube.com/watch?v=l0Gy6lLRu6U)
+
+[https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
+
+[https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)

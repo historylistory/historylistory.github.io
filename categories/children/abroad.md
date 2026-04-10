@@ -34,6 +34,17 @@ permalink: /categories/children/abroad/
 
 ### 2025 October
 
+2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
+
+[https://www.youtube.com/watch?v=GYWFsTrquPs](https://www.youtube.com/watch?v=GYWFsTrquPs)
+
+[https://www.instagram.com/p/DQCH6GzDBDH/](https://www.instagram.com/p/DQCH6GzDBDH/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football](https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football)
+
+[https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
+
+
 2025-10-25 PBS covered a story about how nurse Agnes Nambozo scales a 1000-foot ladder to work every day to reach the children in a remote part of Uganda to administer vaccines and life-saving care, and now that USAID has been dismantled she must also cover the work of several other people who, because of the Trump administration, are no longer available to provide aid.
 
 [https://www.pbs.org/newshour/show/meet-the-nurse-in-uganda-who-climbs-a-1000-foot-ladder-to-save-lives](https://www.pbs.org/newshour/show/meet-the-nurse-in-uganda-who-climbs-a-1000-foot-ladder-to-save-lives)
@@ -49,6 +60,16 @@ permalink: /categories/children/abroad/
 [https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths](https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths)
 
 [https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
+
+### 2026 February
+
+2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
+
+[https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/](https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin](https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin)
+
+[https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district](https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district)
 
 ### 2026 February
 
@@ -93,3 +114,21 @@ permalink: /categories/children/abroad/
 [https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak](https://www.middleeasteye.net/live-blog/live-blog-update/three-day-old-infant-among-family-killed-us-israeli-strike-irans-arak)
 
 [https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4](https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4)
+
+2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
+
+[https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3](https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3)
+
+[https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28](https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28)
+
+### 2026 April
+
+2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
+
+[https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom](https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom)
+
+[https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
+
+[https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)

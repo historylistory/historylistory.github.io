@@ -111,6 +111,19 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://www.npr.org/2025/12/19/nx-s1-5648270/trump-weather-climate-national-center-atmospheric-research-ncar](https://www.npr.org/2025/12/19/nx-s1-5648270/trump-weather-climate-national-center-atmospheric-research-ncar)
 
+### 2026 March
+
+2026-03-01 NOAA confirmed that March 2026 was the hottest March on record in 132 years of record keeping.
+
+[https://www.ncei.noaa.gov/news/national-climate-202603](https://www.ncei.noaa.gov/news/national-climate-202603)
+
+[https://www.pbs.org/newshour/nation/march-smashed-heat-records-in-the-u-s-just-wait-for-el-nino-this-summer](https://www.pbs.org/newshour/nation/march-smashed-heat-records-in-the-u-s-just-wait-for-el-nino-this-summer)
+
+[https://www.nbcnews.com/science/environment/climate-change-kicking-butts-march-smashes-heat-records-continental-us-rcna267422](https://www.nbcnews.com/science/environment/climate-change-kicking-butts-march-smashes-heat-records-continental-us-rcna267422)
+
+[https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/](https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/)
+
+
 ### 2026 April
 
 2026-04-02 The Artemis crew took a photo of earth and posted a side-by-side comparison to 1972, showing a now less-vibrant one.

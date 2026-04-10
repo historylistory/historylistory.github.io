@@ -195,6 +195,16 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.npr.org/2025/10/29/g-s1-95523/israel-hamas-gaza-ceasefire](https://www.npr.org/2025/10/29/g-s1-95523/israel-hamas-gaza-ceasefire)
 
+2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
+
+[https://www.youtube.com/watch?v=GYWFsTrquPs](https://www.youtube.com/watch?v=GYWFsTrquPs)
+
+[https://www.instagram.com/p/DQCH6GzDBDH/](https://www.instagram.com/p/DQCH6GzDBDH/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football](https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football)
+
+[https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
+
 ### 2025 December
 
 2025-12-17 Winter floods devastated Gaza, killing several people.
@@ -204,6 +214,14 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.amnesty.org/en/latest/news/2025/12/utterly-preventable-gaza-flood-tragedy-must-mobilize-action-to-end-israels-genocide/](https://www.amnesty.org/en/latest/news/2025/12/utterly-preventable-gaza-flood-tragedy-must-mobilize-action-to-end-israels-genocide/)
 
 ### 2026 January
+
+2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
+
+[https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/](https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin](https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin)
+
+[https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district](https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district)
 
 2026-01-30 Israel resumed air strikes on Gaza, killing at least 29 more since the October ceasefire.
 
@@ -223,6 +241,14 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2026 March
 
+2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
+
+[https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3](https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3)
+
+[https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28](https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28)
+
 2026-03-30 Israel passed a death penalty law specifically for Palestinians.
 
 [https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law](https://www.aljazeera.com/news/2026/4/1/this-is-an-apartheid-regime-critics-decry-israels-new-death-penalty-law)
@@ -236,3 +262,22 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill](https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill)
 
 [https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes](https://www.hrw.org/news/2026/03/31/israel-discriminatory-death-penalty-bill-passes)
+
+### 2026 April
+
+2026-04-09 Israel approved 34 new settlements in their occupation of the West Bank.
+
+[https://www.timesofisrael.com/government-formally-approves-34-new-settlements-as-it-acts-to-deepen-hold-on-west-bank/](https://www.timesofisrael.com/government-formally-approves-34-new-settlements-as-it-acts-to-deepen-hold-on-west-bank/)
+
+[https://www.reuters.com/world/middle-east/israel-approves-dozens-new-settlements-west-bank-watchdog-says-2026-04-09/](https://www.reuters.com/world/middle-east/israel-approves-dozens-new-settlements-west-bank-watchdog-says-2026-04-09/)
+
+[https://www.democracynow.org/2026/4/10/headlines/israel_approves_34_settler_outposts_amid_continuing_settler_violence_in_occupied_west_bank](https://www.democracynow.org/2026/4/10/headlines/israel_approves_34_settler_outposts_amid_continuing_settler_violence_in_occupied_west_bank)
+
+
+2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
+
+[https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom](https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom)
+
+[https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
+
+[https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)

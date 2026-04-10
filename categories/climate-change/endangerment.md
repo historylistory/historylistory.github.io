@@ -63,3 +63,17 @@ permalink: /categories/climate-change/endangerment/
 [https://ceobs.org/black-rain-the-health-and-environmental-risks-from-tehrans-oil-fires/](https://ceobs.org/black-rain-the-health-and-environmental-risks-from-tehrans-oil-fires/)
 
 [https://www.newscientist.com/article/2518718-why-is-black-rain-falling-on-iran-and-how-dangerous-is-it/](https://www.newscientist.com/article/2518718-why-is-black-rain-falling-on-iran-and-how-dangerous-is-it/)
+
+### 2026 April
+
+2026-04-09 Multiple doctors and other health professionals signed a petition against EPA Lee Zeldin, stating he was pursuing deregulation on greenhouse gases and the 2009 Endangerment finding. 
+
+OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
+
+[https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired](https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired)
+
+[https://www.momscleanairforce.org/epa-head-zeldin-must-go](https://www.momscleanairforce.org/epa-head-zeldin-must-go)
+
+[https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences](https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences)
+
+[https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great](https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great)

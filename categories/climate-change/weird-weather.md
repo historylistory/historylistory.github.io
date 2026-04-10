@@ -39,6 +39,16 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2026 March
 
+2026-03-01 NOAA confirmed that March 2026 was the hottest March on record in 132 years of record keeping.
+
+[https://www.ncei.noaa.gov/news/national-climate-202603](https://www.ncei.noaa.gov/news/national-climate-202603)
+
+[https://www.pbs.org/newshour/nation/march-smashed-heat-records-in-the-u-s-just-wait-for-el-nino-this-summer](https://www.pbs.org/newshour/nation/march-smashed-heat-records-in-the-u-s-just-wait-for-el-nino-this-summer)
+
+[https://www.nbcnews.com/science/environment/climate-change-kicking-butts-march-smashes-heat-records-continental-us-rcna267422](https://www.nbcnews.com/science/environment/climate-change-kicking-butts-march-smashes-heat-records-continental-us-rcna267422)
+
+[https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/](https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/)
+
 2026-03-07 A barrage of tornadoes hit southwest Michigan resulting in loss of life. It was the earliest recorded tornado of its size, meaning the earliest in the year. This coincides with a huge uptick in unusual weather. The impact of climate change also hits Americans wallets with rising costs in homeowners insurance and recovery. 
 
 [https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes](https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes)

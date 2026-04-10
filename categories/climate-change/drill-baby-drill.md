@@ -45,3 +45,15 @@ permalink: /categories/climate-change/drill-baby-drill/
 [https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico](https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico)
 
 [https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill](https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill)
+
+### 2026 April
+
+2026-04-02 Argentina’s lawmakers, led by Javier Milei, pushed reforms to remove protections on freshwater reserves and glaciers to allow for drilling. 
+
+[https://www.bbc.com/news/articles/c5y72e6x554o](https://www.bbc.com/news/articles/c5y72e6x554o)
+
+[https://news.climate.columbia.edu/2026/04/02/argentina-reforms-glacier-protection-law/](https://news.climate.columbia.edu/2026/04/02/argentina-reforms-glacier-protection-law/)
+
+[https://www.democracynow.org/2026/4/10/headlines/protesters_rally_to_protect_water_resources_as_argentina_weakens_law_protecting_glaciers](https://www.democracynow.org/2026/4/10/headlines/protesters_rally_to_protect_water_resources_as_argentina_weakens_law_protecting_glaciers)
+
+[https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml](https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml)

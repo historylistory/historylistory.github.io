@@ -76,6 +76,8 @@ permalink: /recommended-links/
 
 [Campaign: Donor Lookup on OpenSecrets](https://www.opensecrets.org/donor-lookup)
 
+[Climate Change: Petition to stop Lee Zeldin from deregulating greenhouse gasses](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
+
 [NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers)
 
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
