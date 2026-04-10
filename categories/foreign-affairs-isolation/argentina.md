@@ -8,6 +8,14 @@ permalink: /categories/foreign-affairs-isolation/argentina/
 
 ### 2025 October
 
+2025-10-12 The Trump Administration bailed Argentina out with $40 BILLION in American taxpayer dollars. In November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry.
+
+[https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
+
+[https://democrats-financialservices.house.gov/news/documentsingle.aspx?DocumentID=413878](https://democrats-financialservices.house.gov/news/documentsingle.aspx?DocumentID=413878)
+
+[https://www.bbc.com/news/articles/c4g3mdvle78o](https://www.bbc.com/news/articles/c4g3mdvle78o)
+
 2025-10-24 Trump announced plans to buy beef from Argentina. For context, Trump had just bailed Argentina out with $40 BILLION in American taxpayer funds a week prior   (unrelated note: American meat processing plants also profit from things like byproducts, leather, and glue).
 
 [https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina](https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina)

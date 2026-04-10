@@ -141,7 +141,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
 
-2025-10-12 The Trump Administration bailed Argentina out with $20 BILLION in American taxpayer dollars. Some news outlets later reported the amount was actually $40B, and in November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry.
+2025-10-12 The Trump Administration bailed Argentina out with $40 BILLION in American taxpayer dollars. In November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry.
 
 [https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
 
