@@ -55,3 +55,12 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
+### 2026
+
+2026-04-06 Sam Altman and OpenAI article – New Yorker “Can Sam Altman be Trusted?”
+
+[https://www.youtube.com/watch?v=uf_eDlf7h8E&list=WL&index=5](https://www.youtube.com/watch?v=uf_eDlf7h8E&list=WL&index=5)
+
+[https://www.newyorker.com/magazine/2026/04/13/sam-altman-may-control-our-future-can-he-be-trusted](https://www.newyorker.com/magazine/2026/04/13/sam-altman-may-control-our-future-can-he-be-trusted)
+
+[https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted](https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted)

@@ -99,16 +99,10 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 [https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/](https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/)
 
 ***Scripture often cited by those who condemn homosexuality:*** Leviticus 18:22, Leviticus 20:13, Romas 1:26-27, 1 Corinthians 6:9-10. 
-
-***Important distinction when the book of Leviticus was written:*** in that time, same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. Much of what’s talked about in Leviticus is also in a section that discusses incest, child sacrifice, bestiality and adultery and/or ties practices to those rituals, **NOT** modern consensual adult relationships (which were not a recognized social category at the time).
-
-**Books AI recommended during my research (yes, I used ChatGPT to search for these and no, I haven’t read them)**
-William Loader — The New Testament on Sexuality
-John Boswell — Christianity, Social Tolerance, and Homosexuality
-Martti Nissinen — Homoeroticism in the Biblical World
-Jacob Milgrom — Leviticus (Anchor Yale Bible Commentary)
-Tikva Frymer-Kensky — Studies on fertility cults and goddess worship
-Mark S. Smith — The Early History of God (Canaanite religion)
+~~~
+~~~ About Leviticus
+When this book was written same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. Much of what’s talked about in Leviticus is also in a section that discusses incest, child sacrifice, bestiality and adultery and/or ties practices to those rituals, **NOT** modern consensual adult relationships (which were not a recognized social category at the time).
+~~~
 
 ***Acts 10:13-15*** “Do not call anything impure that God has made clean”.
 

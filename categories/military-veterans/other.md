@@ -107,3 +107,19 @@ permalink: /categories/military-veterans/other/
 [https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/](https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/)
 
 [https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755](https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755)
+
+2026-04-09 The Trump administration announced automatic draft registration will start in December 2026.
+
+[https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/])https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/
+
+[https://www.usatoday.com/story/news/nation/2026/04/10/us-military-draft-automatic-registration-impacts/89552441007/](https://www.usatoday.com/story/news/nation/2026/04/10/us-military-draft-automatic-registration-impacts/89552441007/)
+
+[https://www.cnn.com/2026/04/09/politics/us-military-draft-registration-2026](https://www.cnn.com/2026/04/09/politics/us-military-draft-registration-2026)
+
+[https://www.cnbc.com/2026/04/09/military-draft-registration-automatic-iran-war.html](https://www.cnbc.com/2026/04/09/military-draft-registration-automatic-iran-war.html)
+
+VIDEO [https://www.cbsnews.com/texas/video/automatic-draft-registration-to-begin-nationwide-in-december/](https://www.cbsnews.com/texas/video/automatic-draft-registration-to-begin-nationwide-in-december/)
+
+VIDEO [https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3](https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3)
+
+SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/](https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/)

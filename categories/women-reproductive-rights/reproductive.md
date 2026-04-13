@@ -304,7 +304,7 @@ It would also make it a felony to give someone information about where to get a
 
 [https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html](https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html)
 
-2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat.  It would also require death certificates be issued. 
+2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat.  It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
 
 [https://www.legislature.ohio.gov/legislation/136/hb754](https://www.legislature.ohio.gov/legislation/136/hb754)
 
