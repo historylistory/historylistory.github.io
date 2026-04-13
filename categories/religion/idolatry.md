@@ -7,3 +7,110 @@ permalink: /categories/religion/idolatry/
 ---
 
 ### new section standby
+
+### 2019 "The Chosen One"
+
+2019-08-21 Trump referred to himself as "the chosen one".
+
+{% include youtubePlayer.html id="lzlxrPC_E_U" %}
+
+### 2021
+
+2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots. 
+
+[https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440](https://theconversation.com/christian-nationalism-is-downplayed-in-the-jan-6-report-and-collective-memory-189440)
+
+[https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
+
+### 2025 February
+
+2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
+
+[https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
+
+{% include youtubePlayer.html id="PslOp883rfI" %}
+
+### 2025 May
+
+2025-05-02 Trump posted an AI generated photo on social media of himself depicted as the Pope.
+
+[https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/](https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/)
+
+[https://x.com/WhiteHouse/status/1918502592335724809](https://x.com/WhiteHouse/status/1918502592335724809)
+
+[https://truthsocial.com/@realDonaldTrump/posts/114441543826801216](https://truthsocial.com/@realDonaldTrump/posts/114441543826801216)
+
+2025-05-28 Trump posted an image on social media of himself, with the caption "He's on a mission from God & nothing can stop what is coming".
+
+[https://truthsocial.com/@realDonaldTrump/posts/114588777076099501](https://truthsocial.com/@realDonaldTrump/posts/114588777076099501)
+
+### 2026 March
+
+2026-03-09 Trump reposted a YouTube video “Kim Clement prophesying about Donald Trump, 2007”.  The video features Kim Clement saying, “This that shall take place shall be the most unusual thing, a transfiguration, a going into the marketplace, if you wish, into the news media – where Time Magazine will have no choice but to say what I want them to say, Newsweek, what I want to say, The View, what I want to say! Trump shall become a trumpet, says the Lord. Trump shall become a trumpet. I will raise up the Trump to become a trumpet and Bill Gates to open up the gate of a financial realm for the church, says the Lord.” The recording was from April 4, 2007 and recorded in Redding, California and goes on to refer to Trump as the gatekeeper. Another video is appended to the first one from an event on February 10, 2007 in Scottsdale, Arizona. 
+
+[https://www.mediaite.com/media/news/i-will-raise-up-the-trump-trump-promotes-wild-2007-prophesy/](https://www.mediaite.com/media/news/i-will-raise-up-the-trump-trump-promotes-wild-2007-prophesy/)
+
+[https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/](https://mycharisma.com/propheticrevival/donald-trump-goes-prophetic-the-kim-clement-prophecy-the-president-is-highlighting/)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116200371638821370](https://truthsocial.com/@realDonaldTrump/posts/116200371638821370)
+
+2026-03-31 Trump shared images of a towering 50-story glass skyscraper he wants for his presidential library. It has a golden escalator and the lobby will feature the Saudi jet he was gifted, a theater featuring a gold statue of himself, his “walk of fame”, and other things.
+
+[https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4](https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4)
+
+[https://www.reuters.com/world/us/huge-glass-skyscraper-envisioned-trump-presidential-library-ai-video-2026-03-31/](https://www.reuters.com/world/us/huge-glass-skyscraper-envisioned-trump-presidential-library-ai-video-2026-03-31/)
+
+[https://www.wsj.com/politics/elections/trump-reveals-presidential-library-design-a-glass-tower-in-miami-93869254](https://www.wsj.com/politics/elections/trump-reveals-presidential-library-design-a-glass-tower-in-miami-93869254)
+
+[https://newrepublic.com/post/208455/donald-trump-presidential-library-make-money-hotel](https://newrepublic.com/post/208455/donald-trump-presidential-library-make-money-hotel)
+
+[https://www.theatlantic.com/ideas/2026/04/trump-library-money-power-jet/686643/](https://www.theatlantic.com/ideas/2026/04/trump-library-money-power-jet/686643/)
+
+### 2026 April
+
+2026-04-01 During the White House Easter luncheon, Trump’s spiritual adviser Paula White likened Trump to Jesus.
+
+[https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/](https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/paula-white-cain-trump-jesus-christ-controversy-b2951338.html](https://www.the-independent.com/news/world/americas/us-politics/paula-white-cain-trump-jesus-christ-controversy-b2951338.html)
+
+[https://www.salon.com/2026/04/05/paula-white-likens-trumps-troubles-to-jesus-christ-at-easter-lunch/](https://www.salon.com/2026/04/05/paula-white-likens-trumps-troubles-to-jesus-christ-at-easter-lunch/)
+
+[https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus](https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus)
+
+[https://premierchristian.news/us/news/article/trump-compared-to-jesus-at-white-house-prayers](https://premierchristian.news/us/news/article/trump-compared-to-jesus-at-white-house-prayers)
+
+[https://www.thedailybeast.com/white-house-scrambles-to-wipe-trump-easter-meltdown-supreme-court-justices-footage/](https://www.thedailybeast.com/white-house-scrambles-to-wipe-trump-easter-meltdown-supreme-court-justices-footage/)
+
+[https://www.mediaite.com/media/news/white-house-deletes-bonkers-trump-easter-event-where-he-got-compared-to-jesus/](https://www.mediaite.com/media/news/white-house-deletes-bonkers-trump-easter-event-where-he-got-compared-to-jesus/)
+
+[https://x.com/metzgov/status/2039462014968316313](https://x.com/metzgov/status/2039462014968316313)
+
+[https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s](https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s)
+
+2026-04-01 Trump’s pastor Franklin Graham weaponized the book of Esther during a Presidential prayer at the White House, “Father, you tell us in the book of Esther that the Persians, the Iranians, were wanting to kill every Jew, woman, child, and do it all in one day”. He went on to politicize faith, calling Iranians the “wicked regime”, accused Iran of wanting to kill all Jews, compared Trump to Queen Esther, and claimed that Trump was “raised up for such a time as this”. This was during the war in Iran started by the U.S. and Israel, and during the same Easter prayer breakfast when Paula White compared Trump to Jesus. Fact-check: the villain in the book of Esther was not the Persians. Giving politics a biblical narrative to gain power and control is probably a sin. 
+
+[https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3](https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3)
+
+[https://www.youtube.com/shorts/9lmpBqaiGtI](https://www.youtube.com/shorts/9lmpBqaiGtI)
+
+
+2026-04-12 Trump posted – then deleted – an AI image of himself as Jesus Christ. After backlash, he claimed it was a picture of himself as a doctor healing people. 
+
+[https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html](https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html)
+
+[https://www.aljazeera.com/news/2026/4/13/trump-draws-backlash-over-posting-image-depicting-him-as-jesus-like-saviour](https://www.aljazeera.com/news/2026/4/13/trump-draws-backlash-over-posting-image-depicting-him-as-jesus-like-saviour)
+
+[https://www.yahoo.com/news/articles/trump-faces-backlash-over-post-144400174.html](https://www.yahoo.com/news/articles/trump-faces-backlash-over-post-144400174.html)
+
+[https://www.bbc.com/news/articles/c17v8y0z9z2o](https://www.bbc.com/news/articles/c17v8y0z9z2o)
+
+[https://abc7.com/post/trump-takes-down-image-social-media-depicted-jesus-like-figure/18880184/](https://abc7.com/post/trump-takes-down-image-social-media-depicted-jesus-like-figure/18880184/)
+
+[https://www.cnn.com/2026/04/13/politics/trump-jesus-post-pope-feud](https://www.cnn.com/2026/04/13/politics/trump-jesus-post-pope-feud)
+
+[https://www.reuters.com/business/media-telecom/trump-posts-ai-image-himself-jesus-like-figure-drawing-outrage-2026-04-13/](https://www.reuters.com/business/media-telecom/trump-posts-ai-image-himself-jesus-like-figure-drawing-outrage-2026-04-13/)
+
+SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html](https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html)
+
+SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
