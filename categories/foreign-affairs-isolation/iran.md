@@ -1282,3 +1282,17 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
 
 [https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
+
+2026-04-12 After JD Vance and others failed to secure peaceful negotiations with Iran, Trump said he would be the one blocking the Strait of Hormuz even though Iran already had it blockaded.
+
+[https://www.pbs.org/newshour/world/trump-says-u-s-navy-will-blockade-strait-of-hormuz-after-ceasefire-talks-end-without-agreement](https://www.pbs.org/newshour/world/trump-says-u-s-navy-will-blockade-strait-of-hormuz-after-ceasefire-talks-end-without-agreement)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-us-iran-fail-reach-deal-peace-talks-day-negotiations-rcna315918](https://www.nbcnews.com/world/iran/live-blog/live-updates-us-iran-fail-reach-deal-peace-talks-day-negotiations-rcna315918)
+
+[https://www.theguardian.com/world/2026/apr/13/strait-of-hormuz-blockade-what-why-explained-navy-trump-iran](https://www.theguardian.com/world/2026/apr/13/strait-of-hormuz-blockade-what-why-explained-navy-trump-iran)
+
+[https://www.cnn.com/2026/04/13/world/live-news/iran-us-war-trump-hormuz](https://www.cnn.com/2026/04/13/world/live-news/iran-us-war-trump-hormuz)
+
+VIDEO [https://www.youtube.com/watch?v=BGihdiBnrLo](https://www.youtube.com/watch?v=BGihdiBnrLo)
+
+VIDEO [https://www.bbc.com/news/live/cp9vm5ezxz4t](https://www.bbc.com/news/live/cp9vm5ezxz4t)

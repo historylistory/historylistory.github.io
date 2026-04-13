@@ -72,6 +72,15 @@ permalink: /categories/religion/performative-behavior/
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/](https://www.thedailybeast.com/pentagon-pete-hegseth-prays-for-overwhelming-violence-at-christian-service/)
 
+2026-03-31 JD Vance published his own religious-based book “Communion”.
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/jd-vances-upcoming-book-raises-eyebrows-for-all-the-wrong-reasons](https://www.ms.now/rachel-maddow-show/maddowblog/jd-vances-upcoming-book-raises-eyebrows-for-all-the-wrong-reasons)
+
+[https://www.theguardian.com/books/2026/apr/01/jd-vance-new-memoir-book-catholicism-communion](https://www.theguardian.com/books/2026/apr/01/jd-vance-new-memoir-book-catholicism-communion)
+
+[https://www.cnn.com/2026/03/31/politics/vance-jd-book-faith-catholic](https://www.cnn.com/2026/03/31/politics/vance-jd-book-faith-catholic)
+
+
 ### 2024 April
 
 2026-04-01 During the White House Easter luncheon, Trump’s spiritual adviser Paula White likened Trump to Jesus.

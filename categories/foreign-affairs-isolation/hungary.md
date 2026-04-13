@@ -60,6 +60,21 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 
 [https://www.pravda.com.ua/eng/news/2026/03/21/8026556/](https://www.pravda.com.ua/eng/news/2026/03/21/8026556/)
 
+### 2026 April
+
+2026-04-09 JD Vance travelled to Hungary in support for Victor Orban in the upcoming elections. After Vance visited, polls showed a decline in support for Orban.
+
+[https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/](https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/)
+
+[https://www.nbcnews.com/world/europe/orban-hungary-university-exile-jd-vance-model-us-rcna267253](https://www.nbcnews.com/world/europe/orban-hungary-university-exile-jd-vance-model-us-rcna267253)
+
+[https://fortune.com/2026/04/12/hungary-election-loser-viktor-orban-ally-trump-putin-campaign-push-jd-vance/](https://fortune.com/2026/04/12/hungary-election-loser-viktor-orban-ally-trump-putin-campaign-push-jd-vance/)
+
+[https://www.cbsnews.com/news/jd-vance-viktor-orban-hungary-support-election/](https://www.cbsnews.com/news/jd-vance-viktor-orban-hungary-support-election/)
+
+[https://www.bbc.com/news/articles/cyv16lq2rp1o](https://www.bbc.com/news/articles/cyv16lq2rp1o)
+
+[https://www.npr.org/2026/04/09/nx-s1-5779235/jd-vance-stumps-for-hungarys-orban](https://www.npr.org/2026/04/09/nx-s1-5779235/jd-vance-stumps-for-hungarys-orban)
 
 
 
