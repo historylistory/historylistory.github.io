@@ -278,3 +278,40 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 [https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case](https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case)
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
+
+2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+
+[https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
+
+[https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html](https://www.yahoo.com/news/articles/pentagon-threatened-pope-criticized-trump-212552754.html)
+
+[https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/](https://religionnews.com/2026/04/08/pentagon-vatican-meeting-latest-flash-point-in-trumps-clash-with-religious-leaders/)
+
+[https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350](https://www.newsweek.com/jd-vance-reacts-report-us-official-issued-threat-vatican-ambassador-11802350)
+
+[https://www.thefp.com/p/why-the-vatican-and-the-white-house](https://www.thefp.com/p/why-the-vatican-and-the-white-house)
+
+[https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142](https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142)
+
+PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
+
+
+2026-04-13 Trump and Pope Leo XIV got into it over the war in Iran. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leao said, “I have no fear of the Trump administration”. 
+
+[https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s](https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s)
+
+[https://apnews.com/article/trump-pope-leo-xiv-02f6b4554ea4b83af02af15987ae1f2d](https://apnews.com/article/trump-pope-leo-xiv-02f6b4554ea4b83af02af15987ae1f2d)
+
+[https://www.nytimes.com/live/2026/04/13/us/trump-news](https://www.nytimes.com/live/2026/04/13/us/trump-news)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-says-not-big-fan-weak-terrible-pope-leo-rcna331461](https://www.nbcnews.com/politics/donald-trump/trump-says-not-big-fan-weak-terrible-pope-leo-rcna331461)
+
+[https://www.wwnytv.com/2026/04/13/bishop-ogdensburg-diocese-voices-support-pope-leo-amid-presidents-criticism/](https://www.wwnytv.com/2026/04/13/bishop-ogdensburg-diocese-voices-support-pope-leo-amid-presidents-criticism/)
+
+[https://thehill.com/homenews/administration/5827819-live-updates-trump-iran-pope-leo/](https://thehill.com/homenews/administration/5827819-live-updates-trump-iran-pope-leo/)
+
+[https://www.axios.com/2026/04/13/trump-pope-leo-catholic-swing-voters](https://www.axios.com/2026/04/13/trump-pope-leo-catholic-swing-voters)
+
+[https://www.bbc.com/news/articles/cp841y07w5xo](https://www.bbc.com/news/articles/cp841y07w5xo)
+
+PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/](https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/)

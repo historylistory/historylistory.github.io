@@ -102,3 +102,23 @@ permalink: /categories/religion/performative-behavior/
 [https://x.com/metzgov/status/2039462014968316313](https://x.com/metzgov/status/2039462014968316313)
 
 [https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s](https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s)
+
+2026-04-12 Trump posted – then deleted – an AI image of himself as Jesus Christ. After backlash, he claimed it was a picture of himself as a doctor healing people. 
+
+[https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html](https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html)
+
+[https://www.aljazeera.com/news/2026/4/13/trump-draws-backlash-over-posting-image-depicting-him-as-jesus-like-saviour](https://www.aljazeera.com/news/2026/4/13/trump-draws-backlash-over-posting-image-depicting-him-as-jesus-like-saviour)
+
+[https://www.yahoo.com/news/articles/trump-faces-backlash-over-post-144400174.html](https://www.yahoo.com/news/articles/trump-faces-backlash-over-post-144400174.html)
+
+[https://www.bbc.com/news/articles/c17v8y0z9z2o](https://www.bbc.com/news/articles/c17v8y0z9z2o)
+
+[https://abc7.com/post/trump-takes-down-image-social-media-depicted-jesus-like-figure/18880184/](https://abc7.com/post/trump-takes-down-image-social-media-depicted-jesus-like-figure/18880184/)
+
+[https://www.cnn.com/2026/04/13/politics/trump-jesus-post-pope-feud](https://www.cnn.com/2026/04/13/politics/trump-jesus-post-pope-feud)
+
+[https://www.reuters.com/business/media-telecom/trump-posts-ai-image-himself-jesus-like-figure-drawing-outrage-2026-04-13/](https://www.reuters.com/business/media-telecom/trump-posts-ai-image-himself-jesus-like-figure-drawing-outrage-2026-04-13/)
+
+SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html](https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html)
+
+SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)

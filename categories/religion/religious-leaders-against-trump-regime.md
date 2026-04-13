@@ -153,3 +153,24 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142](https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142)
 
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
+
+2026-04-13 Trump and Pope Leo XIV got into it over the war in Iran. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leao said, “I have no fear of the Trump administration”. 
+
+[https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s](https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s)
+
+[https://apnews.com/article/trump-pope-leo-xiv-02f6b4554ea4b83af02af15987ae1f2d](https://apnews.com/article/trump-pope-leo-xiv-02f6b4554ea4b83af02af15987ae1f2d)
+
+[https://www.nytimes.com/live/2026/04/13/us/trump-news](https://www.nytimes.com/live/2026/04/13/us/trump-news)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-says-not-big-fan-weak-terrible-pope-leo-rcna331461](https://www.nbcnews.com/politics/donald-trump/trump-says-not-big-fan-weak-terrible-pope-leo-rcna331461)
+
+[https://www.wwnytv.com/2026/04/13/bishop-ogdensburg-diocese-voices-support-pope-leo-amid-presidents-criticism/](https://www.wwnytv.com/2026/04/13/bishop-ogdensburg-diocese-voices-support-pope-leo-amid-presidents-criticism/)
+
+[https://thehill.com/homenews/administration/5827819-live-updates-trump-iran-pope-leo/](https://thehill.com/homenews/administration/5827819-live-updates-trump-iran-pope-leo/)
+
+[https://www.axios.com/2026/04/13/trump-pope-leo-catholic-swing-voters](https://www.axios.com/2026/04/13/trump-pope-leo-catholic-swing-voters)
+
+[https://www.bbc.com/news/articles/cp841y07w5xo](https://www.bbc.com/news/articles/cp841y07w5xo)
+
+PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/](https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/)
+
