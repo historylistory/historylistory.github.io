@@ -6,15 +6,13 @@ subcategory_slug: idolatry
 permalink: /categories/religion/idolatry/
 ---
 
-### new section standby
-
 ### 2019 "The Chosen One"
 
 2019-08-21 Trump referred to himself as "the chosen one".
 
 {% include youtubePlayer.html id="lzlxrPC_E_U" %}
 
-### 2021
+### 2021 
 
 2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots. 
 
