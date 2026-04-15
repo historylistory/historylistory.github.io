@@ -253,3 +253,21 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 [https://www.nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html](https://www.nytimes.com/2026/03/26/nyregion/maduro-venezuela-court-manhattan.html)
 
 [https://www.reuters.com/legal/government/venezuelas-maduro-due-back-us-court-dispute-over-legal-fees-2026-03-26](https://www.reuters.com/legal/government/venezuelas-maduro-due-back-us-court-dispute-over-legal-fees-2026-03-26)
+
+### 2026 April
+
+2026-04-13 The US military struck another boat in the Pacific, killing two people. The Pentagon offered no evidence that they were carrying narcotics. Death toll at this date: approximately 170. 
+
+[https://www.youtube.com/watch?v=Z4ZKsiMUAyY](https://www.youtube.com/watch?v=Z4ZKsiMUAyY)
+
+[https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific)
+
+2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
+
+[https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela](https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela)
+
+[https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap](https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output](https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output)
+
+COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region](https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region)

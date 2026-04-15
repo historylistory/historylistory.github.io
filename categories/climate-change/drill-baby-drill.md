@@ -57,3 +57,13 @@ permalink: /categories/climate-change/drill-baby-drill/
 [https://www.democracynow.org/2026/4/10/headlines/protesters_rally_to_protect_water_resources_as_argentina_weakens_law_protecting_glaciers](https://www.democracynow.org/2026/4/10/headlines/protesters_rally_to_protect_water_resources_as_argentina_weakens_law_protecting_glaciers)
 
 [https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml](https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml)
+
+2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
+
+[https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela](https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela)
+
+[https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap](https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output](https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output)
+
+COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region](https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region)

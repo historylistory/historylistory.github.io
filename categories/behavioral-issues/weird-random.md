@@ -178,3 +178,16 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
 
+2026-04-09 Melania Trump called for a surprise press conference to address so-called rumors about the Epstein files, where she claimed she had no knowledge of Epstein’s abuses. 
+
+[https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement](https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement)
+
+[https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html](https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html)
+
+[https://www.bbc.com/news/articles/c3ex07l1qvpo](https://www.bbc.com/news/articles/c3ex07l1qvpo)
+
+[https://www.theguardian.com/us-news/2026/apr/09/melania-trump-epstein-speech-puzzle](https://www.theguardian.com/us-news/2026/apr/09/melania-trump-epstein-speech-puzzle)
+
+[https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis](https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis)
+
+[https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)

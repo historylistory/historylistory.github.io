@@ -96,3 +96,13 @@ section in progress; not really following this heavily
 [https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
+
+### 2026 April
+
+2026-04-13 Hollywood actors, writers and directors signed an open letter to voice opposition for the Paramount-Warner Brothers-Discovery merger. Part of the letter reads, “The integrity, independence, and diversity of our industry would be grievously compromised. Competition is essential for a healthy economy and a healthy democracy. So is thoughtful regulation and enforcement”.
+
+[https://www.reuters.com/legal/transactional/hollywood-stars-sign-open-letter-opposing-paramount-warner-bros-deal-2026-04-13/](https://www.reuters.com/legal/transactional/hollywood-stars-sign-open-letter-opposing-paramount-warner-bros-deal-2026-04-13/)
+
+[https://www.bbc.com/news/articles/cz0egvr94zro](https://www.bbc.com/news/articles/cz0egvr94zro)
+
+[https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros](https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros)

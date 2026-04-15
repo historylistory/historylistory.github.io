@@ -171,3 +171,9 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.youtube.com/watch?v=pGwVZWFh_Dk](https://www.youtube.com/watch?v=pGwVZWFh_Dk)
 
 [https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
+
+2026-04-13 The US military struck another boat in the Pacific, killing two people. The Pentagon offered no evidence that they were carrying narcotics. Death toll at this date: approximately 170. 
+
+[https://www.youtube.com/watch?v=Z4ZKsiMUAyY](https://www.youtube.com/watch?v=Z4ZKsiMUAyY)
+
+[https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific)

@@ -352,3 +352,15 @@ permalink: /categories/economy-labor-poverty/poverty/
 [https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/](https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/)
 
 [https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
+
+2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+
+[https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
+
+[https://news.un.org/en/story/2026/04/1167289](https://news.un.org/en/story/2026/04/1167289)
+
+[https://www.jpost.com/international/article-892976](https://www.jpost.com/international/article-892976)
+
+[https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist](https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist)
+
+[https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en)

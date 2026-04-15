@@ -378,10 +378,26 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
 
 
-2025-04-09 During remarks at the White House Melania Trump claimed she had no knowledge to Epstein’s abuses and called on Congress to allow victims to testify on Capitol Hill. 
+2026-04-09 Melania Trump called for a surprise press conference to address so-called rumors about the Epstein files, where she claimed she had no knowledge of Epstein’s abuses. 
 
 [https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement](https://www.cnn.com/2026/04/09/politics/melania-trump-epstein-statement)
 
 [https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html](https://www.cnbc.com/2026/04/09/jeffrey-epstein-melania-trump.html)
 
 [https://www.bbc.com/news/articles/c3ex07l1qvpo](https://www.bbc.com/news/articles/c3ex07l1qvpo)
+
+[https://www.theguardian.com/us-news/2026/apr/09/melania-trump-epstein-speech-puzzle](https://www.theguardian.com/us-news/2026/apr/09/melania-trump-epstein-speech-puzzle)
+
+[https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis](https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis)
+
+[https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)
+
+2026-04-13 A judge dismissed Trump’s lawsuit against the Wall Street Journal which targeted the outlet’s reporting that he contributed a letter to Epstein for his birthday. 
+
+[https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html](https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html)
+
+[https://www.usatoday.com/story/news/politics/2026/04/13/trump-epstein-lawsuit-wall-street-journal/89588086007/](https://www.usatoday.com/story/news/politics/2026/04/13/trump-epstein-lawsuit-wall-street-journal/89588086007/)
+
+[https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66](https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66)
+
+[https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)

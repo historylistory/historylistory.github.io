@@ -53,3 +53,15 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 [https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico](https://www.markey.senate.gov/news/press-releases/senator-markey-blasts-trump-administration-plan-to-allow-deepwater-drilling-in-the-gulf-of-mexico)
 
 [https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill](https://en.wikipedia.org/wiki/Deepwater_Horizon_oil_spill)
+
+### 2026 April
+
+2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
+
+[https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela](https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela)
+
+[https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap](https://www.chevron.com/newsroom/2026/q2/chevron-consolidates-venezuela-heavy-oil-position-in-asset-swap)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output](https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output)
+
+COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region](https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region)

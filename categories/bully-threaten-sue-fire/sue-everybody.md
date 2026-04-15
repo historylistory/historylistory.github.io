@@ -181,3 +181,15 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 [https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221](https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116004776659519984](https://truthsocial.com/@realDonaldTrump/posts/116004776659519984)
+
+### 2026 April
+
+2026-04-13 A judge dismissed Trump’s lawsuit against the Wall Street Journal which targeted the outlet’s reporting that he contributed a letter to Epstein for his birthday. 
+
+[https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html](https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html)
+
+[https://www.usatoday.com/story/news/politics/2026/04/13/trump-epstein-lawsuit-wall-street-journal/89588086007/](https://www.usatoday.com/story/news/politics/2026/04/13/trump-epstein-lawsuit-wall-street-journal/89588086007/)
+
+[https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66](https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66)
+
+[https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)

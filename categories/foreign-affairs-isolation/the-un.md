@@ -70,3 +70,17 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 [https://www.axios.com/2026/02/18/vatican-trump-gaza-board-of-peace-pope-leo](https://www.axios.com/2026/02/18/vatican-trump-gaza-board-of-peace-pope-leo)
 
 [https://www.cnn.com/2026/02/18/europe/pope-leo-board-of-peace-refusal-intl](https://www.cnn.com/2026/02/18/europe/pope-leo-board-of-peace-refusal-intl)
+
+### 2026 April
+
+2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+
+[https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
+
+[https://news.un.org/en/story/2026/04/1167289](https://news.un.org/en/story/2026/04/1167289)
+
+[https://www.jpost.com/international/article-892976](https://www.jpost.com/international/article-892976)
+
+[https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist](https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist)
+
+[https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en)
