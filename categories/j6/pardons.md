@@ -90,3 +90,21 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 {% include youtubePlayer.html id="IZO1YzK_aEY" %}
 
 [https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang](https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang)
+
+### 2026 April
+
+2026-04-14 The DOJ moved to vacate the most serious J6 convictions from the Proud Boys and Oath Keepers, two white supremacist groups in the U.S. To vacate a conviction means to totally wipe an event from record as though it had never happened.
+
+[https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
+
+[https://www.pbs.org/newshour/politics/doj-moves-to-erase-seditious-conspiracy-convictions-of-oath-keepers-proud-boys-in-jan-6-cases](https://www.pbs.org/newshour/politics/doj-moves-to-erase-seditious-conspiracy-convictions-of-oath-keepers-proud-boys-in-jan-6-cases)
+
+[https://www.cbsnews.com/news/doj-moves-dismiss-jan-6-convictions-proud-boys-oath-keepers-seditious-conspiracy/](https://www.cbsnews.com/news/doj-moves-dismiss-jan-6-convictions-proud-boys-oath-keepers-seditious-conspiracy/)
+
+[https://thehill.com/regulation/court-battles/5831248-justice-department-seeks-vacation-proud-boys-convictions/](https://thehill.com/regulation/court-battles/5831248-justice-department-seeks-vacation-proud-boys-convictions/)
+
+[https://www.npr.org/2026/04/15/g-s1-117473/justice-department-toss-seditious-conspiracy](https://www.npr.org/2026/04/15/g-s1-117473/justice-department-toss-seditious-conspiracy)
+
+[https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
+
+[https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
