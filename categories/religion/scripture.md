@@ -132,8 +132,10 @@ When this book was written same-sex activity was often associated with power dyn
 ***Matthew 25:35-40*** “For I was hungry, and you gave me something to eat; I was thirsty, and you gave me something to drink”. I was a stranger, and you welcomed me in. I needed clothes, and you clothed me. I was sick, and you looked after me. I was in prison, and you came to visit me.” 
 
 ~~~ text 
-~~~ “Lord, when did we see you hungry, or thirsty, or a stranger, or needing clothes, or sick, or in prison?”
-~~~ “Truly I tell you, whatever you did for one of the least of these brothers and sisters of mine, you did for me.”
+~~~ “Lord, when did we see you hungry, or thirsty, or a stranger, 
+or needing clothes, or sick, or in prison?”
+~~~ “Truly I tell you, whatever you did for one of the least of
+these brothers and sisters of mine, you did for me.”
 ~~~ 
 
 
