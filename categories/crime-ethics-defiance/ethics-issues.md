@@ -399,3 +399,24 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://x.com/ChrisMurphyCT/status/2036277990489764135](https://x.com/ChrisMurphyCT/status/2036277990489764135)
 
 [https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html](https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html)
+
+### 2026 April
+
+2026-04-14 All at once, two Congressional members resigned from their positions, and two House members faced expulsion for the first time in the 237-year history of the chamber. Democrat Congressman Eric Salwell officially resigned after sexual assault allegations. Republican Congressman Tony Gonzales resigned after admitting an affair with an aide who died by suicide.  Two other house members faced expulsion for ethics concerns.
+
+[https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates)
+
+[https://www.thedailybeast.com/california-dem-star-eric-swalwell-resigning-from-congress-after-vile-sex-claims/](https://www.thedailybeast.com/california-dem-star-eric-swalwell-resigning-from-congress-after-vile-sex-claims/)
+
+[https://www.foxnews.com/live-news/swalwell-gonzales-announce-resignations-in-wake-of-allegations-shaking-up-congress](https://www.foxnews.com/live-news/swalwell-gonzales-announce-resignations-in-wake-of-allegations-shaking-up-congress)
+
+[https://www.foxnews.com/politics/he-should-go-senate-dems-turned-on-swalwell-before-he-even-announced-resignation](https://www.foxnews.com/politics/he-should-go-senate-dems-turned-on-swalwell-before-he-even-announced-resignation)
+
+[https://www.cnn.com/2026/04/13/politics/eric-swalwell-congress-resignation](https://www.cnn.com/2026/04/13/politics/eric-swalwell-congress-resignation)
+
+[https://thehill.com/homenews/house/5830215-swalwell-resigns-sexual-misconduct/](https://thehill.com/homenews/house/5830215-swalwell-resigns-sexual-misconduct/)
+
+[https://www.bbc.com/news/articles/c0700pd0xx1o](https://www.bbc.com/news/articles/c0700pd0xx1o)
+
+[https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel](https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel)
+
