@@ -263,3 +263,13 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 [https://www.sfchronicle.com/sf/article/mayor-lurie-layoffs-workers-deficit-22191898.php](https://www.sfchronicle.com/sf/article/mayor-lurie-layoffs-workers-deficit-22191898.php)
 
 [https://www.cbsnews.com/sanfrancisco/video/san-francisco-mayor-comments-on-recent-layoffs-to-city-staffing/](https://www.cbsnews.com/sanfrancisco/video/san-francisco-mayor-comments-on-recent-layoffs-to-city-staffing/)
+
+2026-04-14 Trump’s “DoorDash Grandma” turned out to be a known lobbyist for the “No Tax for Tips” policy.
+
+[https://www.theguardian.com/us-news/2026/apr/14/trump-doordash-delivery-grandma-mcdonalds](https://www.theguardian.com/us-news/2026/apr/14/trump-doordash-delivery-grandma-mcdonalds)
+
+[https://www.usatoday.com/story/news/2026/04/14/has-doordash-grandma-appeared-with-other-gop-leaders-what-to-know/89602972007/](https://www.usatoday.com/story/news/2026/04/14/has-doordash-grandma-appeared-with-other-gop-leaders-what-to-know/89602972007/)
+
+[https://www.youtube.com/shorts/dNhUuy5uwaI](https://www.youtube.com/shorts/dNhUuy5uwaI)
+
+PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/](https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/)

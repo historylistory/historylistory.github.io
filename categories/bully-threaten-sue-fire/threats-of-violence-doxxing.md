@@ -256,3 +256,15 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/](https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/)
 
 [https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
+
+2026-04-16 ICE agent Gregory Morgan was charged with two counts of second-degree assault for pointing his weapon at people in Minnesota. The officer was in a rented, unmarked SUV when he pulled up to other drivers and pointed his handgun at them. 
+
+[https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884](https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884)
+
+[https://www.npr.org/2026/04/16/nx-s1-5787958/minnesota-charged-ice-officer-assault-immigration-surge](https://www.npr.org/2026/04/16/nx-s1-5787958/minnesota-charged-ice-officer-assault-immigration-surge)
+
+[https://minnesotareformer.com/2026/04/16/first-ice-officer-charged-with-assault-for-threatening-people-with-a-gun-in-minnesota/](https://minnesotareformer.com/2026/04/16/first-ice-officer-charged-with-assault-for-threatening-people-with-a-gun-in-minnesota/)
+
+[https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210](https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210)
+
+[https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html](https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html)

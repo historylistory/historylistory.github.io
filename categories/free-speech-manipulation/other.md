@@ -69,3 +69,19 @@ permalink: /categories/free-speech-manipulation/other/
 [https://www.bbc.com/news/articles/cz0egvr94zro](https://www.bbc.com/news/articles/cz0egvr94zro)
 
 [https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros](https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros)
+
+2026-04-14 Turning Point USA rallies in Georgia attracted an embarrassingly small crowd, and TPUSA blamed it on left wing activists. 
+
+[https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/](https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/)
+
+[https://www.youtube.com/watch?v=C-GywilCedo](https://www.youtube.com/watch?v=C-GywilCedo)
+
+[https://www.youtube.com/watch?v=5pfIt7Oopqc](https://www.youtube.com/watch?v=5pfIt7Oopqc)
+
+[https://baptistnews.com/article/tpusa-event-draws-small-crowd-in-georgia-as-erika-kirk-no-shows/](https://baptistnews.com/article/tpusa-event-draws-small-crowd-in-georgia-as-erika-kirk-no-shows/)
+
+[https://flagpole.com/photo-gallery/2026/04/14/hundreds-protest-poorly-attended-jd-vance-tpusa-appearance-in-athens/](https://flagpole.com/photo-gallery/2026/04/14/hundreds-protest-poorly-attended-jd-vance-tpusa-appearance-in-athens/)
+
+[https://www.fox5atlanta.com/news/erika-kirk-misses-turning-point-usa-event-athens-over-safety-concerns](https://www.fox5atlanta.com/news/erika-kirk-misses-turning-point-usa-event-athens-over-safety-concerns)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/](https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/)

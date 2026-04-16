@@ -289,3 +289,16 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 [https://www.nbcbayarea.com/news/local/ice-shooting-investigation-interstate-5-stanislaus/4064875/](https://www.nbcbayarea.com/news/local/ice-shooting-investigation-interstate-5-stanislaus/4064875/)
 
 [https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california](https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california)
+
+2026-04-16 ICE agent Gregory Morgan was charged with two counts of second-degree assault for pointing his weapon at people in Minnesota. The officer was in a rented, unmarked SUV when he pulled up to other drivers and pointed his handgun at them. 
+
+[https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884](https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884)
+
+[https://www.npr.org/2026/04/16/nx-s1-5787958/minnesota-charged-ice-officer-assault-immigration-surge](https://www.npr.org/2026/04/16/nx-s1-5787958/minnesota-charged-ice-officer-assault-immigration-surge)
+
+[https://minnesotareformer.com/2026/04/16/first-ice-officer-charged-with-assault-for-threatening-people-with-a-gun-in-minnesota/](https://minnesotareformer.com/2026/04/16/first-ice-officer-charged-with-assault-for-threatening-people-with-a-gun-in-minnesota/)
+
+[https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210](https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210)
+
+[https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html](https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html)
+

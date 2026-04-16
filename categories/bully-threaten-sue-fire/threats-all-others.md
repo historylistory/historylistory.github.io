@@ -61,3 +61,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 [https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142](https://www.wionews.com/trending/-church-had-better-take-its-side-did-trump-officials-threaten-vatican-1775712787142)
 
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
+
+2026-04-15 ARTICLE: Catholic Bishops Deliver Brutal Slap-Down to Convert Vance (The Daily Beast 04/15). Top Catholic advisers to the Pope backed him up after Vance said the Pope should “be careful talking about theology”. 
+
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)

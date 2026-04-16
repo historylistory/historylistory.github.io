@@ -56,3 +56,17 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 [https://arstechnica.com/ai/2026/03/openai-plans-to-shut-down-sora-just-15-months-after-its-launch/](https://arstechnica.com/ai/2026/03/openai-plans-to-shut-down-sora-just-15-months-after-its-launch/)
 
 [https://www.404media.co/disneys-openai-sora-disaster-shows-ai-will-not-save-hollywood/](https://www.404media.co/disneys-openai-sora-disaster-shows-ai-will-not-save-hollywood/)
+
+### 2026 April
+
+2026-04-16 Footwear company AllBirds pivoted from making shoes to purchasing GPUs that power AI. They will be renamed to NewBird AI. Stocks soared over 500%.
+
+[https://www.bbc.com/news/articles/c98mrepzgj7o](https://www.bbc.com/news/articles/c98mrepzgj7o)
+
+[https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html](https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html)
+
+[https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943](https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943)
+
+[https://www.youtube.com/watch?v=oTfyd_0F45w](https://www.youtube.com/watch?v=oTfyd_0F45w)
+
+[https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)

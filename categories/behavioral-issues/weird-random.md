@@ -191,3 +191,13 @@ permalink: /categories/behavioral-issues/weird-random/
 [https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis](https://www.cnn.com/2026/04/10/politics/epstein-melania-trump-statement-victims-analysis)
 
 [https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)
+
+2026-04-14 Trump’s “DoorDash Grandma” turned out to be a known lobbyist for the “No Tax for Tips” policy.
+
+[https://www.theguardian.com/us-news/2026/apr/14/trump-doordash-delivery-grandma-mcdonalds](https://www.theguardian.com/us-news/2026/apr/14/trump-doordash-delivery-grandma-mcdonalds)
+
+[https://www.usatoday.com/story/news/2026/04/14/has-doordash-grandma-appeared-with-other-gop-leaders-what-to-know/89602972007/](https://www.usatoday.com/story/news/2026/04/14/has-doordash-grandma-appeared-with-other-gop-leaders-what-to-know/89602972007/)
+
+[https://www.youtube.com/shorts/dNhUuy5uwaI](https://www.youtube.com/shorts/dNhUuy5uwaI)
+
+PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/](https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/)

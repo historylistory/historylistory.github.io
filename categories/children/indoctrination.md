@@ -105,3 +105,22 @@ https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-i
 [https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
 
 [https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library](https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library)
+
+### 2026 April
+
+
+2026-04-14 Turning Point USA rallies in Georgia attracted an embarrassingly small crowd, and TPUSA blamed it on left wing activists. 
+
+[https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/](https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/)
+
+[https://www.youtube.com/watch?v=C-GywilCedo](https://www.youtube.com/watch?v=C-GywilCedo)
+
+[https://www.youtube.com/watch?v=5pfIt7Oopqc](https://www.youtube.com/watch?v=5pfIt7Oopqc)
+
+[https://baptistnews.com/article/tpusa-event-draws-small-crowd-in-georgia-as-erika-kirk-no-shows/](https://baptistnews.com/article/tpusa-event-draws-small-crowd-in-georgia-as-erika-kirk-no-shows/)
+
+[https://flagpole.com/photo-gallery/2026/04/14/hundreds-protest-poorly-attended-jd-vance-tpusa-appearance-in-athens/](https://flagpole.com/photo-gallery/2026/04/14/hundreds-protest-poorly-attended-jd-vance-tpusa-appearance-in-athens/)
+
+[https://www.fox5atlanta.com/news/erika-kirk-misses-turning-point-usa-event-athens-over-safety-concerns](https://www.fox5atlanta.com/news/erika-kirk-misses-turning-point-usa-event-athens-over-safety-concerns)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/](https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/)

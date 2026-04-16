@@ -39,3 +39,17 @@ permalink: /categories/ai-data-big-brother-doge/microchip-shortage/
 [https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)
 
 [https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news](https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news)
+
+### 2026 April
+
+2026-04-16 Footwear company AllBirds pivoted from making shoes to purchasing GPUs that power AI. They will be renamed to NewBird AI. Stocks soared over 500%.
+
+[https://www.bbc.com/news/articles/c98mrepzgj7o](https://www.bbc.com/news/articles/c98mrepzgj7o)
+
+[https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html](https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html)
+
+[https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943](https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943)
+
+[https://www.youtube.com/watch?v=oTfyd_0F45w](https://www.youtube.com/watch?v=oTfyd_0F45w)
+
+[https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)

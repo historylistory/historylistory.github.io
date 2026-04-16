@@ -153,3 +153,17 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 [https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
+
+### 2026 April
+
+2026-04-16 Footwear company AllBirds pivoted from making shoes to purchasing GPUs that power AI. They will be renamed to NewBird AI. Stocks soared over 500%.
+
+[https://www.bbc.com/news/articles/c98mrepzgj7o](https://www.bbc.com/news/articles/c98mrepzgj7o)
+
+[https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html](https://www.cnbc.com/2026/04/15/allbirds-bird-stock-shoes-ai.html)
+
+[https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943](https://www.nbcnews.com/tech/tech-news/allbirds-buzzy-shoe-startup-pivots-ai-rcna331943)
+
+[https://www.youtube.com/watch?v=oTfyd_0F45w](https://www.youtube.com/watch?v=oTfyd_0F45w)
+
+[https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
