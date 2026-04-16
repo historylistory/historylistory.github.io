@@ -106,3 +106,15 @@ section in progress; not really following this heavily
 [https://www.bbc.com/news/articles/cz0egvr94zro](https://www.bbc.com/news/articles/cz0egvr94zro)
 
 [https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros](https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros)
+
+2026-04-16 After a six-week trial, a New York jury found that Live Nation and it’s subsidiary Ticket Master illegally dominated major concert venues and kept ticket prices too high.
+
+[https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1](https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1)
+
+[https://apnews.com/article/live-nation-ticketmaster-antitrust-trial-f0ffdd20dd4f64e8b4bb9d97134b826f](https://apnews.com/article/live-nation-ticketmaster-antitrust-trial-f0ffdd20dd4f64e8b4bb9d97134b826f)
+
+[https://www.nbcnews.com/business/consumer/livenation-illegally-monopolized-ticketing-market-jury-antitrust-trial-rcna273714](https://www.nbcnews.com/business/consumer/livenation-illegally-monopolized-ticketing-market-jury-antitrust-trial-rcna273714)
+
+[https://www.npr.org/2026/04/15/nx-s1-5786715/live-nation-ticketmaster-antitrust-verdict-monopoly](https://www.npr.org/2026/04/15/nx-s1-5786715/live-nation-ticketmaster-antitrust-verdict-monopoly)
+
+[https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1](https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1)
