@@ -6,6 +6,16 @@ subcategory_slug: ai-bad-behavior-influence
 permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
 ---
 
+### 2024
+
+2024-07-30 Studies dating back to 2024 show AI hallucinations were frequent: at a staggering 79%.
+
+[https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information](https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information)
+
+[https://time.com/6989928/ai-artificial-intelligence-hallucinations-prevent/](https://time.com/6989928/ai-artificial-intelligence-hallucinations-prevent/)
+
+PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinations-are-worse-than-ever/](https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinations-are-worse-than-ever/)
+
 ### 2025 
 
 2025-01-01 People developed relationships with AI chatbots.

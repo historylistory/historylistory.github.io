@@ -1,10 +1,20 @@
 ---
 layout: subcategory
-title: Teachers
-category_slug: education
-subcategory_slug: teachers
-permalink: /categories/education/teachers/
+title: AI & Education
+category_slug: ai-data-big-brother-doge
+subcategory_slug: ai-education
+permalink: /categories/ai-data-big-brother-doge/ai-education/
 ---
+
+### 2024
+
+2024-07-30 Studies dating back to 2024 show AI hallucinations were frequent: at a staggering 79%.
+
+[https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information](https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information)
+
+[https://time.com/6989928/ai-artificial-intelligence-hallucinations-prevent/](https://time.com/6989928/ai-artificial-intelligence-hallucinations-prevent/)
+
+PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinations-are-worse-than-ever/](https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinations-are-worse-than-ever/)
 
 ### 2025
 
@@ -26,14 +36,3 @@ permalink: /categories/education/teachers/
 [https://time.com/7295195/ai-chatgpt-google-learning-school/](https://time.com/7295195/ai-chatgpt-google-learning-school/)
 
 [https://www.media.mit.edu/publications/your-brain-on-chatgpt/](https://www.media.mit.edu/publications/your-brain-on-chatgpt/)
-
-
-### 2026 March
-
-2026-03-26 Melania Trump presented a humanoid robot to a White House AI summit. Melania Trump pitched her robot as “humanoid educators” that could replace teachers. 
-
-[https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)
-
-[https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192](https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192)
-
-[https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2](https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2)

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Teachers
+title: AI
 category_slug: education
-subcategory_slug: teachers
-permalink: /categories/education/teachers/
+subcategory_slug: ai
+permalink: /categories/education/ai/
 ---
 
 ### 2025
