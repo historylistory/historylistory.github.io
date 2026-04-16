@@ -6,7 +6,7 @@ subcategory_slug: tax-the-rich
 permalink: /categories/economy-labor-poverty/tax-the-rich/
 ---
 
-### 2026
+### Terminology
 
 **Buy-Borrow-Die:** Is used for wealth preservation. The rich buy assets that appreciate in value. Then they borrow low-interest, tax-free loans using those assets as collateral. When they die, heirs receive the assets on a “stepped-up” basis which resets the asset’s value to current market rates and erases all previous capital gains.
 
