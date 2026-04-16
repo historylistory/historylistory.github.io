@@ -103,7 +103,7 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 
 [https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring](https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring)
 
-2025-02-06 Everyone saw egg prices soar at the beginning of 2025, but hardly anyone talked about how it was caused by the strain of bird flu that started way back in 2022. When farmers finally rebuilt flocks and replaced sick birds, the prices came down and Trump took the credit.
+2025-02-06 Egg prices soared at the beginning of 2025, due to a strain of bird flu that started back in 2022. When farmers finally rebuilt flocks and replaced sick birds, the prices came down and Trump took the credit.
 
 [https://innovateanimalag.org/hpai-costs-2025](https://innovateanimalag.org/hpai-costs-2025)
 
