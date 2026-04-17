@@ -276,3 +276,11 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/](https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/)
 
 [https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492](https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492)
+
+2026-04-16 Troops posted photos of terrible food offered aboard warships. 
+
+FROM 2020 [https://www.military.com/daily-news/2020/10/28/navy-veteran-exposes-gross-food-served-warships-viral-facebook-post.html](https://www.military.com/daily-news/2020/10/28/navy-veteran-exposes-gross-food-served-warships-viral-facebook-post.html)
+
+FROM 2021 [https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-worst-rom-meals-vol-ii/](https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-worst-rom-meals-vol-ii/)
+
+FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007](https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007)

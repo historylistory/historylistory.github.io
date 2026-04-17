@@ -103,3 +103,25 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
+2026-04-16 During a briefing at the Pentagon Pete Hegseth attacked the media and compared them to the biblical Jewish group that opposed Jesus. He stated, “Our press are just like these Pharisees — not all of you, not all of you, but the legacy Trump-hating press. Your politically motivated animus for President Trump nearly completely blinds you from the brilliance of our American warriors,” he said. Hegseth added: “The Pharisees scrutinized every good act in order to find a violation, only looking for the negative. The hardened hearts of our press are calibrated only to impugn. I would ask you to open your eyes to the goodness, the historic success of our troops, the courage of this president…the relentlessly negative coverage you cannot resist peddling, despite the historic and important success of this effort and the success of our troops. Sometimes it’s hard to figure out what side some of you are actually on.”.
+
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
+
+[https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
+
+[https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
+
+[https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/](https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/)
+
+[https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/](https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/)
+
+[https://apnews.com/video/pete-hegseth-reads-prayer-adapted-from-movie-pulp-fiction-during-pentagon-service-081ed3c235d24f379ccf02c473392604](https://apnews.com/video/pete-hegseth-reads-prayer-adapted-from-movie-pulp-fiction-during-pentagon-service-081ed3c235d24f379ccf02c473392604)
+
+[https://www.huffpost.com/entry/pete-hegseth-pulp-fiction-bible-verse_n_69e0e4d2e4b09c96f93e9391](https://www.huffpost.com/entry/pete-hegseth-pulp-fiction-bible-verse_n_69e0e4d2e4b09c96f93e9391)
+
+[https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/](https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/)
+
+PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)

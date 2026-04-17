@@ -101,6 +101,21 @@ Three companies control roughly 75% of beer production.
 
 ### LiveNation/Ticketmaster
 
+2024-05-23 The Biden Administration and 30 States filed an anti-trust lawsuit against Live Nation and Ticketmaster which the Trump administration later squashed in March of 2026.
+
+[https://en.wikipedia.org/wiki/United_States_v._Live_Nation_Entertainment](https://en.wikipedia.org/wiki/United_States_v._Live_Nation_Entertainment)
+
+[https://www.justice.gov/archives/opa/pr/justice-department-sues-live-nation-ticketmaster-monopolizing-markets-across-live-concert](https://www.justice.gov/archives/opa/pr/justice-department-sues-live-nation-ticketmaster-monopolizing-markets-across-live-concert)
+
+2026-03-09 The Trump Administration’s DOJ made a settlement with Live Nation and Ticketmaster, potentially ending the anti-trust lawsuit against them for monopolizing ticket sales. However, they were still found guilty in April. The Live Nation press release title is “Live Nation Entertainment Reaches Settlement With U.S. Department of Justice” dated March 9, 2026.
+
+[https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/](https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/)
+
+[https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/](https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/)
+
+[https://newsroom.livenation.com/news/live-nation-supports-president-trumps-executive-order-on-resale-2/](https://newsroom.livenation.com/news/live-nation-supports-president-trumps-executive-order-on-resale-2/)
+
+
 2026-04-16 After a six-week trial, a New York jury found that Live Nation and it’s subsidiary Ticket Master illegally dominated major concert venues and kept ticket prices too high.
 
 [https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1](https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1)

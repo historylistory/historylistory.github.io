@@ -546,3 +546,16 @@ what women who are paid to do things are called”.
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
 
+2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
+
+[https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/](https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/)
+
+[https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/](https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/)
+
+[https://apnews.com/video/pete-hegseth-reads-prayer-adapted-from-movie-pulp-fiction-during-pentagon-service-081ed3c235d24f379ccf02c473392604](https://apnews.com/video/pete-hegseth-reads-prayer-adapted-from-movie-pulp-fiction-during-pentagon-service-081ed3c235d24f379ccf02c473392604)
+
+[https://www.huffpost.com/entry/pete-hegseth-pulp-fiction-bible-verse_n_69e0e4d2e4b09c96f93e9391](https://www.huffpost.com/entry/pete-hegseth-pulp-fiction-bible-verse_n_69e0e4d2e4b09c96f93e9391)
+
+[https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/](https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/)
+
+PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
