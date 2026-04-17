@@ -6,11 +6,11 @@ subcategory_slug: strategies
 permalink: /categories/maga-tactics/strategies/
 ---
 
-# Comment
+### Comment
 
 *What are some examples of these strategies in the current administration?*
 
-## Flood the Zone (PRIMARY)
+#### Flood the Zone (PRIMARY)
 
 2018-01-30 Steve Bannon said to Michael Lewis “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
