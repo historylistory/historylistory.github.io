@@ -75,3 +75,13 @@ permalink: /categories/health/other/
 [https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/](https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/)
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
+
+2026-04-14 (only added for context in this section because this is the person tasked with handling the DOH) RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, ***“I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. ***
+
+[https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book](https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book)
+
+[https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/](https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/)
+
+[https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history](https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history)
+
+[https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76](https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76)

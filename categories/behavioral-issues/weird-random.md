@@ -202,6 +202,18 @@ permalink: /categories/behavioral-issues/weird-random/
 
 PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/](https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/)
 
+2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, ***“I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. ***
+
+[https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book](https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book)
+
+[https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/](https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/)
+
+[https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history](https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history)
+
+[https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76](https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76)
+
+
+
 2026-04-16 Peter Theil and other tech giants funded Objection, which is an AI tribunal “judge” designed to investigate media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
