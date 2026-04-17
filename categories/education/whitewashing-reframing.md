@@ -20,6 +20,16 @@ permalink: /categories/education/whitewashing-reframing/
 
 {% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
+### 2018 
+
+2018-03-08 A Floridian middle-school social studies teacher was pulled after the school discovered her white supremacist podcast. They are everywhere, even amongst our children in our schools.
+
+[https://www.youtube.com/watch?v=1Ja8BFVVTHI](https://www.youtube.com/watch?v=1Ja8BFVVTHI)
+
+[https://abcnews.com/US/teacher-hosted-white-nationalist-podcast-submits-resignation/story?id=54202227](https://abcnews.com/US/teacher-hosted-white-nationalist-podcast-submits-resignation/story?id=54202227)
+
+[https://www.bbc.com/news/blogs-trending-43287546](https://www.bbc.com/news/blogs-trending-43287546)
+
 ### 2021 June
 
 2021-06-01 Texas House Bill 3979 was signed into law to restrict how race, slavery and current events are taught in K-12 public schools. The bill removed educational material pertaining to Native American history, Cesar Chavez, and Susan B. Anthony. It also restricted or removed writings of Frederick Douglas and Martin Luther King Jr. 

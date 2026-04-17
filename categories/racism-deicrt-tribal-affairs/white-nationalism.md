@@ -50,6 +50,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
 
+### 2018 
+
+2018-03-08 A Floridian middle-school social studies teacher was pulled after the school discovered her white supremacist podcast. They are everywhere, even amongst our children in our schools.
+
+[https://www.youtube.com/watch?v=1Ja8BFVVTHI](https://www.youtube.com/watch?v=1Ja8BFVVTHI)
+
+[https://abcnews.com/US/teacher-hosted-white-nationalist-podcast-submits-resignation/story?id=54202227](https://abcnews.com/US/teacher-hosted-white-nationalist-podcast-submits-resignation/story?id=54202227)
+
+[https://www.bbc.com/news/blogs-trending-43287546](https://www.bbc.com/news/blogs-trending-43287546)
 
 ### 2022
 
