@@ -282,3 +282,15 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+2026-04-16 Tennessee passed House Bill 1476, the “Charlie Kirk Act”, limiting campus walkouts and protests. So basically, if you disagree or cause what the GOP considers a disruption, you can be expelled from school. 
+
+[https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s](https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s)
+
+[https://www.wkrn.com/news/tennessee-politics/charlie-kirk-act-passed/](https://www.wkrn.com/news/tennessee-politics/charlie-kirk-act-passed/)
+
+[https://www.lgbtqnation.com/2026/04/gop-passes-charlie-kirk-act-that-could-expel-students-who-anti-lgbtq-speakers/](https://www.lgbtqnation.com/2026/04/gop-passes-charlie-kirk-act-that-could-expel-students-who-anti-lgbtq-speakers/)
+
+[https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604](https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604)
+
+[https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)

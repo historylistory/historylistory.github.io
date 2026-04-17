@@ -1346,3 +1346,23 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
+2026-04-17 Iran announced the Strait of Hormuz is completely open, and about 45 minutes later Trump announced the same thing on social media. 
+
+[https://www.cnn.com/2026/04/17/world/live-news/iran-war-trump-lebanon-israel-ceasefire](https://www.cnn.com/2026/04/17/world/live-news/iran-war-trump-lebanon-israel-ceasefire)
+
+[https://www.cbsnews.com/live-updates/iran-war-trump-israel-lebanon-ceasefire-hezbollah-strait-hormuz/](https://www.cbsnews.com/live-updates/iran-war-trump-israel-lebanon-ceasefire-hezbollah-strait-hormuz/)
+
+[https://www.bbc.com/news/live/cqxdg17yr2wt?page=2](https://www.bbc.com/news/live/cqxdg17yr2wt?page=2)
+
+[https://www.theguardian.com/world/2026/apr/17/strait-of-hormuz-now-open-to-commercial-vessels](https://www.theguardian.com/world/2026/apr/17/strait-of-hormuz-now-open-to-commercial-vessels)
+
+[https://www.youtube.com/watch?v=lh51upOLhv0&list=WL&index=4&t=388s](https://www.youtube.com/watch?v=lh51upOLhv0&list=WL&index=4&t=388s)
+
+2026-04-17 The worlds 100 top oil and gas companies banked $30M per hour during the first month of the Israeli-Iran war. 
+
+[https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers](https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers)
+
+[https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
+
+[https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)

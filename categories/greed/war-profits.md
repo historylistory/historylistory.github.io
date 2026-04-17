@@ -44,3 +44,11 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
+2026-04-17 The worlds 100 top oil and gas companies banked $30M per hour during the first month of the Israeli-Iran war. 
+
+[https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers](https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers)
+
+[https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
+
+[https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)

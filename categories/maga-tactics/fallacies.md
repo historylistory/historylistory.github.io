@@ -10,7 +10,7 @@ permalink: /categories/maga-tactics/fallacies/
 
 *What are some examples of these arguments from supporters of the administration?*
 
-## Illusory Truth Effect
+### Illusory Truth Effect
 
 **Illusory Truth Effect:** the tendency for any statement that is repeated frequently – whether it is factually true or not, whether it is even plausible or not – to acquire the ring of truth. [Psychology Today](https://www.psychologytoday.com/us/basics/illusory-truth-effect)
 

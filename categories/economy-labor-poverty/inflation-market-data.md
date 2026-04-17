@@ -256,3 +256,13 @@ permalink: /categories/economy-labor-poverty/inflation-market-data/
 [https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)
 
 [https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news](https://www.msn.com/en-us/lifestyle/shopping/sony-jacks-up-playstation-5-prices-to-offset-high-memory-chip-costs/ar-AA1ZxxPF?item=flightsprg-tipsubsc-v1a?utm_source=milei.news)
+
+### 2026 April
+
+2026-04-17 The worlds 100 top oil and gas companies banked $30M per hour during the first month of the Israeli-Iran war. 
+
+[https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers](https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers)
+
+[https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
+
+[https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)

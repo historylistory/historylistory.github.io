@@ -235,3 +235,11 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist](https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist)
 
 [https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en)
+
+2026-04-17 The worlds 100 top oil and gas companies banked $30M per hour during the first month of the Israeli-Iran war. 
+
+[https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers](https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers)
+
+[https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
+
+[https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)

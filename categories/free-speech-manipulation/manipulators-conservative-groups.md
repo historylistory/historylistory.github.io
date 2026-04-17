@@ -47,3 +47,17 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 [https://ca.cair.com/updates/project-esther-a-dangerous-blueprint-for-censoring-palestine/](https://ca.cair.com/updates/project-esther-a-dangerous-blueprint-for-censoring-palestine/)
 
 [https://www.heritage.org/progressivism/report/project-esther-national-strategy-combat-antisemitism](https://www.heritage.org/progressivism/report/project-esther-national-strategy-combat-antisemitism)
+
+### 2026 April
+
+2026-04-16 Tennessee passed House Bill 1476, the “Charlie Kirk Act”, limiting campus walkouts and protests. So basically, if you disagree or cause what the GOP considers a disruption, you can be expelled from school. 
+
+[https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s](https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s)
+
+[https://www.wkrn.com/news/tennessee-politics/charlie-kirk-act-passed/](https://www.wkrn.com/news/tennessee-politics/charlie-kirk-act-passed/)
+
+[https://www.lgbtqnation.com/2026/04/gop-passes-charlie-kirk-act-that-could-expel-students-who-anti-lgbtq-speakers/](https://www.lgbtqnation.com/2026/04/gop-passes-charlie-kirk-act-that-could-expel-students-who-anti-lgbtq-speakers/)
+
+[https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604](https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604)
+
+[https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)

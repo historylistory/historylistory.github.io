@@ -302,3 +302,16 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html](https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html)
 
+2026-04-17 Acting Director Todd Lyons announced he would resign from ICE effective May 31 2026 after two decades with the agency, amid scrutiny of his agency’s aggressive immigration tactics. 
+
+[https://www.youtube.com/watch?v=eqcT9zGKa7g&list=WL&index=2](https://www.youtube.com/watch?v=eqcT9zGKa7g&list=WL&index=2)
+
+[https://www.npr.org/2026/04/17/g-s1-117780/ice-acting-director-lyons-will-resign-at-end-of-may](https://www.npr.org/2026/04/17/g-s1-117780/ice-acting-director-lyons-will-resign-at-end-of-may)
+
+[https://apnews.com/article/immigration-customs-enforcement-ice-todd-lyons-da46097e88f93a7d6e15570222a34f06](https://apnews.com/article/immigration-customs-enforcement-ice-todd-lyons-da46097e88f93a7d6e15570222a34f06)
+
+[https://www.nbcnews.com/politics/politics-news/acting-ice-director-todd-lyons-leaving-department-homeland-security-rcna332282](https://www.nbcnews.com/politics/politics-news/acting-ice-director-todd-lyons-leaving-department-homeland-security-rcna332282)
+
+[https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin](https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin)
+
+
