@@ -10,14 +10,6 @@ permalink: /categories/maga-tactics/fallacies/
 
 *What are some examples of these arguments from supporters of the administration?*
 
-### Illusory Truth Effect
-
-**Illusory Truth Effect:** the tendency for any statement that is repeated frequently – whether it is factually true or not, whether it is even plausible or not – to acquire the ring of truth. [Psychology Today](https://www.psychologytoday.com/us/basics/illusory-truth-effect)
-
-### Purposeful Obfuscation
-
-**Purposeful Obfuscation:** the deliberate act of making communication, data, or information unclear, confusing, or intentionally complex to hide the truth, mislead others, or hinder understanding. It involves using jargon, ambiguity, or "Fedspeak" to obscure meaning. In computing, it transforms code to be unreadable to humans while maintaining functionality. 
-
 ### False Dilemma
 
 **False Dilemma:** (a.k.a. false dichotomy, either-or fallacy) a manipulative tactic to coerce a choice by making the alternative seem morally or practically unacceptable, framing it as a personal failing rather than a logical necessity. ***Breakdown:*** (1) present only two options and imply that only one of two extreme possibilities exist (2) present one of the options as the only good path (3) label or frame the alternative as bad, flawed or wrong. ***Example:*** You’re either with us, or you’re against us. 

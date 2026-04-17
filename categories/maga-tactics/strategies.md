@@ -6,11 +6,11 @@ subcategory_slug: strategies
 permalink: /categories/maga-tactics/strategies/
 ---
 
-### Comment
+# Comment
 
 *What are some examples of these strategies in the current administration?*
 
-### Flood the Zone (PRIMARY)
+## Flood the Zone (PRIMARY)
 
 2018-01-30 Steve Bannon said to Michael Lewis “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
@@ -29,6 +29,14 @@ permalink: /categories/maga-tactics/strategies/
 ### Controlled Opposition
 
 **Controlled Opposition:** Controlled opposition is a strategy where an authority or power base secretly controls, influences, or leads the very movements meant to oppose it. By managing the opposition, the ruling entity creates an illusion of dissent while neutralizing real threats, preventing structural change, and steering public frustration into safe, ineffective outlets
+
+### Illusory Truth Effect
+
+**Illusory Truth Effect:** the tendency for any statement that is repeated frequently – whether it is factually true or not, whether it is even plausible or not – to acquire the ring of truth. [Psychology Today](https://www.psychologytoday.com/us/basics/illusory-truth-effect)
+
+### Purposeful Obfuscation
+
+**Purposeful Obfuscation:** the deliberate act of making communication, data, or information unclear, confusing, or intentionally complex to hide the truth, mislead others, or hinder understanding. It involves using jargon, ambiguity, or "Fedspeak" to obscure meaning. In computing, it transforms code to be unreadable to humans while maintaining functionality. 
 
 ### Intentionally Dividing People
 
