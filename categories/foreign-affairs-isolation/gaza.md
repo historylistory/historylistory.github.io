@@ -281,3 +281,13 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
+
+2026-04-15 Mike Johnson argued that Pope Leo should not have condemned the war, stating, “There’s something called the Just War Doctrine…”. The Poper corrected Johnson by explaining the doctrine is only in self-defense once ALL PEACE EFFORTS HAVE FAILED, and then later wrote on social media, **“Woe to those who manipulate religion and the very name of God for their own military economic, and political gain, dragging that which is sacred into darkness and filth”** and warned that the world is currently “ravaged by a handful of tyrants”. 
+
+[https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
+
+[https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
+
+[https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
+
+[https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)

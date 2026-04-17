@@ -186,6 +186,8 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.theguardian.com/environment/2021/nov/18/the-forgotten-oil-ads-that-told-us-climate-change-was-nothing](https://www.theguardian.com/environment/2021/nov/18/the-forgotten-oil-ads-that-told-us-climate-change-was-nothing)
 
+
+
 2025-11-20 The Trump administration greatly expanded offshore sales of oil and gas and continued to tout Trump’s “drill-baby-drill” agenda.
 
 [https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy](https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy)
@@ -193,6 +195,18 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 [https://www.aljazeera.com/economy/2025/11/20/trump-announces-new-offshore-drilling-projects-despite-bipartisan-pushback](https://www.aljazeera.com/economy/2025/11/20/trump-announces-new-offshore-drilling-projects-despite-bipartisan-pushback)
 
 [https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy](https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy)
+
+2025-11-23 Multiple doctors and other health professionals signed a petition against EPA Lee Zeldin, stating he was pursuing deregulation on greenhouse gases and the 2009 Endangerment finding. 
+
+OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
+
+[https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired](https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired)
+
+[https://www.momscleanairforce.org/epa-head-zeldin-must-go](https://www.momscleanairforce.org/epa-head-zeldin-must-go)
+
+[https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences](https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences)
+
+[https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great](https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great)
 
 ### 2025 December
 
@@ -245,14 +259,16 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 [https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml](https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml)
 
 
-2025-11-23 Multiple doctors and other health professionals signed a petition against EPA Lee Zeldin, stating he was pursuing deregulation on greenhouse gases and the 2009 Endangerment finding. 
+2026-04-16 The senate voted to lift a federal ban on mining upstream from Minnesota’s Boundary Waters Canoe Area Wilderness.
 
-OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
+[https://www.minnpost.com/national/washington/2025/06/mining-provisions-environmentalists-say-threaten-boundary-waters-scrubbed-from-big-beautiful-bill/](https://www.minnpost.com/national/washington/2025/06/mining-provisions-environmentalists-say-threaten-boundary-waters-scrubbed-from-big-beautiful-bill/)
 
-[https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired](https://www.scrippsnews.com/politics/a-maha-driven-petition-wants-epa-administrator-lee-zeldin-fired)
+[https://www.backpacker.com/news-and-events/news/senate-just-greenlit-mine-boundary-waters-minnesota/](https://www.backpacker.com/news-and-events/news/senate-just-greenlit-mine-boundary-waters-minnesota/)
 
-[https://www.momscleanairforce.org/epa-head-zeldin-must-go](https://www.momscleanairforce.org/epa-head-zeldin-must-go)
+[https://www.sierraclub.org/minnesota/blog/2026/04/federal-vote-removes-mining-ban-boundary-waters-watershed](https://www.sierraclub.org/minnesota/blog/2026/04/federal-vote-removes-mining-ban-boundary-waters-watershed)
 
-[https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences](https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences)
+[https://earthjustice.org/press/2026/senate-votes-to-strip-minnesotas-boundary-waters-of-protection-from-mining-pollution](https://earthjustice.org/press/2026/senate-votes-to-strip-minnesotas-boundary-waters-of-protection-from-mining-pollution)
 
-[https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great](https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great)
+[https://www.youtube.com/watch?v=lIqJFcCnhkY](https://www.youtube.com/watch?v=lIqJFcCnhkY)
+
+PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)

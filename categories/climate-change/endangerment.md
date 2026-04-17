@@ -77,3 +77,17 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 [https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences](https://www.actonclimate.com/post/290-health-experts-demand-epa-administrator-lee-zeldins-removal-warning-of-deadly-public-health-consequences)
 
 [https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great](https://www.epa.gov/newsreleases/what-they-are-saying-leaders-applaud-epas-historic-deregulatory-actions-power-great)
+
+2026-04-16 The senate voted to lift a federal ban on mining upstream from Minnesota’s Boundary Waters Canoe Area Wilderness.
+
+[https://www.minnpost.com/national/washington/2025/06/mining-provisions-environmentalists-say-threaten-boundary-waters-scrubbed-from-big-beautiful-bill/](https://www.minnpost.com/national/washington/2025/06/mining-provisions-environmentalists-say-threaten-boundary-waters-scrubbed-from-big-beautiful-bill/)
+
+[https://www.backpacker.com/news-and-events/news/senate-just-greenlit-mine-boundary-waters-minnesota/](https://www.backpacker.com/news-and-events/news/senate-just-greenlit-mine-boundary-waters-minnesota/)
+
+[https://www.sierraclub.org/minnesota/blog/2026/04/federal-vote-removes-mining-ban-boundary-waters-watershed](https://www.sierraclub.org/minnesota/blog/2026/04/federal-vote-removes-mining-ban-boundary-waters-watershed)
+
+[https://earthjustice.org/press/2026/senate-votes-to-strip-minnesotas-boundary-waters-of-protection-from-mining-pollution](https://earthjustice.org/press/2026/senate-votes-to-strip-minnesotas-boundary-waters-of-protection-from-mining-pollution)
+
+[https://www.youtube.com/watch?v=lIqJFcCnhkY](https://www.youtube.com/watch?v=lIqJFcCnhkY)
+
+PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)
