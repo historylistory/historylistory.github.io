@@ -1,12 +1,12 @@
 ---
 layout: subcategory
-title: Racist Health Views
-category_slug: health
-subcategory_slug: racist-health-views
-permalink: /categories/health/racist-health-views/
+title: Health
+category_slug: racism-deicrt-tribal-affairs
+subcategory_slug: health
+permalink: /categories/racism-deicrt-tribal-affairs/health/
 ---
 
-### 2025
+### 2025 January
 
 2025-01-30 During a confirmation hearing, Senator Alsobrooks asked RFK to explain why he claimed that Black people have a different immune system than white people and why he recommends they should get a different vaccine schedule. He cited an article about pollen but did not outline his scientific basis to back up his claim.
 

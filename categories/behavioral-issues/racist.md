@@ -1,18 +1,14 @@
 ---
 layout: subcategory
-title: Racist Health Views
-category_slug: health
-subcategory_slug: racist-health-views
-permalink: /categories/health/racist-health-views/
+title: Racist
+category_slug: behavioral-issues
+subcategory_slug: racist
+permalink: /categories/behavioral-issues/racist/
 ---
 
-### 2025
+### Commentary
 
-2025-01-30 During a confirmation hearing, Senator Alsobrooks asked RFK to explain why he claimed that Black people have a different immune system than white people and why he recommends they should get a different vaccine schedule. He cited an article about pollen but did not outline his scientific basis to back up his claim.
-
-[https://x.com/Sen_Alsobrooks/status/1885036716928483424](https://x.com/Sen_Alsobrooks/status/1885036716928483424)
-
-### 2026 April
+This section is SO HUGE it has to have it's own category. However, here's an example of things you might find in the RACISM category: 
 
 2026-04-17 During a committee hearing Congresswoman Terri Sewell asked RFK “You said ‘every Black kid is now just standardly put on Adderall, SSRI, Benzos, which are known to induce violence’ and that ‘those children’ are going to have to go somewhere to get ‘re-parented’. Have you ever re-parented – or parented, I should say – a Black child?” During the hearing RFK denied ever saying that. However, the recording and video of him saying it can be found in the links below. He said it on a “High LVL Conversations” podcast in July 2024. 
 
