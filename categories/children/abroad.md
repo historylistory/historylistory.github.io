@@ -61,7 +61,7 @@ permalink: /categories/children/abroad/
 
 [https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
 
-### 2026 February
+### 2026 January  
 
 2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
 

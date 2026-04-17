@@ -264,3 +264,15 @@ VIDEO [https://www.cbsnews.com/texas/video/automatic-draft-registration-to-begin
 VIDEO [https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3](https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3)
 
 SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/](https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/)
+
+2026-04-16 Democrats filed articles of impeachment on Pete Hegseth for high crimes and misdemeanors. 
+
+[https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html](https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html)
+
+[https://www.theguardian.com/us-news/2026/apr/15/democrats-pete-hegseth-impeachment](https://www.theguardian.com/us-news/2026/apr/15/democrats-pete-hegseth-impeachment)
+
+[https://www.usatoday.com/story/news/politics/2026/04/16/hegseth-impeachment-articles-congress/89643991007/](https://www.usatoday.com/story/news/politics/2026/04/16/hegseth-impeachment-articles-congress/89643991007/)
+
+[https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/](https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/)
+
+[https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492](https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492)

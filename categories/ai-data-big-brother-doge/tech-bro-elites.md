@@ -64,3 +64,15 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.newyorker.com/magazine/2026/04/13/sam-altman-may-control-our-future-can-he-be-trusted](https://www.newyorker.com/magazine/2026/04/13/sam-altman-may-control-our-future-can-he-be-trusted)
 
 [https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted](https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted)
+
+2026-04-16 Peter Theil and other tech giants funded Objection, which is an AI tribunal “judge” designed to investigate media claims.
+
+[https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
+
+[https://techcrunch.com/2026/04/15/can-ai-judge-journalism-a-thiel-backed-startup-says-yes-even-if-it-risks-chilling-whistleblowers/](https://techcrunch.com/2026/04/15/can-ai-judge-journalism-a-thiel-backed-startup-says-yes-even-if-it-risks-chilling-whistleblowers/)
+
+[https://www.firstpost.com/explainers/peter-thiel-funded-objection-ai-wants-to-rate-truthfulness-of-journalism-what-is-it-14001629.html](https://www.firstpost.com/explainers/peter-thiel-funded-objection-ai-wants-to-rate-truthfulness-of-journalism-what-is-it-14001629.html)
+
+[https://www.youtube.com/watch?v=XAqE03jiff4](https://www.youtube.com/watch?v=XAqE03jiff4)
+
+SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)

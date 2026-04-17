@@ -60,6 +60,18 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.defensenews.com/global/mideast-africa/2025/09/19/trump-administration-plans-nearly-6b-in-arms-sales-to-israel-report/](https://www.defensenews.com/global/mideast-africa/2025/09/19/trump-administration-plans-nearly-6b-in-arms-sales-to-israel-report/)
 
+### 2025 October
+
+2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
+
+[https://www.youtube.com/watch?v=GYWFsTrquPs](https://www.youtube.com/watch?v=GYWFsTrquPs)
+
+[https://www.instagram.com/p/DQCH6GzDBDH/](https://www.instagram.com/p/DQCH6GzDBDH/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football](https://www.dci-palestine.org/israeli_forces_fatally_shoot_nine_year_old_palestinian_boy_playing_football)
+
+[https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
+
 ### 2025 December
 
 2025-12-10 According to Reuters, the Trump administration demanded that the International Criminal Court amend its founding documents – the Rome Statute – to ensure that Trump and his senior officials would not be investigated or prosecuted for any war crimes, and threatened sanctions if the ICC didn’t comply.
@@ -69,6 +81,16 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.reuters.com/world/icc-chief-says-us-sanctions-wont-change-courts-handling-cases-2025-12-01/](https://www.reuters.com/world/icc-chief-says-us-sanctions-wont-change-courts-handling-cases-2025-12-01/)
 
 [https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/](https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/)
+
+### 2026 January
+
+2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
+
+[https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/](https://www.facebook.com/aljazeera/posts/palestinian-child-shot-dead-by-israeli-troops-in-occupied-west-bank/1337781241729560/)
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin](https://www.dci-palestine.org/israeli_forces_fatally_shoot_2_year_old_palestinian_girl_in_the_head_near_jenin)
+
+[https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district](https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district)
 
 ### 2026 February
 
@@ -90,6 +112,15 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 
 ### 2026 March
+
+2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+
+[https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
+
+[https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3](https://imemc.org/article/israeli-soldiers-kill-a-palestinian-child-in-bethlehem-3)
+
+[https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28](https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28)
+
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
 
@@ -142,6 +173,8 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
 
+
+
 2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
 
 [https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
@@ -172,8 +205,32 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
 
+2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
+
+[https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom](https://electronicintifada.net/blogs/nora-barrows-friedman/israeli-army-shoots-kills-9-year-old-girl-her-gaza-classroom)
+
+[https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
+
+[https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
+
 2026-04-13 The US military struck another boat in the Pacific, killing two people. The Pentagon offered no evidence that they were carrying narcotics. Death toll at this date: approximately 170. 
 
 [https://www.youtube.com/watch?v=Z4ZKsiMUAyY](https://www.youtube.com/watch?v=Z4ZKsiMUAyY)
 
 [https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific)
+
+2026-04-16 Democrats filed articles of impeachment on Pete Hegseth for high crimes and misdemeanors. 
+
+[https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html](https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html)
+
+[https://www.theguardian.com/us-news/2026/apr/15/democrats-pete-hegseth-impeachment](https://www.theguardian.com/us-news/2026/apr/15/democrats-pete-hegseth-impeachment)
+
+[https://www.usatoday.com/story/news/politics/2026/04/16/hegseth-impeachment-articles-congress/89643991007/](https://www.usatoday.com/story/news/politics/2026/04/16/hegseth-impeachment-articles-congress/89643991007/)
+
+[https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/](https://www.cbsnews.com/news/pete-hegseth-impeachment-articles-house-democrats/)
+
+[https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492](https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492)
+
+
+
+
