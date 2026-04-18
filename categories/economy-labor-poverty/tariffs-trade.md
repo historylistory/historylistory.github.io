@@ -243,3 +243,9 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
 
 [https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)
+
+2026-04-18 Iran closed the Strait of Hormuz again, saying the U.S. violated agreements by continuing to blockade Iranian ports. 
+
+[https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2](https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s](https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s)

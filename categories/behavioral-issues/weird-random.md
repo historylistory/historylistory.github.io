@@ -225,3 +225,17 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 [https://www.youtube.com/watch?v=XAqE03jiff4](https://www.youtube.com/watch?v=XAqE03jiff4)
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
+
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”.  This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including "Satan had raised up Barack Hussein Gay Raised By Transgenders Obama": "Any time the devil makes a move, Yahweh, God makes an even bigger move”. 
+
+[https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3](https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=04u-lDJjreo](https://www.youtube.com/watch?v=04u-lDJjreo)
+
+[https://www.youtube.com/watch?v=I1e_ebV20hA](https://www.youtube.com/watch?v=I1e_ebV20hA)
+
+FROM 2020 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
+
+FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371](https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371)
+
+FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)

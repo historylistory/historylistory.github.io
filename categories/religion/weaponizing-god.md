@@ -114,6 +114,8 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
+[https://www.youtube.com/watch?v=lZdkRiTs_4w&list=WL&index=4](https://www.youtube.com/watch?v=lZdkRiTs_4w&list=WL&index=4)
+
 [https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/](https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/)
 
 [https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/](https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/)

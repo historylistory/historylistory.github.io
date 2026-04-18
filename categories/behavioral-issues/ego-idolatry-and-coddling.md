@@ -281,3 +281,17 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”.  This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including "Satan had raised up Barack Hussein Gay Raised By Transgenders Obama": "Any time the devil makes a move, Yahweh, God makes an even bigger move”. 
+
+[https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3](https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=04u-lDJjreo](https://www.youtube.com/watch?v=04u-lDJjreo)
+
+[https://www.youtube.com/watch?v=I1e_ebV20hA](https://www.youtube.com/watch?v=I1e_ebV20hA)
+
+FROM 2020 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
+
+FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371](https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371)
+
+FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)

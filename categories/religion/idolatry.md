@@ -123,6 +123,8 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
+[https://www.youtube.com/watch?v=lZdkRiTs_4w&list=WL&index=4](https://www.youtube.com/watch?v=lZdkRiTs_4w&list=WL&index=4)
+
 [https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/](https://au.rollingstone.com/culture/culture-news/hegseth-fake-pulp-fiction-bible-verse-pentagon-93810/)
 
 [https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/](https://thehill.com/policy/defense/5834822-hegseth-pulp-fiction-bible-reference/)
@@ -134,3 +136,17 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 [https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/](https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/)
 
 PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
+
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”.  This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including "Satan had raised up Barack Hussein Gay Raised By Transgenders Obama": "Any time the devil makes a move, Yahweh, God makes an even bigger move”. 
+
+[https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3](https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=04u-lDJjreo](https://www.youtube.com/watch?v=04u-lDJjreo)
+
+[https://www.youtube.com/watch?v=I1e_ebV20hA](https://www.youtube.com/watch?v=I1e_ebV20hA)
+
+FROM 2020 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
+
+FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371](https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371)
+
+FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
