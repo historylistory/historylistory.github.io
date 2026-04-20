@@ -50,6 +50,19 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2024 April
 
+2024-04-01 Keep in mind, there were multiple anti-war protests condemning the genocide in Gaza while Biden was still in office.
+
+[https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel](https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel)
+
+[https://www.thebulwark.com/p/the-campus-protest-culture-that-targeted-biden-goes-silent-for-trump-iran-anti-war](https://www.thebulwark.com/p/the-campus-protest-culture-that-targeted-biden-goes-silent-for-trump-iran-anti-war)
+
+[https://en.wikipedia.org/wiki/Gaza_war_protests_in_the_United_States](https://en.wikipedia.org/wiki/Gaza_war_protests_in_the_United_States)
+
+[https://en.wikipedia.org/wiki/Gaza_war_protest_vote_movements](https://en.wikipedia.org/wiki/Gaza_war_protest_vote_movements)
+
+[https://www.youtube.com/watch?v=wE9fOY1K1Pk](https://www.youtube.com/watch?v=wE9fOY1K1Pk)
+
+
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
 
 [https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/](https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/)

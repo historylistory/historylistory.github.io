@@ -46,6 +46,18 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev](https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev)
 
+2024-04-01 Keep in mind, there were multiple anti-war protests condemning the genocide in Gaza while Biden was still in office.
+
+[https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel](https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel)
+
+[https://www.thebulwark.com/p/the-campus-protest-culture-that-targeted-biden-goes-silent-for-trump-iran-anti-war](https://www.thebulwark.com/p/the-campus-protest-culture-that-targeted-biden-goes-silent-for-trump-iran-anti-war)
+
+[https://en.wikipedia.org/wiki/Gaza_war_protests_in_the_United_States](https://en.wikipedia.org/wiki/Gaza_war_protests_in_the_United_States)
+
+[https://en.wikipedia.org/wiki/Gaza_war_protest_vote_movements](https://en.wikipedia.org/wiki/Gaza_war_protest_vote_movements)
+
+[https://www.youtube.com/watch?v=wE9fOY1K1Pk](https://www.youtube.com/watch?v=wE9fOY1K1Pk)
+
 2024-04-01 Mohammed Hatem of Palestine began posting his own social media content **@gym_rat_in_gaza** to show resilience amid war by bodybuilding. He has been displaced 13 times and according to a post updated October 2025 weighs 119 pounds.
 
 [https://www.instagram.com/gym_rat_in_gaza/?hl=en](https://www.instagram.com/gym_rat_in_gaza/?hl=en)
