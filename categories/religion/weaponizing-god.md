@@ -127,3 +127,17 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/](https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/)
 
 PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
+
+2026-04-19 (context because they are trying to establish one religion - this is exclusionary) The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+
+[https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
+
+[https://www.cnn.com/2026/04/19/politics/trump-bible-reading-oval-office](https://www.cnn.com/2026/04/19/politics/trump-bible-reading-oval-office)
+
+[https://www.whitehouse.gov/briefings-statements/2026/04/presidential-message-commemorating-250-years-of-the-bible-in-america/](https://www.whitehouse.gov/briefings-statements/2026/04/presidential-message-commemorating-250-years-of-the-bible-in-america/)
+
+[https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747](https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747)
+
+[https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/](https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/)
+
+[https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)

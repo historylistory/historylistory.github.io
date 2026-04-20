@@ -249,3 +249,29 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 [https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2](https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2)
 
 [https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s](https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s)
+
+2026-04-19 Canada’s Prime Minister Mark Carney said economic ties with the U.S. are a weakness that must be corrected. He stated, “We have to take care of ourselves because we can’t rely on one foreign partner…we can’t control the disruption coming from our neighbors”.
+
+[https://www.cbc.ca/news/politics/carney-trump-trade-u-s-negotiations-weaknesses-9.7169671](https://www.cbc.ca/news/politics/carney-trump-trade-u-s-negotiations-weaknesses-9.7169671)
+
+[https://www.politico.com/news/2026/04/19/canadas-prime-minister-says-economic-ties-with-us-are-a-weakness-that-must-be-corrected-00880254](https://www.politico.com/news/2026/04/19/canadas-prime-minister-says-economic-ties-with-us-are-a-weakness-that-must-be-corrected-00880254)
+
+[https://www.nbcnews.com/world/canada/mark-carney-says-canadas-economic-ties-us-are-weakness-must-corrected-rcna340935](https://www.nbcnews.com/world/canada/mark-carney-says-canadas-economic-ties-us-are-weakness-must-corrected-rcna340935)
+
+[https://www.euronews.com/2026/04/20/carney-says-canadas-economic-ties-with-the-us-are-weakness-that-must-be-corrected](https://www.euronews.com/2026/04/20/carney-says-canadas-economic-ties-with-the-us-are-weakness-that-must-be-corrected)
+
+[https://www.dw.com/en/canadas-us-ties-have-become-a-weakness-says-carney/a-76852129](https://www.dw.com/en/canadas-us-ties-have-become-a-weakness-says-carney/a-76852129)
+
+2026-04-19 The Trump administration announced the kick-off of a $166B tariff refund for businesses only, which they can submit a claim for online. It is unclear whether the refund will fully compensate businesses or only in part. **It is also unclear whether consumers (like you and me) who picked up the cost of the tariffs will see a refund.** 
+
+[https://apnews.com/article/tariff-refund-trump-customs-08861f153801156d213c30c4e2f6a683](https://apnews.com/article/tariff-refund-trump-customs-08861f153801156d213c30c4e2f6a683)
+
+[https://www.axios.com/2026/04/20/trump-tariffs-us-business-refunds-customs-ace-portal](https://www.axios.com/2026/04/20/trump-tariffs-us-business-refunds-customs-ace-portal)
+
+[https://www.france24.com/en/tv-shows/business/20260420-billion-dollar-tariff-refund-process-kicks-off-in-us](https://www.france24.com/en/tv-shows/business/20260420-billion-dollar-tariff-refund-process-kicks-off-in-us)
+
+[https://www.theguardian.com/us-news/live/2026/apr/20/trump-tariff-refund-politics-vance-congress-latest-updates](https://www.theguardian.com/us-news/live/2026/apr/20/trump-tariff-refund-politics-vance-congress-latest-updates)
+
+[https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off](https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off)
+
+[https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal](https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal)

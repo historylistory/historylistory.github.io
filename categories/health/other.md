@@ -85,3 +85,13 @@ permalink: /categories/health/other/
 [https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history](https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history)
 
 [https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76](https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76)
+
+2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD.
+
+[https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
+
+[https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html](https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html)
+
+[https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/](https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/)
+
+[https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics](https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics)

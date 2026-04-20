@@ -152,3 +152,14 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 
 [https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)
 
+2026-04-16 An online “rape academy” was exposed by CNN where abusers feature sleeping or medically incapacitated women and unthinkable acts. Most of the victims are married, and the abusers are their own husbands. 
+
+[https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8](https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8)
+
+[https://www.cnn.com/interactive/2026/03/world/expose-rape-assault-online-vis-intl/index.html](https://www.cnn.com/interactive/2026/03/world/expose-rape-assault-online-vis-intl/index.html)
+
+[https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html](https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html)
+
+SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://www.snopes.com/fact-check/cnn-online-rape-academy/)
+
+

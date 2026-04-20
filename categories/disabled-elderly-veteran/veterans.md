@@ -235,3 +235,15 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 [https://www.the-independent.com/news/world/americas/us-politics/tim-sheehy-iran-war-protester-senate-b2932413.html](https://www.the-independent.com/news/world/americas/us-politics/tim-sheehy-iran-war-protester-senate-b2932413.html)
 
 [https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765](https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765)
+
+### 2026 April
+
+2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD.
+
+[https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
+
+[https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html](https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html)
+
+[https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/](https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/)
+
+[https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics](https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics)

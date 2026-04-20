@@ -193,3 +193,14 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 [https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66](https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66)
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
+
+2026-04-17 Multiple top officials described Kash Patel as erratic, intoxicated on the job, unexplainably absent from work, and paranoid. One official told The Atlantic that he was glad Patel focused on bullshit for the sake of law but felt that means the FBI doesn’t have a functioning director. Kash Patel has threatened to sue The Atlantic.
+
+[https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
+
+[https://time.com/article/2026/04/18/what-to-know-about-allegations-of-drinking-by-f-b-i-director-kash-patel/](https://time.com/article/2026/04/18/what-to-know-about-allegations-of-drinking-by-f-b-i-director-kash-patel/)
+
+[https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/](https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/)
+
+SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
+

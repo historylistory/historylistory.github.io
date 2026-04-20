@@ -146,3 +146,9 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2026 April
 
+2026-04-18 Courts decided to allow Trump to continue with his $400M ballroom construction. 
+
+[https://www.youtube.com/watch?v=nuPBPRiojkM&list=WL&index=3](https://www.youtube.com/watch?v=nuPBPRiojkM&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom](https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom)
+

@@ -142,3 +142,13 @@ permalink: /categories/religion/other/
 SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html](https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html)
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
+
+2026-04-16 Headline MS Now: “Trump administration’s depraved crusade against Catholic leaders continues”. This article includes examples of the Trump administration now defunding shelter and migrant-children care ran by Catholic charities.
+
+[https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled](https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled)
+
+[https://www.cbsnews.com/miami/news/catholic-charities-federal-funding-cut-miami/](https://www.cbsnews.com/miami/news/catholic-charities-federal-funding-cut-miami/)
+
+[https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7](https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7)
+
+SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)

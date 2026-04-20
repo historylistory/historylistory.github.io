@@ -111,3 +111,13 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 [https://www.tmz.com/2026/04/06/congressman-tony-gonzales-asked-separate-staffer-for-nudes/](https://www.tmz.com/2026/04/06/congressman-tony-gonzales-asked-separate-staffer-for-nudes/)
 
 PAY WALL [https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/](https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/)
+
+2026-04-16 An online “rape academy” was exposed by CNN where abusers feature sleeping or medically incapacitated women and unthinkable acts. Most of the victims are married, and the abusers are their own husbands. 
+
+[https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8](https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8)
+
+[https://www.cnn.com/interactive/2026/03/world/expose-rape-assault-online-vis-intl/index.html](https://www.cnn.com/interactive/2026/03/world/expose-rape-assault-online-vis-intl/index.html)
+
+[https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html](https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html)
+
+SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://www.snopes.com/fact-check/cnn-online-rape-academy/)

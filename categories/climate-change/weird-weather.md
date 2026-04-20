@@ -96,3 +96,19 @@ permalink: /categories/climate-change/weird-weather/
 2026-04-02 The Artemis crew took a photo of earth and posted a side-by-side comparison to 1972, showing a now less-vibrant one.
 
 [https://www.usatoday.com/story/news/nation/2026/04/04/artemis-ii-photo-earth-space-blue-marble/89465526007/](https://www.usatoday.com/story/news/nation/2026/04/04/artemis-ii-photo-earth-space-blue-marble/89465526007/)
+
+2026-04-18 A fifth tornado touched down in Southeast Minnesota with a peak windspeed of 130mph.
+
+[https://www.youtube.com/watch?v=TdszYzyBhtg&list=WL&index=6](https://www.youtube.com/watch?v=TdszYzyBhtg&list=WL&index=6)
+
+2026-04-18 Guam experienced a category 5 super typhoon.
+
+[https://www.youtube.com/watch?v=8bAiwWjtCqY&list=WL&index=5](https://www.youtube.com/watch?v=8bAiwWjtCqY&list=WL&index=5)
+
+2026-04-20 Japan experienced a 7.4 earthquake followed by massive tsunamis.
+
+[https://www.bbc.com/news/live/c07jpy3vxxvt](https://www.bbc.com/news/live/c07jpy3vxxvt)
+
+[https://www.reuters.com/business/environment/strong-74-magnitude-quake-hits-off-japan-tsunami-warning-issued-2026-04-20/](https://www.reuters.com/business/environment/strong-74-magnitude-quake-hits-off-japan-tsunami-warning-issued-2026-04-20/)
+
+[https://apnews.com/article/japan-earthquake-tsunami-0746aebae49fc6cc37e20836ca37d570](https://apnews.com/article/japan-earthquake-tsunami-0746aebae49fc6cc37e20836ca37d570)

@@ -63,3 +63,11 @@ permalink: /categories/transportation/other/
 [https://www.pbs.org/newshour/politics/watch-transportation-secretary-duffy-announces-english-only-commercial-drivers-license-tests](https://www.pbs.org/newshour/politics/watch-transportation-secretary-duffy-announces-english-only-commercial-drivers-license-tests)
 
 [https://thehill.com/homenews/administration/5748488-cdl-truck-drivers-english-test-sean-duffy/](https://thehill.com/homenews/administration/5748488-cdl-truck-drivers-english-test-sean-duffy/)
+
+### 2026 April
+
+2026-04-17 Transportation Secretary Sean Duffy announced he will advocate for a hiring campaign to attract video gamers to become Air Traffic Controllers.
+
+[https://thehill.com/homenews/administration/5836498-faa-targets-gamers-hiring/](https://thehill.com/homenews/administration/5836498-faa-targets-gamers-hiring/)
+
+[https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful](https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful)

@@ -122,3 +122,17 @@ permalink: /categories/religion/performative-behavior/
 SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html](https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-truth-social-post.html)
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
+
+2026-04-19 (context because they are trying to establish one religion - this is exclusionary) The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+
+[https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
+
+[https://www.cnn.com/2026/04/19/politics/trump-bible-reading-oval-office](https://www.cnn.com/2026/04/19/politics/trump-bible-reading-oval-office)
+
+[https://www.whitehouse.gov/briefings-statements/2026/04/presidential-message-commemorating-250-years-of-the-bible-in-america/](https://www.whitehouse.gov/briefings-statements/2026/04/presidential-message-commemorating-250-years-of-the-bible-in-america/)
+
+[https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747](https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747)
+
+[https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/](https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/)
+
+[https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)

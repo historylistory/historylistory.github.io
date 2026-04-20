@@ -1372,3 +1372,17 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2](https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2)
 
 [https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s](https://www.youtube.com/watch?v=nYZAszfqfRw&list=WL&index=1&t=7s)
+
+2026-04-19 During a so-called ceasefire, the U.S. seized an Iranian cargo ship. The Iranian Foreign Ministry spokesperson Esmaeil Baghaei said Washington has shown it was “not serious” about pursuing the diplomatic process.
+
+[https://www.reuters.com/world/asia-pacific/world-weighs-fate-mideast-ceasefire-after-us-seizes-iranian-cargo-ship-2026-04-20/](https://www.reuters.com/world/asia-pacific/world-weighs-fate-mideast-ceasefire-after-us-seizes-iranian-cargo-ship-2026-04-20/)
+
+[https://www.reuters.com/world/iran-war-live-new-peace-talks-uncertain-after-us-seizes-cargo-ship-2026-04-20/](https://www.reuters.com/world/iran-war-live-new-peace-talks-uncertain-after-us-seizes-cargo-ship-2026-04-20/)
+
+[https://www.cnbc.com/2026/04/19/trump-navy-iran-ship-gulf-of-oman.html](https://www.cnbc.com/2026/04/19/trump-navy-iran-ship-gulf-of-oman.html)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-us-seizes-ship-trump-blockade-hormuz-peace-talks-rcna340930](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-us-seizes-ship-trump-blockade-hormuz-peace-talks-rcna340930)
+
+[https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml](https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml)
+
+[https://www.bbc.com/news/live/cly90l3ln30t](https://www.bbc.com/news/live/cly90l3ln30t)
