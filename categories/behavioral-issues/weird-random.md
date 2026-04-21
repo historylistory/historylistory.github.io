@@ -30,6 +30,13 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303](https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303)
 
+2024-12-02 After the J6 insurrection, Karoline Leavitt posted on social media praising Mike Pence and condemning J6. However, once she ran for Congress she deleted her posts.
+
+[https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
+
+SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election](https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election)
+
+
 ### 2025 October
 
 2025-10-14 While on the Benny Johnson podcast to promote his book, Eric Trump claimed his father – Donald Trump – was saving the church, saving God, and saving religion.

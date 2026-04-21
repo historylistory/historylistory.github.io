@@ -36,6 +36,11 @@ permalink: /categories/health/covid/
 
 ### 2020 April
 
+2020-04-01 (for context because these handouts are part of COVID) Karoline Leavitt repeatedly leveraged “blue-collar” roots during her campaign, saying her parents never once received a handout for their small business. However, according to DCCC.org, “Data compiled from the U.S. Small Business Administration show that the company received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
+
+[https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
+
+
 2020-04-23 During a press conference, Trump mused over the idea of injecting the body with disinfectant to treat COVID. When a reporter cautioned Trump not to perpetuate misinformation, Trump angrily backfired.
 
 [https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399](https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399)

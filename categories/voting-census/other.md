@@ -6,6 +6,28 @@ subcategory_slug: other
 permalink: /categories/voting-census/other/
 ---
 
+### 2020
+
+2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud. She even suggested during an interview with Fox that she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released including receiving funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
+
+FRAUD CLAIMS
+
+[https://www.yahoo.com/entertainment/fox-news-cuts-away-kayleigh-224725658.html](https://www.yahoo.com/entertainment/fox-news-cuts-away-kayleigh-224725658.html)
+
+[https://www.yahoo.com/news/fox-news-pulls-plug-on-trump-spokeswoman-making-baseless-claims-of-fraud-002241021.html](https://www.yahoo.com/news/fox-news-pulls-plug-on-trump-spokeswoman-making-baseless-claims-of-fraud-002241021.html)
+
+[https://www.theguardian.com/us-news/video/2020/nov/10/whoa-fox-news-cuts-off-kayleigh-mcenany-for-votes-spiel-video](https://www.theguardian.com/us-news/video/2020/nov/10/whoa-fox-news-cuts-off-kayleigh-mcenany-for-votes-spiel-video)
+
+[https://www.abc.net.au/news/2020-11-10/fox-cuts-white-house-briefing-trump-us-election-fraud-claims/12866816](https://www.abc.net.au/news/2020-11-10/fox-cuts-white-house-briefing-trump-us-election-fraud-claims/12866816)
+
+OTHER SHADY BUSINESS
+
+[https://www.theguardian.com/us-news/2022/dec/30/kayleigh-mcenany-liar-opportunist-trump-alyssa-farah-griffin](https://www.theguardian.com/us-news/2022/dec/30/kayleigh-mcenany-liar-opportunist-trump-alyssa-farah-griffin)
+
+[https://www.citizensforethics.org/reports-investigations/crew-investigations/kayleigh-mcenanys-personal-financial-disclosure/](https://www.citizensforethics.org/reports-investigations/crew-investigations/kayleigh-mcenanys-personal-financial-disclosure/)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/trump-kayleigh-mcenany-insult-white-house-b2349164.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-kayleigh-mcenany-insult-white-house-b2349164.html)
+
 ### 2021
 
 2021-09-14 (context) Nancy Pelosi introduced the John Lewis Voting Rights Advancement Act which would require states with a history of voting rights violations to seek federal approval before enacting changes to their voting laws.

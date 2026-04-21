@@ -14,6 +14,15 @@ permalink: /categories/j6/other/
 
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his)
 
+### 2024
+
+2024-12-02 After the J6 insurrection, Karoline Leavitt posted on social media praising Mike Pence and condemning J6. However, once she ran for Congress she deleted her posts.
+
+[https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
+
+SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election](https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election)
+
+
 ### 2026 March
 
 2026-03-07 A small plaque was quietly installed in the Capitol at 4am without ceremony in honor of the law enforcement agents who lost their lives during the insurrection. It was placed in a location where visitors do not go.

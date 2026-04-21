@@ -22,6 +22,16 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2022
 
+2022-09-01 The Karoline Leavitt “hoe-bag ad” (as deemed by social media).
+
+TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
+
+[https://nhjournal.com/53021-revision-v1/](https://nhjournal.com/53021-revision-v1/)
+
+[https://patch.com/new-hampshire/hampton-northhampton/hoe-bag-attack-ad-drops-hits-nh-congressional-candidate-leavitt](https://patch.com/new-hampshire/hampton-northhampton/hoe-bag-attack-ad-drops-hits-nh-congressional-candidate-leavitt)
+
+[https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta](https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta)
+
 2022-12-31 News outlets reported on concerns about Pete Hegseth’s temperance, exploring the numerous times he was caught drinking, drunk, or in front of a liquor stash.
 
 [https://meidasnews.com/news/liquor-stash-photos-bolster-nbc-report-on-pete-hegseth-drinking-allegations](https://meidasnews.com/news/liquor-stash-photos-bolster-nbc-report-on-pete-hegseth-drinking-allegations)

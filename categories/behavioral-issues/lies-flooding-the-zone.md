@@ -6,6 +6,10 @@ subcategory_slug: lies-flooding-the-zone
 permalink: /categories/behavioral-issues/lies-flooding-the-zone/
 ---
 
+### Comment
+
+This is certainly not a full list - just a few samples. When it comes to the Trump Administration, the lies are everywhere. 
+
 ### 2018
 
 2018-01-30 Steve Bannon said to Michael Lewis “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
@@ -21,6 +25,13 @@ permalink: /categories/behavioral-issues/lies-flooding-the-zone/
 [https://en.wikipedia.org/wiki/Flood_the_zone](https://en.wikipedia.org/wiki/Flood_the_zone)
 
 {% include youtubePlayer.html id="hvPwEWxQ_kQ" %}
+
+### 2020
+
+2020-04-01 Karoline Leavitt repeatedly leveraged “blue-collar” roots during her campaign, saying her parents never once received a handout for their small business. However, according to DCCC.org, “Data compiled from the U.S. Small Business Administration show that the company received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
+
+[https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
+
 
 ### 2024
 

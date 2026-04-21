@@ -31,3 +31,11 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 [https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/](https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/)
 
 [https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html](https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html)
+
+### 2026 April
+
+2026-04-18 Trump’s former press secretary Kayleigh McEnany posted on X, “Trump Derangement Syndrome (TDS) is driving several blue states to enable fraud!”.
+
+[https://x.com/kayleighmcenany/status/2045639267439788408](https://x.com/kayleighmcenany/status/2045639267439788408)
+
+[https://www.pbs.org/newshour/tag/kayleigh-mcenany](https://www.pbs.org/newshour/tag/kayleigh-mcenany)

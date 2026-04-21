@@ -6,6 +6,13 @@ subcategory_slug: tacky
 permalink: /categories/greed/tacky/
 ---
 
+### 2020
+
+2020-04-01 Karoline Leavitt repeatedly leveraged “blue-collar” roots during her campaign, saying her parents never once received a handout for their small business. However, according to DCCC.org, “Data compiled from the U.S. Small Business Administration show that the company received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
+
+[https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
+
+
 ### 2025 September
 
 2025-09-29 Trump submitted a video on social media to display layouts of the gold inlays purchased to decorate the Oval Office. Tacky.

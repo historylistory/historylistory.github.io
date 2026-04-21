@@ -36,6 +36,19 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.houstonpublicmedia.org/articles/news/texas/2025/07/08/525926/ted-cruz-was-vacationing-in-greece-during-deadly-texas-floods-his-office-says-he-took-first-flight-home/](https://www.houstonpublicmedia.org/articles/news/texas/2025/07/08/525926/ted-cruz-was-vacationing-in-greece-during-deadly-texas-floods-his-office-says-he-took-first-flight-home/)
 
+### 2022
+
+2022-09-01 The Karoline Leavitt “hoe-bag ad” (as deemed by social media).
+
+TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
+
+[https://nhjournal.com/53021-revision-v1/](https://nhjournal.com/53021-revision-v1/)
+
+[https://patch.com/new-hampshire/hampton-northhampton/hoe-bag-attack-ad-drops-hits-nh-congressional-candidate-leavitt](https://patch.com/new-hampshire/hampton-northhampton/hoe-bag-attack-ad-drops-hits-nh-congressional-candidate-leavitt)
+
+[https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta](https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta)
+
+
 ### 2024
 
 2024-09-10 Trump accused Haitian immigrants in Ohio of eating pets during the 2024 debate, and ABC news had to fact-check him.
