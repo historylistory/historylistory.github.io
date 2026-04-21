@@ -132,3 +132,11 @@ permalink: /categories/children/abroad/
 [https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
+
+2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
+
+[https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/](https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/)
+
+[https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/](https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/)
+
+[https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west](https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west)

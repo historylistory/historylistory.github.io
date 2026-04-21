@@ -630,3 +630,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/](https://www.armyupress.army.mil/Journals/Military-Review/English-Edition-Archives/January-February-2026/Fort-Bragg-Cartel/)
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
+
+2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 
+
+[https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/](https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/)
+
+[https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/](https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/)
+
+[https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)

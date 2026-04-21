@@ -268,3 +268,15 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210](https://www.nbcnews.com/news/us-news/ice-agent-charged-assault-minnesota-metro-surge-immigration-rcna332210)
 
 [https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html](https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html)
+
+2026-04-21 Cuba confirmed it recently hosted American diplomats on the island for talks about lifting oil sanctions. This comes after Trump said he planned to turn attention to Cuba after the war in Iran, stating, “We may stop by Cuba after we finish with this”. 
+
+[https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016](https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016)
+
+[https://www.npr.org/2026/04/21/g-s1-118182/cuba-meeting-with-us-officials-on-island](https://www.npr.org/2026/04/21/g-s1-118182/cuba-meeting-with-us-officials-on-island)
+
+[https://www.aol.com/articles/trump-chilling-three-word-warning-100852650.html](https://www.aol.com/articles/trump-chilling-three-word-warning-100852650.html)
+
+[https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html](https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html)
+
+[https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S](https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S)

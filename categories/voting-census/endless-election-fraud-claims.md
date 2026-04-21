@@ -241,3 +241,14 @@ OTHER SHADY BUSINESS
 [https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer](https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer)
 
 [https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html](https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html)
+
+### 2026 April
+
+
+2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 
+
+[https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/](https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/)
+
+[https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/](https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/)
+
+[https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)

@@ -303,3 +303,11 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
+2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
+
+[https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/](https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/)
+
+[https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/](https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/)
+
+[https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west](https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west)

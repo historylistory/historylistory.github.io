@@ -512,3 +512,19 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia](https://www.democracynow.org/2026/4/10/headlines/9_year_old_palestinian_girl_shot_dead_in_front_of_classmates_in_gazas_beit_lahia)
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
+
+2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
+
+[https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/](https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/)
+
+[https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/](https://www.timesofisrael.com/liveblog_entry/car-that-killed-16-year-old-palestinian-cyclist-belongs-to-ben-gvirs-security-team/)
+
+[https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west](https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west)
+
+2026-04-21 Amnesty International released their annual Global Human Rights report. In that report, they described the leaders of Israel, Russia and the United States as “voracious predators” intent on economic and political domination, citing the war in Iran, relentless killing in Lebanon, and the genocide in Gaza. It also cited the growing resistance of States in South Africa as they join to protest the genocide case against Israel in the International Court of Justice.
+
+[https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
+
+[https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump](https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump)
+
+[https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline](https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline)
