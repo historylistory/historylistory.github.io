@@ -33,4 +33,4 @@ This site is managed by one person. Response times may vary depending on the vol
 
 This file was last edited on **April 21, 2026**
 
-The most recent event added was **approximately** from **April 20, 2026** but there may be more events prior to this date I need to add.
+The most recent event added was **approximately** from **April 21, 2026** but there may be more events prior to this date I need to add.
