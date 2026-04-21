@@ -6,6 +6,25 @@ subcategory_slug: suppress-punish-free-speech
 permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 ---
 
+### 2025 June
+
+2025-06-11 Karoline Leavitt claimed that Trump was a champion for the First Amendment at the same time Trump threatened to sue or revoke licenses of networks that didn’t agree with him. She herself revoked press credentials for anyone in the press pool that didn’t refer to the Gulf of Mexico as “Gulf of America”. 
+
+[https://www.c-span.org/clip/white-house-event/white-house-asked-about-first-amendment-protections-of-protesters/5165312](https://www.c-span.org/clip/white-house-event/white-house-asked-about-first-amendment-protections-of-protesters/5165312)
+
+[https://www.freedomforum.org/trump-white-house-associated-press-first-amendment](https://www.freedomforum.org/trump-white-house-associated-press-first-amendment)
+
+[https://www.yahoo.com/news/leavitt-storms-press-briefing-over-195442782.html](https://www.yahoo.com/news/leavitt-storms-press-briefing-over-195442782.html)
+
+[https://thehill.com/homenews/media/5345607-leavitt-slams-stupid-question-about-trumps-threat-to-protesters](https://thehill.com/homenews/media/5345607-leavitt-slams-stupid-question-about-trumps-threat-to-protesters)
+
+[https://www.reuters.com/business/media-telecom/white-house-issues-new-rule-restricting-access-journalists-2025-10-31/](https://www.reuters.com/business/media-telecom/white-house-issues-new-rule-restricting-access-journalists-2025-10-31/)
+
+[https://www.wral.com/story/trump-administration-restricts-reporters-access-to-white-house-press-secretary-s-office/22225408/](https://www.wral.com/story/trump-administration-restricts-reporters-access-to-white-house-press-secretary-s-office/22225408/)
+
+[https://www.aljazeera.com/news/2025/10/31/white-house-restricts-press-office-access-citing-sensitive-material](https://www.aljazeera.com/news/2025/10/31/white-house-restricts-press-office-access-citing-sensitive-material)
+
+
 ### 2025 September
 
 2025-09-11 The dean of Tennessee University was fired over a 'zero sympathy' post about Charlie Kirk.

@@ -60,6 +60,25 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.bbc.com/news/articles/cvge4l109r3o](https://www.bbc.com/news/articles/cvge4l109r3o)
 
+### 2025 June
+
+2025-06-11 Karoline Leavitt claimed that Trump was a champion for the First Amendment at the same time Trump threatened to sue or revoke licenses of networks that didn’t agree with him. She herself revoked press credentials for anyone in the press pool that didn’t refer to the Gulf of Mexico as “Gulf of America”. 
+
+[https://www.c-span.org/clip/white-house-event/white-house-asked-about-first-amendment-protections-of-protesters/5165312](https://www.c-span.org/clip/white-house-event/white-house-asked-about-first-amendment-protections-of-protesters/5165312)
+
+[https://www.freedomforum.org/trump-white-house-associated-press-first-amendment](https://www.freedomforum.org/trump-white-house-associated-press-first-amendment)
+
+[https://www.yahoo.com/news/leavitt-storms-press-briefing-over-195442782.html](https://www.yahoo.com/news/leavitt-storms-press-briefing-over-195442782.html)
+
+[https://thehill.com/homenews/media/5345607-leavitt-slams-stupid-question-about-trumps-threat-to-protesters](https://thehill.com/homenews/media/5345607-leavitt-slams-stupid-question-about-trumps-threat-to-protesters)
+
+[https://www.reuters.com/business/media-telecom/white-house-issues-new-rule-restricting-access-journalists-2025-10-31/](https://www.reuters.com/business/media-telecom/white-house-issues-new-rule-restricting-access-journalists-2025-10-31/)
+
+[https://www.wral.com/story/trump-administration-restricts-reporters-access-to-white-house-press-secretary-s-office/22225408/](https://www.wral.com/story/trump-administration-restricts-reporters-access-to-white-house-press-secretary-s-office/22225408/)
+
+[https://www.aljazeera.com/news/2025/10/31/white-house-restricts-press-office-access-citing-sensitive-material](https://www.aljazeera.com/news/2025/10/31/white-house-restricts-press-office-access-citing-sensitive-material)
+
+
 ### 2025 July
 
 2025-07-17 CBS asserted that they cancelled The Late Show with Stephen Colbert was for "financial reasons", but many question the timing, since the cancellation came just after the show criticized the Trump v. Paramount lawsuit and CBS had an upcoming merger requiring approval from Trump and the FCC.
