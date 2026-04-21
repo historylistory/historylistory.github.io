@@ -1386,3 +1386,15 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml](https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml)
 
 [https://www.bbc.com/news/live/cly90l3ln30t](https://www.bbc.com/news/live/cly90l3ln30t)
+
+2026-04-21 Pete Hegseth said that Iran does not control the Strait of Hormuz and warned that threatening commercial ships with missiles and drones is an act of “piracy” and “terrorism”. Four days later the US Navy forcibly seized an Iranian cargo ship, and then six days later, Hegseth ordered US troops to board an Iranian oil tanker in international waters. 
+
+APRIL 15 HEGSETH PRESS [https://www.facebook.com/reel/1482505723571587](https://www.facebook.com/reel/1482505723571587)
+
+APRIL 19 [https://thehill.com/homenews/administration/5838719-trump-us-navy-intercepts-iranian-ship/](https://thehill.com/homenews/administration/5838719-trump-us-navy-intercepts-iranian-ship/)
+
+APRIL 21 [https://apnews.com/article/iran-war-tifani-sanctioned-ship-bd0190ae22d133d85f331cb300b179bf](https://apnews.com/article/iran-war-tifani-sanctioned-ship-bd0190ae22d133d85f331cb300b179bf)
+
+APRIL 21 [https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says](https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says)
+
+APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/](https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/)

@@ -18,3 +18,12 @@ Still in progress; have not transfered ByteDance/TikTok or other events yet
 
 [https://www.ibtimes.co.uk/china-challenges-us-blockade-hormuz-1791549](https://www.ibtimes.co.uk/china-challenges-us-blockade-hormuz-1791549)
 
+2026-04-16 During an interview with Semafor, Senator Rick Scott (R-FL) advocated for aggressive US action against Iran, saying that blocking oil shipments to China would be a “wonderful” outcome. (VERY LITTLE COVERAGE)
+
+[https://www.aol.com/articles/anthony-scaramucci-asks-ai-rick-140106268.html](https://www.aol.com/articles/anthony-scaramucci-asks-ai-rick-140106268.html)
+
+[https://www.yahoo.com/news/articles/anthony-scaramucci-asks-ai-rick-120106172.html](https://www.yahoo.com/news/articles/anthony-scaramucci-asks-ai-rick-120106172.html)
+
+2019 STATEMENT [https://www.rickscott.senate.gov/2019/9/sen-rick-scott-chinas-investment-iran-proves-they-cant-be-trusted](https://www.rickscott.senate.gov/2019/9/sen-rick-scott-chinas-investment-iran-proves-they-cant-be-trusted)
+
+PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](https://www.youtube.com/watch?v=ufJ_fl_qgB0)
