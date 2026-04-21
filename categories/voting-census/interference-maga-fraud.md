@@ -208,3 +208,13 @@ OTHER SHADY BUSINESS
 [https://www.politifact.com/factchecks/list/?category=&ruling=barely-true&speaker=american-action-network](https://www.politifact.com/factchecks/list/?category=&ruling=barely-true&speaker=american-action-network)
 
 [https://www.foxnews.com/politics/scoop-house-speaker-mike-johnsons-allies-unleash-10m-campaign-spotlight-trump-tax-cuts](https://www.foxnews.com/politics/scoop-house-speaker-mike-johnsons-allies-unleash-10m-campaign-spotlight-trump-tax-cuts)
+
+2026-04-21 The DOJ demanded Wayne County to turn over more than 860,000 ballots along with envelopes and receipts from the 2024 general election. Michigan Attorney General Dana Nessel said, “Once again, President Trump is weaponizing the Justice Department in an attempt to sabotage our democratic process and turn it into his own personal agency to interfere in State elections”. 
+
+[https://www.democracynow.org/2026/4/21/headlines/justice_department_demands_wayne_county_michigan_turn_over_2024_ballots](https://www.democracynow.org/2026/4/21/headlines/justice_department_demands_wayne_county_michigan_turn_over_2024_ballots)
+
+[https://www.cbsnews.com/detroit/news/department-of-justice-demands-2024-ballots-wayne-county/](https://www.cbsnews.com/detroit/news/department-of-justice-demands-2024-ballots-wayne-county/)
+
+[https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891](https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891)
+
+[https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)

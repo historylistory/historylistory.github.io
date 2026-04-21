@@ -172,3 +172,16 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 [https://www.cfr.org/article/guide-countries-trumps-travel-ban-list](https://www.cfr.org/article/guide-countries-trumps-travel-ban-list)
 
 [https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/)
+
+
+### 2026 April
+
+2026-04-21 (context) The U.N. Permanent Forum on indigenous issues this year. One topic on the agenda is the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. In one report, the Trump administration has allegedly made it increasingly difficult for indigenous people to obtain US Visas to attend the UN forum in New York. 
+
+[https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session](https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session)
+
+[https://un-declaration.narf.org/unpfii2026-registration](https://un-declaration.narf.org/unpfii2026-registration)
+
+[https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/](https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/)
+
+[https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues](https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues)

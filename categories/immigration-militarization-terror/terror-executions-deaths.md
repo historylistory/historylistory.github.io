@@ -193,3 +193,10 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 [https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
  
 
+### 2026 April
+
+2026-04-21 As of April, the death count of people in ICE custody for the first 4 months of 2026 reached at least 17.
+
+[https://www.reuters.com/world/eleven-people-died-us-immigration-custody-this-year-ice-says-2026-04-18/](https://www.reuters.com/world/eleven-people-died-us-immigration-custody-this-year-ice-says-2026-04-18/)
+
+[https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802](https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802)
