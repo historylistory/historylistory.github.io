@@ -276,3 +276,7 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://arstechnica.com/health/2026/04/trump-admin-seeks-medical-records-of-federal-workers-for-vague-reasons/](https://arstechnica.com/health/2026/04/trump-admin-seeks-medical-records-of-federal-workers-for-vague-reasons/)
 
 [https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/](https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/)
+
+2026-04-17 Wired magazine uncovered reports about facial recognition monitoring being used at Madison Square Garden. In part of the report they noted the surveillance system was used to track the movements of a trans woman in part to prevent her image from being seen on TV. Wired obtained an 18-page dossier showing the system tracked all of her movements including when she entered and exited the bathroom. 
+
+[https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)

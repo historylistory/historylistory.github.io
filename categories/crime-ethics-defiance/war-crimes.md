@@ -232,5 +232,11 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492](https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492)
 
 
+2026-04-20 Hungary’s newly elected Prime Minister Peter Magyar declared his government would be legally obligated to detain Israeli Prime Minister Benjamin Netanyahu if he enters Hungarian territory while still subject to an international criminal court arrest warrant. 
 
+[https://www.haaretz.com/world-news/europe/2026-04-20/ty-article/.premium/pm-elect-magyar-says-netanyahu-knows-hungary-must-arrest-him-amid-icc-warrant/0000019d-aba5-d11d-a9bf-abf7676f0000](https://www.haaretz.com/world-news/europe/2026-04-20/ty-article/.premium/pm-elect-magyar-says-netanyahu-knows-hungary-must-arrest-him-amid-icc-warrant/0000019d-aba5-d11d-a9bf-abf7676f0000)
+
+[https://www.politico.eu/article/peter-magyar-hungary-would-arrest-benjamin-netanyahu-israel/](https://www.politico.eu/article/peter-magyar-hungary-would-arrest-benjamin-netanyahu-israel/)
+
+[https://www.jpost.com/international/article-893675](https://www.jpost.com/international/article-893675)
 

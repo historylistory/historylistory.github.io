@@ -420,3 +420,14 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel](https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel)
 
+2026-04-20 US Labor Secretary Lori Chavez Dreamer resigned amidst a series of reports that she abused her position. For example, allegations that she used public funds for personal travel, bringing subordinates to a strip club, drinking on the job, and having an affair with her bodyguard. Also, her husband was reportedly banned from the Labor department building for allegedly sexually assaulting two staff members.
+
+[https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/](https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/)
+
+[https://www.politico.com/news/2026/04/20/labor-secretary-chavez-deremer-resign-00737749](https://www.politico.com/news/2026/04/20/labor-secretary-chavez-deremer-resign-00737749)
+
+[https://www.npr.org/2026/04/20/nx-s1-5739251/labor-secretary-trump-chavez-deremer](https://www.npr.org/2026/04/20/nx-s1-5739251/labor-secretary-trump-chavez-deremer)
+
+[https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537](https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt](https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt)

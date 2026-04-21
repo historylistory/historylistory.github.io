@@ -77,5 +77,18 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 [https://www.npr.org/2026/04/09/nx-s1-5779235/jd-vance-stumps-for-hungarys-orban](https://www.npr.org/2026/04/09/nx-s1-5779235/jd-vance-stumps-for-hungarys-orban)
 
 
+2026-04-13 Hungary’s Peter Magyar defeated Orban.
+
+[https://www.cnn.com/2026/04/12/world/live-news/hungary-election-orban-magyar](https://www.cnn.com/2026/04/12/world/live-news/hungary-election-orban-magyar)
+
+[https://www.hungarianconservative.com/articles/politics/lex-orban-tisza-peter-magyar-prime-minister-term-limit-retrospective/](https://www.hungarianconservative.com/articles/politics/lex-orban-tisza-peter-magyar-prime-minister-term-limit-retrospective/)
+
+2026-04-20 Hungary’s newly elected Prime Minister Peter Magyar declared his government would be legally obligated to detain Israeli Prime Minister Benjamin Netanyahu if he enters Hungarian territory while still subject to an international criminal court arrest warrant. 
+
+[https://www.haaretz.com/world-news/europe/2026-04-20/ty-article/.premium/pm-elect-magyar-says-netanyahu-knows-hungary-must-arrest-him-amid-icc-warrant/0000019d-aba5-d11d-a9bf-abf7676f0000](https://www.haaretz.com/world-news/europe/2026-04-20/ty-article/.premium/pm-elect-magyar-says-netanyahu-knows-hungary-must-arrest-him-amid-icc-warrant/0000019d-aba5-d11d-a9bf-abf7676f0000)
+
+[https://www.politico.eu/article/peter-magyar-hungary-would-arrest-benjamin-netanyahu-israel/](https://www.politico.eu/article/peter-magyar-hungary-would-arrest-benjamin-netanyahu-israel/)
+
+[https://www.jpost.com/international/article-893675](https://www.jpost.com/international/article-893675)
 
 

@@ -307,3 +307,11 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 [https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604](https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604)
 
 [https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)
+
+2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful protest at the Cannon House Office Building in Washington D.C. The protest was organized by About Face and against the war in Iran.
+
+[https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war](https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war)
+
+[https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/](https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/)
+
+[https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/](https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/)
