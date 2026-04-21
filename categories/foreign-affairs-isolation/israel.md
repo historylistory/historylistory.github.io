@@ -17,13 +17,14 @@ Please visit the Iran section
 ### Genocide & Children
 
 Please visit either the "Children" section or "War Crimes" subsection for details. 
+
 1) There are multiple allegations of children being shot in the head by Israeli forces, and in April a vehicular homicide of a 16-year-old,
 
 2) the UN Independent International Commission issued a 72-page report condemning the Israeli government of violating 4-out-of-5 acts prohibited under the 1948 Genocide Convention [https://www.bbc.com/news/articles/c8641wv0n4go](https://www.bbc.com/news/articles/c8641wv0n4go) and
 
 3) there is an international criminal court arrest warrant for Netanyahu. [https://www.icc-cpi.int/defendant/netanyahu](https://www.icc-cpi.int/defendant/netanyahu)
 
-4) If you are interested in context about past genocides, please consider researching the 1947 Nakba Ethnic Cleansing. Here is a link, which can also be found in the historical timeline under the "Iran" section. [https://en.wikipedia.org/wiki/Nakba](https://en.wikipedia.org/wiki/Nakba)
+4) If you are interested in context about past genocides, please consider researching the **1947 Nakba Ethnic Cleansing.** Here is a link, which can also be found in the historical timeline under the "Iran" section. [https://en.wikipedia.org/wiki/Nakba](https://en.wikipedia.org/wiki/Nakba)
 
 
 ### 2017
