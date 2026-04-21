@@ -6,6 +6,13 @@ subcategory_slug: other
 permalink: /categories/immigration-militarization-terror/other/
 ---
 
+### 2025
+
+2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders and proceeding with their own agendas without taking heed for judicial orders. The journalist asked pointe-blank, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt’s snarky response, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior...”
+
+[https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
+
+
 ### 2026 March
 
 2026-03-07 Trump announced a new militant coalition “Shield of the Americas” to develop a tougher approach to regional security. The summit included attendees like Bukele, would be led by people like Kristi Noem, and includes additional objectives like putting pressure on Latin America to sever ties with China.

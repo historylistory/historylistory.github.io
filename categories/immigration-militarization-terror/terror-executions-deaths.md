@@ -72,6 +72,14 @@ permalink: /categories/immigration-militarization-terror/terror-executions-death
 
 [https://www.bbc.com/news/articles/cvgnvqrxl0xo](https://www.bbc.com/news/articles/cvgnvqrxl0xo)
 
+2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
+
+[https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
+
+[https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html](https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html)
+
+SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html](https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html)
+
 2026-01-13 Six prosecutors and four DOJ civil rights leaders quit after the DOJ tried to conduct a criminal investigation into Nicole Good’s widowed spouse.
 
 [https://www.theguardian.com/us-news/2026/jan/13/doj-attorneys-resign-minneapolis-ice-shooting](https://www.theguardian.com/us-news/2026/jan/13/doj-attorneys-resign-minneapolis-ice-shooting)

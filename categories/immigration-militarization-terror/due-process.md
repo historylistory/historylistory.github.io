@@ -24,6 +24,11 @@ permalink: /categories/immigration-militarization-terror/due-process/
 
 [https://x.com/StephenM/status/1907116768474071069?lang=en](https://x.com/StephenM/status/1907116768474071069?lang=en)
 
+2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders and proceeding with their own agendas without taking heed for judicial orders. The journalist asked pointe-blank, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt’s snarky response, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior...”
+
+[https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
+
+
 ### 2025 May
 
 2025-05-06 During a confirmation hearing, Lauren Underwood asked Kristi Noem if she believed the Constitution guaranteed due process to everyone in America. Kristi Noem refused to give a definitive answer.

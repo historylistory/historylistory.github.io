@@ -31,3 +31,11 @@ permalink: /categories/conspiracies/antifa-protesters/
 2026-01-09 Fox “news” and Laura Ingraham continue to peddle the conspiracy that anti-ICE protesters were being paid. During an interview with Tom Homan, Laura Ingraham perpetuated misinformation that protesters were being paid and that protests were not “organic”.
 
 [https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest](https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest)
+
+2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
+
+[https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
+
+[https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html](https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html)
+
+SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html](https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html)

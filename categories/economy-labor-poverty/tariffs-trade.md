@@ -42,6 +42,16 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 [https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl](https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl)
 
+2025-03-11 During a press conference, an AP journalist asked, “Have you ever paid a tariff? Because I have. They don’t get charged on foreign companies. They get charged on the importers” to which Karoline Leavitt responded, “and ultimately, when we have fair and balanced trade, which the American people have not seen in decades, as I said at the beginning, revenues will stay here, wages will go up, and our country will be made wealthy again. And I think it’s insulting that you are trying to test my knowledge of economics and the decisions that this president has made. I now regret giving a question to the Associated Press”. 
+
+TIMESTAMP 29:28 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
+
+[https://thehill.com/homenews/administration/5188744-ap-reporter-white-house-tariffs’](https://thehill.com/homenews/administration/5188744-ap-reporter-white-house-tariffs’)
+
+[https://www.yahoo.com/news/articles/ever-paid-tariff-reporters-press-172121176.html](https://www.yahoo.com/news/articles/ever-paid-tariff-reporters-press-172121176.html)
+
+CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-down-ap-reporter-after-insulting-question-tariffs](https://www.foxnews.com/media/karoline-leavitt-shuts-down-ap-reporter-after-insulting-question-tariffs)
+
 
 ### 2025 April
 

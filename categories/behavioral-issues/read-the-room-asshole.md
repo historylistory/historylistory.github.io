@@ -179,3 +179,9 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 [https://www.msn.com/en-us/news/insight/trump-s-drape-talk-overshadows-iran-war-address/gm-GMF03DF269?gemSnapshotKey=GMF03DF269-snapshot-0](https://www.msn.com/en-us/news/insight/trump-s-drape-talk-overshadows-iran-war-address/gm-GMF03DF269?gemSnapshotKey=GMF03DF269-snapshot-0)
 
 [https://ca.news.yahoo.com/jon-stewart-slams-trump-dodging-035741312.html](https://ca.news.yahoo.com/jon-stewart-slams-trump-dodging-035741312.html)
+
+### 2026 April
+
+2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+
+[https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)

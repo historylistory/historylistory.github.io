@@ -242,3 +242,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK](https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK)
 
 [https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
+
+2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+
+[https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
