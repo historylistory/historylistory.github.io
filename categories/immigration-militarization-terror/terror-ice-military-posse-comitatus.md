@@ -6,6 +6,11 @@ subcategory_slug: terror-ice-military-posse-comitatus
 permalink: /categories/immigration-militarization-terror/terror-ice-military-posse-comitatus/
 ---
 
+### Posse Comitatus
+
+A military state to suppress people and prevent an uprising. ICE is here to normalize militarization.
+
+
 ### 2017
 
 2017-02-12 During a Face the Nation interview, Stephen Miller denounced Judiciary power, talked about immigration, and announced "a great rebuilding of the armed forces" with "unquestioned military strength".

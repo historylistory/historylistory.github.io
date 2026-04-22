@@ -27,3 +27,13 @@ Still in progress; have not transfered ByteDance/TikTok or other events yet
 2019 STATEMENT [https://www.rickscott.senate.gov/2019/9/sen-rick-scott-chinas-investment-iran-proves-they-cant-be-trusted](https://www.rickscott.senate.gov/2019/9/sen-rick-scott-chinas-investment-iran-proves-they-cant-be-trusted)
 
 PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](https://www.youtube.com/watch?v=ufJ_fl_qgB0)
+
+2026-04-20 China published concerns that the U.S. will use the Strait of Malacca as a global trade chokepoint.
+
+[https://www.scmp.com/news/china/diplomacy/article/3350691/malacca-strait-risk-hormuz-chain-reaction-after-warning-iranian-adviser](https://www.scmp.com/news/china/diplomacy/article/3350691/malacca-strait-risk-hormuz-chain-reaction-after-warning-iranian-adviser)
+
+[https://www.19fortyfive.com/2026/04/forget-hormuz-the-strait-of-malacca-moves-3500000000000-in-goods-a-year-close-it-and-watch-the-global-economy-crash](https://www.19fortyfive.com/2026/04/forget-hormuz-the-strait-of-malacca-moves-3500000000000-in-goods-a-year-close-it-and-watch-the-global-economy-crash)
+
+[https://asiatimes.com/2026/04/us-has-left-malaccan-states-no-choice-but-to-charge-tolls/](https://asiatimes.com/2026/04/us-has-left-malaccan-states-no-choice-but-to-charge-tolls/)
+
+[https://www.scmp.com/news/china/diplomacy/article/3350691/malacca-strait-risk-hormuz-chain-reaction-after-warning-iranian-adviser](https://www.scmp.com/news/china/diplomacy/article/3350691/malacca-strait-risk-hormuz-chain-reaction-after-warning-iranian-adviser)

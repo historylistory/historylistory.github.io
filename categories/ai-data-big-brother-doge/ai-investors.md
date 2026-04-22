@@ -30,7 +30,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-investors/
 
 [https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license](https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license)
 
-### 2025 January
+### 2025 January STARGATE
 
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
 
