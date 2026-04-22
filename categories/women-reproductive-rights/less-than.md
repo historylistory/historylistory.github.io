@@ -100,6 +100,16 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 
 [https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/](https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/)
 
+2025-08-08 WNBA sex toy incident, courtesy of prediction market manipulation.
+
+[https://www.espn.com/wnba/story/_/id/46038778/ohio-man-arrested-wnba-sex-toy-throwing-liberty-game](https://www.espn.com/wnba/story/_/id/46038778/ohio-man-arrested-wnba-sex-toy-throwing-liberty-game)
+
+[https://www.bbc.com/news/articles/c62w8215g4vo](https://www.bbc.com/news/articles/c62w8215g4vo)
+
+[https://www.cnn.com/2025/08/08/sport/basketball-wnba-sex-toy-incidents](https://www.cnn.com/2025/08/08/sport/basketball-wnba-sex-toy-incidents)
+
+[https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/](https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/)
+
 2025-08-18 The word Broligarchy became so commonplace it was entered into the Cambridge dictionary.
 
 [https://www.yahoo.com/news/us/article/skibidi-tradwife-and-broligarchy-are-among-the-latest-additions-to-the-cambridge-dictionary-do-you-know-what-these-words-mean-152312887.html](https://www.yahoo.com/news/us/article/skibidi-tradwife-and-broligarchy-are-among-the-latest-additions-to-the-cambridge-dictionary-do-you-know-what-these-words-mean-152312887.html)

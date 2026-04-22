@@ -28,7 +28,28 @@ This section is still in progress
 
 [https://en.wikipedia.org/wiki/Polymarket](https://en.wikipedia.org/wiki/Polymarket)
 
-### 2025
+### 2024
+
+2024-10-24 Yale article on Polymarket
+
+[https://insights.som.yale.edu/insights/dont-trust-the-political-prediction-markets](https://insights.som.yale.edu/insights/dont-trust-the-political-prediction-markets)
+
+
+### 2025 January 
+
+2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor.
+
+[https://news.kalshi.com/p/donald-trump-jr-strategic-advisor](https://news.kalshi.com/p/donald-trump-jr-strategic-advisor)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.youtube.com/shorts/oQdttmT5rb0](https://www.youtube.com/shorts/oQdttmT5rb0)
+
+[https://www.youtube.com/watch?v=-8F2z0_Qedk](https://www.youtube.com/watch?v=-8F2z0_Qedk)
+
+SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html](https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html)
+
+### 2025 July 
 
 2025-07-04 Trump signed a bill which changed the rules for gambling loss deductions starting in 2026 from 100% down to 90%, potentially causing what some critics worry will be a "**tax on phantom income**" as well as **unregulated offshore betting**. 
 
@@ -37,6 +58,61 @@ This section is still in progress
 [https://www.avemarialaw.edu/why-congress-must-urgently-restore-the-gambling-loss-deduction/#:~:text=In%20addition%20to%20making%20the,during%20such%20taxable%20year%2C%20and](https://www.avemarialaw.edu/why-congress-must-urgently-restore-the-gambling-loss-deduction/#:~:text=In%20addition%20to%20making%20the,during%20such%20taxable%20year%2C%20and)
 
 [https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions](https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions)
+
+### 2025 August 
+
+2025-08-01 Donald Trump Jr. became an investor and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital. 
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU](https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU)
+
+[https://www.bbc.com/news/articles/cge0grppe3po](https://www.bbc.com/news/articles/cge0grppe3po)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+2025-08-08 WNBA sex toy incident, courtesy of prediction market manipulation.
+
+[https://www.espn.com/wnba/story/_/id/46038778/ohio-man-arrested-wnba-sex-toy-throwing-liberty-game](https://www.espn.com/wnba/story/_/id/46038778/ohio-man-arrested-wnba-sex-toy-throwing-liberty-game)
+
+[https://www.bbc.com/news/articles/c62w8215g4vo](https://www.bbc.com/news/articles/c62w8215g4vo)
+
+[https://www.cnn.com/2025/08/08/sport/basketball-wnba-sex-toy-incidents](https://www.cnn.com/2025/08/08/sport/basketball-wnba-sex-toy-incidents)
+
+[https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/](https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/)
+
+### 2025 December
+
+2025-12-02 CNN partnered with Kalshi prediction market. CNN gained access to Kalshi’s data through an API and features a Kalshi ticker. 
+
+[https://www.axios.com/2025/12/02/cnn-kalshi-prediction-market-data](https://www.axios.com/2025/12/02/cnn-kalshi-prediction-market-data)
+
+[https://news.kalshi.com/p/kalshi-cnn-prediction-market-partnership](https://news.kalshi.com/p/kalshi-cnn-prediction-market-partnership)
+
+[https://finance.yahoo.com/news/kalshi-becomes-cnn-official-prediction-073203095.html](https://finance.yahoo.com/news/kalshi-becomes-cnn-official-prediction-073203095.html)
+
+2025-12-04 CNBC partnered with Kalshi prediction market. Now a Kalshi ticker runs alongside segments of their on-air programming. 
+
+[https://www.cnbc.com/2025/12/04/cnbc-and-kalshi-strike-exclusive-partnership.html](https://www.cnbc.com/2025/12/04/cnbc-and-kalshi-strike-exclusive-partnership.html)
+
+[https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/](https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/)
+
+[https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12](https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12)
+
+2025-12-22 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
+
 
 ### 2026 January
 
@@ -53,6 +129,30 @@ This section is still in progress
 [https://www.axios.com/2026/01/05/prediction-markets-nicolas-maduro-polymarket](https://www.axios.com/2026/01/05/prediction-markets-nicolas-maduro-polymarket)
 
 [https://finance.yahoo.com/news/anonymous-polymarket-accounts-won-1-152546385.html](https://finance.yahoo.com/news/anonymous-polymarket-accounts-won-1-152546385.html)
+
+2026-01-07 Dow Jones signed a partnership agreement with Polymarket prediction markets.
+
+[https://www.reuters.com/business/media-telecom/dow-jones-signs-deal-with-polymarket-add-prediction-data-across-outlets-2026-01-07/](https://www.reuters.com/business/media-telecom/dow-jones-signs-deal-with-polymarket-add-prediction-data-across-outlets-2026-01-07/)
+
+[https://www.dowjones.com/press-room/polymarket-and-dow-jones-publisher-of-the-wall-street-journal-announce-exclusive-prediction-market-partnership/](https://www.dowjones.com/press-room/polymarket-and-dow-jones-publisher-of-the-wall-street-journal-announce-exclusive-prediction-market-partnership/)
+
+[https://finance.yahoo.com/news/polymarket-increases-media-exposure-dow-184700185.html](https://finance.yahoo.com/news/polymarket-increases-media-exposure-dow-184700185.html)
+
+### 2026 February
+
+2026-02-17 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
 ### 2026 March
 
@@ -81,3 +181,13 @@ This section is still in progress
 [https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny](https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny)
 
 [https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
+
+### 2026 April
+
+2026-04-07 Fox News struck a deal with Kalshi for prediction market data. 
+
+[https://www.reuters.com/business/fox-integrate-kalshi-prediction-market-data-across-news-platforms-2026-04-07/](https://www.reuters.com/business/fox-integrate-kalshi-prediction-market-data-across-news-platforms-2026-04-07/)
+
+[https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/](https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/)
+
+[https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/](https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/)

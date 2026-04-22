@@ -24,6 +24,21 @@ permalink: /categories/greed/conflicts-of-interest-maybe/
 
 [https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147](https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147)
 
+### 2025 January
+
+2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor.
+
+[https://news.kalshi.com/p/donald-trump-jr-strategic-advisor](https://news.kalshi.com/p/donald-trump-jr-strategic-advisor)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.youtube.com/shorts/oQdttmT5rb0](https://www.youtube.com/shorts/oQdttmT5rb0)
+
+[https://www.youtube.com/watch?v=-8F2z0_Qedk](https://www.youtube.com/watch?v=-8F2z0_Qedk)
+
+SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html](https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html)
+
+
 ### 2025 April
 
 2025-04-09 Democrats called for an investigation into insider trading, calling notice to Truth Social **posts about when to buy correlating with stock surges**. At 9:37AM Trump posted “THIS IS A GREAT TIME TO BUY!!! DJT”.
@@ -61,6 +76,19 @@ permalink: /categories/greed/conflicts-of-interest-maybe/
 [https://www.axios.com/2025/05/22/trump-meme-coin-dinner](https://www.axios.com/2025/05/22/trump-meme-coin-dinner)
 
 [https://www.reuters.com/world/us/trump-draws-global-crypto-investors-with-148-million-meme-coin-dinner-2025-05-22/](https://www.reuters.com/world/us/trump-draws-global-crypto-investors-with-148-million-meme-coin-dinner-2025-05-22/)
+
+### 2025 August
+
+2025-08-01 Donald Trump Jr. became an investor and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital. 
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU](https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU)
+
+[https://www.bbc.com/news/articles/cge0grppe3po](https://www.bbc.com/news/articles/cge0grppe3po)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
 
 ### 2025 September
 

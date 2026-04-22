@@ -456,6 +456,20 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 February
 
+2026-02-17 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
+
 2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
 
 [https://www.axios.com/2026/02/23/trump-netflix-susan-rice](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
