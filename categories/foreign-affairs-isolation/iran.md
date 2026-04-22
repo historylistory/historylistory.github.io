@@ -637,6 +637,17 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
+2026-03-09 Trump called the war in Iran a “little excursion”.
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/03/09/trump-calls-war-in-iran-a-little-excursion/](https://www.militarytimes.com/news/pentagon-congress/2026/03/09/trump-calls-war-in-iran-a-little-excursion/)
+
+[https://www.youtube.com/shorts/LdXTzoT07Rw](https://www.youtube.com/shorts/LdXTzoT07Rw)
+
+SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/)
+
+
+
+
 2026-03-10 The first six days of the war in Iran cost American taxpayers $11B.
 
 [https://www.politico.com/news/2026/03/12/iran-war-cost-pentagon-00825666](https://www.politico.com/news/2026/03/12/iran-war-cost-pentagon-00825666)
@@ -1367,6 +1378,23 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 
 [https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)
 
+2026-04-17 Trump said Iran “agreed to everything” and the U.S. would remove the enriched uranium. Iran, however, stated, “Iran’s enriched uranium is not going to be transferred anywhere under any circumstances”. 
+
+[https://www.ndtv.com/world-news/iran-war-iran-says-its-enriched-uranium-would-not-be-transferred-anywhere-11373768](https://www.ndtv.com/world-news/iran-war-iran-says-its-enriched-uranium-would-not-be-transferred-anywhere-11373768)
+
+[https://www.axios.com/2026/04/17/iran-us-deal-20-billion-frozen-funds-uranium](https://www.axios.com/2026/04/17/iran-us-deal-20-billion-frozen-funds-uranium)
+
+[https://www.cbsnews.com/news/trump-says-iranians-have-agreed-to-everything-including-removal-of-enriched-uranium/](https://www.cbsnews.com/news/trump-says-iranians-have-agreed-to-everything-including-removal-of-enriched-uranium/)
+
+
+
+2026-04-17 Trump said Iran agreed to “never close the Strait of Hormuz again”. 
+[https://www.aljazeera.com/news/2026/4/17/what-has-trump-said-ahead-of-possible-us-iran-talks-and-what-could-it-mean](https://www.aljazeera.com/news/2026/4/17/what-has-trump-said-ahead-of-possible-us-iran-talks-and-what-could-it-mean)
+
+SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/18/trump-says-iran-cant-blackmail-us-as-it-reimposes-strict-control-over-strait-of-hormuz-live-updates/](https://www.forbes.com/sites/conormurray/2026/04/18/trump-says-iran-cant-blackmail-us-as-it-reimposes-strict-control-over-strait-of-hormuz-live-updates/)
+
+
+
 2026-04-18 Iran closed the Strait of Hormuz again, saying the U.S. violated agreements by continuing to blockade Iranian ports. 
 
 [https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2](https://www.youtube.com/watch?v=sHk4qj-lRlo&list=WL&index=2)
@@ -1386,6 +1414,28 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml](https://www.cnn.com/2026/04/20/middleeast/iran-cargo-ship-seized-explainer-intl-hnk-ml)
 
 [https://www.bbc.com/news/live/cly90l3ln30t](https://www.bbc.com/news/live/cly90l3ln30t)
+
+
+
+2026-04-19 Trump wrote on Truth Social, “…the United States is going to knock out every single Power Plant, and every single Bridge, in Iran. NO MORE MR. NICE GUY! They’ll come down fast, they’ll come down easy and, if they don’t take the DEAL, it will be my Honor to do what has to be done…”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116431297579272777](https://truthsocial.com/@realDonaldTrump/posts/116431297579272777)
+
+[https://www.thedailybeast.com/obsessed/jimmy-kimmel-gives-no-more-mr-nice-guy-trump-harsh-new-nickname/](https://www.thedailybeast.com/obsessed/jimmy-kimmel-gives-no-more-mr-nice-guy-trump-harsh-new-nickname/)
+
+[https://www.usatoday.com/story/news/world/2026/04/19/iran-war-updates-trump-talks--live/89685600007/](https://www.usatoday.com/story/news/world/2026/04/19/iran-war-updates-trump-talks--live/89685600007/)
+
+
+2026-04-19 The Trump administration said it would send Vance to Pakistan for talks with Iran. A few hours later, they said they would not be sending Vance. Then they changed their minds and said they would send Vance, along with Trump’s son-in-law. Then on April 21 they said the trip was on hold.
+
+[https://fortune.com/2026/04/19/trump-jd-vance-pakistan-iran-ceasefire-talks-threats-infrastructure-hormuz/](https://fortune.com/2026/04/19/trump-jd-vance-pakistan-iran-ceasefire-talks-threats-infrastructure-hormuz/)
+
+[https://www.cnbc.com/2026/04/21/trump-vance-iran-war-pakistan.html](https://www.cnbc.com/2026/04/21/trump-vance-iran-war-pakistan.html)
+
+SUB WALL [https://www.thedailybeast.com/vance-humiliated-as-trumps-peace-talks-descend-into-farce/](https://www.thedailybeast.com/vance-humiliated-as-trumps-peace-talks-descend-into-farce/)
+
+
+
 
 2026-04-21 Pete Hegseth said that Iran does not control the Strait of Hormuz and warned that threatening commercial ships with missiles and drones is an act of “piracy” and “terrorism”. Four days later the US Navy forcibly seized an Iranian cargo ship, and then six days later, Hegseth ordered US troops to board an Iranian oil tanker in international waters. 
 
