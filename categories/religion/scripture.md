@@ -65,6 +65,8 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not up to us to be offended when God’s mercy reaches farther than we expected).
 
+***Luke 6:36*** “Be merciful, just as your Father is merciful”.
+
 ***Luke 10:36*** “Who was a neighbor to the man who fell among thieves?” 
 ***Luke 10:37*** “The one who showed him mercy”. “Go and do likewise”. 
 
@@ -72,7 +74,10 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ***Matthew 5:1-12*** “Blessed are the meek, the merciful, the pure of heart and the peacemakers”.
 
+***Matthew 5:7*** “Blessed are the merciful, for they will be shown mercy”.
+
 ***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
+
 
 
 
@@ -109,9 +114,32 @@ When this book was written same-sex activity was often associated with power dyn
 ***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not our place to be offended when God’s mercy reaches farther than we expected. God’s love has never been about qualifications).
 
 
-### Hypocrisy
+### Judgment, Hypocrisy & Righteousness
+
+
+***Ephesians 2:8-9*** “For it is by grace you have been saved, through faith – and this is not from yourselves, it is the gift of God – not by works, so that no one can boast”.
+
+***John 3:17*** “For God did not send his Son into the world to condemn the world, but to save the world through him”.
+
+***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
+
+***Galatians 5-6*** “For in Christ Jesus neither religious rules has any value. The only thing that counts is faith expressing itself through love”.
+
+***Matthew 5:7*** “Blessed are the merciful, for they will be shown mercy”.
+
+***Matthew 6:15*** “But if you do not forgive others their sins, your Father will not forgive your sins”.
 
 ***Matthew 7:3-5*** "Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye? How can you say to your brother, ‘Let me take the speck out of your eye,’ when all the time there is a plank in your own eye? You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother’s eye."
+
+***Matthew 18:32-36*** “Then the master called the servant in. ‘You wicked servant,’ he said, ‘I canceled all that debt of yours because you begged me to. Shouldn’t you have had mercy on your fellow servant just as I had on you?’ In anger his master handed him over to the jailers to be tortured, until he should pay back all he owed. 35 “This is how my heavenly Father will treat each of you unless you forgive your brother or sister form your heart”.
+
+***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
+
+***Romans 2:1*** “You, therefore, have no excuse, you who pass judgment on someone else, for at whatever point you judge another, you are condemning yourself, because you who pass judgment do the same things”.
+
+***Romans 8:1*** “There is no one righteous, not even one”.
+
+***Romans 8:1*** “Therefore, there is now no condemnation for those who are in Christ Jesus”.
 
 
 ### Immigration & Racism
@@ -142,9 +170,6 @@ these brothers and sisters of mine, you did for me.”
 ~~~ 
 
 
-### Judgement
-
-***John 8:7*** “Let the one who is without sin among you be the first to throw a stone at her”. 
 
 
 ### Lifestyle
@@ -168,6 +193,8 @@ Jesus worked and healed during the Sabbath
 
 ***1 Corinthians 13:4-7*** “Love is patient, love is kind. It does not envy, it does not boast, it is not proud. It does not dishonor others, it is not self-seeking, it is not easily angered, it keeps no record of wrongs. Love does not delight in evil but rejoices with the truth. It always protects, always trusts, always hopes, always perseveres”.
 
+***Galatians 5-6*** “For in Christ Jesus neither religious rules has any value. The only thing that counts is faith expressing itself through love”.
+
 ***Mark 12:31*** “Love your neighbor as yourself”.
 
 
@@ -184,6 +211,8 @@ Jesus worked and healed during the Sabbath
 ***Proverbs 14:31*** “Whoever oppresses the poor shows contempt for their Maker, but whoever is kind to the needy honors God”.
 
 
+
+
 ### Tuning Out, Turning a Blind Eye, Burying One's Head
 
 ***Matthew 7:13-14*** “Broad is the road that leads to destruction, and many enter through it. But small is the gate and narrow the road that leads to life, and only a few find it”.
@@ -197,10 +226,14 @@ Jesus worked and healed during the Sabbath
 
 ***Isaiah 43:19*** “See, I am doing a new thing! Now it springs up; do you not perceive it?”
 
+***James 2:10*** “For whoever keeps the whole law and yet stumbles at just one point is guilty of breaking all of it”.
+
 ***John 7:38*** “The one who believes in me, as the scripture has said, will have streams of living water flow from deep within him.”
 
 ***John 14:12*** “Very truly I tell you, whoever believes in me will do the works I have been doing, and they will do even greater things than these”.
 
 ***John 16:12-13*** “I have much more to say to you, more than you can now bear. But when he, the Spirit of truth, come, he will guide you into all truth”.
+
+***Romans 8:38-39*** “For I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor depth, nor anything else in all creation, will be able to separate us from the love of God that is in Christ Jesus our Lord”.
 
 ***2 Timothy 3:16*** “All Scripture is God-breathed and useful for teaching”.
