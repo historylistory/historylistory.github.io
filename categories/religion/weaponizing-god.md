@@ -51,6 +51,16 @@ There is much to cover; still trying to gather. However, such events are peppere
 
 [https://www.youtube.com/shorts/9lmpBqaiGtI](https://www.youtube.com/shorts/9lmpBqaiGtI)
 
+2026-04-01 Article in Daily Citizen: “Jaden Ivey, ‘All I’m preaching about is Jesus Christ and they waived me’.” The NBA star expressed anti-LGBTQ sentiment publicly and the Chicago Bulls cut ties with him. Following this TreVeyon Henderson posted, “Blessed are those who are persecuted for righteousness’ sake, For theirs is the kingdom of heaven.” – Matthew 5:10.
+
+[https://dailycitizen.focusonthefamily.com/jaden-ivey-nba-religious-discrimination/](https://dailycitizen.focusonthefamily.com/jaden-ivey-nba-religious-discrimination/)
+
+[https://dailycitizen.focusonthefamily.com/tag/religious-discrimination/](https://dailycitizen.focusonthefamily.com/tag/religious-discrimination/)
+
+[https://x.com/TreVeyonH4/status/2038786657608941846](https://x.com/TreVeyonH4/status/2038786657608941846)
+
+[https://www.nj.com/sports/2026/03/patriots-star-doubles-down-on-lgbtq-controversy-with-persecuted-line.html](https://www.nj.com/sports/2026/03/patriots-star-doubles-down-on-lgbtq-controversy-with-persecuted-line.html)
+
 
 2026-04-03 Leader of the Archdiocese for Military Services Timothy Broglio rebuked Hegseth for invoking Jesus to stoke war with Iran.
 

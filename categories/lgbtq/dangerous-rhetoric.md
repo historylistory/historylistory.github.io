@@ -143,3 +143,14 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 [https://www.youtube.com/watch?v=VC1NnYeQda8](https://www.youtube.com/watch?v=VC1NnYeQda8)
 {% include youtubePlayer.html id="VC1NnYeQda8" %}
 
+### 2026 April
+
+2026-04-01 Article in Daily Citizen: “Jaden Ivey, ‘All I’m preaching about is Jesus Christ and they waived me’.” The NBA star expressed anti-LGBTQ sentiment publicly and the Chicago Bulls cut ties with him. Following this TreVeyon Henderson posted, “Blessed are those who are persecuted for righteousness’ sake, For theirs is the kingdom of heaven.” – Matthew 5:10.
+
+[https://dailycitizen.focusonthefamily.com/jaden-ivey-nba-religious-discrimination/](https://dailycitizen.focusonthefamily.com/jaden-ivey-nba-religious-discrimination/)
+
+[https://dailycitizen.focusonthefamily.com/tag/religious-discrimination/](https://dailycitizen.focusonthefamily.com/tag/religious-discrimination/)
+
+[https://x.com/TreVeyonH4/status/2038786657608941846](https://x.com/TreVeyonH4/status/2038786657608941846)
+
+[https://www.nj.com/sports/2026/03/patriots-star-doubles-down-on-lgbtq-controversy-with-persecuted-line.html](https://www.nj.com/sports/2026/03/patriots-star-doubles-down-on-lgbtq-controversy-with-persecuted-line.html)
