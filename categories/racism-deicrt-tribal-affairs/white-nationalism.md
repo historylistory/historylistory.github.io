@@ -273,3 +273,21 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+2026-04-22 Todd Blanche and the DOJ indicted the Southern Poverty Law Center on federal charges for allegedly “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
+
+[https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/](https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/)
+
+[https://www.usatoday.com/story/news/nation/2026/04/22/splc-indicted-paying-sources-fbi-pays-informants/89726011007/](https://www.usatoday.com/story/news/nation/2026/04/22/splc-indicted-paying-sources-fbi-pays-informants/89726011007/)
+
+[https://www.houstonpublicmedia.org/npr/2026/04/21/g-s1-118275/southern-poverty-law-center-indicted-on-federal-fraud-charges/](https://www.houstonpublicmedia.org/npr/2026/04/21/g-s1-118275/southern-poverty-law-center-indicted-on-federal-fraud-charges/)
+
+[https://apnews.com/article/southern-poverty-law-center-criminal-investigation-db7fdcf9baa0d1b24b8f1e1f2cebc0be](https://apnews.com/article/southern-poverty-law-center-criminal-investigation-db7fdcf9baa0d1b24b8f1e1f2cebc0be)
+
+[https://komonews.com/news/nation-world/splc-vows-to-fight-federal-charges-claims-they-are-politically-motivated-department-justice-ku-klux-klan-todd-blanche?teaserSource=trending](https://komonews.com/news/nation-world/splc-vows-to-fight-federal-charges-claims-they-are-politically-motivated-department-justice-ku-klux-klan-todd-blanche?teaserSource=trending)
+
+[https://www.newsfromthestates.com/article/legal-experts-skeptical-dojs-criminal-case-against-southern-poverty-law-center](https://www.newsfromthestates.com/article/legal-experts-skeptical-dojs-criminal-case-against-southern-poverty-law-center)
+
+[https://www.rev.com/transcripts/doj-announces-splc-indictment](https://www.rev.com/transcripts/doj-announces-splc-indictment)
+
+[https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s](https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s)

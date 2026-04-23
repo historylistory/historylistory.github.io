@@ -41,6 +41,17 @@ permalink: /categories/women-reproductive-rights/feminism-v-manosphere/
 
 [https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7](https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7)
 
+### 2017
+
+2017-10-01 Andrew Tate was banned from Twitter for saying women needed to “bear responsibility” for being sexually assaulted. Several videos have been taken down about comments made by Andrew Tate, such as 18-year-old women are more attractive than women in their 20s because “they’ve been through less dick”, that women should not be allowed to drive, and female self-defense is “bullshit”. 
+
+[https://www.newsweek.com/influencer-andrew-tate-facebook-instagram-ban-1735303](https://www.newsweek.com/influencer-andrew-tate-facebook-instagram-ban-1735303)
+
+UNAVAILABLE [https://www.youtube.com/shorts/J2cOq55iFZ4](https://www.youtube.com/shorts/J2cOq55iFZ4)
+
+UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com/shorts/wGdp8n246f8)
+
+
 ### 2020
 
 2020-01-01 The “Girl-Boss” messaging is dead.
@@ -66,6 +77,23 @@ permalink: /categories/women-reproductive-rights/feminism-v-manosphere/
 
 AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-foundation-engineering-women/](https://www.snopes.com/fact-check/heritage-foundation-engineering-women/)
 
+### 2022
+
+2022-07-15 Andrew Tate said, “If I have responsibility over her then I must have a degree of authority. You can’t be responsible for a dog if it doesn’t obey you”.
+
+[https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s](https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s)
+
+[https://www.youtube.com/watch?v=o6vhLqqJMvU](https://www.youtube.com/watch?v=o6vhLqqJMvU)
+
+[https://www.bbc.com/news/technology-62602913](https://www.bbc.com/news/technology-62602913)
+
+[https://www.yahoo.com/news/25-things-andrew-tate-said-183904749.html](https://www.yahoo.com/news/25-things-andrew-tate-said-183904749.html)
+
+PAY WALL [https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tiktok-instagram/](https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tiktok-instagram/)
+
+UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate](https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate)
+
+
 ### 2023
 
 2023-01-01 Manosphere, incels and online misogyny.
@@ -89,6 +117,16 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 [https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD033.pdf](https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD033.pdf)
 
 [https://humanrights.ca/story/online-misogyny-manosphere](https://humanrights.ca/story/online-misogyny-manosphere)
+
+### 2025
+
+2025-10-01 In a Movember Foundation report 60% of young men interact with content from men and masculinity influencers.
+
+[https://ex.movember.com/movember-institute/masculinities-report](https://ex.movember.com/movember-institute/masculinities-report)
+
+TIMESTAMP 6:30 [https://www.youtube.com/watch?v=zOE-eMRzvcY&list=WL&index=1&t=405s](https://www.youtube.com/watch?v=zOE-eMRzvcY&list=WL&index=1&t=405s)
+
+FROM 2025 [https://movember.com/uploads/files/2025/Movember](https://movember.com/uploads/files/2025/Movember)
 
 
 ### 2026 February

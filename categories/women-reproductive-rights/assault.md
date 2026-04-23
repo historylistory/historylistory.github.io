@@ -50,6 +50,15 @@ Side note: Stephen Miller called into the conservative Larry Elder show during h
 
 [https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
 
+2017-10-01 Andrew Tate was banned from Twitter for saying women needed to “bear responsibility” for being sexually assaulted. Several videos have been taken down about comments made by Andrew Tate, such as 18-year-old women are more attractive than women in their 20s because “they’ve been through less dick”, that women should not be allowed to drive, and female self-defense is “bullshit”. 
+
+[https://www.newsweek.com/influencer-andrew-tate-facebook-instagram-ban-1735303](https://www.newsweek.com/influencer-andrew-tate-facebook-instagram-ban-1735303)
+
+UNAVAILABLE [https://www.youtube.com/shorts/J2cOq55iFZ4](https://www.youtube.com/shorts/J2cOq55iFZ4)
+
+UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com/shorts/wGdp8n246f8)
+
+
 ### 2022
 
 2022-11-21 Elon Musk reinstated Andrew and Tristan Tate social media accounts from which they were previously banned for hate speech. One article explains how the Tate  brothers face charges of rape, human trafficking, trafficking of minors, and sex with a minor. Another article cites comments made by Andrew Tate where he said women should “bear responsibility” for being sexually assaulted.

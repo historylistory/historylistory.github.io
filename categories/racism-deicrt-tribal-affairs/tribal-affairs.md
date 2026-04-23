@@ -38,6 +38,21 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 [https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post](https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post)
 
+2025-07-25 Data centers (a.k.a. data colonialism) and mining are heavily threatening indigenous lands and sovereignty.
+
+[https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
+
+[https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/](https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/)
+
+[https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/](https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/)
+
+[https://www.honorearth.org/stopdatacolonialism](https://www.honorearth.org/stopdatacolonialism)
+
+[https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations](https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations)
+
+[https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s](https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s)
+
+
 ### 2025 August
 
 2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. For context, the Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. Also noteworthy, China has invested billions of dollars in this project, so the argument is where does the responsibility lay, with wealthy Chinese investors or the American people.

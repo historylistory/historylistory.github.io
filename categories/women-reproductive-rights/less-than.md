@@ -60,6 +60,23 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-foundation-engineering-women/](https://www.snopes.com/fact-check/heritage-foundation-engineering-women/)
 
+### 2022
+
+2022-07-15 Andrew Tate said, “If I have responsibility over her then I must have a degree of authority. You can’t be responsible for a dog if it doesn’t obey you”.
+
+[https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s](https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s)
+
+[https://www.youtube.com/watch?v=o6vhLqqJMvU](https://www.youtube.com/watch?v=o6vhLqqJMvU)
+
+[https://www.bbc.com/news/technology-62602913](https://www.bbc.com/news/technology-62602913)
+
+[https://www.yahoo.com/news/25-things-andrew-tate-said-183904749.html](https://www.yahoo.com/news/25-things-andrew-tate-said-183904749.html)
+
+PAY WALL [https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tiktok-instagram/](https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tiktok-instagram/)
+
+UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate](https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate)
+
+
 ### 2024 July
 
 2024-07-29 Mike Davis wrote on Twitter “We will build a special gulag for leftwing white women. The laundry ward”.

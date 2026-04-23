@@ -6,6 +6,22 @@ subcategory_slug: ai-environmental-impacts
 permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 ---
 
+### 2025 July
+
+2025-07-25 Data centers (a.k.a. data colonialism) and mining are heavily threatening indigenous lands and sovereignty.
+
+[https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
+
+[https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/](https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/)
+
+[https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/](https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/)
+
+[https://www.honorearth.org/stopdatacolonialism](https://www.honorearth.org/stopdatacolonialism)
+
+[https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations](https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations)
+
+[https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s](https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s)
+
 ### 2025 September
 
 2025-09-01 Residents started reporting that the infrasound noise produced by data centers had been causing sleep disturbances, illnesses, seizures, headaches, dizziness, and the noise was forcing residents to move. 

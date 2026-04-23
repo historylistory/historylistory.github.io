@@ -22,6 +22,20 @@ permalink: /categories/climate-change/endangerment/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
+2025-07-25 Data centers (a.k.a. data colonialism) and mining are heavily threatening indigenous lands and sovereignty.
+
+[https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
+
+[https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/](https://nativenewsonline.net/opinion/data-centers-and-ai-are-a-betrayal-of-indigenous-lifeways/)
+
+[https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/](https://icmagazine.org/indigenous-peoples-push-back-as-data-centers-expand-across-north-america/)
+
+[https://www.honorearth.org/stopdatacolonialism](https://www.honorearth.org/stopdatacolonialism)
+
+[https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations](https://aipi.asu.edu/blog/2025/07/tribal-sovereignty-age-ai-exploring-opportunities-and-risks-tribal-nations)
+
+[https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s](https://www.youtube.com/watch?v=Ac0-fBK0LVQ&list=WL&index=7&t=81s)
+
 2025-07-29 The Trump administration attempted to repeal a 2009 EPA endangerment finding that greenhouse gas emissions are air pollutants that endanger public health and welfare.
 
 [https://eelp.law.harvard.edu/tracker/greenhouse-gas-endangerment-finding/](https://eelp.law.harvard.edu/tracker/greenhouse-gas-endangerment-finding/)

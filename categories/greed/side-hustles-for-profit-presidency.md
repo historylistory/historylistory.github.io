@@ -118,3 +118,15 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 [https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
+
+### 2026 April
+
+2026-04-22 During a hearing of the Senate Finance Committee Senator Elizabeth Warren asked RFK about TrumpRx and revealed the pricing is higher than promised. For example, a drug for Protonix is $16 at Costco and $200 through TrumpRX. A heart medication costs $336 through TrumpRX can be obtained at CostPlus Drugs for $12. This was after Trump said he’d reduce drug prices by 600% or 1500% or whatever number he tossed out at Americans. In exchange for these drug companies in TrumpRX, Trump gave them a tariff exemption. Yet, prices are still higher. 
+
+[https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3](https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3)
+
+[https://www.warren.senate.gov/newsroom/press-releases/at-hearing-warren-exposes-trumprx-scam-blasts-trump-administration-for-putting-big-pharma-over-americans-health](https://www.warren.senate.gov/newsroom/press-releases/at-hearing-warren-exposes-trumprx-scam-blasts-trump-administration-for-putting-big-pharma-over-americans-health)
+
+[https://democrats-energycommerce.house.gov/media/press-releases/reality-check-new-report-confirms-trumprx-not-lowering-prescription-drug](https://democrats-energycommerce.house.gov/media/press-releases/reality-check-new-report-confirms-trumprx-not-lowering-prescription-drug)
+
+[https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam](https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam)

@@ -218,3 +218,13 @@ OTHER SHADY BUSINESS
 [https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891](https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891)
 
 [https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
+
+2026-04-21 Democrats in Virginia won additional seats after Republicans started a gerrymandering war in 2025. Even though Republicans had unfairly tried to gerrymander in every state, capitulating Fox network called Virginia’s win a “gerrymander scheme”. 
+
+[https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917](https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917)
+
+[https://www.theatlantic.com/ideas/2026/04/virginia-congress-midterms-trump/686895/](https://www.theatlantic.com/ideas/2026/04/virginia-congress-midterms-trump/686895/)
+
+[https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme](https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme)
+
+EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2)

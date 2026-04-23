@@ -152,3 +152,15 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 [https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7](https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7)
 
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
+
+2026-04-16 **MEDIA OUTLETS ARE WARNING THE FOLLOWING POST IS FAKE** (CONTEXT: I think it’s important to include this. Even though the Trump regime is bad, it’s really imperative that we pay attention to lies on BOTH sides and not get caught up in conspiracy). Trump posted a threat to Pope Leo via Truth Social: “As President of the United States, I have access to information that could bring down the Papacy, the Vatican and the entire Catholic Church overnight! These are called the Vatican files, which I won’t release, out of respect for the BILLION catholics worldwide, but, the weak Pope Leo of Vatican would do well to remember who he has to answer to, if he continues to interfere in politics on behalf of the Terrorist Regime of Iran, the misinformation Pope spreads regarding the special combat operation is extremely dangerous! JESUS would have wanted PEACE THROUGH STRENGTH, just like I do! Iran will never have a nuclear weapon, and we will use our OVERWHELMING STRENGTH to make sure they never do! This is the PATH TO PEACE! Thank you for your attention to this matter! -President DJT”.
+
+[https://www.yahoo.com/news/articles/fact-check-trump-did-not-005541014.html](https://www.yahoo.com/news/articles/fact-check-trump-did-not-005541014.html)
+
+[https://factcheck.afp.com/doc.afp.com.A88G3ZQ](https://factcheck.afp.com/doc.afp.com.A88G3ZQ)
+
+[https://www.usatoday.com/story/news/nation/2026/04/19/trump-feud-pope-leo-divides-catholics/89667533007/](https://www.usatoday.com/story/news/nation/2026/04/19/trump-feud-pope-leo-divides-catholics/89667533007/)
+
+[https://www.pbs.org/newshour/politics/fact-checking-trumps-claim-that-pope-leo-supports-nuclear-weapons-in-iran](https://www.pbs.org/newshour/politics/fact-checking-trumps-claim-that-pope-leo-supports-nuclear-weapons-in-iran)
+
+[https://www.military.com/daily-news/2026/04/09/pentagon-white-house-push-back-alleged-remarks-made-pope-vatican.html](https://www.military.com/daily-news/2026/04/09/pentagon-white-house-push-back-alleged-remarks-made-pope-vatican.html)
