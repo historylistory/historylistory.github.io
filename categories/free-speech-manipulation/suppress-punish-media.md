@@ -326,3 +326,11 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+2026-04-21 Kash Patel filed his $250M defamation lawsuit against The Atlantic for reporting on his erratic behavior and unexplained absences. For example, they reported that Patel’s security detail struggled to wake him on multiple occasions last year and in at least one instance requested breaching equipment normally used by SWAT teams to enter buildings.
+
+[https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
+
+[https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
+
+[https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic) 

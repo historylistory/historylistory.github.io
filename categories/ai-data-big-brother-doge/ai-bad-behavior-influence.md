@@ -28,6 +28,18 @@ PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinatio
 
 [https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
 
+2025-05-19 Elon Musk’s platform Grok spread Holocaust misinformation, Holocaust denial, and claimed white genocide in South Africa. 
+
+[https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/](https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/)
+
+[https://worldcrunch.com/in-the-news/elon-musk-ai-and-holocaust-denialism-a-stress-test-for-europe/](https://worldcrunch.com/in-the-news/elon-musk-ai-and-holocaust-denialism-a-stress-test-for-europe/)
+
+[https://theweek.com/tech/grok-ai-controversy-chatbots](https://theweek.com/tech/grok-ai-controversy-chatbots)
+
+[https://www.forbes.com/sites/emilybaker-white/2025/05/15/groks-south-africa-glitch-is-a-reminder-all-chatbots-are-biased/](https://www.forbes.com/sites/emilybaker-white/2025/05/15/groks-south-africa-glitch-is-a-reminder-all-chatbots-are-biased/)
+
+[https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327](https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327)
+
 
 ### 2025 July
 

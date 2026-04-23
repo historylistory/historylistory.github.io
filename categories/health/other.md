@@ -86,7 +86,7 @@ permalink: /categories/health/other/
 
 [https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76](https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76)
 
-2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD.
+2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine. 
 
 [https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
 
@@ -95,6 +95,12 @@ permalink: /categories/health/other/
 [https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/](https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/)
 
 [https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics](https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics)
+
+[https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health](https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health)
+
+[https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics](https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics)
+
+[https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
 
 2026-04-21 (context) The U.N. Permanent Forum on indigenous issues this year. One topic on the agenda is the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. In one report, the Trump administration has allegedly made it increasingly difficult for indigenous people to obtain US Visas to attend the UN forum in New York. 
 

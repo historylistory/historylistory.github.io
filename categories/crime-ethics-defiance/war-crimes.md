@@ -231,6 +231,13 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492](https://www.newsweek.com/pete-hegseth-faces-impeachment-threat-full-list-of-sponsors-11835492)
 
+2026-04-19 (context here: threatening to attack civilian infrastructure again) Trump wrote on Truth Social, “…the United States is going to knock out every single Power Plant, and every single Bridge, in Iran. NO MORE MR. NICE GUY! They’ll come down fast, they’ll come down easy and, if they don’t take the DEAL, it will be my Honor to do what has to be done…”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116431297579272777](https://truthsocial.com/@realDonaldTrump/posts/116431297579272777)
+
+[https://www.thedailybeast.com/obsessed/jimmy-kimmel-gives-no-more-mr-nice-guy-trump-harsh-new-nickname/](https://www.thedailybeast.com/obsessed/jimmy-kimmel-gives-no-more-mr-nice-guy-trump-harsh-new-nickname/)
+
+[https://www.usatoday.com/story/news/world/2026/04/19/iran-war-updates-trump-talks--live/89685600007/](https://www.usatoday.com/story/news/world/2026/04/19/iran-war-updates-trump-talks--live/89685600007/)
 
 2026-04-20 Hungary’s newly elected Prime Minister Peter Magyar declared his government would be legally obligated to detain Israeli Prime Minister Benjamin Netanyahu if he enters Hungarian territory while still subject to an international criminal court arrest warrant. 
 
@@ -248,3 +255,4 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump](https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump)
 
 [https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline](https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline)
+

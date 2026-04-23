@@ -36,6 +36,21 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://atlantablackstar.com/2025/02/07/no-such-thing-as-a-black-national-anthem-maga-melts-down-over-super-bowl-performance-as-stephen-a-smith-slams-donald-trumps-base-for-fake-outrage-amid-calls-for-boycott/](https://atlantablackstar.com/2025/02/07/no-such-thing-as-a-black-national-anthem-maga-melts-down-over-super-bowl-performance-as-stephen-a-smith-slams-donald-trumps-base-for-fake-outrage-amid-calls-for-boycott/)
 
+### 2025 May
+
+2025-05-19 (for context, because AI chatbots are a by-product of information being fed TO it, garbage-in-garbage-out) Elon Musk’s platform Grok spread Holocaust misinformation, Holocaust denial, and claimed white genocide in South Africa. 
+
+[https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/](https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/)
+
+[https://worldcrunch.com/in-the-news/elon-musk-ai-and-holocaust-denialism-a-stress-test-for-europe/](https://worldcrunch.com/in-the-news/elon-musk-ai-and-holocaust-denialism-a-stress-test-for-europe/)
+
+[https://theweek.com/tech/grok-ai-controversy-chatbots](https://theweek.com/tech/grok-ai-controversy-chatbots)
+
+[https://www.forbes.com/sites/emilybaker-white/2025/05/15/groks-south-africa-glitch-is-a-reminder-all-chatbots-are-biased/](https://www.forbes.com/sites/emilybaker-white/2025/05/15/groks-south-africa-glitch-is-a-reminder-all-chatbots-are-biased/)
+
+[https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327](https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327)
+
+
 ### 2025 October
 
 2025-10-09 Turning Point USA announced they were going to have their own Superbowl halftime show in direct response to Puerto Rican artist Bad Bunny performing at Super Bowl LX.
