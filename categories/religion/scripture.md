@@ -109,6 +109,9 @@ When this book was written same-sex activity was often associated with power dyn
 ***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not our place to be offended when God’s mercy reaches farther than we expected. God’s love has never been about qualifications).
 
 
+### Hypocrisy
+
+***Matthew 7:3-5*** "Why do you look at the speck of sawdust in your brother’s eye and pay no attention to the plank in your own eye? How can you say to your brother, ‘Let me take the speck out of your eye,’ when all the time there is a plank in your own eye? You hypocrite, first take the plank out of your own eye, and then you will see clearly to remove the speck from your brother’s eye."
 
 
 ### Immigration & Racism
