@@ -1448,3 +1448,41 @@ APRIL 21 [https://apnews.com/article/iran-war-tifani-sanctioned-ship-bd0190ae22d
 APRIL 21 [https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says](https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says)
 
 APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/](https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/)
+
+
+
+2026-04-22 Hegseth fired Secretary of the Navy John Phelan.
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan](https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan)
+
+[https://thehill.com/policy/defense/5843990-navy-secretary-phelan-departure/](https://thehill.com/policy/defense/5843990-navy-secretary-phelan-departure/)
+
+[https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532](https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532)
+
+[https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/](https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/)
+
+
+
+
+
+2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+
+[https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
+
+[https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
+
+2026-04-23 Trump ordered the U.S. Navy to “shoot and kill” Iranian boats.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116454087460626531](https://truthsocial.com/@realDonaldTrump/posts/116454087460626531)
+
+[https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz](https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz)
+
+[https://apnews.com/live/iran-war-israel-trump-04-24-2026](https://apnews.com/live/iran-war-israel-trump-04-24-2026)
+
+[https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8](https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8)
+
+[https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/](https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/)
+
+[https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571](https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)

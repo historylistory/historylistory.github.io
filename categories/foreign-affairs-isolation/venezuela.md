@@ -271,3 +271,9 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output](https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-award-oil-fields-to-chevron-to-help-grow-output)
 
 COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region](https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region)
+
+2026-04-23 A U.S. soldier was charged with making $400,000 on Maduro’s arrest in a Polymarket bet.
+
+[https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/](https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/)
+
+[https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426](https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426)

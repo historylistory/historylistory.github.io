@@ -30,6 +30,12 @@ OTHER SHADY BUSINESS
 
 ### 2021
 
+2021-01-04 Democrats introduced the For The People/Freedom to Vote Act but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
+
+[https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc](https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc)
+
+[https://www.democracydocket.com/analysis/the-freedom-to-vote-act-unpacked/](https://www.democracydocket.com/analysis/the-freedom-to-vote-act-unpacked/)
+
 2021-09-14 (context) Nancy Pelosi introduced the John Lewis Voting Rights Advancement Act which would require states with a history of voting rights violations to seek federal approval before enacting changes to their voting laws.
 
 [https://www.congress.gov/bill/117th-congress/house-bill/4](https://www.congress.gov/bill/117th-congress/house-bill/4)
@@ -61,6 +67,10 @@ OTHER SHADY BUSINESS
 [https://www.wired.com/story/elon-musk-america-pac-blitz-canvassing-michigan-uhaul/](https://www.wired.com/story/elon-musk-america-pac-blitz-canvassing-michigan-uhaul/)
 
 [https://michiganadvance.com/2024/10/31/musk-connected-pac-reportedly-engages-in-shady-canvassing-tactics-in-michigan/](https://michiganadvance.com/2024/10/31/musk-connected-pac-reportedly-engages-in-shady-canvassing-tactics-in-michigan/)
+
+2024-11-15 Republicans rejected a ballot measure to strip lawmakers from being able to manipulate electoral districts with partisan gerrymandering tactics.
+
+[https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures](https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures)
 
 ### 2025
 

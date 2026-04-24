@@ -6,6 +6,10 @@ subcategory_slug: vaccines-except-measles
 permalink: /categories/health/vaccines-except-measles/
 ---
 
+### Measles
+
+Has its own section due to the scope of the topic
+
 ### 2005
 
 2005-01-01 Robert Kennedy published a story for Rolling Stone and Salon called "Deadly Immunity" claiming government health agencies colluded with big pharma to hide the dangers of vaccines.

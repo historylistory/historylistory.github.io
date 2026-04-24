@@ -284,3 +284,20 @@ FROM 2020 [https://www.military.com/daily-news/2020/10/28/navy-veteran-exposes-g
 FROM 2021 [https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-worst-rom-meals-vol-ii/](https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-worst-rom-meals-vol-ii/)
 
 FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007](https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007)
+
+
+2026-04-23 Trump ordered the U.S. Navy to “shoot and kill” Iranian boats.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116454087460626531](https://truthsocial.com/@realDonaldTrump/posts/116454087460626531)
+
+[https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz](https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz)
+
+[https://apnews.com/live/iran-war-israel-trump-04-24-2026](https://apnews.com/live/iran-war-israel-trump-04-24-2026)
+
+[https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8](https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8)
+
+[https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/](https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/)
+
+[https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571](https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)

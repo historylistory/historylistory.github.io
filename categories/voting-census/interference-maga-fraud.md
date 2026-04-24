@@ -56,6 +56,13 @@ OTHER SHADY BUSINESS
 
 [https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time](https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time)
 
+2021-01-04 Democrats introduced the For The People/Freedom to Vote Act but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
+
+[https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc](https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc)
+
+[https://www.democracydocket.com/analysis/the-freedom-to-vote-act-unpacked/](https://www.democracydocket.com/analysis/the-freedom-to-vote-act-unpacked/)
+
+
 2021-02-20 Fulton County DA investigated election interference involving Trump, Rudy Giuliani, and others.
 
 [https://www.npr.org/2021/02/10/966332808/georgia-district-attorney-is-investigating-trumps-call-to-overturn-election](https://www.npr.org/2021/02/10/966332808/georgia-district-attorney-is-investigating-trumps-call-to-overturn-election)
@@ -96,6 +103,11 @@ OTHER SHADY BUSINESS
 
 ### 2024
 
+2024-04-05 An article reads “You have imprisoned our democracy: inside Republican’s domination of Tennessee”.
+
+[https://www.theguardian.com/us-news/2024/apr/05/tennessee-republicans-one-party-state](https://www.theguardian.com/us-news/2024/apr/05/tennessee-republicans-one-party-state)
+
+
 2024-04-23 During an interview on Newsmax with Eric Bolling, Lara Trump stated RNC would have people physically handling ballots on election day.
 
 [https://thehill.com/homenews/campaign/4618000-lara-trump-rnc-2024-election-day-physically-handle-ballots/](https://thehill.com/homenews/campaign/4618000-lara-trump-rnc-2024-election-day-physically-handle-ballots/)
@@ -125,6 +137,11 @@ OTHER SHADY BUSINESS
 [https://www.theverge.com/tech/882838/georgia-elon-musk-america-pac-voter-fraud](https://www.theverge.com/tech/882838/georgia-elon-musk-america-pac-voter-fraud)
 
 [https://www.msn.com/en-us/money/markets/elon-musks-pac-in-hot-water-for-pre-filled-2024-absentee-ballot-applications-in-georgia/ar-AA1WOR2m](https://www.msn.com/en-us/money/markets/elon-musks-pac-in-hot-water-for-pre-filled-2024-absentee-ballot-applications-in-georgia/ar-AA1WOR2m)
+
+2024-11-15 Republicans rejected a ballot measure to strip lawmakers from being able to manipulate electoral districts with partisan gerrymandering tactics.
+
+[https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures](https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures)
+
 
 ### 2025 September
 

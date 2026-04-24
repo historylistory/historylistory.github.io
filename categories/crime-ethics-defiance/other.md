@@ -21,3 +21,13 @@ permalink: /categories/crime-ethics-defiance/other/
 [https://www.mississippifreepress.org/dibiase-trial-spotlights-wrestlers-odd-bond-with-mississippi-welfare-scandal-mastermind/](https://www.mississippifreepress.org/dibiase-trial-spotlights-wrestlers-odd-bond-with-mississippi-welfare-scandal-mastermind/)
 
 [https://www.mississippifreepress.org/ex-mississippi-welfare-leader-indicted-on-federal-conspiracy-fraud-charges/](https://www.mississippifreepress.org/ex-mississippi-welfare-leader-indicted-on-federal-conspiracy-fraud-charges/)
+
+### 2026 April
+
+2026-04-23 Kalshi fined and suspended congressional candidates for betting on their own elections.
+
+[https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections](https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections)
+
+[https://www.aljazeera.com/news/2026/4/22/prediction-market-kalshi-docks-three-us-candidates-for-betting-on-own-races](https://www.aljazeera.com/news/2026/4/22/prediction-market-kalshi-docks-three-us-candidates-for-betting-on-own-races)
+
+[https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates](https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates)

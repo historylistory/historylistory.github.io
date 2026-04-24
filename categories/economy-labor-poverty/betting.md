@@ -191,3 +191,25 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/](https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/)
 
 [https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/](https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/)
+
+2026-04-23 A U.S. soldier was charged with making $400,000 on Maduro’s arrest in a Polymarket bet.
+
+[https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/](https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/)
+
+[https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426](https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426)
+
+2026-04-23 Kalshi fined and suspended congressional candidates for betting on their own elections.
+
+[https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections](https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections)
+
+[https://www.aljazeera.com/news/2026/4/22/prediction-market-kalshi-docks-three-us-candidates-for-betting-on-own-races](https://www.aljazeera.com/news/2026/4/22/prediction-market-kalshi-docks-three-us-candidates-for-betting-on-own-races)
+
+[https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates](https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates)
+
+2026-04-23 French police probed suspected airport weather device tampering around the same time a Polymarket trader cashed on in a weather report bet.
+
+[https://www.npr.org/2026/04/23/nx-s1-5797876/polymarket-paris-weather-bet](https://www.npr.org/2026/04/23/nx-s1-5797876/polymarket-paris-weather-bet)
+
+[https://www.cnn.com/2026/04/23/europe/france-weather-sensor-polymarket-bet-intl-latam](https://www.cnn.com/2026/04/23/europe/france-weather-sensor-polymarket-bet-intl-latam)
+
+[https://finance.yahoo.com/markets/crypto/articles/france-probes-weather-data-tampering-075950500.html](https://finance.yahoo.com/markets/crypto/articles/france-probes-weather-data-tampering-075950500.html)

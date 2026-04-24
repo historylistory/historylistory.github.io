@@ -256,3 +256,18 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline](https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline)
 
+2026-04-23 Trump ordered the U.S. Navy to “shoot and kill” Iranian boats.
+
+[https://truthsocial.com/@realDonaldTrump/posts/116454087460626531](https://truthsocial.com/@realDonaldTrump/posts/116454087460626531)
+
+[https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz](https://www.pbs.org/newshour/world/trump-orders-u-s-military-to-shoot-and-kill-iranian-small-boats-choking-strait-of-hormuz)
+
+[https://apnews.com/live/iran-war-israel-trump-04-24-2026](https://apnews.com/live/iran-war-israel-trump-04-24-2026)
+
+[https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8](https://apnews.com/article/us-iran-war-hormuz-israel-pakistan-ceasefire-april-23-2026-368b922ae2f4c874df8a133491eeffe8)
+
+[https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/](https://time.com/article/2026/04/23/trump-orders-us-navy-shoot-kill-boats-strait-hormuz-iran-war/)
+
+[https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571](https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571)
+
+[https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)

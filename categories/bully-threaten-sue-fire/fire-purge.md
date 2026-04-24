@@ -199,6 +199,13 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581](https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581)
 
+### 2025 October
+
+2025-10-03 Hegseth fired Navy Chief of Staff Jon Harrison.
+
+[https://www.politico.com/news/2025/10/03/top-navy-official-fired-00593997](https://www.politico.com/news/2025/10/03/top-navy-official-fired-00593997)
+
+
 ### 2025 November
 
 2025-11-03 News outlets reported that Kash Patel lashed out after they uncovered his use of a government jet to visit his 26-year-old girlfriend. Right after the story was uncovered, Patel fired 27-year veteran for the FBI critical incident response group Steven Palmer. For context, one of the tasks of the critical incident response group is to oversee the fleet of jets.
@@ -246,3 +253,13 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 [https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/](https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/)
 
 [https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755](https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755)
+
+2026-04-22 Hegseth fired Secretary of the Navy John Phelan.
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan](https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan)
+
+[https://thehill.com/policy/defense/5843990-navy-secretary-phelan-departure/](https://thehill.com/policy/defense/5843990-navy-secretary-phelan-departure/)
+
+[https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532](https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532)
+
+[https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/](https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/)

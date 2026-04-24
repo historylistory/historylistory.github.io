@@ -45,3 +45,13 @@ permalink: /categories/health/measles/
 2026-02-12 Outlets reported the CDC was lagging behind on tracking measles cases.
 
 [https://www.cnn.com/health/tracking-measles-cases-us-maps-vis](https://www.cnn.com/health/tracking-measles-cases-us-maps-vis)
+
+### 2026 March
+
+2026-04-06 Following a measles outbreak RFK announced he would support the vaccine.
+
+[https://www.cidrap.umn.edu/measles/hearings-rfk-jr-claims-no-responsibility-measles-spread](https://www.cidrap.umn.edu/measles/hearings-rfk-jr-claims-no-responsibility-measles-spread)
+
+[https://www.npr.org/sections/shots-health-news/2025/04/07/nx-s1-5354900/hhs-rfk-endorses-mmr-measles-vaccine-stoking-supporters-fury](https://www.npr.org/sections/shots-health-news/2025/04/07/nx-s1-5354900/hhs-rfk-endorses-mmr-measles-vaccine-stoking-supporters-fury)
+
+SUB WALL [https://www.politico.com/news/2025/04/06/kennedy-support-measles-vaccine-outbreak-00276021](https://www.politico.com/news/2025/04/06/kennedy-support-measles-vaccine-outbreak-00276021)

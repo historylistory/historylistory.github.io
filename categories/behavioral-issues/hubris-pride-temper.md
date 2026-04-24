@@ -220,3 +220,10 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 [https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt](https://www.ms.now/news/bondi-epstein-deposition-house-oversight-contempt)
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
+
+2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+
+[https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
+
+[https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
+

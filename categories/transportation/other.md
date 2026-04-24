@@ -71,3 +71,17 @@ permalink: /categories/transportation/other/
 [https://thehill.com/homenews/administration/5836498-faa-targets-gamers-hiring/](https://thehill.com/homenews/administration/5836498-faa-targets-gamers-hiring/)
 
 [https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful](https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful)
+
+2026-04-23 Spirit Airlines announced it would be liquidating their company amid rising fuel prices, shrinking cash reserves, and debt.
+
+[https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html](https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html)
+
+[https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact](https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact)
+
+[https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html](https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html)
+
+[https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/](https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/)
+
+[https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/](https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)

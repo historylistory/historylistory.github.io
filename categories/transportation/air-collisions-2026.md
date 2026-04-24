@@ -26,3 +26,8 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.hindustantimes.com/world-news/us-news/trump-reacts-to-terrible-laguardia-airport-crash-as-canadian-pm-breaks-silence-they-made-a-mistake-101774279075826.html](https://www.hindustantimes.com/world-news/us-news/trump-reacts-to-terrible-laguardia-airport-crash-as-canadian-pm-breaks-silence-they-made-a-mistake-101774279075826.html)
 
+[https://apnews.com/article/laguardia-air-canada-ntsb-crash-fire-truck-8f59cffd6f8230ec0c0c0c4d6efbab25](https://apnews.com/article/laguardia-air-canada-ntsb-crash-fire-truck-8f59cffd6f8230ec0c0c0c4d6efbab25)
+
+[https://en.wikipedia.org/wiki/Air_Canada_Express_Flight_8646](https://en.wikipedia.org/wiki/Air_Canada_Express_Flight_8646)
+
+

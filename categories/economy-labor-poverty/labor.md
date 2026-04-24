@@ -273,3 +273,21 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 [https://www.youtube.com/shorts/dNhUuy5uwaI](https://www.youtube.com/shorts/dNhUuy5uwaI)
 
 PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/](https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/)
+
+2026-04-23 Nike cut 1400 jobs.
+
+[https://www.reuters.com/business/nike-cut-1400-jobs-2026-04-23/](https://www.reuters.com/business/nike-cut-1400-jobs-2026-04-23/)
+
+2026-04-23 Meta announced they would be cutting 8000 jobs.
+
+[https://techcrunch.com/2026/04/23/meta-job-cuts-10-percent-8000-employees/](https://techcrunch.com/2026/04/23/meta-job-cuts-10-percent-8000-employees/)
+
+2026-04-23 Microsoft announced they would be cutting around 9000 workers amid AI shifts.
+
+[https://www.theguardian.com/technology/2026/apr/23/meta-microsoft-tech-ai-layoffs](https://www.theguardian.com/technology/2026/apr/23/meta-microsoft-tech-ai-layoffs)
+
+[https://www.techtimes.com/articles/316128/20260424/meta-microsoft-announce-job-cuts-thousands-employees-set-lose-their-jobs.htm](https://www.techtimes.com/articles/316128/20260424/meta-microsoft-announce-job-cuts-thousands-employees-set-lose-their-jobs.htm)
+
+[https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift](https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift)
+
+
