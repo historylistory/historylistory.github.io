@@ -431,3 +431,13 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537](https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt](https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt)
+
+2026-04-23 Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
+
+[https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china](https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china)
+
+[https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625](https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625)
+
+[https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD](https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD)
+
+[https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)

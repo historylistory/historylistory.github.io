@@ -173,3 +173,13 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 [https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786](https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786)
 
 [https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368](https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368)
+
+### 2026 April
+
+2026-04-23 Detainees of ICE detention center in Michigan went on a hunger strike in response to horrific conditions at the facility.
+
+[https://michiganadvance.com/2026/04/23/detainee-speaks-out-as-hunger-strike-continues-at-michigans-largest-ice-detention-center/](https://michiganadvance.com/2026/04/23/detainee-speaks-out-as-hunger-strike-continues-at-michigans-largest-ice-detention-center/)
+
+[https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/](https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/)
+
+PAYWALL [https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/](https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/)

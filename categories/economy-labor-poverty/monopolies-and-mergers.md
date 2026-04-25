@@ -66,6 +66,16 @@ Three companies control roughly 75% of beer production.
 [https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/](https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/)
 
 
+2026-04-23 (for context, more ethics than monopoly - for now) Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
+
+[https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china](https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china)
+
+[https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625](https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625)
+
+[https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD](https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD)
+
+[https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
+
 ### Beef
 
 1996-06-06 Antitrust Enforcement in the Meat Packing Industry (archived DOJ document)

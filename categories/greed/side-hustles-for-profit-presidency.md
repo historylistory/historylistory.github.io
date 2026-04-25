@@ -150,3 +150,13 @@ SUB WALL [https://www.politico.com/news/2026/04/21/former-republican-rep-devin-n
 SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168](https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168)
 
 UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
+
+2026-04-23 Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
+
+[https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china](https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china)
+
+[https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625](https://people.com/eric-trump-backed-startup-lands-usd24-million-contract-from-his-father-administration-11957625)
+
+[https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD](https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD)
+
+[https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
