@@ -246,3 +246,11 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
+
+2026-04-23 The GOP used a reconciliation measure to bypass Democratic vote and get an additional $70B in ICE funding.
+
+[https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)
+
+[https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation](https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation)
+
+[https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)

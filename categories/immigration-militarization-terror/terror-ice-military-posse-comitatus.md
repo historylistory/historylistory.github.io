@@ -355,3 +355,12 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
 
+### 2026 April
+
+2026-04-23 The GOP used a reconciliation measure to bypass Democratic vote and get an additional $70B in ICE funding.
+
+[https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)
+
+[https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation](https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation)
+
+[https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)

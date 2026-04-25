@@ -173,6 +173,16 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 [https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/)
 
+### 2026 March
+
+2026-03-09 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021.
+
+[https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/](https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html](https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html)
+
+[https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3](https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3)
+
 
 ### 2026 April
 
@@ -185,3 +195,20 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 [https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/](https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/)
 
 [https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues](https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues)
+
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
+
+[https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
+
+
+2026-04-23 The Trump administration ramped up their denaturalization process to rip away citizenship from legal citizens with no criminal history.
+
+[https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html](https://www.nytimes.com/2026/04/23/us/politics/justice-dept-citizens-denaturalization.html)
+
+[https://www.thedailybeast.com/trump-dojs-alarming-new-plot-against-us-citizens-exposed/](https://www.thedailybeast.com/trump-dojs-alarming-new-plot-against-us-citizens-exposed/)
+
+[https://www.miamiherald.com/news/local/immigration/article315523070.html](https://www.miamiherald.com/news/local/immigration/article315523070.html)
+
+[https://www.theguardian.com/us-news/2026/apr/23/trump-administration-denaturalization](https://www.theguardian.com/us-news/2026/apr/23/trump-administration-denaturalization)
+
+[https://thehill.com/homenews/administration/5845805-justice-department-citizen-denaturalization/](https://thehill.com/homenews/administration/5845805-justice-department-citizen-denaturalization/)

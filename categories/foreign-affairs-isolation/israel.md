@@ -70,3 +70,12 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.jpost.com/international/article-893675](https://www.jpost.com/international/article-893675)
 
+2026-04-23 Israeli soldiers shot and killed 15-year-old Yousef Sameh Ishtayyeh during a raid in Nablus West Bank.
+
+[https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/](https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/)
+
+[https://www.arabnews.com/node/2641142/middle-east](https://www.arabnews.com/node/2641142/middle-east)
+
+[https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
+
+[https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)

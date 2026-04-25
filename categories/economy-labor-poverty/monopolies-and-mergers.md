@@ -234,6 +234,21 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros](https://www.democracynow.org/2026/4/14/headlines/hollywood_stars_sign_open_letter_opposing_merger_of_paramount_and_warner_bros)
 
+2026-04-23 A Paramount-Warner Brothers Discovery merger for $111B was approved. 
+
+[https://www.nbcnews.com/business/media/warner-bros-discovery-shareholders-approve-paramount-skydance-merger-rcna341529](https://www.nbcnews.com/business/media/warner-bros-discovery-shareholders-approve-paramount-skydance-merger-rcna341529)
+
+[https://www.bbc.com/news/articles/cgj09ny0dq6o](https://www.bbc.com/news/articles/cgj09ny0dq6o)
+
+[https://variety.com/2026/film/news/warner-bros-discovery-paramount-shareholder-approval-zaslav-pay-package-1236727798/](https://variety.com/2026/film/news/warner-bros-discovery-paramount-shareholder-approval-zaslav-pay-package-1236727798/)
+
+[https://finance.yahoo.com/markets/stocks/articles/warner-bros-shareholders-approve-110-175632734.html](https://finance.yahoo.com/markets/stocks/articles/warner-bros-shareholders-approve-110-175632734.html)
+
+[https://www.pbs.org/newshour/economy/what-a-combined-paramount-warner-would-mean-for-streaming-movies-and-news](https://www.pbs.org/newshour/economy/what-a-combined-paramount-warner-would-mean-for-streaming-movies-and-news)
+
+[https://www.hollywoodreporter.com/business/business-news/paramount-deal-warner-bros-approved-shareholders-1236572862/](https://www.hollywoodreporter.com/business/business-news/paramount-deal-warner-bros-approved-shareholders-1236572862/)
+
+[https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger](https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger)
 
 
 ### Pharma

@@ -551,3 +551,13 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump](https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump)
 
 [https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline](https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline)
+
+2026-04-23 Israeli soldiers shot and killed 15-year-old Yousef Sameh Ishtayyeh during a raid in Nablus West Bank.
+
+[https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/](https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/)
+
+[https://www.arabnews.com/node/2641142/middle-east](https://www.arabnews.com/node/2641142/middle-east)
+
+[https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
+
+[https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)

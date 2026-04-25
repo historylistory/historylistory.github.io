@@ -271,3 +271,13 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571](https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571)
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)
+
+2026-04-23 Israeli soldiers shot and killed 15-year-old Yousef Sameh Ishtayyeh during a raid in Nablus West Bank.
+
+[https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/](https://www.timesofisrael.com/liveblog_entry/idf-says-palestinian-teen-killed-earlier-was-hurling-stones-at-troops-in-west-bank/)
+
+[https://www.arabnews.com/node/2641142/middle-east](https://www.arabnews.com/node/2641142/middle-east)
+
+[https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
+
+[https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
