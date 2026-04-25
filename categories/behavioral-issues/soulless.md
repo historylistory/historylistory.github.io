@@ -281,6 +281,20 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://x.com/StephenM/status/2015133481261474030](https://x.com/StephenM/status/2015133481261474030)
 
+2026-02-12 The Geo Group is a publicly traded, Florida-based C corporation that invests in private prisons and mental health facilities and has been making profit off ICE detention centers.
+
+[https://www.geogroup.com/ICE](https://www.geogroup.com/ICE)
+
+[https://calmatters.org/justice/2026/04/new-ice-detention-center-mcfarland/](https://calmatters.org/justice/2026/04/new-ice-detention-center-mcfarland/)
+
+[https://time.com/7378284/ice-immigration-detention-contractors-record-revenue/](https://time.com/7378284/ice-immigration-detention-contractors-record-revenue/)
+
+[https://www.brennancenter.org/our-work/analysis-opinion/private-prison-companies-enormous-windfall-who-stands-gain-ice-expands](https://www.brennancenter.org/our-work/analysis-opinion/private-prison-companies-enormous-windfall-who-stands-gain-ice-expands)
+
+[https://investigate.afsc.org/company/geo-group](https://investigate.afsc.org/company/geo-group)
+
+[https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf](https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf)
+
 2026-02-17 According to news articles, Kristi Noem diverted resources away from a search and rescue mission with the Coast Guard to find a missing service member so she could send them to enforce immigration. 
 
 [https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904](https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904)
@@ -368,6 +382,15 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 [https://www.youtube.com/watch?v=iMI-jsOUDQk](https://www.youtube.com/watch?v=iMI-jsOUDQk)
 
 {% include youtubePlayer.html id="iMI-jsOUDQk" %}
+
+2026-03-09 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021.
+
+[https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/](https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html](https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html)
+
+[https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3](https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3)
+
 
 2026-03-11 On the YouTube channel Sutherland Institute Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
 

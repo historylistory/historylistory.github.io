@@ -82,6 +82,14 @@ permalink: /categories/military-veterans/disrespect/
 
 {% include youtubePlayer.html id="qepYRy2BTAg" %}
 
+2026-03-09 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021.
+
+[https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/](https://truthout.org/articles/afghans-stranded-in-qatar-express-betrayal-at-trumps-push-to-send-them-to-drc/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html](https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html)
+
+[https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3](https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3)
+
 2026-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
@@ -133,3 +141,7 @@ permalink: /categories/military-veterans/disrespect/
 [https://abc7.com/post/army-says-reviewing-helicopters-flying-low-hovering-kid-rocks-home/18816103](https://abc7.com/post/army-says-reviewing-helicopters-flying-low-hovering-kid-rocks-home/18816103)
 
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
+
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
+
+[https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)

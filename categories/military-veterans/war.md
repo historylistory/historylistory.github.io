@@ -285,6 +285,23 @@ FROM 2021 [https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-wor
 
 FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007](https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007)
 
+2026-04-18 In Palantir’s 22-point manifesto they called on Trump to reinstate the draft, saying that free and democratic societies need “hard power to prevail”. 
+
+[https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html](https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html)
+
+[https://www.theguardian.com/technology/2026/apr/21/palantir-manifesto-uk-contract-fears-mps](https://www.theguardian.com/technology/2026/apr/21/palantir-manifesto-uk-contract-fears-mps)
+
+[https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics](https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics)
+
+[https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html](https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html)
+
+[https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
+
+
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
+
+[https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
+
 
 2026-04-23 Trump ordered the U.S. Navy to “shoot and kill” Iranian boats.
 

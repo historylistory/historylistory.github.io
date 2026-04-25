@@ -137,3 +137,13 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 [https://www.nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html](https://www.nytimes.com/2026/04/05/us/ice-detains-military-wife-soldier-deployment.html)
 
 [https://abcnews.com/US/ice-arrests-newlywed-wife-army-soldier-military-base/story?id=131780087](https://abcnews.com/US/ice-arrests-newlywed-wife-army-soldier-military-base/story?id=131780087)
+
+2026-04-16 ICE targeted and detained PhD student Yousof Azizi while he was dropping his children off at daycare because he reported on the war in Iran, and have since transferred him from facility to facility, refusing to release him. 
+
+[https://www.democracynow.org/2026/4/24/headlines/us_seeks_to_deport_iranian_doctoral_student_who_provided_media_commentary_on_iran_war](https://www.democracynow.org/2026/4/24/headlines/us_seeks_to_deport_iranian_doctoral_student_who_provided_media_commentary_on_iran_war)
+
+[https://www.reuters.com/world/middle-east/trump-administration-attempts-deport-iranian-media-commentator-yousof-azizi-2026-04-16/](https://www.reuters.com/world/middle-east/trump-administration-attempts-deport-iranian-media-commentator-yousof-azizi-2026-04-16/)
+
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
+
+[https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
