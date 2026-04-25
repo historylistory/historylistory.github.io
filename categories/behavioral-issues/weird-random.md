@@ -49,6 +49,19 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html](https://churchleaders.com/news/2206673-saving-christianity-god-eric-trump-benny-johnson.html)
 
+### 2025 December
+
+2025-12-07 Check out Alex Karp’s jittery interview.
+
+[https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
+
+[https://prcg.com/blog/palantir-response-ceo-interview-odd/](https://prcg.com/blog/palantir-response-ceo-interview-odd/)
+
+[https://nypost.com/2025/12/08/business/alex-karps-palantir-launches-new-neurodivergent-fellowship-after-execs-on-stage-fidgeting-goes-viral/](https://nypost.com/2025/12/08/business/alex-karps-palantir-launches-new-neurodivergent-fellowship-after-execs-on-stage-fidgeting-goes-viral/)
+
+[https://futurism.com/future-society/palantir-joke-ceo-cocaine](https://futurism.com/future-society/palantir-joke-ceo-cocaine)
+
+
 ### 2026 March
 
 2026-03-09 Trump bought his cabinet members Florsheim Oxfords, guessing the sizes. Photos show some of the cabinet members swimming in the shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.
@@ -246,6 +259,21 @@ FROM 2020 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-miss
 FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371](https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1704371)
 
 FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
+
+2026-04-18 Palantir posted a 22-point “supervillain” manifesto on X outlining American dominance and power goals, including advocating for nuclear dominance and autonomous AI weapons systems. 
+
+[https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
+
+[https://www.youtube.com/shorts/GK1Zx4wz4ZU](https://www.youtube.com/shorts/GK1Zx4wz4ZU)
+
+[https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics](https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics)
+
+[https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480](https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480)
+
+[https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
+
+[https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
+
 
 2026-04-19 The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
 

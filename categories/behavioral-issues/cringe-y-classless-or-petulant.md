@@ -299,6 +299,16 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 December
 
+2025-12-07 Check out Alex Karp’s jittery interview.
+
+[https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
+
+[https://prcg.com/blog/palantir-response-ceo-interview-odd/](https://prcg.com/blog/palantir-response-ceo-interview-odd/)
+
+[https://nypost.com/2025/12/08/business/alex-karps-palantir-launches-new-neurodivergent-fellowship-after-execs-on-stage-fidgeting-goes-viral/](https://nypost.com/2025/12/08/business/alex-karps-palantir-launches-new-neurodivergent-fellowship-after-execs-on-stage-fidgeting-goes-viral/)
+
+[https://futurism.com/future-society/palantir-joke-ceo-cocaine](https://futurism.com/future-society/palantir-joke-ceo-cocaine)
+
 2025-12-10 The U.S. seized a Venezuelan oil tanker amidst allegations of piracy. DHS posted a content video of the seizure to the hip hop tune of “Momma Said Knock You Out” by LL Cool J.
 
 [https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast](https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast)
@@ -572,3 +582,8 @@ what women who are paid to do things are called”.
 
 PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
 
+2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+
+[https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
+
+[https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)

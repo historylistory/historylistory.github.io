@@ -66,6 +66,39 @@ Three companies control roughly 75% of beer production.
 [https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/](https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/)
 
 
+### Beef
+
+1996-06-06 Antitrust Enforcement in the Meat Packing Industry (archived DOJ document)
+
+[https://www.justice.gov/archives/atr/speech/antitrust-enforcement-meat-packing-industry-0](https://www.justice.gov/archives/atr/speech/antitrust-enforcement-meat-packing-industry-0)
+
+2022-03-02 Biden openly criticized the “Big Four” for manipulating the meat market. 
+
+[https://www.ucs.org/about/news/biden-calls-out-meat-packers-sotu](https://www.ucs.org/about/news/biden-calls-out-meat-packers-sotu)
+
+[https://www.farmaid.org/issues/corporate-power/how-consolidation-by-meatpacking-giants-is-hurting-farmers-and-consumers-and-what-the-biden-administration-is-doing-about-it/](https://www.farmaid.org/issues/corporate-power/how-consolidation-by-meatpacking-giants-is-hurting-farmers-and-consumers-and-what-the-biden-administration-is-doing-about-it/)
+
+[https://newrepublic.com/article/165576/biden-meat-monopoly-antitrust-economy](https://newrepublic.com/article/165576/biden-meat-monopoly-antitrust-economy)
+
+[https://fortune.com/2022/01/06/meat-prices-biden-inflation-tyson-cargill-jbs/](https://fortune.com/2022/01/06/meat-prices-biden-inflation-tyson-cargill-jbs/)
+
+SUB WALL [https://www.politico.com/news/2022/04/27/meatpacking-ceos-congress-hearing-00028238](https://www.politico.com/news/2022/04/27/meatpacking-ceos-congress-hearing-00028238)
+
+2026-04-21 The DOJ opened an investigation into whether meat packers were colluding with fixed prices or manipulating the market. See 2022 when the Biden Administration often publicly criticized the “Big Four” for manipulating the markets. 
+
+[https://www.youtube.com/watch?v=-IyIiwYbNJs&list=WL&index=4&t=82s](https://www.youtube.com/watch?v=-IyIiwYbNJs&list=WL&index=4&t=82s)
+
+[https://thehill.com/business/personal-finance/5841854-doj-investigates-meatpacking-companies/](https://thehill.com/business/personal-finance/5841854-doj-investigates-meatpacking-companies/)
+
+[https://www.farmprogress.com/farm-policy/doj-probes-meatpackers-egg-suppliers-for-price-fixing](https://www.farmprogress.com/farm-policy/doj-probes-meatpackers-egg-suppliers-for-price-fixing)
+
+[https://theweek.com/politics/justice-department-beef-meatpacking-industry](https://theweek.com/politics/justice-department-beef-meatpacking-industry)
+
+[https://www.youtube.com/watch?v=-IyIiwYbNJs&list=WL&index=4&t=82s](https://www.youtube.com/watch?v=-IyIiwYbNJs&list=WL&index=4&t=82s)
+
+ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement-meat-packing-industry-0](https://www.justice.gov/archives/atr/speech/antitrust-enforcement-meat-packing-industry-0)
+
+2023 OVERSIGHT [https://www.govinfo.gov/content/pkg/CHRG-118hhrg52955/html/CHRG-118hhrg52955.htm?utm_source=chatgpt.com](https://www.govinfo.gov/content/pkg/CHRG-118hhrg52955/html/CHRG-118hhrg52955.htm?utm_source=chatgpt.com)
 
 ### Berkshire Hathaway
 

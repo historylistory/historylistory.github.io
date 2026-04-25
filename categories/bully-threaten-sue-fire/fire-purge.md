@@ -263,3 +263,24 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 [https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532](https://www.nbcnews.com/politics/trump-administration/navy-secretary-phelan-exits-administration-rcna341532)
 
 [https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/](https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/)
+
+2026-04-22 Trump’s struggling media company Truth Social fired CEO Devin Nunes after stock dropped 67%. After firing Devin Nunes, Trump Media & Technology Group (parent company of Truth Social) pivoted to crypto and prediction markets.
+
+[https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social](https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social)
+
+[https://www.motherjones.com/politics/2026/04/truth-social-ceo-out-after-1-1-billion-in-losses/](https://www.motherjones.com/politics/2026/04/truth-social-ceo-out-after-1-1-billion-in-losses/)
+
+[https://finance.yahoo.com/news/trumps-truth-social-let-users-113215693.html](https://finance.yahoo.com/news/trumps-truth-social-let-users-113215693.html)
+
+[https://www.pbs.org/newshour/politics/trump-media-replaces-nunes-as-truth-social-ceo-after-stock-plunge-that-wiped-out-billions](https://www.pbs.org/newshour/politics/trump-media-replaces-nunes-as-truth-social-ceo-after-stock-plunge-that-wiped-out-billions)
+
+[https://www.newschannel20.com/news/nation-world/trump-media-has-pivoted-to-crypto-financial-services-and-nuclear-fusion-its-stock-keeps-falling/article_3d3a1e6d-6065-57d8-ac38-ea5dd1cf6cb7.html](https://www.newschannel20.com/news/nation-world/trump-media-has-pivoted-to-crypto-financial-services-and-nuclear-fusion-its-stock-keeps-falling/article_3d3a1e6d-6065-57d8-ac38-ea5dd1cf6cb7.html)
+
+[https://finance.yahoo.com/news/president-trump-truth-social-partners-211030247.html](https://finance.yahoo.com/news/president-trump-truth-social-partners-211030247.html)
+
+SUB WALL [https://www.politico.com/news/2026/04/21/former-republican-rep-devin-nunes-out-as-trump-media-ceo-00886234](https://www.politico.com/news/2026/04/21/former-republican-rep-devin-nunes-out-as-trump-media-ceo-00886234)
+
+SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168](https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168)
+
+UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
+

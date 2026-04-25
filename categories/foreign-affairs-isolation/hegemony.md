@@ -18,3 +18,18 @@ Cultural Hegemony: A social group or "popular crowd" dictating cultural norms an
 
 Economic Hegemony: The economic power of the U.S. following World War I, influencing global markets. 
 
+### 2026
+
+2026-04-18 Palantir posted a 22-point “supervillain” manifesto on X outlining American dominance and power goals, including advocating for nuclear dominance and autonomous AI weapons systems. 
+
+[https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
+
+[https://www.youtube.com/shorts/GK1Zx4wz4ZU](https://www.youtube.com/shorts/GK1Zx4wz4ZU)
+
+[https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics](https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics)
+
+[https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480](https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480)
+
+[https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
+
+[https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
