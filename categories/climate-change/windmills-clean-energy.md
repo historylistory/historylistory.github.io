@@ -69,3 +69,13 @@ permalink: /categories/climate-change/windmills-clean-energy/
 [https://nz.news.yahoo.com/trump-team-weighs-paying-1b-215115862.html](https://nz.news.yahoo.com/trump-team-weighs-paying-1b-215115862.html)
 
 [https://electricityinfo.org/news/us-wind-8/](https://electricityinfo.org/news/us-wind-8/)
+
+2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects. 
+
+[https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases](https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases)
+
+[https://www.npr.org/2026/03/23/g-s1-114868/trump-totalenergies-offshore-wind-leases](https://www.npr.org/2026/03/23/g-s1-114868/trump-totalenergies-offshore-wind-leases)
+
+[https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny](https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny)
+
+SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html](https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html)

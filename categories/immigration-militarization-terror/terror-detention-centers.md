@@ -183,3 +183,15 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 [https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/](https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/)
 
 PAYWALL [https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/](https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/)
+
+2026-04-26 ICE detained a mother and her five children, imprisoning them for 10 months until a judge ordered their release. In a statement DHS called the judge an “activist judge” who is “releasing this terrorist’s family onto American streets AGAIN”. After the ruling, DHS detained the family a second time. When the family was released, they reported no medical care, rotten food, and that they were not allowed to practice their Islamic faith. 
+
+[https://www.npr.org/2026/04/26/nx-s1-5800196/alleged-colorado-attacker-family-released-detention](https://www.npr.org/2026/04/26/nx-s1-5800196/alleged-colorado-attacker-family-released-detention)
+
+[https://www.nbcnews.com/news/us-news/ice-detained-family-less-two-days-court-ordered-release-rcna342171](https://www.nbcnews.com/news/us-news/ice-detained-family-less-two-days-court-ordered-release-rcna342171)
+
+[https://www.texastribune.org/2026/04/25/el-gamal-family-dilley-family-detention-texas-redetained-egypt/](https://www.texastribune.org/2026/04/25/el-gamal-family-dilley-family-detention-texas-redetained-egypt/)
+
+[https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody](https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody)
+
+SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html](https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html)

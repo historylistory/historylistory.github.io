@@ -561,3 +561,17 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
+
+2026-04-24 The DOJ ramped up their push for more capital punishment in States, including more lethal injections and firing squads, and removing the right to clemency and pardons for death row inmates. The Vatican admonished the push, and Pope Leo said it is inadmissible and attacks human dignity.
+
+[https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment](https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment)
+
+[https://www.npr.org/2026/04/25/g-s1-118767/pope-leo-trump-death-penalty](https://www.npr.org/2026/04/25/g-s1-118767/pope-leo-trump-death-penalty)
+
+[https://www.cbsnews.com/news/doj-reinstates-firing-squads-pentobarbital-federal-executions/](https://www.cbsnews.com/news/doj-reinstates-firing-squads-pentobarbital-federal-executions/)
+
+[https://www.newsweek.com/trump-doj-expediting-death-penalties-11874992](https://www.newsweek.com/trump-doj-expediting-death-penalties-11874992)
+
+[https://www.justice.gov/ag/media/1437806/dl?inline](https://www.justice.gov/ag/media/1437806/dl?inline)
+
+PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/news/articles/cg73l2d079ko)

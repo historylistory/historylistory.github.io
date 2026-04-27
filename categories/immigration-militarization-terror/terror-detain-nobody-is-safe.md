@@ -159,3 +159,22 @@ permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is
 [https://www.middleeasteye.net/news/iranian-women-held-us-immigration-not-qassem-soleimani-relatives-report](https://www.middleeasteye.net/news/iranian-women-held-us-immigration-not-qassem-soleimani-relatives-report)
 
 [https://www.democracynow.org/2026/4/24/headlines/iranian_asylum_seekers_jailed_by_ice_are_not_related_to_military_commander_as_trump_admin_claimed](https://www.democracynow.org/2026/4/24/headlines/iranian_asylum_seekers_jailed_by_ice_are_not_related_to_military_commander_as_trump_admin_claimed)
+
+
+2026-04-25 Trump’s DHS made it easier to deport DACA recipients.
+
+[https://www.npr.org/2026/04/25/nx-s1-5798943/justice-department-makes-it-easier-to-deport-those-with-daca-status](https://www.npr.org/2026/04/25/nx-s1-5798943/justice-department-makes-it-easier-to-deport-those-with-daca-status)
+
+[https://www.democracynow.org/2026/4/27/headlines/justice_department_makes_it_easier_to_deport_people_with_daca_status](https://www.democracynow.org/2026/4/27/headlines/justice_department_makes_it_easier_to_deport_people_with_daca_status
+
+2026-04-26 ICE detained a mother and her five children, imprisoning them for 10 months until a judge ordered their release. In a statement DHS called the judge an “activist judge” who is “releasing this terrorist’s family onto American streets AGAIN”. After the ruling, DHS detained the family a second time. When the family was released, they reported no medical care, rotten food, and that they were not allowed to practice their Islamic faith. 
+
+[https://www.npr.org/2026/04/26/nx-s1-5800196/alleged-colorado-attacker-family-released-detention](https://www.npr.org/2026/04/26/nx-s1-5800196/alleged-colorado-attacker-family-released-detention)
+
+[https://www.nbcnews.com/news/us-news/ice-detained-family-less-two-days-court-ordered-release-rcna342171](https://www.nbcnews.com/news/us-news/ice-detained-family-less-two-days-court-ordered-release-rcna342171)
+
+[https://www.texastribune.org/2026/04/25/el-gamal-family-dilley-family-detention-texas-redetained-egypt/](https://www.texastribune.org/2026/04/25/el-gamal-family-dilley-family-detention-texas-redetained-egypt/)
+
+[https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody](https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody)
+
+SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html](https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html)

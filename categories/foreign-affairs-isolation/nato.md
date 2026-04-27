@@ -78,3 +78,13 @@ permalink: /categories/foreign-affairs-isolation/nato/
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
+2026-04-24 An internal Pentagon email outlined plans to punish NATO allies for not supporting the U.S. and Israel’s war in Iran.
+
+[https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)
+
+[https://www.jpost.com/international/article-894058](https://www.jpost.com/international/article-894058)
+
+[https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies](https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies)
+
+PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/news/articles/cz78x703lrvo)

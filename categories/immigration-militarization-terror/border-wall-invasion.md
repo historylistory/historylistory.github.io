@@ -108,3 +108,13 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 [https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698](https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698)
 
 {% include youtubePlayer.html id="HyGLWYgdBLw" %}
+
+### 2026 April
+
+2026-04-24 An appeals court blocked Trump’s EO suspending asylum at the border. The court ruled that calling immigration an invasion is not legal.
+
+[https://www.npr.org/2026/04/24/g-s1-118707/trump-asylum-ban-us-mexico-border-illegal](https://www.npr.org/2026/04/24/g-s1-118707/trump-asylum-ban-us-mexico-border-illegal)
+
+[https://www.aclu.org/press-releases/federal-appeals-court-rules-trump-proclamation-eliminating-asylum-is-unlawful](https://www.aclu.org/press-releases/federal-appeals-court-rules-trump-proclamation-eliminating-asylum-is-unlawful)
+
+[https://www.democracynow.org/2026/4/27/headlines/appeals_court_rules_trump_unlawfully_banned_asylum_cases_at_southern_border](https://www.democracynow.org/2026/4/27/headlines/appeals_court_rules_trump_unlawfully_banned_asylum_cases_at_southern_border)

@@ -281,3 +281,9 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
+
+2026-04-24 Israel continued to kill more citizens in Gaza amid a ceasefire.
+
+[https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire](https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire)
+
+[https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/)

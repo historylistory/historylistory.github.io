@@ -211,6 +211,18 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
 
+2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects. 
+
+[https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases](https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases)
+
+[https://www.npr.org/2026/03/23/g-s1-114868/trump-totalenergies-offshore-wind-leases](https://www.npr.org/2026/03/23/g-s1-114868/trump-totalenergies-offshore-wind-leases)
+
+[https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny](https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny)
+
+SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html](https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html)
+
+
+
 2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 
 
 [https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=mz6x2Y50Egs&list=WL&index=1&t=10s)

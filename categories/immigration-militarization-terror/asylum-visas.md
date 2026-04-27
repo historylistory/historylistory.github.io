@@ -212,3 +212,9 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 [https://www.theguardian.com/us-news/2026/apr/23/trump-administration-denaturalization](https://www.theguardian.com/us-news/2026/apr/23/trump-administration-denaturalization)
 
 [https://thehill.com/homenews/administration/5845805-justice-department-citizen-denaturalization/](https://thehill.com/homenews/administration/5845805-justice-department-citizen-denaturalization/)
+
+2026-04-25 Trump’s DHS made it easier to deport DACA recipients.
+
+[https://www.npr.org/2026/04/25/nx-s1-5798943/justice-department-makes-it-easier-to-deport-those-with-daca-status](https://www.npr.org/2026/04/25/nx-s1-5798943/justice-department-makes-it-easier-to-deport-those-with-daca-status)
+
+[https://www.democracynow.org/2026/4/27/headlines/justice_department_makes_it_easier_to_deport_people_with_daca_status](https://www.democracynow.org/2026/4/27/headlines/justice_department_makes_it_easier_to_deport_people_with_daca_status)

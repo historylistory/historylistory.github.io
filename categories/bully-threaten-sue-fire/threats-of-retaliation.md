@@ -652,3 +652,13 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/](https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/)
 
 [https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)
+
+2026-04-24 An internal Pentagon email outlined plans to punish NATO allies for not supporting the U.S. and Israel’s war in Iran.
+
+[https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)
+
+[https://www.jpost.com/international/article-894058](https://www.jpost.com/international/article-894058)
+
+[https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies](https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies)
+
+PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/news/articles/cz78x703lrvo)
