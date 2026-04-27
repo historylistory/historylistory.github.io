@@ -31,6 +31,6 @@ This site is managed by one person. Response times may vary depending on the vol
   <button type="submit">Send Message</button>
 </form>
 
-This file was last edited on **April 26, 2026**
+This file was last edited on **April 27, 2026**
 
-The most recent event added was **approximately** from **April 25, 2026** but there may be more events prior to this date I need to add.
+The most recent event added was **approximately** from **April 27, 2026** but there may be more events prior to this date I need to add.
