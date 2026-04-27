@@ -277,3 +277,11 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/](https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/)
 
 [https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426](https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426)
+
+2026-04-26 The U.S. struck another boat, claiming without merit it was transporting narcotics. This would make the death toll on boats in international waters roughly 185 people
+
+[https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242](https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242)
+
+[https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific)
+
+[https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc](https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc)

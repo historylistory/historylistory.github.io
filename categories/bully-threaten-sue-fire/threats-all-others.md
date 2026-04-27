@@ -77,3 +77,11 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/](https://www.democracydocket.com/news-alerts/fbi-director-says-arrests-coming-soon-on-2020-rigged-election-conspiracy/)
 
 [https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)
+
+2026-04-26 The Trump administration threatened the National Trust for Historic Preservation by giving them an April 27 2026 9am deadline to drop their lawsuit halting construction of Trump’s $400M ballroom.
+
+[https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit](https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit)
+
+[https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/](https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/)
+
+[https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96](https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96)

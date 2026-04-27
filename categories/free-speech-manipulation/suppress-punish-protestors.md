@@ -315,3 +315,9 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 [https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/](https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/)
 
 [https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/](https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/)
+
+2026-04-27 The Trump administration instructed DHS and immigration officers to deny green cards to anyone who protested views that didn’t align with Trump, including criticizing Israel or supporting Palestine. 
+
+[https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002](https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002)
+
+[https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel](https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel)

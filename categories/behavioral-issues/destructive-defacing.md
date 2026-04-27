@@ -152,3 +152,20 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom](https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom)
 
+2026-04-26 The Trump administration threatened the National Trust for Historic Preservation by giving them an April 27 2026 9am deadline to drop their lawsuit halting construction of Trump’s $400M ballroom.
+
+[https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit](https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit)
+
+[https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/](https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/)
+
+[https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96](https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96)
+
+2026-04-26 Trump claimed that the White House Correspondent Dinner shooting was more reason to build a ballroom, claiming in a post that “This event would never have happened with the Militarily Top Secret Ballroom currently under construction at the White House. It cannot be built fast enough!”.
+
+[https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180](https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116471074928310119](https://truthsocial.com/@realDonaldTrump/posts/116471074928310119)
+
+[https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting](https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting)
+
+[https://www.bbc.com/news/articles/c2d8dg57rzdo](https://www.bbc.com/news/articles/c2d8dg57rzdo)

@@ -288,3 +288,13 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/](https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/)
 
 [https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)
+
+2026-04-26 Trump claimed that the White House Correspondent Dinner shooting was more reason to build a ballroom, claiming in a post that “This event would never have happened with the Militarily Top Secret Ballroom currently under construction at the White House. It cannot be built fast enough!”.
+
+[https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180](https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116471074928310119](https://truthsocial.com/@realDonaldTrump/posts/116471074928310119)
+
+[https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting](https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting)
+
+[https://www.bbc.com/news/articles/c2d8dg57rzdo](https://www.bbc.com/news/articles/c2d8dg57rzdo)

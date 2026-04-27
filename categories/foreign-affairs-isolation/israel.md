@@ -79,3 +79,11 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 [https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
+
+2026-04-27 Israel continued to kill more civilian people (including children) in Lebanon amid a ceasefire.
+
+[https://www.nbcnews.com/world/middle-east/lebanon-paramedics-israel-killed-health-workers-rcna332138](https://www.nbcnews.com/world/middle-east/lebanon-paramedics-israel-killed-health-workers-rcna332138)
+
+[https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/)
+
+PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/news/articles/c4gxgv8j7zlo)

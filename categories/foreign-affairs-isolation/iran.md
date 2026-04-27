@@ -1486,3 +1486,25 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 [https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571](https://www.nbcnews.com/world/iran/blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341571)
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)
+
+2026-04-26 Trump cancelled his special envoy’s trip to Pakistan for peace talks with Iran.
+
+[https://www.bbc.com/news/live/cd7j1g94d1lt](https://www.bbc.com/news/live/cd7j1g94d1lt)
+
+[https://www.reuters.com/world/middle-east/us-negotiators-go-islamabad-iran-says-no-direct-talks-2026-04-25/](https://www.reuters.com/world/middle-east/us-negotiators-go-islamabad-iran-says-no-direct-talks-2026-04-25/)
+
+[https://www.nbcnews.com/world/iran/trump-iran-war-call-us-peace-talks-araghchi-putin-hormuz-rcna342251](https://www.nbcnews.com/world/iran/trump-iran-war-call-us-peace-talks-araghchi-putin-hormuz-rcna342251)
+
+SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/](https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/)
+
+2026-04-27 Iran’s top diplomat Abbas Araghchi arrived in Russia to negotiate peace talks with Vladimir Putin.
+
+[https://www.aljazeera.com/news/2026/4/27/iran-foreign-minister-in-russia-for-putin-talks](https://www.aljazeera.com/news/2026/4/27/iran-foreign-minister-in-russia-for-putin-talks)
+
+2026-04-27 Israel continued to kill more civilian people (including children) in Lebanon amid a ceasefire.
+
+[https://www.nbcnews.com/world/middle-east/lebanon-paramedics-israel-killed-health-workers-rcna332138](https://www.nbcnews.com/world/middle-east/lebanon-paramedics-israel-killed-health-workers-rcna332138)
+
+[https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/)
+
+PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/news/articles/c4gxgv8j7zlo)

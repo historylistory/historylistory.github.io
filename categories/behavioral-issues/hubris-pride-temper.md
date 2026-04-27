@@ -227,3 +227,12 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
 
+2026-04-26 Trump cancelled his special envoy’s trip to Pakistan for peace talks with Iran.
+
+[https://www.bbc.com/news/live/cd7j1g94d1lt](https://www.bbc.com/news/live/cd7j1g94d1lt)
+
+[https://www.reuters.com/world/middle-east/us-negotiators-go-islamabad-iran-says-no-direct-talks-2026-04-25/](https://www.reuters.com/world/middle-east/us-negotiators-go-islamabad-iran-says-no-direct-talks-2026-04-25/)
+
+[https://www.nbcnews.com/world/iran/trump-iran-war-call-us-peace-talks-araghchi-putin-hormuz-rcna342251](https://www.nbcnews.com/world/iran/trump-iran-war-call-us-peace-talks-araghchi-putin-hormuz-rcna342251)
+
+SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/](https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/)

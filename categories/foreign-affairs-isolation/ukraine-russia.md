@@ -223,3 +223,15 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 [https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/](https://www.reuters.com/world/blaze-russias-baltic-sea-port-ust-luga-after-major-ukrainian-drone-attack-2026-03-25/)
 
 [https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/](https://kyivindependent.com/ukrainian-drones-attack-major-energy-facilities-in-russias-leningrad-oblast-for-second-night-in-a-row/)
+
+### 2026 April
+
+2026-04-27 Russian drones continued to kill people in the Ukraine.
+
+[https://www.houstonchronicle.com/news/world/article/a-predawn-russian-drone-strike-hits-ukraine-s-22227691.php](https://www.houstonchronicle.com/news/world/article/a-predawn-russian-drone-strike-hits-ukraine-s-22227691.php)
+
+[https://www.reuters.com/world/europe/major-russian-attack-ukraine-kills-four-wounds-dozens-2026-04-25/](https://www.reuters.com/world/europe/major-russian-attack-ukraine-kills-four-wounds-dozens-2026-04-25/)
+
+[https://www.theguardian.com/world/2026/apr/25/russian-airstrikes-ukraine-dnipro-odesa-kharkiv](https://www.theguardian.com/world/2026/apr/25/russian-airstrikes-ukraine-dnipro-odesa-kharkiv)
+
+[https://apnews.com/article/russia-ukraine-war-odesa-drones-9394353262c6d13352d328fbd34258ba](https://apnews.com/article/russia-ukraine-war-odesa-drones-9394353262c6d13352d328fbd34258ba)
