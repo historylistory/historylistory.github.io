@@ -374,3 +374,9 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+2026-04-25 Another assassination attempt on Trump during the Correspondent’s Dinner.
+
+[https://www.npr.org/2026/04/26/g-s1-118807/trump-white-house-correspondents-dinner](https://www.npr.org/2026/04/26/g-s1-118807/trump-white-house-correspondents-dinner)
+
+[https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner](https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner)

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Scripture
+title: Scriptures of All Faiths
 category_slug: religion
-subcategory_slug: scripture
-permalink: /categories/religion/scripture/
+subcategory_slug: scriptures-of-all-faiths
+permalink: /categories/religion/scriptures-of-all-faiths/
 ---
 
 ### COMMENTARY
@@ -20,6 +20,9 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 ### Counterfeit Christianity
 
+*** Buddhism*** The Donkey in the Lion's Skin 
+
+[https://www.youtube.com/watch?v=D8_VQ-L5XxE&list=WL&index=3](https://www.youtube.com/watch?v=D8_VQ-L5XxE&list=WL&index=3)
 
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
 
@@ -79,6 +82,12 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ***Matthew 23:23*** “Woe to you, scribes and Pharisees, hypocrites! For you tithe mint and dill and cumin, and have neglected the weightier matters of the law; justice and mercy and faithfulness. These you ought to have done, without neglecting the others”. 
 
 
+### Gratitude
+
+***Buddhist*** "The Tiger and the Strawberry" 
+
+[https://www.youtube.com/watch?v=r5BhNzNAUuA&list=WL&index=2](https://www.youtube.com/watch?v=r5BhNzNAUuA&list=WL&index=2)
+
 
 
 ### Greed
@@ -112,6 +121,14 @@ When this book was written same-sex activity was often associated with power dyn
 ***Acts 10:13-15*** “Do not call anything impure that God has made clean”.
 
 ***Exodus 33:19*** “I will have mercy on whom I will have mercy, and I will have compassion on whom I will have compassion”. (Quote: It is not up to us to police the borders of God’s grace…and it’s not our place to be offended when God’s mercy reaches farther than we expected. God’s love has never been about qualifications).
+
+### Internal Struggle
+
+***Cherokee*** The Parable of the Two Wolves 
+
+[https://www.nanticokeindians.org/about/the-tale-of-two-wolves](https://www.nanticokeindians.org/about/the-tale-of-two-wolves)
+
+[https://www.youtube.com/watch?v=x95_BTeanI8&t=5s](https://www.youtube.com/watch?v=x95_BTeanI8&t=5s)
 
 
 ### Judgment, Hypocrisy & Righteousness
