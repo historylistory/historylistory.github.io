@@ -104,3 +104,11 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 [https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
 
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
+
+2026-04-27 Elon Musk sued Sam Altman over OpenAI.
+
+[https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman](https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman)
+
+[https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919](https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919)
+
+PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)

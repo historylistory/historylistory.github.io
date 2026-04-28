@@ -70,3 +70,12 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 [https://www.youtube.com/watch?v=oTfyd_0F45w](https://www.youtube.com/watch?v=oTfyd_0F45w)
 
 [https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
+
+2026-04-27 Elon Musk sued Sam Altman over OpenAI.
+
+[https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman](https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman)
+
+[https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919](https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919)
+
+PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
+

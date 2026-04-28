@@ -40,6 +40,20 @@ PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinatio
 
 [https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327](https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327)
 
+2025-09-01 In mid-2025 numerous lawsuits were filed for several cases of AI chatbots encouraging suicides.
+
+[https://www.npr.org/sections/shots-health-news/2025/09/19/nx-s1-5545749/ai-chatbots-safety-openai-meta-characterai-teens-suicide](https://www.npr.org/sections/shots-health-news/2025/09/19/nx-s1-5545749/ai-chatbots-safety-openai-meta-characterai-teens-suicide)
+
+[https://yjolt.org/artificial-intelligence-based-suicide](https://yjolt.org/artificial-intelligence-based-suicide)
+
+[https://apnews.com/article/chatbot-ai-lawsuit-suicide-teen-artificial-intelligence-9d48adc572100822fdbc3c90d1456bd0](https://apnews.com/article/chatbot-ai-lawsuit-suicide-teen-artificial-intelligence-9d48adc572100822fdbc3c90d1456bd0)
+
+[https://www.euronews.com/next/2023/03/31/man-ends-his-life-after-an-ai-chatbot-encouraged-him-to-sacrifice-himself-to-stop-climate-](https://www.euronews.com/next/2023/03/31/man-ends-his-life-after-an-ai-chatbot-encouraged-him-to-sacrifice-himself-to-stop-climate-)
+
+[https://www.pbs.org/newshour/show/what-to-know-about-ai-psychosis-and-the-effect-of-ai-chatbots-on-mental-health](https://www.pbs.org/newshour/show/what-to-know-about-ai-psychosis-and-the-effect-of-ai-chatbots-on-mental-health)
+
+PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/news/articles/ce3xgwyywe4o)
+
 
 ### 2025 July
 

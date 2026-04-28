@@ -344,3 +344,10 @@ what women who are paid to do things are called”.
 
 [https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)
 
+2026-04-27 Elon Musk sued Sam Altman over OpenAI.
+
+[https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman](https://www.npr.org/2026/04/27/nx-s1-5795661/trial-openai-elon-musk-sam-altman)
+
+[https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919](https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919)
+
+PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
