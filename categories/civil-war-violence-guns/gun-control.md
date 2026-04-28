@@ -58,6 +58,14 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 [https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16](https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16)
 
+2022-08-03 Alex Jones pushed the narrative that Sandy Hook was a hoax. 
+
+[https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
+
+[https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories)
+
+[https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case](https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case)
+
 ### 2023
 
 2023-04-05 At the Salt Lake City campus of Awaken Church, Charlie Kirk said having a few gun deaths is a prudent price to pay for the Second Amendment.
