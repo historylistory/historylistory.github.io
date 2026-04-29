@@ -24,7 +24,13 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 
 [https://www.youtube.com/watch?v=D8_VQ-L5XxE&list=WL&index=3](https://www.youtube.com/watch?v=D8_VQ-L5XxE&list=WL&index=3)
 
+***Deuteronomy 5:11*** “You shall not misuse the name of the Lord your God, for the Lord will not hold anyone guiltless who misuses his name”.
+
+***Exodus 20:7*** “You shall not misuse the name of the Lord your God, for the Lord will not hold anyone guiltless who misuses his name”.
+
 ***John 9:41*** “If you were blind, you would not be guilty of sin. But now that you claim you can see, your guilt remains”.
+
+***Leviticus 19:12*** "You shall not swear by my name falsely, and so profane the name of your God: I am the Lord."
 
 ***Luke 6:22-26*** “Woe to you when everyone speaks well of you, for that is how their ancestors treated the false prophets. But blessed are you when people revile you and hate you and speak all manner of evil about you on account of my name, for this is how they treated the true prophets”. 
 
