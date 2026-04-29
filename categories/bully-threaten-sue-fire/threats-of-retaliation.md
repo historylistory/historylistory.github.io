@@ -662,3 +662,28 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies](https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies)
 
 PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/news/articles/cz78x703lrvo)
+
+
+2026-04-27 Trump and Melania separately made social media posts demanding the firing of Jimmy Kimmel. Then the FCC got involved and investigated Kimmel.
+
+[https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html](https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html)
+
+[https://www.cnn.com/2026/04/27/media/kimmel-trump-disney-damaro](https://www.cnn.com/2026/04/27/media/kimmel-trump-disney-damaro)
+
+[https://www.nbcnews.com/news/us-news/jane-fonda-committee-first-amendment-responds-trump-jimmy-kimmel-abc-rcna342369](https://www.nbcnews.com/news/us-news/jane-fonda-committee-first-amendment-responds-trump-jimmy-kimmel-abc-rcna342369)
+
+[https://time.com/article/2026/04/28/jimmy-kimmel-president-trump-melania-calls-to-be-fired-george-clooney-support/](https://time.com/article/2026/04/28/jimmy-kimmel-president-trump-melania-calls-to-be-fired-george-clooney-support/)
+
+[https://www.newsweek.com/fcc-asked-investigate-jimmy-kimmel-donald-trump-demands-disney-fire-11886214](https://www.newsweek.com/fcc-asked-investigate-jimmy-kimmel-donald-trump-demands-disney-fire-11886214)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116477838570626860](https://truthsocial.com/@realDonaldTrump/posts/116477838570626860)
+
+2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. 
+
+[https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
+
+[https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief](https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief)
+
+[https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment](https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment)
+
+PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)

@@ -323,3 +323,11 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+2026-04-26 Trump childishly lashed out at news anchor Norah O’Donnell (60 Minutes) for reading portions of the gunman’s manifesto from the Correspondence Dinner shooting.
+
+[https://www.cbsnews.com/news/read-the-full-transcript-of-norah-odonnells-interview-with-president-trump-60-minutes/](https://www.cbsnews.com/news/read-the-full-transcript-of-norah-odonnells-interview-with-president-trump-60-minutes/)
+
+[https://www.thedailybeast.com/60-minutes-anchor-norah-odonnell-corners-trump-after-he-lashes-out-at-her-for-noting-gunmans-manifesto/](https://www.thedailybeast.com/60-minutes-anchor-norah-odonnell-corners-trump-after-he-lashes-out-at-her-for-noting-gunmans-manifesto/)
+
+SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it](https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it)

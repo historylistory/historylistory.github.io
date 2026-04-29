@@ -169,3 +169,13 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting](https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting)
 
 [https://www.bbc.com/news/articles/c2d8dg57rzdo](https://www.bbc.com/news/articles/c2d8dg57rzdo)
+
+2026-04-27 Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+
+[https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
+
+[https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/](https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)

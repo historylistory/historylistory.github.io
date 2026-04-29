@@ -6,6 +6,25 @@ subcategory_slug: autism
 permalink: /categories/health/autism/
 ---
 
+### 2016
+
+2016-10-26 Parents were following online advice to administer bleach-based pills and injections (particularly a brand Miracle Mineral Solution) to their children to cure autism!!!
+
+[https://www.youtube.com/watch?v=GIZsvsufxvw](https://www.youtube.com/watch?v=GIZsvsufxvw)
+
+[https://autismsciencefoundation.org/beware-of-non-evidence-based-treatments/](https://autismsciencefoundation.org/beware-of-non-evidence-based-treatments/)
+
+[https://www.autismspeaks.org/](https://www.autismspeaks.org/)
+
+[https://www.nbcnews.com/tech/internet/moms-go-undercover-fight-fake-autism-cures-private-facebook-groups-n1007871](https://www.nbcnews.com/tech/internet/moms-go-undercover-fight-fake-autism-cures-private-facebook-groups-n1007871)
+
+[https://asatonline.org/for-parents/learn-more-about-specific-treatments/bleach-therapy](https://asatonline.org/for-parents/learn-more-about-specific-treatments/bleach-therapy)
+
+[https://www.cnn.com/2019/08/15/health/bleach-miracle-cure-fda-warning](https://www.cnn.com/2019/08/15/health/bleach-miracle-cure-fda-warning)
+
+SUB WALL [https://www.nytimes.com/2019/08/13/health/drinking-bleach-autism-cancer.html](https://www.nytimes.com/2019/08/13/health/drinking-bleach-autism-cancer.html)
+
+
 ### 2024
 
 2024-09-01 Elon Musk reposted a 4Chan shitpost about autism.

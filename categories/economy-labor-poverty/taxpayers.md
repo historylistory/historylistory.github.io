@@ -266,3 +266,13 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 [https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation](https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation)
 
 [https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)
+
+2026-04-27 Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+
+[https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
+
+[https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/](https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)

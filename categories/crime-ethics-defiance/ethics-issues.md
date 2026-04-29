@@ -441,3 +441,13 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD](https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD)
 
 [https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
+
+2026-04-27 (context because private donors for public buildings) Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+
+[https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
+
+[https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/](https://thehill.com/homenews/senate/5853917-trump-ballroom-funding-controversy/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+[https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
