@@ -678,7 +678,7 @@ PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/ne
 
 [https://truthsocial.com/@realDonaldTrump/posts/116477838570626860](https://truthsocial.com/@realDonaldTrump/posts/116477838570626860)
 
-2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. 
+2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. Remember, this is a Trump retribution campaign, and Comey is on a long list of political enemies, particularly those who have prosecuted Trump on his multiple civil and federal cases. Trump had Comey indicted in 2025 for allegedly “making false statements”. A judge threw out the frivolous case in 2025, so the Trump administration is back at it. 
 
 [https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
 

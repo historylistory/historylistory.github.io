@@ -284,3 +284,12 @@ SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bit
 
 UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
 
+2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. Remember, this is a Trump retribution campaign, and Comey is on a long list of political enemies, particularly those who have prosecuted Trump on his multiple civil and federal cases. Trump had Comey indicted in 2025 for allegedly “making false statements”. A judge threw out the frivolous case in 2025, so the Trump administration is back at it. 
+
+[https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
+
+[https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief](https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief)
+
+[https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment](https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment)
+
+PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)
