@@ -4,6 +4,61 @@ title: Recommended Links
 permalink: /recommended-links/
 ---
 
+### THE SNAKE POEM VIDEO
+
+2017-04-29 **Snake Poem** 
+
+[https://www.youtube.com/watch?v=qSrOXvoNLwg](https://www.youtube.com/watch?v=qSrOXvoNLwg)
+
+### THE SNAKE POEM TRANSCRIPT
+
+“On her way to work one morning, down the path, along the lake,
+
+A tender-hearted woman saw a poor, half-frozen snake.
+
+His pretty-colored skin had been all frosted with the dew.
+
+‘Poor thing!’, she cried, ‘I’ll take you in, and I’ll take care of you!’.
+
+***Trump interjects and says, “…the border.”***
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed the vicious snake. 
+
+She wrapped him up all cozy in a comforter of silk,
+
+And laid him by her fireside, with some honey, and some milk.
+
+She hurried home from work that night, and as soon as she arrived,
+
+She found that pretty snake she had taken in had been revived.
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed that vicious snake.
+
+She clutched him to her bosom, ‘You’re so beautiful!’ she cried.
+
+‘But if I hadn’t brought you in by now, oh heavens, you would have died’.
+
+She stroked his pretty skin again, and kissed him, and held him tight.
+
+But instead of saying thank you, that snake gave her a vicious bite!
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed the vicious snake.
+
+‘I have saved you!’ cried the woman, ‘and you’ve bitten me, heavens why?
+
+You know your bite is poisonous, and now I’m going to die’.
+
+‘Oh shut up, silly woman’ said the reptile with a grin.
+
+‘You knew damn well I was a snake before you took me in’.
+
+
 ### Big Ugly Bill & Heritage Foundation Projects
 
 [Big Beautiful Bill](https://www.congress.gov/bill/119th-congress/house-bill/1)
