@@ -93,3 +93,13 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 [https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html](https://www.yahoo.com/news/articles/karoline-leavitt-takes-shocking-swipe-200459362.html)
 
 SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html](https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html)
+
+### 2026 February
+
+2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism.
+
+TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
+
+[https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
+
+[https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)

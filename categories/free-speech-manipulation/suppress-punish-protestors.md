@@ -246,6 +246,14 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2026 February
 
+2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism. 
+
+TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
+
+[https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
+
+[https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
+
 2026-02-13 New York politicians proposed banning protests with a 25-foot buffer zone around every house of worship.
 
 [https://www.nyclu.org/commentary/why-banning-protest-around-houses-of-worship-adds-fuel-to-trumps-fight-against-free-speech](https://www.nyclu.org/commentary/why-banning-protest-around-houses-of-worship-adds-fuel-to-trumps-fight-against-free-speech)

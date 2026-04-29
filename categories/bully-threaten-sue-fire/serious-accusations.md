@@ -160,6 +160,14 @@ permalink: /categories/bully-threaten-sue-fire/serious-accusations/
 
 ### 2026 February
 
+2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism.
+
+TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
+
+[https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
+
+[https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
+
 2026-02-10 A grand jury refused to indict the 6 veteran congress members who spoke out about refusal to follow illegal orders.
 
 [https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/](https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/)

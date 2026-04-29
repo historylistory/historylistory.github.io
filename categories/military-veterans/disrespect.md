@@ -54,6 +54,16 @@ permalink: /categories/military-veterans/disrespect/
 
 [https://www.militarytimes.com/news/pentagon-congress/2026/01/28/flags-honoring-danish-troops-at-us-embassy-reinstalled-after-outcry/](https://www.militarytimes.com/news/pentagon-congress/2026/01/28/flags-honoring-danish-troops-at-us-embassy-reinstalled-after-outcry/)
 
+### 2026 February
+
+2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism.
+
+TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
+
+[https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
+
+[https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
+
 ### 2026 March
 
 2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 

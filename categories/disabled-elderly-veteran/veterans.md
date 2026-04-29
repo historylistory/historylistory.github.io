@@ -208,6 +208,15 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2026 February
 
+2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism.
+
+TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
+
+[https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
+
+[https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
+
+
 2026-02-05 Jake Lang was arrested in Minneapolis after destroying a sculpture the local Veteran-ran Common Defense organization bought permits to display. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
 
 {% include youtubePlayer.html id="IZO1YzK_aEY" %}
