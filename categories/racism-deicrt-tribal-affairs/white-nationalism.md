@@ -291,3 +291,5 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.rev.com/transcripts/doj-announces-splc-indictment](https://www.rev.com/transcripts/doj-announces-splc-indictment)
 
 [https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s](https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s)
+
+GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s](https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s)
