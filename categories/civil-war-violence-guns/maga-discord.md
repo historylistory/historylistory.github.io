@@ -19,6 +19,15 @@ The largest MAGA rift in 2025–2026 is foreign policy, especially: (1) Whether 
 
 PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-lee-advises-president-dont-start-a-trade-war/](https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-lee-advises-president-dont-start-a-trade-war/)
 
+### 2019
+
+2019-09-10 Trump tweeted about his ongoing dispute with his former National Security Advisor John Bolton.
+
+[https://x.com/realDonaldTrump/status/1171452880055746560](https://x.com/realDonaldTrump/status/1171452880055746560)
+
+[https://www.aljazeera.com/news/2025/10/17/who-is-john-bolton-and-what-he-has-been-indicted-for](https://www.aljazeera.com/news/2025/10/17/who-is-john-bolton-and-what-he-has-been-indicted-for)
+
+
 ### 2023
 
 2023-07-11 Matt Gaetz broke at times over surveillance powers and foreign intervention posture, warning against “deep state” escalation even under Trump-aligned leadership.
