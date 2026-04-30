@@ -133,6 +133,8 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Campaign: Donor Lookup on OpenSecrets](https://www.opensecrets.org/donor-lookup)
 
+[CAIR: Council on American-Islamic Relations](https://www.cair.com/)
+
 [Climate Change: Petition to stop Lee Zeldin from deregulating greenhouse gasses](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
 
 [NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers)
@@ -154,6 +156,12 @@ You know your bite is poisonous, and now I’m going to die’.
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
 
 [History: The U.S. Constitution](https://constitution.congress.gov/constitution/)
+
+[LGBTQ: ACLU Legislation Tracker](https://www.aclu.org/legislative-attacks-on-lgbtq-rights-2026)
+
+[LGBTQ: Gender Affirming Care Tracker](https://www.hrc.org/resources/attacks-on-gender-affirming-care-by-state-map)
+
+[LGBTQ: TransLegislation Tracker](https://translegislation.com/)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
