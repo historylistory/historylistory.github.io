@@ -87,3 +87,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/](https://thehill.com/policy/defense/5840253-protesters-occupy-capitol-building/)
 
 [https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/](https://www.thenational.scot/news/26038238.62-veterans-arrested-anti-iran-war-protest-us-congress-building/)
+
+2026-04-30 Former Army Ranger and paratrooper Congressman Jason Crow pressed Hegseth about conflicts of interest surrounding Special Advisor Tim Parlatore.
+
+[https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)

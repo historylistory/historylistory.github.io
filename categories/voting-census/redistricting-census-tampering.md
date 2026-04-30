@@ -175,3 +175,11 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 [https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme](https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme)
 
 EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2)
+
+2026-04-29 SCOTUS struck down a Louisiana redistricting map by a vote of 6-3 (research Voting Rights Act/racial gerrymandering)
+
+[https://www.cato.org/blog/america-has-changed-so-voting-rights-act-section-5-no-longer-constitutional](https://www.cato.org/blog/america-has-changed-so-voting-rights-act-section-5-no-longer-constitutional)
+
+[https://apnews.com/article/supreme-court-voting-rights-congressional-redistricting-louisiana-aa5d7dbde7c13654f341d152c2ad5229](https://apnews.com/article/supreme-court-voting-rights-congressional-redistricting-louisiana-aa5d7dbde7c13654f341d152c2ad5229)
+
+[https://www.scotusblog.com/2026/04/in-major-voting-rights-act-case-supreme-court-strikes-down-redistricting-map-challenged-as-racia/](https://www.scotusblog.com/2026/04/in-major-voting-rights-act-case-supreme-court-strikes-down-redistricting-map-challenged-as-racia/)

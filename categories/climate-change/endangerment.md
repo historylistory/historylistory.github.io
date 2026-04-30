@@ -6,6 +6,13 @@ subcategory_slug: endangerment
 permalink: /categories/climate-change/endangerment/
 ---
 
+### 2023
+
+2023-09-08 Reports of concern surrounding Nebraska Governor Jim Pillen’s family farm and nitrates in the local drinking water.
+
+[https://nebraskapublicmedia.org/es/news/news-articles/pillens-water-high-nitrate-detected-on-hog-farms-owned-by-nebraskas-governor/](https://nebraskapublicmedia.org/es/news/news-articles/pillens-water-high-nitrate-detected-on-hog-farms-owned-by-nebraskas-governor/)
+
+
 ### 2025 April
 
 2025-04-22 The Economic Policy Institute reported on "How Trump's erasure of environmental data is endangering communities of color".

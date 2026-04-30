@@ -280,3 +280,13 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 2026-04-17 Wired magazine uncovered reports about facial recognition monitoring being used at Madison Square Garden. In part of the report they noted the surveillance system was used to track the movements of a trans woman in part to prevent her image from being seen on TV. Wired obtained an 18-page dossier showing the system tracked all of her movements including when she entered and exited the bathroom. 
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
+
+2026-04-30 Congress passed a 45-day extension of the Foreign Intelligence Surveillance Act (FISA) section 702. This is controversial because the bill would allow the government to abuse the power and spy on American citizens while claiming it’s for national security. 
+
+[https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
+
+[https://www.cnbc.com/2026/04/30/fisa-section-702-congress-extension.html](https://www.cnbc.com/2026/04/30/fisa-section-702-congress-extension.html)
+
+[https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition](https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition)
+
+[https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s](https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s)

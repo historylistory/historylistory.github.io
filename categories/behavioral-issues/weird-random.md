@@ -26,6 +26,11 @@ permalink: /categories/behavioral-issues/weird-random/
 
 ### 2024
 
+2024-04-01 Mysterious circumstances surrounding a death at a Nebraska Governor Pillen’s family farm.
+
+[https://nebraskaexaminer.com/2025/12/19/the-mysterious-death-of-a-teen-at-pillen-family-farms/](https://nebraskaexaminer.com/2025/12/19/the-mysterious-death-of-a-teen-at-pillen-family-farms/)
+
+
 2024-06-19 Trump claimed that Joan Rivers voted for him in 2016, even though she passed in 2014
 
 [https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303](https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303)

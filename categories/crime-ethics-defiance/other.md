@@ -12,6 +12,24 @@ permalink: /categories/crime-ethics-defiance/other/
 
 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
 
+
+### 2024
+
+2024-04-01 Mysterious circumstances surrounding a death at a Nebraska Governor Pillen’s family farm.
+
+[https://nebraskaexaminer.com/2025/12/19/the-mysterious-death-of-a-teen-at-pillen-family-farms/](https://nebraskaexaminer.com/2025/12/19/the-mysterious-death-of-a-teen-at-pillen-family-farms/)
+
+### 2025
+
+2025-09-16 A federal jury found Admiral Robert Burke guilty on corruption charges.
+
+[https://www.justice.gov/usao-dc/pr/retired-us-navy-admiral-sentenced-six-years-bribery-scheme](https://www.justice.gov/usao-dc/pr/retired-us-navy-admiral-sentenced-six-years-bribery-scheme)
+
+[https://thehill.com/regulation/court-battles/5308392-navy-admiral-burke-guilty-bribery/](https://thehill.com/regulation/court-battles/5308392-navy-admiral-burke-guilty-bribery/)
+
+[https://www.military.com/daily-news/2025/09/16/retired-4-star-navy-admiral-sentenced-6-years-prison-bribery-plot.html](https://www.military.com/daily-news/2025/09/16/retired-4-star-navy-admiral-sentenced-6-years-prison-bribery-plot.html)
+
+
 ### 2026 January
 
 2026-01-09 The Mississippi Free Press published an article reminding readers that former director of the Mississippi Department of Human Services was arrested six years prior for diverting millions of federal welfare dollars, giving those fraudulent funds to people like former WWE wrestlers and other athletes for personal use. For context, this article was published shortly after the Trump administration launched its attack on Minnesota for welfare fraud, specifically targeting Somali residents.

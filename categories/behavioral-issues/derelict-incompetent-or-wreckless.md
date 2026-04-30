@@ -547,3 +547,6 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 [https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
 
+2026-04-30 Former Army Ranger and paratrooper Congressman Jason Crow pressed Hegseth about conflicts of interest surrounding Special Advisor Tim Parlatore.
+
+[https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)
