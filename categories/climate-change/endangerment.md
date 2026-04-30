@@ -105,3 +105,13 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 [https://www.youtube.com/watch?v=lIqJFcCnhkY](https://www.youtube.com/watch?v=lIqJFcCnhkY)
 
 PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)
+
+2026-04-29 The U.S. Forest Service under Trump expanded the use of Roundup to treat public forests – particularly in California. While glyphosate has been used since at least 2020, reports suggest a record increase now. 
+
+[https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/](https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/)
+
+[https://research.fs.usda.gov/treesearch/61577#](https://research.fs.usda.gov/treesearch/61577#)
+
+[https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/](https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/)
+
+[https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests](https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests)

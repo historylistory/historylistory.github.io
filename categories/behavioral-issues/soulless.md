@@ -584,3 +584,11 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.justice.gov/ag/media/1437806/dl?inline](https://www.justice.gov/ag/media/1437806/dl?inline)
 
 PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/news/articles/cg73l2d079ko)
+
+2026-04-29 The ICE agent (Jonathan Ross) who executed Nicole Good was put back on duty in another state without any repercussions for what he did.
+
+[https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
+
+[https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp](https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp)
+
+[https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)

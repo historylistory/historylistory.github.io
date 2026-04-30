@@ -1514,3 +1514,17 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
 
 [https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
+
+2026-04-29 (context, this was reportedly directed at Iran) Trump posted a picture of himself on social media holding an assault rifle.
+
+[https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
+
+[https://www.newsweek.com/donald-trump-gun-iran-peace-deal-11891398](https://www.newsweek.com/donald-trump-gun-iran-peace-deal-11891398)
+
+[https://katv.com/news/nation-world/trump-threatens-iran-with-an-ai-picture-of-himself-holding-a-gun-strait-of-hormuz-israel-marco-rubio-blockade](https://katv.com/news/nation-world/trump-threatens-iran-with-an-ai-picture-of-himself-holding-a-gun-strait-of-hormuz-israel-marco-rubio-blockade)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-iran-war-threat-truth-social-b2967029.html](https://www.the-independent.com/news/world/americas/us-politics/trump-iran-war-threat-truth-social-b2967029.html)
+
+[https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
+
+[https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)

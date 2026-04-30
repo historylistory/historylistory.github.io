@@ -154,3 +154,13 @@ permalink: /categories/dictator-envy/ominous-speech-behavior/
 [https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
 
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
+
+2026-04-29 Trump branded U.S. passports with his image.
+
+[https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday](https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday)
+
+[https://www.nbcnews.com/politics/donald-trump/president-image-us-passports-summer-state-department-250th-anniversary-rcna342567](https://www.nbcnews.com/politics/donald-trump/president-image-us-passports-summer-state-department-250th-anniversary-rcna342567)
+
+[https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis](https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis)
+
+PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/news/articles/cr5pn1ngerpo)

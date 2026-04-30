@@ -314,4 +314,11 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin](https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin)
 
+2026-04-29 The ICE agent (Jonathan Ross) who executed Nicole Good was put back on duty in another state without any repercussions for what he did.
+
+[https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
+
+[https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp](https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp)
+
+[https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)
 

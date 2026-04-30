@@ -60,3 +60,17 @@ permalink: /categories/education/dismantling-research-science/
 [https://www.dailycal.org/news/uc/trump-administration-drops-appeal-of-court-order-banning-coercive-federal-funding-cuts-to-ucla/article_7f38e0dc-a74e-47f1-baa2-661ed14cab2f.html](https://www.dailycal.org/news/uc/trump-administration-drops-appeal-of-court-order-banning-coercive-federal-funding-cuts-to-ucla/article_7f38e0dc-a74e-47f1-baa2-661ed14cab2f.html)
 
 [https://bri.ucla.edu/wp-content/uploads/2025/09/Economic-and-personal-Impact-of-suspensions_Sep-02_2025.pdf](https://bri.ucla.edu/wp-content/uploads/2025/09/Economic-and-personal-Impact-of-suspensions_Sep-02_2025.pdf)
+
+### 2026 April
+
+2026-04-28 Trump fired all 22 members of the National Science Board.
+
+[https://www.npr.org/2026/04/28/nx-s1-5801465/national-science-board-trump-firing](https://www.npr.org/2026/04/28/nx-s1-5801465/national-science-board-trump-firing)
+
+[https://www.aljazeera.com/economy/2026/4/28/trump-administration-fires-all-members-of-us-national-science-board](https://www.aljazeera.com/economy/2026/4/28/trump-administration-fires-all-members-of-us-national-science-board)
+
+[https://www.democracynow.org/2026/4/29/headlines/trump_administration_fires_all_members_of_the_national_science_board](https://www.democracynow.org/2026/4/29/headlines/trump_administration_fires_all_members_of_the_national_science_board)
+
+[https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article](https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article)
+
+[https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/](https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/)

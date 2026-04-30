@@ -85,3 +85,15 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/](https://thehill.com/regulation/court-battles/5850391-whca-shooting-trump-ballroom/)
 
 [https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96](https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96)
+
+2026-04-28 Shortly after Trump and First Lady Melania Trump demanded Jimmy Kimmel be fired, the FCC opened an  investigation into ABC and Disney for DEI practices.
+
+[https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823](https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823)
+
+[https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/](https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/)
+
+[https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507](https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507)
+
+[https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
+
+[https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)

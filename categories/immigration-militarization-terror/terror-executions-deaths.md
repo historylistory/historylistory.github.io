@@ -200,3 +200,11 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 [https://www.reuters.com/world/eleven-people-died-us-immigration-custody-this-year-ice-says-2026-04-18/](https://www.reuters.com/world/eleven-people-died-us-immigration-custody-this-year-ice-says-2026-04-18/)
 
 [https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802](https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802)
+
+2026-04-29 The ICE agent (Jonathan Ross) who executed Nicole Good was put back on duty in another state without any repercussions for what he did.
+
+[https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
+
+[https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp](https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp)
+
+[https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)

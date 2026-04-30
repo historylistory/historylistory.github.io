@@ -587,3 +587,17 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 [https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
 
 [https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
+
+2026-04-29 Trump posted a picture of himself on social media holding an assault rifle.
+
+[https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
+
+[https://www.newsweek.com/donald-trump-gun-iran-peace-deal-11891398](https://www.newsweek.com/donald-trump-gun-iran-peace-deal-11891398)
+
+[https://katv.com/news/nation-world/trump-threatens-iran-with-an-ai-picture-of-himself-holding-a-gun-strait-of-hormuz-israel-marco-rubio-blockade](https://katv.com/news/nation-world/trump-threatens-iran-with-an-ai-picture-of-himself-holding-a-gun-strait-of-hormuz-israel-marco-rubio-blockade)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-iran-war-threat-truth-social-b2967029.html](https://www.the-independent.com/news/world/americas/us-politics/trump-iran-war-threat-truth-social-b2967029.html)
+
+[https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
+
+[https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)

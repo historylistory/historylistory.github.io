@@ -287,3 +287,15 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.hollywoodreporter.com/business/business-news/paramount-deal-warner-bros-approved-shareholders-1236572862/](https://www.hollywoodreporter.com/business/business-news/paramount-deal-warner-bros-approved-shareholders-1236572862/)
 
 [https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger](https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger)
+
+2026-04-28 Shortly after Trump and First Lady Melania Trump demanded Jimmy Kimmel be fired, the FCC opened an  investigation into ABC and Disney for DEI practices.
+
+[https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823](https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823)
+
+[https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/](https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/)
+
+[https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507](https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507)
+
+[https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
+
+[https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)

@@ -227,3 +227,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 [https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms](https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms)
 
 [https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html](https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html)
+
+### 2026 April
+
+2026-04-28 Shortly after Trump and First Lady Melania Trump demanded Jimmy Kimmel be fired, the FCC opened an  investigation into ABC and Disney for DEI practices.
+
+[https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823](https://abcnews.com/US/fcc-orders-early-review-abcs-broadcast-licenses/story?id=132466823)
+
+[https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/](https://www.cbsnews.com/news/fcc-disney-abc-early-license-renewal-jimmy-kimmel-dei/)
+
+[https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507](https://www.nbcnews.com/news/us-news/fcc-direct-disney-owned-tv-stations-file-early-license-renewals-source-rcna342507)
+
+[https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
+
+[https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)

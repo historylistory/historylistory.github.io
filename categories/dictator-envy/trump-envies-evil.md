@@ -87,6 +87,19 @@ permalink: /categories/dictator-envy/trump-envies-evil/
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
+2026-04-29 In a leaked audio that came out in April the U.K. Ambassador Christian Turner stated that the “only country” to have a “special relationship” with the United States was “probably Israel”.
+
+[https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/](https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/)
+
+[https://edition.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl](https://edition.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl)
+
+[https://www.youtube.com/watch?v=9rqpI06hkb8](https://www.youtube.com/watch?v=9rqpI06hkb8)
+
+[https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl](https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl)
+
+PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/news/articles/c1l25qd43nro)
+
+
 ### Hitler
 
 2025-06-03 A news outlet reported that Trump kept a copy of Adolf Hitler speeches next to his bedside.

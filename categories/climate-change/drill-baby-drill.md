@@ -81,3 +81,19 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.youtube.com/watch?v=lIqJFcCnhkY](https://www.youtube.com/watch?v=lIqJFcCnhkY)
 
 PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)
+
+2026-04-29 The Senate voted to open up pristine Minnesota boundary waters in Canada for mining and drilling.
+
+[https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin](https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin)
+
+[https://spokesman-recorder.com/2026/04/29/boundary-waters-copper-mining-ban-lifted/](https://spokesman-recorder.com/2026/04/29/boundary-waters-copper-mining-ban-lifted/)
+
+[https://www.startribune.com/twin-metals-minnesota-mining-bwca-lobbying-tina-smith-pete-stauber-david-bernhardt/601792456](https://www.startribune.com/twin-metals-minnesota-mining-bwca-lobbying-tina-smith-pete-stauber-david-bernhardt/601792456)
+
+[https://www.fox9.com/news/bwca-mining-ban-ends-trump-april-2026\](https://www.fox9.com/news/bwca-mining-ban-ends-trump-april-2026\)
+
+[https://www.savetheboundarywaters.org/action-center](https://www.savetheboundarywaters.org/action-center)
+
+[https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd](https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd)
+
+[https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos](https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos)

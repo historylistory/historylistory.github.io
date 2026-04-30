@@ -89,3 +89,18 @@ The publication “A Short History of the Department of State” was retired.
 [https://www.insidehighered.com/news/business/academic-programs/2026/01/30/texas-am-closes-womens-and-gender-studies](https://www.insidehighered.com/news/business/academic-programs/2026/01/30/texas-am-closes-womens-and-gender-studies)
 
 [https://www.kbtx.com/2026/01/30/texas-am-ends-womens-gender-studies-program-comply-with-system-policies/](https://www.kbtx.com/2026/01/30/texas-am-ends-womens-gender-studies-program-comply-with-system-policies/)
+
+### 2026 April
+
+
+2026-04-28 Trump fired all 22 members of the National Science Board.
+
+[https://www.npr.org/2026/04/28/nx-s1-5801465/national-science-board-trump-firing](https://www.npr.org/2026/04/28/nx-s1-5801465/national-science-board-trump-firing)
+
+[https://www.aljazeera.com/economy/2026/4/28/trump-administration-fires-all-members-of-us-national-science-board](https://www.aljazeera.com/economy/2026/4/28/trump-administration-fires-all-members-of-us-national-science-board)
+
+[https://www.democracynow.org/2026/4/29/headlines/trump_administration_fires_all_members_of_the_national_science_board](https://www.democracynow.org/2026/4/29/headlines/trump_administration_fires_all_members_of_the_national_science_board)
+
+[https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article](https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article)
+
+[https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/](https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/)

@@ -69,3 +69,13 @@ permalink: /categories/dictator-envy/parallels/
 [https://www.icc-cpi.int/philippines/duterte](https://www.icc-cpi.int/philippines/duterte)
 
 [https://www.icc-cpi.int/news/icc-pre-trial-chamber-i-confirms-all-charges-against-rodrigo-roa-duterte-and-commits-him-trial](https://www.icc-cpi.int/news/icc-pre-trial-chamber-i-confirms-all-charges-against-rodrigo-roa-duterte-and-commits-him-trial)
+
+2026-04-29 (context, because it parallels fascist behavior) Trump branded U.S. passports with his image.
+
+[https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday](https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday)
+
+[https://www.nbcnews.com/politics/donald-trump/president-image-us-passports-summer-state-department-250th-anniversary-rcna342567](https://www.nbcnews.com/politics/donald-trump/president-image-us-passports-summer-state-department-250th-anniversary-rcna342567)
+
+[https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis](https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis)
+
+PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/news/articles/cr5pn1ngerpo)
