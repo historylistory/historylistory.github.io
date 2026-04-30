@@ -176,6 +176,15 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 
 ### 2026 April
 
+2026-04-15 Maryland managed to temporarily block an ICE detention center from being built near Hagerstown.
+
+[https://www.cbsnews.com/baltimore/news/maryland-immigration-ice-facility-work-paused-judge/](https://www.cbsnews.com/baltimore/news/maryland-immigration-ice-facility-work-paused-judge/)
+
+[https://slate.com/news-and-politics/2026/04/ice-fail-detention-warehouse-maryland-spring-snail.html](https://slate.com/news-and-politics/2026/04/ice-fail-detention-warehouse-maryland-spring-snail.html)
+
+[https://marylandmatters.org/2026/04/15/hundreds-rally-against-ice-as-judge-agrees-to-block-detention-center-construction/](https://marylandmatters.org/2026/04/15/hundreds-rally-against-ice-as-judge-agrees-to-block-detention-center-construction/)
+
+
 2026-04-23 Detainees of ICE detention center in Michigan went on a hunger strike in response to horrific conditions at the facility.
 
 [https://michiganadvance.com/2026/04/23/detainee-speaks-out-as-hunger-strike-continues-at-michigans-largest-ice-detention-center/](https://michiganadvance.com/2026/04/23/detainee-speaks-out-as-hunger-strike-continues-at-michigans-largest-ice-detention-center/)
@@ -183,6 +192,15 @@ permalink: /categories/immigration-militarization-terror/terror-detention-center
 [https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/](https://www.aclumich.org/press-releases/aclu-and-michigan-immigrant-rights-center-call-on-congress-to-require-an-independent-investigation-into-ices-north-lake-detention-center-following-reports-of-a-hunger-strike-and-dangerously-i/)
 
 PAYWALL [https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/](https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-at-michigan-immigration-prison-advocates-say-ice-disagrees/89755104007/)
+
+2026-04-25 Arizona sued the Trump administration in an attempt to block another ICE facility from opening up in Surprise Arizona, next to a hazardous waste plant.
+
+[https://www.cbsnews.com/news/arizona-sues-proposed-ice-detention-facility-chemical-site/](https://www.cbsnews.com/news/arizona-sues-proposed-ice-detention-facility-chemical-site/)
+
+[https://azmirror.com/2026/04/24/arizona-ag-sues-trump-over-surprise-immigration-detention-warehouse/](https://azmirror.com/2026/04/24/arizona-ag-sues-trump-over-surprise-immigration-detention-warehouse/)
+
+[https://www.azag.gov/press-release/attorney-general-mayes-sues-block-proposed-ice-detention-facility-surprise](https://www.azag.gov/press-release/attorney-general-mayes-sues-block-proposed-ice-detention-facility-surprise)
+
 
 2026-04-26 ICE detained a mother and her five children, imprisoning them for 10 months until a judge ordered their release. In a statement DHS called the judge an “activist judge” who is “releasing this terrorist’s family onto American streets AGAIN”. After the ruling, DHS detained the family a second time. When the family was released, they reported no medical care, rotten food, and that they were not allowed to practice their Islamic faith. 
 
@@ -195,3 +213,9 @@ PAYWALL [https://www.freep.com/story/news/immigration/2026/04/24/hunger-strike-a
 [https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody](https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody)
 
 SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html](https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html)
+
+2026-04-25 The Trump administration announced plans to open up a PFAS-contaminated warehouse to detain families in Louisiana. 
+
+[https://www.theguardian.com/us-news/2026/apr/25/pfas-chemicals-ice-family-detention](https://www.theguardian.com/us-news/2026/apr/25/pfas-chemicals-ice-family-detention)
+
+[https://www.sej.org/headlines/ice-planning-facility-children-and-families-pfas-contaminated-site](https://www.sej.org/headlines/ice-planning-facility-children-and-families-pfas-contaminated-site)

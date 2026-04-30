@@ -317,3 +317,11 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment](https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment)
 
 PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)
+
+2026-04-28 Prosecutor Maurene Comey was fired by the Trump administration in July 2025. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. Her lawsuit claiming she was wrongfully fired proceeded in April 2026.
+
+[https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
+
+[https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge](https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge)
+
+[https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/](https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/)

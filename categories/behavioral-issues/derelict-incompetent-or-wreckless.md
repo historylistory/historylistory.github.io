@@ -532,3 +532,18 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 [https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
 
 [https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic)
+
+2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
+
+[https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/](https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/)
+
+[https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/](https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/)
+
+[https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
+
+2026-04-27 Four Democratic senators launched an investigation into the bombing in Kuwait that killed six American servicemembers and left more than 20 injured. 
+
+[https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
+
+[https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
+

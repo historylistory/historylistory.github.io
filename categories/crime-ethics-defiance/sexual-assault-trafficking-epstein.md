@@ -401,3 +401,11 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 [https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66](https://apnews.com/article/trump-murdoch-wall-street-journal-lawsuit-40e7aba7731db9e8800488038cb92a66)
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
+
+2026-04-28 Prosecutor Maurene Comey was fired by the Trump administration in July 2025. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. Her lawsuit claiming she was wrongfully fired proceeded in April 2026.
+
+[https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
+
+[https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge](https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge)
+
+[https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/](https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/)

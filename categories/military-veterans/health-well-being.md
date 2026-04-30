@@ -46,4 +46,13 @@ permalink: /categories/military-veterans/health-well-being/
 
 [https://www.cnn.com/2025/09/24/politics/hegseth-shuts-down-women-advisory-military](https://www.cnn.com/2025/09/24/politics/hegseth-shuts-down-women-advisory-military)
 
+### 2026 April
+
+2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
+
+[https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/](https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/)
+
+[https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/](https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/)
+
+[https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
  

@@ -1508,3 +1508,9 @@ SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kush
 [https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-military-issues-evacuation-warning-seven-lebanese-towns-north-litani-2026-04-26/)
 
 PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/news/articles/c4gxgv8j7zlo)
+
+2026-04-27 Four Democratic senators launched an investigation into the bombing in Kuwait that killed six American servicemembers and left more than 20 injured. 
+
+[https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
+
+[https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)

@@ -57,3 +57,14 @@ APRIL 21 [https://apnews.com/article/iran-war-tifani-sanctioned-ship-bd0190ae22d
 APRIL 21 [https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says](https://www.pbs.org/newshour/world/u-s-forces-board-a-sanctioned-oil-tanker-without-incident-in-the-indian-ocean-the-pentagon-says)
 
 APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/](https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-oil-tanker/)
+
+2026-04-28 The UAE (United Arab Emirates) departed from OPEC (Organization of the Petroleum Exporting Countries).
+
+[https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond](https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond)
+
+[https://www.reuters.com/markets/commodities/uae-says-it-quits-opec-opec-statement-2026-04-28/](https://www.reuters.com/markets/commodities/uae-says-it-quits-opec-opec-statement-2026-04-28/)
+
+[https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html](https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html)
+
+[https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
+

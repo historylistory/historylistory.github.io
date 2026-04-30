@@ -133,3 +133,11 @@ Great Barrington Declaration links:
 [https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf](https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf)
 
 [https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns](https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns)
+
+2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
+
+[https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/](https://www.militarytimes.com/news/your-military/2026/04/21/flu-vaccine-requirement-discarded-effective-immediately-hegseth-says/)
+
+[https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/](https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/)
+
+[https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)

@@ -285,3 +285,13 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 [https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off](https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off)
 
 [https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal](https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal)
+
+2026-04-28 The UAE (United Arab Emirates) departed from OPEC (Organization of the Petroleum Exporting Countries).
+
+[https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond](https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond)
+
+[https://www.reuters.com/markets/commodities/uae-says-it-quits-opec-opec-statement-2026-04-28/](https://www.reuters.com/markets/commodities/uae-says-it-quits-opec-opec-statement-2026-04-28/)
+
+[https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html](https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html)
+
+[https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
