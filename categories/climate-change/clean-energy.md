@@ -1,10 +1,14 @@
 ---
 layout: subcategory
-title: "Windmills & Clean Energy"
+title: "Clean Energy"
 category_slug: climate-change
-subcategory_slug: windmills-clean-energy
-permalink: /categories/climate-change/windmills-clean-energy/
+subcategory_slug: clean-energy
+permalink: /categories/climate-change/clean-energy/
 ---
+
+### Commentary
+
+Oil dependency is the bottom-line for investors, which is why they repeatedly block clean energy and advocate for drilling and mining in protected areas. For more information, see the section ***ECONOMY, LABOR & POVERTY*** and its subsection ***OIL-IGARCHY***
 
 ### 2012
 
@@ -36,6 +40,15 @@ permalink: /categories/climate-change/windmills-clean-energy/
 
 [https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape](https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape)
 
+2025-07-21 A Nebraska attorney fought against wind and solar power in Nebraska. 
+
+[https://www.norfolkneradio.com/news/omaha-attorney-defending-knox-county-against-big-wind/article_da851b05-4e40-4ef6-ad65-d5e30fe801c9.html](https://www.norfolkneradio.com/news/omaha-attorney-defending-knox-county-against-big-wind/article_da851b05-4e40-4ef6-ad65-d5e30fe801c9.html)
+
+[https://knoxcountyne.gov/wp-content/uploads/sites/37/2025/08/board-2025-0319-minutes.pdf](https://knoxcountyne.gov/wp-content/uploads/sites/37/2025/08/board-2025-0319-minutes.pdf)
+
+[https://www.kcau9.com/news/local-news/social-media-posts-lead-to-charges-against-special-knox-county-attorney/](https://www.kcau9.com/news/local-news/social-media-posts-lead-to-charges-against-special-knox-county-attorney/)
+
+
 2025-07-25 During a visit to Scotland, Trump objected to windmills ruining the view of his golf course and ordered leadership to "stop the windmills, you're ruining your countries. I really mean it”.
 
 {% include youtubePlayer.html id="GkiKpMDEREE" %}
@@ -49,6 +62,27 @@ permalink: /categories/climate-change/windmills-clean-energy/
 2025-08-26 During a press conference, Trump denounced windmills after having just cancelled a nearly complete offshore wind project ( Revolution Wind in RI and CT) and announced his plans to "drill-baby-drill" stating, "We don't call it coal, we call it clean coal, and even very very clean coal".
 
 {% include youtubePlayer.html id="sp97kSwaBfQ" %}
+
+### 2025 September
+
+2025-09-09 Several Republicans have repeatedly fought against the expansion of solar energy on agricultural lands (such as agrovoltaics) often framing it as “green energy boondoggles”. 
+
+WHAT IS IT [https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you](https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you)
+
+WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agriculture-co-location](https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agriculture-co-location)
+
+[https://www.eenews.net/articles/gop-retreat-on-solar-energy-sows-doubt-for-farmers](https://www.eenews.net/articles/gop-retreat-on-solar-energy-sows-doubt-for-farmers)
+
+[https://www.eenews.net/articles/solar-donors-square-off-for-round-two-against-chip-roy/](https://www.eenews.net/articles/solar-donors-square-off-for-round-two-against-chip-roy/)
+
+[https://climatepower.us/news/icymi-ee-news-meet-the-republicans-who-killed-solar-subsidies-after-using-them/](https://climatepower.us/news/icymi-ee-news-meet-the-republicans-who-killed-solar-subsidies-after-using-them/)
+
+[https://tiffany.house.gov/media/editorials-letters-and-articles/republicans-seek-end-taxpayer-funding-green-energy](https://tiffany.house.gov/media/editorials-letters-and-articles/republicans-seek-end-taxpayer-funding-green-energy)
+
+[https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill](https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill)
+
+[https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/](https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/)
+
 
 ### 2025 October
 

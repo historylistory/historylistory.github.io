@@ -10,6 +10,10 @@ permalink: /categories/economy-labor-poverty/oil-igarchy/
 
 This section is still in progress, but since Trump took office he has been trying to shut down all other alternative sources of power such as wind, ocean and solar. He has also pushed his drill-baby-drill agenda. Finally, every war he has started since his first year in office has been about oil sanctions. During the first month of the war in Iran there had been 45 worldwide oil refinery "accidents". 
 
+### Oil Dependency 
+
+Oil dependency is the bottom-line for investors, which is why they repeatedly block clean energy and advocate for drilling and mining in protected areas. For more information, see the section ***CLIMATE CHANGE***
+
 ### 2026 April
 
 2026-04-16 During an interview with Semafor, Senator Rick Scott (R-FL) advocated for aggressive US action against Iran, saying that blocking oil shipments to China would be a “wonderful” outcome. (VERY LITTLE COVERAGE)

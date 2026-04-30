@@ -6,6 +6,19 @@ subcategory_slug: fire-purge
 permalink: /categories/bully-threaten-sue-fire/fire-purge/
 ---
 
+### 1981 
+
+1981-08-05 President Ronald Regan fired 11,345 air traffic controllers who were on strike demanding better pay, and shorter workweek, and improved working conditions.
+
+[https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers](https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers)
+
+[https://www.politico.com/story/2008/08/reagan-fires-11-000-striking-air-traffic-controllers-aug-5-1981-012292](https://www.politico.com/story/2008/08/reagan-fires-11-000-striking-air-traffic-controllers-aug-5-1981-012292)
+
+[https://millercenter.org/reagan-vs-air-traffic-controllers](https://millercenter.org/reagan-vs-air-traffic-controllers)
+
+[https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers](https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers)
+
+
 ### 2017
 
 2017-05-01 Trump fired FBI Director James Comey. Comey led the investigation on the Russian interference case during the 2016 election. 

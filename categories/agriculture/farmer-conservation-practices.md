@@ -21,3 +21,23 @@ permalink: /categories/agriculture/farmer-conservation-practices/
 2025-04-01 The Trump administration cut $754M in funding from conservation technical assistance.
 
 [https://www.theguardian.com/us-news/2025/jan/14/biden-trump-climate-change-funds#:~:text=1%20year%20old-,Biden%20Trump%2Dproofs%20$74bn%20in%20climate%20funding%20but%20$20,becomes%20president%20on%2020%20January](https://www.theguardian.com/us-news/2025/jan/14/biden-trump-climate-change-funds).
+
+### 2025 September
+
+2025-09-09 Several Republicans have repeatedly fought against the expansion of solar energy on agricultural lands (such as agrovoltaics) often framing it as “green energy boondoggles”. 
+
+WHAT IS IT [https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you](https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you)
+
+WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agriculture-co-location](https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agriculture-co-location)
+
+[https://www.eenews.net/articles/gop-retreat-on-solar-energy-sows-doubt-for-farmers](https://www.eenews.net/articles/gop-retreat-on-solar-energy-sows-doubt-for-farmers)
+
+[https://www.eenews.net/articles/solar-donors-square-off-for-round-two-against-chip-roy/](https://www.eenews.net/articles/solar-donors-square-off-for-round-two-against-chip-roy/)
+
+[https://climatepower.us/news/icymi-ee-news-meet-the-republicans-who-killed-solar-subsidies-after-using-them/](https://climatepower.us/news/icymi-ee-news-meet-the-republicans-who-killed-solar-subsidies-after-using-them/)
+
+[https://tiffany.house.gov/media/editorials-letters-and-articles/republicans-seek-end-taxpayer-funding-green-energy](https://tiffany.house.gov/media/editorials-letters-and-articles/republicans-seek-end-taxpayer-funding-green-energy)
+
+[https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill](https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill)
+
+[https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/](https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/)
