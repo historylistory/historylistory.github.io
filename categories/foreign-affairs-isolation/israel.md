@@ -61,6 +61,17 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
+### 2026 March
+
+2026-03-24 The UN demanded immediate release of Dr. Hussam Abu Safiya by Israel. In the demands they condemned Israel for severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
+
+[https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya](https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya)
+
+[https://www.cair.com/press_releases/cair-repeats-call-for-release-of-gaza-doctor-after-reports-of-severe-torture/](https://www.cair.com/press_releases/cair-repeats-call-for-release-of-gaza-doctor-after-reports-of-severe-torture/)
+
+[https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe](https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe)
+
+### 2026 April
 
 2026-04-20 Hungary’s newly elected Prime Minister Peter Magyar declared his government would be legally obligated to detain Israeli Prime Minister Benjamin Netanyahu if he enters Hungarian territory while still subject to an international criminal court arrest warrant. 
 

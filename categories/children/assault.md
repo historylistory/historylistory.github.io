@@ -107,3 +107,17 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 [https://ktla.com/news/consumer-business/makeup-for-6-year-olds-kids-beauty-brands-fuel-growing-debate-among-parents/](https://ktla.com/news/consumer-business/makeup-for-6-year-olds-kids-beauty-brands-fuel-growing-debate-among-parents/)
 
 [https://www.cbsnews.com/news/skincare-industry-products-tweens-harm-young-skin/](https://www.cbsnews.com/news/skincare-industry-products-tweens-harm-young-skin/)
+
+### 2026 March
+
+2026-03-25 Parents were warned to monitor their children for the use of the Roblox platform due to the increase of online sexual predators using the platform to target little kids.
+
+[https://www.reuters.com/business/media-telecom/roblox-announces-control-measures-comply-with-indonesias-social-media-curb-2026-04-30/](https://www.reuters.com/business/media-telecom/roblox-announces-control-measures-comply-with-indonesias-social-media-curb-2026-04-30/)
+
+[https://childrescuecoalition.org/educations/every-parents-nightmare-roblox-and-other-dangerous-video-games](https://childrescuecoalition.org/educations/every-parents-nightmare-roblox-and-other-dangerous-video-games)
+
+[https://www.drugwatch.com/featured/roblox-child-safety-lawsuits/](https://www.drugwatch.com/featured/roblox-child-safety-lawsuits/)
+
+[https://abc7.com/post/los-angeles-county-accuses-roblox-exposing-children-online-predators-new-lawsuit/18623326/](https://abc7.com/post/los-angeles-county-accuses-roblox-exposing-children-online-predators-new-lawsuit/18623326/)
+
+PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/news/articles/cd6l07wwvlpo)

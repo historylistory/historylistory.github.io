@@ -492,6 +492,15 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller](https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller)
 
+2026-03-24 The UN demanded immediate release of Dr. Hussam Abu Safiya by Israel. In the demands they condemned Israel for severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
+
+[https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya](https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya)
+
+[https://www.cair.com/press_releases/cair-repeats-call-for-release-of-gaza-doctor-after-reports-of-severe-torture/](https://www.cair.com/press_releases/cair-repeats-call-for-release-of-gaza-doctor-after-reports-of-severe-torture/)
+
+[https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe](https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe)
+
+
 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, ***“Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.***
 
 [https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor](https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor)

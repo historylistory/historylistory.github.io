@@ -259,6 +259,25 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.cbsnews.com/news/trump-tariffs-canada-senate-democrats/](https://www.cbsnews.com/news/trump-tariffs-canada-senate-democrats/)
 
+2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. Republicans like Joni Ernst, Lisa Murkowski, Mike Rounds and Roger Wicker expressed disagreement over the firing and/or lack of trust in Hegseth’s judgment.
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/](https://www.cbsnews.com/news/hegseth-ousts-army-chief-of-staff-gen-randy-george/)
+
+[https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/](https://www.reuters.com/world/us/hegseth-has-asked-us-army-chief-staff-step-down-cbs-news-reports-2026-04-02/)
+
+[https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755](https://www.politico.com/news/2026/04/02/hegseth-ousts-top-army-general-00856755)
+
+[https://thehill.com/homenews/senate/5848160-senate-republicans-doubt-hegseth-leadership/](https://thehill.com/homenews/senate/5848160-senate-republicans-doubt-hegseth-leadership/)
+
+[https://san.com/media-miss/hegseth-losing-republican-senators-support-due-to-leadership-concerns/](https://san.com/media-miss/hegseth-losing-republican-senators-support-due-to-leadership-concerns/)
+
+[https://www.youtube.com/watch?v=fJyVJK3aa8U](https://www.youtube.com/watch?v=fJyVJK3aa8U)
+
+[https://www.youtube.com/watch?v=zBAlkIrzUh4](https://www.youtube.com/watch?v=zBAlkIrzUh4)
+
+
 
 2026-04-04 Tucker Carlson criticized Trump’s support for strikes on Iran and Israel alignment, arguing it violated “America First.”
 
