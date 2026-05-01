@@ -140,6 +140,16 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 {% include youtubePlayer.html id="5NecjNqL11c" %}
 
+### 2026 February
+
+2026-02-15 A global push for age verification on widely used platforms emerged. Peter Thiel’s venture capital firm Founders fun is a major investor in the age verification provider used, called Persona.
+
+[https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/](https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/)
+
+[https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/](https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/)
+
+[https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed](https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed)
+
 ### 2026 March
 
 2026-03-14 After Trump brokered a deal to sell TikTok to Larry Ellison, the Trump administration gained a $10B transactional payout, which is 70% of the company’s $14B worth. 

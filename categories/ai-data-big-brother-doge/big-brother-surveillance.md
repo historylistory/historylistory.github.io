@@ -1,12 +1,37 @@
 ---
 layout: subcategory
-title: Big Brother
+title: Big Brother & Surveillance
 category_slug: ai-data-big-brother-doge
-subcategory_slug: big-brother
-permalink: /categories/ai-data-big-brother-doge/big-brother/
+subcategory_slug: big-brother-surveillance
+permalink: /categories/ai-data-big-brother-doge/big-brother-surveillance/
 ---
 
-### 2003
+
+### Comment
+
+Think About:
+1) AI surveillance
+2) Algorithms suppressing viewpoints and pushing narratives
+3) Tracking with digital currency
+4) Big tech owning personal data
+
+### Eye Spy
+
+2014-02-19 Google launched smart glasses.
+
+[https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole](https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole)
+
+2025-09-30 Meta launched their Meta Ray-Ban Display smart glasses.
+
+[https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/](https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/)
+
+2026-02-20 Mark Zuckerberg and his entourage wore Ray-Ban smart glasses during court proceedings.
+
+[https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg](https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg)
+
+[https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/](https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/)
+
+### 2003 
 
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence agencies. It is a data mining and surveillance company. On the upside, it is a very powerful tool for security. On the other hand, nearly anyone could potentially pay to misuse its technology for things like AI-driven warfare, predictive policing, beta-testing on civilians, and warfare. In 2025 alone, the Department of Defense paid a $113M contract for defense on top of the existing $795M it had, and ICE paid $30M to get real-time data on tracking immigrants.
 
@@ -220,6 +245,15 @@ permalink: /categories/ai-data-big-brother-doge/big-brother/
 [https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html](https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html)
 
 [https://www.thedailybeast.com/dhs-orders-tech-giants-to-unmask-anti-ice-accounts/](https://www.thedailybeast.com/dhs-orders-tech-giants-to-unmask-anti-ice-accounts/)
+
+
+2026-02-15 A global push for age verification on widely used platforms emerged. Peter Thiel’s venture capital firm Founders fun is a major investor in the age verification provider used, called Persona.
+
+[https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/](https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/)
+
+[https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/](https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/)
+
+[https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed](https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed)
 
 2026-02-26 Senator Slotkin questioned Mr. Ditlevson about the Pentagon’s use of mass surveillance of Americans.
 
