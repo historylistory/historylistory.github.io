@@ -375,6 +375,27 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
 
+2026-04-28 Louisiana advanced HB211 to criminalize being homeless. Under the Streets to Success Act, homeless individuals would be arrested and fined for sleeping in public places. If they cannot pay the fines, they will be forced into hard labor to pay off the fines. In some cases they can be forced into a treatment program for which they would have to pay off with hard labor. Republican State Representative Debbie Villio stated in her proposal, “We aren’t looking to jail anyone, we’re looking to integrate them with the criminal justice system in an effort to connect them with service providers”.
+
+[https://www.youtube.com/watch?v=q5IpSzIir_A&list=WL&index=1&t=614s](https://www.youtube.com/watch?v=q5IpSzIir_A&list=WL&index=1&t=614s)
+
+[https://council.nola.gov/news/april-2026/councilmember-lesli-harris-urges-louisiana-to-reje/](https://council.nola.gov/news/april-2026/councilmember-lesli-harris-urges-louisiana-to-reje/)
+
+[https://www.newsweek.com/thousands-could-be-forced-into-unpaid-labor-in-louisiana-under-new-bill-11888298](https://www.newsweek.com/thousands-could-be-forced-into-unpaid-labor-in-louisiana-under-new-bill-11888298)
+
+[https://www.newsweek.com/thousands-could-be-forced-into-unpaid-labor-in-louisiana-under-new-bill-11888298](https://www.newsweek.com/thousands-could-be-forced-into-unpaid-labor-in-louisiana-under-new-bill-11888298)
+
+[https://www.legis.la.gov/legis/BillInfo.aspx?s=26rs&b=HB211&sbi=y](https://www.legis.la.gov/legis/BillInfo.aspx?s=26rs&b=HB211&sbi=y)
+
+[https://stateline.org/2025/01/27/many-more-cities-ban-sleeping-outside-despite-a-lack-of-shelter-space/](https://stateline.org/2025/01/27/many-more-cities-ban-sleeping-outside-despite-a-lack-of-shelter-space/)
+
+[https://www.addicted.org/paying-for-treatment/cost/louisiana/](https://www.addicted.org/paying-for-treatment/cost/louisiana/)
+
+[https://www.ksla.com/2026/04/22/walk-our-shoes-la-bill-criminalizing-public-camping-draws-criticism-homeless-couple-pastor/](https://www.ksla.com/2026/04/22/walk-our-shoes-la-bill-criminalizing-public-camping-draws-criticism-homeless-couple-pastor/)
+
+[https://www.wafb.com/2026/04/09/louisiana-lawmakers-advance-bill-criminalizing-homeless-encampments/](https://www.wafb.com/2026/04/09/louisiana-lawmakers-advance-bill-criminalizing-homeless-encampments/)
+
+
 2026-04-30 By the end of April, a bale of hay costs $23 a piece, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits while farming families are under duress. 
 
 [https://www.instagram.com/reels/DXp39tRiciL/](https://www.instagram.com/reels/DXp39tRiciL/)

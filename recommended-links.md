@@ -163,6 +163,10 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [LGBTQ: TransLegislation Tracker](https://translegislation.com/)
 
+[Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
+
+[Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
+
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
 [Trump: List of Nicknames Used by Donald Trump](https://en.wikipedia.org/wiki/List_of_nicknames_used_by_Donald_Trump)
