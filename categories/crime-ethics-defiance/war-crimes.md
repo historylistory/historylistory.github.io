@@ -304,3 +304,18 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific)
 
 [https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc](https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc)
+
+### 2026 May
+
+
+2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+
+[https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015](https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015)
+
+[https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/](https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/)
+
+[https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
+
+[https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)

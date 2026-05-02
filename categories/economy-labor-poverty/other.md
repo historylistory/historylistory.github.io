@@ -170,3 +170,11 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 [https://democrats-energycommerce.house.gov/media/press-releases/reality-check-new-report-confirms-trumprx-not-lowering-prescription-drug](https://democrats-energycommerce.house.gov/media/press-releases/reality-check-new-report-confirms-trumprx-not-lowering-prescription-drug)
 
 [https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam](https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam)
+
+### 2026 May
+
+2026-05-01 Money market funds experienced high cash flow as investors parked their money in them, topping assets out at $8TR.
+
+[https://www.ici.org/news-release/money-market-funds-hit-seven-trillion](https://www.ici.org/news-release/money-market-funds-hit-seven-trillion)
+
+[https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html](https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html)

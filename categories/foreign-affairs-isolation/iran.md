@@ -1528,3 +1528,19 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
 
 [https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)
+
+### 2026 May
+
+
+2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+
+[https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015](https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015)
+
+[https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/](https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/)
+
+[https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
+
+[https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+

@@ -80,6 +80,20 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 [https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg](https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg)
 
+### 2009
+
+2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”. 
+
+[https://libertythroughwealth.com/2020/03/26/way-to-wealth-invest-when-blood-streets/](https://libertythroughwealth.com/2020/03/26/way-to-wealth-invest-when-blood-streets/)
+
+[https://investorplace.com/hypergrowthinvesting/2025/04/this-is-what-it-looks-like-to-buy-stocks-when-theres-blood-in-the-streets/](https://investorplace.com/hypergrowthinvesting/2025/04/this-is-what-it-looks-like-to-buy-stocks-when-theres-blood-in-the-streets/)
+
+[https://www.bitget.com/wiki/when-there's-blood-in-the-streets-quote](https://www.bitget.com/wiki/when-there's-blood-in-the-streets-quote)
+
+[https://www.investopedia.com/articles/investing/012116/warren-buffett-be-fearful-when-others-are-greedy.asp](https://www.investopedia.com/articles/investing/012116/warren-buffett-be-fearful-when-others-are-greedy.asp)
+
+PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-finance_investopedia.html](https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-finance_investopedia.html)
+
 ### 2013
 
 2013-01-01 JD Vance was a former venture capitalist with investors like Peter Thiel (Palantir, PayPal, Facebook), Eric Schmidt (Google), and Marc Andreessen (Silicon Valley Investor). 

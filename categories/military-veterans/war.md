@@ -324,3 +324,19 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 [https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
 
 [https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
+
+### 2026 May
+
+
+2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+
+[https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015](https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015)
+
+[https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/](https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/)
+
+[https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
+
+[https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+

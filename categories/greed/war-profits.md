@@ -6,6 +6,21 @@ subcategory_slug: war-profits
 permalink: /categories/greed/war-profits/
 ---
 
+### 2009 
+
+2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”. 
+
+[https://libertythroughwealth.com/2020/03/26/way-to-wealth-invest-when-blood-streets/](https://libertythroughwealth.com/2020/03/26/way-to-wealth-invest-when-blood-streets/)
+
+[https://investorplace.com/hypergrowthinvesting/2025/04/this-is-what-it-looks-like-to-buy-stocks-when-theres-blood-in-the-streets/](https://investorplace.com/hypergrowthinvesting/2025/04/this-is-what-it-looks-like-to-buy-stocks-when-theres-blood-in-the-streets/)
+
+[https://www.bitget.com/wiki/when-there's-blood-in-the-streets-quote](https://www.bitget.com/wiki/when-there's-blood-in-the-streets-quote)
+
+[https://www.investopedia.com/articles/investing/012116/warren-buffett-be-fearful-when-others-are-greedy.asp](https://www.investopedia.com/articles/investing/012116/warren-buffett-be-fearful-when-others-are-greedy.asp)
+
+PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-finance_investopedia.html](https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-finance_investopedia.html)
+
+
 ### 2025 
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
