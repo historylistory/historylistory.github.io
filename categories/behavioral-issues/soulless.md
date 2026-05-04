@@ -592,3 +592,13 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 [https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp](https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp)
 
 [https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)
+
+2026-04-29 The Trump administration proposed a rule to cut back the Endangered Species Act to allow more industry, drilling and mining. It was only after several voiced concerns from both parties that they delayed the vote. 
+
+[https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/](https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/)
+
+[https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it](https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it)
+
+[https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
+
+[https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)

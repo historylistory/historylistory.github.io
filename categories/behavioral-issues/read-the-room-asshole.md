@@ -185,3 +185,13 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
+
+2026-04-28 During a televised conference Trump attempted to involve the Artemis II crew with criticizing NATO. Their response was total silence.
+
+[https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato](https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato)
+
+[https://www.yahoo.com/news/articles/trump-tries-goad-artemis-ii-190930080.html](https://www.yahoo.com/news/articles/trump-tries-goad-artemis-ii-190930080.html)
+
+[https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079](https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079)
+
+SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened](https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened)

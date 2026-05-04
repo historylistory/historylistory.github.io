@@ -288,3 +288,13 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd](https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd)
 
 [https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos](https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos)
+
+2026-04-29 The Trump administration proposed a rule to cut back the Endangered Species Act to allow more industry, drilling and mining. It was only after several voiced concerns from both parties that they delayed the vote. 
+
+[https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/](https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/)
+
+[https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it](https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it)
+
+[https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
+
+[https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)

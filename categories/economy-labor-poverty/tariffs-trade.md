@@ -295,3 +295,31 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 [https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html](https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html)
 
 [https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
+
+2026-04-30 On this date, the U.S. debt was larger than its GDP.
+
+[https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html](https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html)
+
+[https://www.the-independent.com/news/world/americas/us-politics/us-national-debt-gdp-trump-b2968676.html](https://www.the-independent.com/news/world/americas/us-politics/us-national-debt-gdp-trump-b2968676.html)
+
+2018 PROJECTION [https://www.cato.org/blog/us-only-country-projected-rising-government-debt-gdp-ratio-through-2023](https://www.cato.org/blog/us-only-country-projected-rising-government-debt-gdp-ratio-through-2023)
+
+SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-ratio-100-percent/](https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-ratio-100-percent/)
+
+### 2026 May
+
+2026-05-03 The Trump tariff refund claims process proved to be a farse when small businesses started receiving rejected claims.
+
+[https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business](https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business)
+
+[https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid](https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid)
+
+[https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business](https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business)
+
+2026-05-03 After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)

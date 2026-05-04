@@ -98,3 +98,13 @@ permalink: /categories/transportation/other/
 [https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/](https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/)
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
+
+### 2026 May
+
+2026-05-03 (for context because thousands of employees were left without jobs) After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)

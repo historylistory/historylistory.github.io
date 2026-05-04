@@ -318,6 +318,16 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
 
+2026-04-30 On this date, the U.S. debt was larger than its GDP.
+
+[https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html](https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html)
+
+[https://www.the-independent.com/news/world/americas/us-politics/us-national-debt-gdp-trump-b2968676.html](https://www.the-independent.com/news/world/americas/us-politics/us-national-debt-gdp-trump-b2968676.html)
+
+2018 PROJECTION [https://www.cato.org/blog/us-only-country-projected-rising-government-debt-gdp-ratio-through-2023](https://www.cato.org/blog/us-only-country-projected-rising-government-debt-gdp-ratio-through-2023)
+
+SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-ratio-100-percent/](https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-ratio-100-percent/)
+
 ### 2026 May
 
 2026-05-01 Money market funds experienced high cash flow as investors parked their money in them, topping assets out at $8TR.

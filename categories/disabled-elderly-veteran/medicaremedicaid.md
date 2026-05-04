@@ -53,3 +53,15 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 [https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK](https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK)
 
 [https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
+
+### 2026 May 
+
+2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements. 
+
+[https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900](https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900)
+
+[https://dhhs.ne.gov/Pages/WorkRequirements.aspx](https://dhhs.ne.gov/Pages/WorkRequirements.aspx)
+
+[https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141](https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141)
+
+[https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)

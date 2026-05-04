@@ -161,3 +161,14 @@ permalink: /categories/free-speech-manipulation/purge/
 [https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
 
 [https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag](https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag)
+
+### 2026 April
+2026-04-30 (for context because Trump likes to backfill important positions with propagandists from Fox media) Trump pulled Casey Means’ nomination for Surgeon General and replaced her with a Fox news contributor.
+
+[https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
+
+[https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b](https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b)
+
+SUB WALL [https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206](https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206)
+
+PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/news/articles/cr5p4pp1407o)

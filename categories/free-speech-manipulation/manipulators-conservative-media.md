@@ -299,3 +299,13 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
 
 [https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)
+
+2026-04-30 (for context because Trump likes to backfill important positions with propagandists from Fox media) Trump pulled Casey Means’ nomination for Surgeon General and replaced her with a Fox news contributor.
+
+[https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
+
+[https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b](https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b)
+
+SUB WALL [https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206](https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206)
+
+PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/news/articles/cr5p4pp1407o)

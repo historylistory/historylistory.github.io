@@ -89,7 +89,7 @@ permalink: /categories/foreign-affairs-isolation/nato/
 
 PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/news/articles/cz78x703lrvo)
 
-2026-04-28 King Charles addressed Congress, pushing back on several issues between the US and UK, and warning that executive power is subject to checks and balances.
+2026-04-28 King Charles addressed Congress, pushing back on several issues between the US and UK, and warning that executive power is subject to checks and balances. He also directly addressed Trump's attacks on NATO by reminding everyone that Trump told NATO if it wasn't for the U.S. they'd all be speaking German. King Charles said if it wasn't for the U.K., the U.S. would be speaking French. 
 
 [https://www.bbc.com/news/videos/c5y7d4088v4o](https://www.bbc.com/news/videos/c5y7d4088v4o)
 
@@ -100,3 +100,13 @@ PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/ne
 [https://www.c-span.org/event/america-250/king-charles-iii-addresses-joint-meeting-of-us-congress/442557](https://www.c-span.org/event/america-250/king-charles-iii-addresses-joint-meeting-of-us-congress/442557)
 
 [https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit](https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit)
+
+2026-04-28 During a televised conference Trump attempted to involve the Artemis II crew with criticizing NATO. Their response was total silence.
+
+[https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato](https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato)
+
+[https://www.yahoo.com/news/articles/trump-tries-goad-artemis-ii-190930080.html](https://www.yahoo.com/news/articles/trump-tries-goad-artemis-ii-190930080.html)
+
+[https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079](https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079)
+
+SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened](https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened)

@@ -122,3 +122,13 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/](https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/)
 
 [https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests](https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests)
+
+2026-04-29 The Trump administration proposed a rule to cut back the Endangered Species Act to allow more industry, drilling and mining. It was only after several voiced concerns from both parties that they delayed the vote. 
+
+[https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/](https://eelp.law.harvard.edu/tracker/endangered-species-act-regulations/)
+
+[https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it](https://earthjustice.org/article/how-trump-and-congress-are-trying-to-gut-the-endangered-species-act-and-what-you-can-do-about-it)
+
+[https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
+
+[https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)

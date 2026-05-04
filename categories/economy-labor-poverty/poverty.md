@@ -407,3 +407,15 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 [https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/](https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/)
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
+
+### 2026 May
+
+2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements. 
+
+[https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900](https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900)
+
+[https://dhhs.ne.gov/Pages/WorkRequirements.aspx](https://dhhs.ne.gov/Pages/WorkRequirements.aspx)
+
+[https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141](https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141)
+
+[https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)

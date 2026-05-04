@@ -276,3 +276,13 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
 
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+### 2026 May
+
+2026-05-03 The Trump tariff refund claims process proved to be a farse when small businesses started receiving rejected claims.
+
+[https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business](https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business)
+
+[https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid](https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid)
+
+[https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business](https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business)

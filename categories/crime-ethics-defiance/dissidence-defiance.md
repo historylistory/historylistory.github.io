@@ -385,7 +385,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)
 
-2026-04-28 King Charles addressed Congress, pushing back on several issues between the US and UK, and warning that executive power is subject to checks and balances.
+2026-04-28 King Charles addressed Congress, pushing back on several issues between the US and UK, and warning that executive power is subject to checks and balances. He also directly addressed Trump's attacks on NATO by reminding everyone that Trump told NATO if it wasn't for the U.S. they'd all be speaking German. King Charles said if it wasn't for the U.K., the U.S. would be speaking French. 
 
 [https://www.bbc.com/news/videos/c5y7d4088v4o](https://www.bbc.com/news/videos/c5y7d4088v4o)
 

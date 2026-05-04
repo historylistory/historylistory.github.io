@@ -63,3 +63,13 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 2026-04-28 Senator Merkley pressed DOE Linda McMahon on why she gutted the TRIO program designed to encourage professional nursing careers. McMahon claimed that somehow removing nursing jobs from a professional category would make tuition more affordable. What actually happens is students who can’t get a sufficient federal loan on a low interest rate will now have to seek out PRIVATIZED loan companies with a much higher interest rate. Remember, in November 2025 the DOE declassified nursing careers from being considered professional.
 
 TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=321s](https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=321s)
+
+### 2026 May
+
+2026-05-03 After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)

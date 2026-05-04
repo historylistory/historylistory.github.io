@@ -304,3 +304,22 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 [https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift](https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift)
 
 
+### 2026 May
+
+2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements. 
+
+[https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900](https://www.nbcnews.com/health/health-news/nebraska-rolls-medicaid-work-requirements-putting-thousands-risk-losin-rcna342900)
+
+[https://dhhs.ne.gov/Pages/WorkRequirements.aspx](https://dhhs.ne.gov/Pages/WorkRequirements.aspx)
+
+[https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141](https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141)
+
+[https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)
+
+2026-05-03 (for context because thousands of employees were left without jobs) After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)

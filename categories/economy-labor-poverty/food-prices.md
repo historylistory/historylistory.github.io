@@ -98,3 +98,13 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 [https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/](https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/)
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
+
+### 2026 May
+
+2026-05-03 The Trump tariff refund claims process proved to be a farse when small businesses started receiving rejected claims.
+
+[https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business](https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business)
+
+[https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid](https://www.kpbs.org/news/economy/2026/05/03/he-recorded-his-quest-for-tariff-refunds-it-shows-why-billions-may-never-get-repaid)
+
+[https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business](https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business)
