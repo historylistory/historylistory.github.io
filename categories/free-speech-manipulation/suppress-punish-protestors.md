@@ -329,3 +329,15 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 [https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002](https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002)
 
 [https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel](https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel)
+
+### 2026 May
+
+2026-05-02 Police arrested 8 protesters in New York for protesting the violent arrest of a Nigerian man.
+
+[https://www.aljazeera.com/video/newsfeed/2026/5/4/police-clash-with-protesters-after-ice-arrest-in-new-york](https://www.aljazeera.com/video/newsfeed/2026/5/4/police-clash-with-protesters-after-ice-arrest-in-new-york)
+
+[https://www.bbc.com/pidgin/articles/c8e8w0rnn2do](https://www.bbc.com/pidgin/articles/c8e8w0rnn2do)
+
+[https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges](https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges)
+
+UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/](https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/)

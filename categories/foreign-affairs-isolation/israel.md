@@ -110,3 +110,13 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl](https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl)
 
 PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/news/articles/c1l25qd43nro)
+
+### 2026 May
+
+2026-05-03 Israel displaced residents of ten (10) towns in Lebanon and killed 2659 civilians since March 2 2026. 
+
+[https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon](https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon)
+
+[https://www.youtube.com/watch?v=XQi7zttRc80&t=7s](https://www.youtube.com/watch?v=XQi7zttRc80&t=7s)
+
+[https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)

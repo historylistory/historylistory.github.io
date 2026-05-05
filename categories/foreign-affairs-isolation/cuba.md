@@ -92,3 +92,13 @@ permalink: /categories/foreign-affairs-isolation/cuba/
 [https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html](https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html)
 
 [https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S](https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S)
+
+### 2026 May
+
+2026-05-02 Trump expanded US sanctions on Cuba. 
+
+[https://www.reuters.com/world/americas/trump-expands-us-sanctions-cuban-government-2026-05-01/](https://www.reuters.com/world/americas/trump-expands-us-sanctions-cuban-government-2026-05-01/)
+
+[https://www.democracynow.org/2026/5/4/headlines/trump_expands_sanctions_on_cubas_government_as_us_fuel_blockade_roils_cuban_economy](https://www.democracynow.org/2026/5/4/headlines/trump_expands_sanctions_on_cubas_government_as_us_fuel_blockade_roils_cuban_economy)
+
+[https://www.whitehouse.gov/presidential-actions/2026/05/imposing-sanctions-on-those-responsible-for-repression-in-cuba-and-for-threats-to-united-states-national-security-and-foreign-policy/](https://www.whitehouse.gov/presidential-actions/2026/05/imposing-sanctions-on-those-responsible-for-repression-in-cuba-and-for-threats-to-united-states-national-security-and-foreign-policy/)

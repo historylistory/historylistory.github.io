@@ -335,3 +335,15 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 SUB WALL [https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206](https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206)
 
 PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/news/articles/cr5p4pp1407o)
+
+### 2026 May 
+
+2026-05-01 MAHA leaders opposed Trump’s Surgeon General nominee switch from Casey Means to Nicole Saphier.
+
+[https://www.scientificamerican.com/article/trump-withdraws-wellness-influencer-and-maha-activist-casey-means-as-surgeon-general-nominee/](https://www.scientificamerican.com/article/trump-withdraws-wellness-influencer-and-maha-activist-casey-means-as-surgeon-general-nominee/)
+
+[https://www.rollingstone.com/politics/politics-features/nicole-saphier-trump-surgeon-general-trademark-maha-1235556427/](https://www.rollingstone.com/politics/politics-features/nicole-saphier-trump-surgeon-general-trademark-maha-1235556427/)
+
+SUB WALL [https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/](https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/)
+
+SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761](https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761)

@@ -338,3 +338,27 @@ It would also make it a felony to give someone information about where to get a
 [https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
 
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
+
+### 2026 May
+
+2026-05-02 The Supreme Court banned, then temporarily lifted the ban on, mifepristone. 
+
+[https://www.pbs.org/newshour/health/what-to-know-about-a-mifepristone-maker-asking-the-supreme-court-to-restore-access-to-the-pill-by-mail](https://www.pbs.org/newshour/health/what-to-know-about-a-mifepristone-maker-asking-the-supreme-court-to-restore-access-to-the-pill-by-mail)
+
+[https://www.pbs.org/newshour/politics/supreme-court-temporarily-restores-access-to-abortion-pill-mifepristone-through-telehealth-mail-and-pharmacies](https://www.pbs.org/newshour/politics/supreme-court-temporarily-restores-access-to-abortion-pill-mifepristone-through-telehealth-mail-and-pharmacies)
+
+[https://www.cnbc.com/2026/05/04/supreme-court-abortion-pill-mifepristone.html](https://www.cnbc.com/2026/05/04/supreme-court-abortion-pill-mifepristone.html)
+
+[https://www.npr.org/2026/05/04/nx-s1-5810510/supreme-court-mifepristone-appeals-telehealth](https://www.npr.org/2026/05/04/nx-s1-5810510/supreme-court-mifepristone-appeals-telehealth)
+
+[https://www.cbsnews.com/video/supreme-court-temporarily-halts-mail-ban-on-abortion-pill-mifepristone/](https://www.cbsnews.com/video/supreme-court-temporarily-halts-mail-ban-on-abortion-pill-mifepristone/)
+
+2026-05-03 The anti-abortion movement turned on Trump, with its president Marjorie Dannenfelser saying, “Trump is the problem. The president is the problem”. Meanwhile abortion rates soared after overturning Roe v Wade.
+
+[https://www.ms.now/opinion/mifepristone-trump-abortion-pill-ruling-mail](https://www.ms.now/opinion/mifepristone-trump-abortion-pill-ruling-mail)
+
+[https://sentinelcolorado.com/nation-world/nation/abortion-pill-rulings-bring-the-issue-back-to-the-forefront-in-a-midterm-election-year/](https://sentinelcolorado.com/nation-world/nation/abortion-pill-rulings-bring-the-issue-back-to-the-forefront-in-a-midterm-election-year/)
+
+[https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/](https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/)
+
+PAY WALL [https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c](https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c)

@@ -335,3 +335,14 @@ MAY 4 [https://apnews.com/article/carlos-ivan-mendoza-hernandez-ice-shooting-cal
 
 [https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)
 
+### 2026 May
+
+2026-05-02 Police arrested 8 protesters in New York for protesting the violent arrest of a Nigerian man.
+
+[https://www.aljazeera.com/video/newsfeed/2026/5/4/police-clash-with-protesters-after-ice-arrest-in-new-york](https://www.aljazeera.com/video/newsfeed/2026/5/4/police-clash-with-protesters-after-ice-arrest-in-new-york)
+
+[https://www.bbc.com/pidgin/articles/c8e8w0rnn2do](https://www.bbc.com/pidgin/articles/c8e8w0rnn2do)
+
+[https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges](https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges)
+
+UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/](https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/)

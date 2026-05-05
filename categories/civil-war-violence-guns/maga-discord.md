@@ -379,3 +379,25 @@ what women who are paid to do things are called”.
 [https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919](https://www.nbcnews.com/tech/tech-news/elon-musk-sam-altman-oakland-trial-rcna341919)
 
 PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
+
+### 2026 May
+
+2026-05-01 MAHA leaders opposed Trump’s Surgeon General nominee switch from Casey Means to Nicole Saphier.
+
+[https://www.scientificamerican.com/article/trump-withdraws-wellness-influencer-and-maha-activist-casey-means-as-surgeon-general-nominee/](https://www.scientificamerican.com/article/trump-withdraws-wellness-influencer-and-maha-activist-casey-means-as-surgeon-general-nominee/)
+
+[https://www.rollingstone.com/politics/politics-features/nicole-saphier-trump-surgeon-general-trademark-maha-1235556427/](https://www.rollingstone.com/politics/politics-features/nicole-saphier-trump-surgeon-general-trademark-maha-1235556427/)
+
+SUB WALL [https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/](https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/)
+
+SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761](https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761)
+
+2026-05-03 The anti-abortion movement turned on Trump, with its president Marjorie Dannenfelser saying, “Trump is the problem. The president is the problem”. Meanwhile abortion rates soared after overturning Roe v Wade.
+
+[https://www.ms.now/opinion/mifepristone-trump-abortion-pill-ruling-mail](https://www.ms.now/opinion/mifepristone-trump-abortion-pill-ruling-mail)
+
+[https://sentinelcolorado.com/nation-world/nation/abortion-pill-rulings-bring-the-issue-back-to-the-forefront-in-a-midterm-election-year/](https://sentinelcolorado.com/nation-world/nation/abortion-pill-rulings-bring-the-issue-back-to-the-forefront-in-a-midterm-election-year/)
+
+[https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/](https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/)
+
+PAY WALL [https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c](https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c)

@@ -1549,3 +1549,10 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
+2026-05-03 Israel displaced residents of ten (10) towns in Lebanon and killed 2659 civilians since March 2 2026. 
+
+[https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon](https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon)
+
+[https://www.youtube.com/watch?v=XQi7zttRc80&t=7s](https://www.youtube.com/watch?v=XQi7zttRc80&t=7s)
+
+[https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
