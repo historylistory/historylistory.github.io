@@ -404,3 +404,8 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)
 
+### 2026 May
+
+2026-05-01 During a speech to supporters in Florida Trump accused the left of “treason” for saying we aren’t winning in Iran.
+
+[https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)

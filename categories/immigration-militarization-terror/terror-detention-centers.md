@@ -219,3 +219,17 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.theguardian.com/us-news/2026/apr/25/pfas-chemicals-ice-family-detention](https://www.theguardian.com/us-news/2026/apr/25/pfas-chemicals-ice-family-detention)
 
 [https://www.sej.org/headlines/ice-planning-facility-children-and-families-pfas-contaminated-site](https://www.sej.org/headlines/ice-planning-facility-children-and-families-pfas-contaminated-site)
+
+### 2026 May
+
+2026-05-01 Another person died in ICE custody, this time a suspected suicide at the Stewart Detention Center in Georgia.
+
+[https://www.theguardian.com/us-news/2026/may/01/georgia-ice-detention-death-cuban-immigrant](https://www.theguardian.com/us-news/2026/may/01/georgia-ice-detention-death-cuban-immigrant)
+
+[https://phr.org/news/the-18th-death-and-fifth-death-by-suicide-in-ice-custody-this-year-spotlights-harms-of-solitary-confinement-phr/](https://phr.org/news/the-18th-death-and-fifth-death-by-suicide-in-ice-custody-this-year-spotlights-harms-of-solitary-confinement-phr/)
+
+[https://www.cbsnews.com/atlanta/news/man-dies-in-ice-custody-at-georgia-detention-center-cause-under-investigation/](https://www.cbsnews.com/atlanta/news/man-dies-in-ice-custody-at-georgia-detention-center-cause-under-investigation/)
+
+[https://www.wabe.org/man-dies-in-georgia-immigration-detention-center-second-georgia-ice-death-this-year/](https://www.wabe.org/man-dies-in-georgia-immigration-detention-center-second-georgia-ice-death-this-year/)
+
+[https://www.reuters.com/world/us/cuban-immigrant-died-ice-custody-georgia-notice-us-lawmakers-says-2026-05-01/](https://www.reuters.com/world/us/cuban-immigrant-died-ice-custody-georgia-notice-us-lawmakers-says-2026-05-01/)

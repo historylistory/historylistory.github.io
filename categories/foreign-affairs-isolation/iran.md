@@ -1434,6 +1434,11 @@ SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/18/trump-says-iran-ca
 
 SUB WALL [https://www.thedailybeast.com/vance-humiliated-as-trumps-peace-talks-descend-into-farce/](https://www.thedailybeast.com/vance-humiliated-as-trumps-peace-talks-descend-into-farce/)
 
+2026-04-19 Iran reported that the US was making “maximalist” demands during peace talks. 
+
+[https://apnews.com/article/iran-deputy-foreign-minister-interview-40d8e43e3c7b5a23cda6783b064b9dbf](https://apnews.com/article/iran-deputy-foreign-minister-interview-40d8e43e3c7b5a23cda6783b064b9dbf)
+
+[https://www.pbs.org/newshour/world/iranian-official-says-excessive-demands-made-by-u-s-are-barrier-to-in-person-talks](https://www.pbs.org/newshour/world/iranian-official-says-excessive-demands-made-by-u-s-are-barrier-to-in-person-talks)
 
 
 

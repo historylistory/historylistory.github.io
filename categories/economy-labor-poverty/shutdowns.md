@@ -203,3 +203,13 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 [https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS](https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS)
 
 [https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)
+
+2026-04-30 The partial government shutdown ended after 75 days. 
+
+[https://www.aljazeera.com/news/2026/4/30/us-congress-passes-bill-to-resume-funding-for-dhs-and-end-partial-shutdown](https://www.aljazeera.com/news/2026/4/30/us-congress-passes-bill-to-resume-funding-for-dhs-and-end-partial-shutdown)
+
+[https://www.cnbc.com/2026/04/30/congress-dhs-tsa-funding.html](https://www.cnbc.com/2026/04/30/congress-dhs-tsa-funding.html)
+
+UNVERIFIED [https://www.freshfields.com/en/our-thinking/blogs/a-fresh-take/cfius-review-resumes-following-dhs-funding-102mrq0](https://www.freshfields.com/en/our-thinking/blogs/a-fresh-take/cfius-review-resumes-following-dhs-funding-102mrq0)
+
+PAY WALL [https://www.bbc.com/news/articles/ce3pw5x3z54o](https://www.bbc.com/news/articles/ce3pw5x3z54o)

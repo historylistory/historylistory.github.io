@@ -290,6 +290,19 @@ permalink: /categories/immigration-militarization-terror/terror-excessive-force/
 
 [https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california](https://www.ktvu.com/news/dashcam-video-ice-agents-shoot-alleged-gang-member-i-5-california)
 
+2026-04-09 ICE shot Carlos Ivan Mendoza Hernandez during a traffic stop, claiming the man tried to hit them with his vehicle. When he was indicted in May of 2026 he stated he attempted to flee only AFTER he had been shot at and “was just scared that he was going to die”.
+
+[https://www.cnn.com/2026/05/03/us/stanislaus-ca-ice-shooting](https://www.cnn.com/2026/05/03/us/stanislaus-ca-ice-shooting)
+
+[https://edition.cnn.com/2026/05/03/us/stanislaus-ca-ice-shooting](https://edition.cnn.com/2026/05/03/us/stanislaus-ca-ice-shooting)
+
+APR 9 [https://apnews.com/article/ice-shooting-gang-california-arrest-fe4e046ab59b6a6edec20014f37bc76e](https://apnews.com/article/ice-shooting-gang-california-arrest-fe4e046ab59b6a6edec20014f37bc76e)
+
+APR 13 [https://apnews.com/article/california-ice-shooting-carlos-ivan-mendoza-hernandez-71b60ba1007bd705454a4cef5293da6e](https://apnews.com/article/california-ice-shooting-carlos-ivan-mendoza-hernandez-71b60ba1007bd705454a4cef5293da6e)
+
+MAY 4 [https://apnews.com/article/carlos-ivan-mendoza-hernandez-ice-shooting-california-4c1e3dc426ac06a1498e295999f0827b](https://apnews.com/article/carlos-ivan-mendoza-hernandez-ice-shooting-california-4c1e3dc426ac06a1498e295999f0827b)
+
+
 2026-04-16 ICE agent Gregory Morgan was charged with two counts of second-degree assault for pointing his weapon at people in Minnesota. The officer was in a rented, unmarked SUV when he pulled up to other drivers and pointed his handgun at them. 
 
 [https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884](https://www.politico.com/news/2026/04/16/county-prosecutor-charges-ice-agent-with-assault-for-pointing-gun-at-people-on-minneapolis-highway-00877884)

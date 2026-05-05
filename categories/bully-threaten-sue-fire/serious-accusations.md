@@ -183,3 +183,9 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/](https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/)
 
 [https://www.cbsnews.com/news/grand-jury-declines-charges-against-6-democrats/](https://www.cbsnews.com/news/grand-jury-declines-charges-against-6-democrats/)
+
+### 2026 May
+
+2026-05-01 During a speech to supporters in Florida Trump accused the left of “treason” for saying we aren’t winning in Iran.
+
+[https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)

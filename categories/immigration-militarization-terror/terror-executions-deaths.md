@@ -208,3 +208,18 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 [https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp](https://www.wionews.com/world/jonathon-ross-ice-agent-resumes-duty-renee-good-minneapolis-investigation-stalled-1777535084892/amp)
 
 [https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job](https://newrepublic.com/post/209615/ice-agent-killed-renee-good-minneapolis-new-job)
+
+### 2026 May
+
+2026-05-01 Another person died in ICE custody, this time a suspected suicide at the Stewart Detention Center in Georgia.
+
+[https://www.theguardian.com/us-news/2026/may/01/georgia-ice-detention-death-cuban-immigrant](https://www.theguardian.com/us-news/2026/may/01/georgia-ice-detention-death-cuban-immigrant)
+
+[https://phr.org/news/the-18th-death-and-fifth-death-by-suicide-in-ice-custody-this-year-spotlights-harms-of-solitary-confinement-phr/](https://phr.org/news/the-18th-death-and-fifth-death-by-suicide-in-ice-custody-this-year-spotlights-harms-of-solitary-confinement-phr/)
+
+[https://www.cbsnews.com/atlanta/news/man-dies-in-ice-custody-at-georgia-detention-center-cause-under-investigation/](https://www.cbsnews.com/atlanta/news/man-dies-in-ice-custody-at-georgia-detention-center-cause-under-investigation/)
+
+[https://www.wabe.org/man-dies-in-georgia-immigration-detention-center-second-georgia-ice-death-this-year/](https://www.wabe.org/man-dies-in-georgia-immigration-detention-center-second-georgia-ice-death-this-year/)
+
+[https://www.reuters.com/world/us/cuban-immigrant-died-ice-custody-georgia-notice-us-lawmakers-says-2026-05-01/](https://www.reuters.com/world/us/cuban-immigrant-died-ice-custody-georgia-notice-us-lawmakers-says-2026-05-01/)
+

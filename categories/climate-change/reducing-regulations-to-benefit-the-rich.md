@@ -246,6 +246,19 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 [https://climate.law.columbia.edu/climate-deregulation-tracker](https://climate.law.columbia.edu/climate-deregulation-tracker)
 
+### 2026 March
+
+2026-03-31 (context) US Forest Service Tom Schultz announced more cuts to the Forest Service, claiming it is a “common sense” initiative.  The cuts would shutter 75% of research, reduce wildlife and climate change monitoring, reduce oversight of mining and logging, shut down 9 regional offices, and move the headquarters out of DC.
+
+[https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires](https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires)
+
+[https://www.democracynow.org/2026/4/20/forest_service](https://www.democracynow.org/2026/4/20/forest_service)
+
+[https://www.fs.usda.gov/about-agency/reorganization](https://www.fs.usda.gov/about-agency/reorganization)
+
+[https://www.usda.gov/about-usda/news/press-releases/2026/03/31/usda-prioritizing-common-sense-forest-management-moves-forest-service-headquarters-salt-lake-city](https://www.usda.gov/about-usda/news/press-releases/2026/03/31/usda-prioritizing-common-sense-forest-management-moves-forest-service-headquarters-salt-lake-city)
+
+
 ### 2026 April
 
 2026-04-02 Argentina’s lawmakers, led by Javier Milei, pushed reforms to remove protections on freshwater reserves and glaciers to allow for drilling. 

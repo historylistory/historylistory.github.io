@@ -183,3 +183,22 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://apnews.com/article/supreme-court-voting-rights-congressional-redistricting-louisiana-aa5d7dbde7c13654f341d152c2ad5229](https://apnews.com/article/supreme-court-voting-rights-congressional-redistricting-louisiana-aa5d7dbde7c13654f341d152c2ad5229)
 
 [https://www.scotusblog.com/2026/04/in-major-voting-rights-act-case-supreme-court-strikes-down-redistricting-map-challenged-as-racia/](https://www.scotusblog.com/2026/04/in-major-voting-rights-act-case-supreme-court-strikes-down-redistricting-map-challenged-as-racia/)
+
+2026-04-30 Trump urged Tennessee to redistrict to gain more Republican seats.
+
+[https://thehill.com/homenews/campaign/5857661-trump-redistricting-tennessee-congress/](https://thehill.com/homenews/campaign/5857661-trump-redistricting-tennessee-congress/)
+
+[https://nashvillebanner.com/2026/05/01/marsha-blackburn-trump-redistricting-nashville-east-bank/](https://nashvillebanner.com/2026/05/01/marsha-blackburn-trump-redistricting-nashville-east-bank/)
+
+[https://www.tennessean.com/story/news/politics/2026/05/04/tennessee-joins-trumps-redistricting-race-democrat-republican-house-control/89927445007/](https://www.tennessean.com/story/news/politics/2026/05/04/tennessee-joins-trumps-redistricting-race-democrat-republican-house-control/89927445007/)
+
+2026-04-30 Louisiana suspended congressional primaries so they could redraw their maps.
+
+[https://apnews.com/article/congress-louisiana-primaries-supreme-court-03cdb6951d7fefb448bfd2f37f98c0ea](https://apnews.com/article/congress-louisiana-primaries-supreme-court-03cdb6951d7fefb448bfd2f37f98c0ea)
+
+[https://www.democracydocket.com/news-alerts/louisiana-landry-election-suspension-supreme-court-callais/](https://www.democracydocket.com/news-alerts/louisiana-landry-election-suspension-supreme-court-callais/)
+
+[https://www.sos.la.gov/ElectionsAndVoting/GetElectionInformation/ReviewTypesOfElections/ClosedPartyPrimaryElections/Pages/default.aspx](https://www.sos.la.gov/ElectionsAndVoting/GetElectionInformation/ReviewTypesOfElections/ClosedPartyPrimaryElections/Pages/default.aspx
+
+)
+
