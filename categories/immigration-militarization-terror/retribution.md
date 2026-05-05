@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: The Real Reason is Retribution"
+title: "Retribution"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-the-real-reason-is-retribution
-permalink: /categories/immigration-militarization-terror/terror-the-real-reason-is-retribution/
+subcategory_slug: retribution
+permalink: /categories/immigration-militarization-terror/retribution/
 ---
 
 ### 2025 June

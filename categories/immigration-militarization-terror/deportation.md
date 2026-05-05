@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Deport (to foreign countries)"
+title: "Deportation"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-deport-to-foreign-countries
-permalink: /categories/immigration-militarization-terror/terror-deport-to-foreign-countries/
+subcategory_slug: deportation
+permalink: /categories/immigration-militarization-terror/deportation/
 ---
 
 ### Abrego Garcia

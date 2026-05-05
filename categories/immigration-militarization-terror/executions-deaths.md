@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Executions & Deaths"
+title: "Executions & Deaths"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-executions-deaths
-permalink: /categories/immigration-militarization-terror/terror-executions-deaths/
+subcategory_slug: executions-deaths
+permalink: /categories/immigration-militarization-terror/executions-deaths/
 ---
 
 ### 2025 March

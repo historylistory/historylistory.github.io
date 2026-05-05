@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Racial Profiling & 'Reasonable Suspicion'"
+title: "Reasonable Suspicion"
 category_slug: immigration-militarization-terror
-subcategory_slug: racial-profiling-reasonable-suspicion
-permalink: /categories/immigration-militarization-terror/racial-profiling-reasonable-suspicion/
+subcategory_slug: reasonable-suspicion
+permalink: /categories/immigration-militarization-terror/reasonable-suspicion/
 ---
 
 ### 1920 - Eugenics

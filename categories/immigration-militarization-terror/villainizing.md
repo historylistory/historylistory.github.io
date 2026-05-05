@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Soulless Rhetoric & Villainizing"
+title: "Villainizing"
 category_slug: immigration-militarization-terror
-subcategory_slug: soulless-rhetoric-villainizing
-permalink: /categories/immigration-militarization-terror/soulless-rhetoric-villainizing/
+subcategory_slug: villainizing
+permalink: /categories/immigration-militarization-terror/villainizing/
 ---
 
 ### 2018

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Detention Centers"
+title: "Detention Centers"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-detention-centers
-permalink: /categories/immigration-militarization-terror/terror-detention-centers/
+subcategory_slug: detention-centers
+permalink: /categories/immigration-militarization-terror/detention-centers/
 ---
 
 ### 1942 - Internment Camps (history)

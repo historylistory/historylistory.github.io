@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: ICE, Military & Posse Comitatus"
+title: "Gestapo & Posse Comitatus"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-ice-military-posse-comitatus
-permalink: /categories/immigration-militarization-terror/terror-ice-military-posse-comitatus/
+subcategory_slug: gestapo-posse-comitatus
+permalink: /categories/immigration-militarization-terror/gestapo-posse-comitatus/
 ---
 
 ### Posse Comitatus
@@ -257,6 +257,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.thedailybeast.com/ice-barbie-scheme-to-recruit-fox-viewers-ufc-fans-and-gun-nuts-gets-leaked/](https://www.thedailybeast.com/ice-barbie-scheme-to-recruit-fox-viewers-ufc-fans-and-gun-nuts-gets-leaked/)
 
+
 ### 2026 January
 
 2026-01-13 Trump ordered the DOJ to send in 3000 more ICE troops into Minnesota, and told Minnesotans, “Fear not, great people of Minnesota, the day of reckoning and retribution is coming!”.
@@ -269,11 +270,42 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://truthsocial.com/@realDonaldTrump/posts/115888070937502023](https://truthsocial.com/@realDonaldTrump/posts/115888070937502023)
 
+2026-01-14 Trump’s ICE goons began going door to door asking residents to point out their immigrant neighbors.
+
+[https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says](https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says)
+
+[https://immigrantjustice.org/for-immigrants/know-your-rights/ice-encounter/](https://immigrantjustice.org/for-immigrants/know-your-rights/ice-encounter/)
+
+[https://mahometdaily.com/ice-agents-going-door-to-door-trump-administration-intensifies-immigration-enforcement-as-nationwide-protests-erupt/](https://mahometdaily.com/ice-agents-going-door-to-door-trump-administration-intensifies-immigration-enforcement-as-nationwide-protests-erupt/)
+
+2026-01-17 Border Patrol Chief Bovino was caught on video cosplaying in a Nazi-like overcoat.
+
+[https://www.msn.com/en-us/news/world/border-patrol-chief-bovino-accused-of-nazi-cosplay-with-bizarre-uniform-in-minneapolis/ar-AA1UpVJo](https://www.msn.com/en-us/news/world/border-patrol-chief-bovino-accused-of-nazi-cosplay-with-bizarre-uniform-in-minneapolis/ar-AA1UpVJo)
+
+2026-01-18 Colorado ICE agents started leaving ace-of-spades “death cards” in peoples’ cars.
+
+[https://www.cpr.org/2026/01/23/ice-ace-of-spades-death-cards-detained-immigrants/](https://www.cpr.org/2026/01/23/ice-ace-of-spades-death-cards-detained-immigrants/)
+
+{% include youtubePlayer.html id="6gYPGcEI8As" %}
+
+{% include youtubePlayer.html id="tAq8NkMIjd8" %}
+
 2026-01-21 ICE launched “Operation Catch of the Day” in Maine and began entering homes without judicial warrants.
 
 [https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens](https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens)
 
 [https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens](https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens)
+
+2026-01-27 Following two public executions of American citizens Greg Bovino was demoted as Border Patrol command.
+
+[https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html](https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html)
+
+[https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march](https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march)
+
+[https://www.bbc.com/news/articles/c75e24grnv3o](https://www.bbc.com/news/articles/c75e24grnv3o)
+
+[https://www.youtube.com/watch?v=LzXB8-019R4](https://www.youtube.com/watch?v=LzXB8-019R4)
+{% include youtubePlayer.html id="LzXB8-019R4" %}
 
 ### 2026 February
 

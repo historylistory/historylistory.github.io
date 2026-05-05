@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Disappear"
+title: "Disappear"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-disappear
-permalink: /categories/immigration-militarization-terror/terror-disappear/
+subcategory_slug: disappear
+permalink: /categories/immigration-militarization-terror/disappear/
 ---
 
 ### 2025 September

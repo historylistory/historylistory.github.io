@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Excessive Force"
+title: "Excessive Force"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-excessive-force
-permalink: /categories/immigration-militarization-terror/terror-excessive-force/
+subcategory_slug: excessive-force
+permalink: /categories/immigration-militarization-terror/excessive-force/
 ---
 
 ### 1990 - Tiananmen Square Comments

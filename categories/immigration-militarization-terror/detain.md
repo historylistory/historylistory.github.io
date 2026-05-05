@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "TERROR: Detain (nobody is safe)"
+title: "Detain"
 category_slug: immigration-militarization-terror
-subcategory_slug: terror-detain-nobody-is-safe
-permalink: /categories/immigration-militarization-terror/terror-detain-nobody-is-safe/
+subcategory_slug: detain
+permalink: /categories/immigration-militarization-terror/detain/
 ---
 
 ### 2025 March
