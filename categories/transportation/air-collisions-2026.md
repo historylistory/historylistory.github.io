@@ -31,3 +31,10 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://en.wikipedia.org/wiki/Air_Canada_Express_Flight_8646](https://en.wikipedia.org/wiki/Air_Canada_Express_Flight_8646)
 
 
+### 2026 May
+
+2026-05-04 A United Airlines jet struck a bakery truck at the Newark Liberty International Airport in New Jersey.
+
+[https://apnews.com/article/united-newark-plane-light-pole-bakery-truck-44b1aaa9e0209e3a5a9c62add4c37b43](https://apnews.com/article/united-newark-plane-light-pole-bakery-truck-44b1aaa9e0209e3a5a9c62add4c37b43)
+
+[https://www.cbsnews.com/baltimore/news/baltimore-truck-driver-bakery-united-jet-new-jersey-turnpike-father/](https://www.cbsnews.com/baltimore/news/baltimore-truck-driver-bakery-united-jet-new-jersey-turnpike-father/)

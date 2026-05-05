@@ -602,3 +602,16 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 [https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
 
 [https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)
+
+### 2026 May
+
+
+2026-05-04 During the construction of Trump’s border wall in the Sonoran desert, crews plowed over a Native American archaeological site Tohono O’odham.
+
+[https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall](https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall)
+
+[https://tucson.com/news/local/border/article_50f4781a-021a-4147-a38b-8be88efde41c.html](https://tucson.com/news/local/border/article_50f4781a-021a-4147-a38b-8be88efde41c.html)
+
+[https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452](https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452)
+
+SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/](https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/)

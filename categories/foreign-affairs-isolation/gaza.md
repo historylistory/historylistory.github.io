@@ -336,3 +336,13 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire](https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire)
 
 [https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/)
+
+### 2026 May
+
+2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
+
+[https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)
+
+[https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody](https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody)
+
+[https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings](https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings)

@@ -118,3 +118,15 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 [https://www.aclu.org/press-releases/federal-appeals-court-rules-trump-proclamation-eliminating-asylum-is-unlawful](https://www.aclu.org/press-releases/federal-appeals-court-rules-trump-proclamation-eliminating-asylum-is-unlawful)
 
 [https://www.democracynow.org/2026/4/27/headlines/appeals_court_rules_trump_unlawfully_banned_asylum_cases_at_southern_border](https://www.democracynow.org/2026/4/27/headlines/appeals_court_rules_trump_unlawfully_banned_asylum_cases_at_southern_border)
+
+### 2026 May
+
+2026-05-04 During the construction of Trump’s border wall in the Sonoran desert, crews plowed over a Native American archaeological site Tohono O’odham.
+
+[https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall](https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall)
+
+[https://tucson.com/news/local/border/article_50f4781a-021a-4147-a38b-8be88efde41c.html](https://tucson.com/news/local/border/article_50f4781a-021a-4147-a38b-8be88efde41c.html)
+
+[https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452](https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452)
+
+SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/](https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/)

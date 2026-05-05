@@ -208,4 +208,9 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 [https://www.youtube.com/watch?v=jQz5EsQE8Pc](https://www.youtube.com/watch?v=jQz5EsQE8Pc)
 
+2026-05-04 Mississippi and Florida called a special session to redraw state districting maps to gain favor with Republicans and disenfranchise Black voters.
+
+[https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/](https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/)
+
+[https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/](https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/)
 
