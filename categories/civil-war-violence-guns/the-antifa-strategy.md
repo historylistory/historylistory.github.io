@@ -14,6 +14,16 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 [https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
 
+### 2018 
+
+
+2018-02-05 During a speech Trump accused Democrats of treason.
+
+[https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/](https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/)
+
+LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
+
+
 ### 2025 August
 
 2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group. 

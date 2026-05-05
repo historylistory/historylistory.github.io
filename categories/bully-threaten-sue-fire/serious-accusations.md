@@ -6,6 +6,16 @@ subcategory_slug: serious-accusations
 permalink: /categories/bully-threaten-sue-fire/serious-accusations/
 ---
 
+### 2018
+
+
+2018-02-05 During a speech Trump accused Democrats of treason.
+
+[https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/](https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/)
+
+LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
+
+
 ### 2025 July
 
 2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the time of the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign. 

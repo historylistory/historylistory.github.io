@@ -18,6 +18,16 @@ permalink: /categories/civil-war-violence-guns/stoking-division/
 
 [https://www.theguardian.com/world/2017/jan/20/donald-trump-transition-of-power-president-first-speech](https://www.theguardian.com/world/2017/jan/20/donald-trump-transition-of-power-president-first-speech)
 
+### 2018 
+
+
+2018-02-05 During a speech Trump accused Democrats of treason.
+
+[https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/](https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/)
+
+LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
+
+
 ### 2019
 
 2019-03-01 In 2021 news outlets reported on surfaced video from March 2019 where Marjorie Taylor Greene confronted and harassed gun control activist and Parkland shooting survivor David Hogg and made baseless claims that the activist was being funded by George Soros.

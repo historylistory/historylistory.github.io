@@ -52,6 +52,15 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 [https://www.justice.gov/archives/opa/pr/ohio-man-sentenced-life-prison-federal-hate-crimes-related-august-2017-car-attack-rally](https://www.justice.gov/archives/opa/pr/ohio-man-sentenced-life-prison-federal-hate-crimes-related-august-2017-car-attack-rally)
 
+### 2018 
+
+2018-02-05 During a speech Trump accused Democrats of treason.
+
+[https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/](https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/)
+
+LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
+
+
 ### 2020
 
 2020-06-01 (for context) When peaceful protestors rallied near the White House at Lafayette Square to protest in the name of racial justice, the Trump administration allowed law enforcement to tear-gas protestors. The DOJ reached a settlement in 2022 for excessive force. Some news outlets reported that **Trump made inquiries as to whether he was allowed to order law enforcement to “just shoot” the protestors**.

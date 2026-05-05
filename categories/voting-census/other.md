@@ -6,6 +6,19 @@ subcategory_slug: other
 permalink: /categories/voting-census/other/
 ---
 
+### 2016
+
+2016-01-23 During a rally in Iowa Trump said he could shoot someone and not lose votes, stating, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
+
+[https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters](https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters)
+
+[https://www.npr.org/sections/thetwo-way/2016/01/23/464129029/donald-trump-i-could-shoot-somebody-and-i-wouldnt-lose-any-voters](https://www.npr.org/sections/thetwo-way/2016/01/23/464129029/donald-trump-i-could-shoot-somebody-and-i-wouldnt-lose-any-voters)
+
+[https://www.youtube.com/watch?v=fBRk90BKf_E](https://www.youtube.com/watch?v=fBRk90BKf_E)
+
+[https://www.cnn.com/videos/politics/2016/01/23/donald-trump-iowa-rally-shooting-sot.cnn](https://www.cnn.com/videos/politics/2016/01/23/donald-trump-iowa-rally-shooting-sot.cnn)
+
+
 ### 2020
 
 2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud. She even suggested during an interview with Fox that she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released including receiving funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
