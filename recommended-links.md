@@ -139,6 +139,10 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Climate Change: Petition to stop Lee Zeldin from deregulating greenhouse gasses](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
 
+[Climate Change: Palmer Index](https://www.ncei.noaa.gov/access/monitoring/historical-palmers/)
+
+[Climate Change: National Drought Mitigation Center](https://drought.unl.edu/Publications/AnnualReports.aspx)
+
 [NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers)
 
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)

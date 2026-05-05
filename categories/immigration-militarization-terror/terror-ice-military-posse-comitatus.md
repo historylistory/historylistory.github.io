@@ -17,6 +17,14 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="pU4RaPC3Rgg" %}
 
+2017-02-13 During his first term, Trump ramped up ICE enforcement as the first “surge”. 
+
+[https://www.americanimmigrationcouncil.org/blog/immigration-enforcement-trump-first-surge/](https://www.americanimmigrationcouncil.org/blog/immigration-enforcement-trump-first-surge/)
+
+[https://time.com/7292939/trump-deportations-ice-arrests/](https://time.com/7292939/trump-deportations-ice-arrests/)
+
+
+
 ### 2025 January
 
 2025-01-20 Trump rescinded Executive Order 14074 Advancing Effective, Accountable Policing and Criminal Justice Practices To Enhance Public Trust and Public Safety.

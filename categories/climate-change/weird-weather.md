@@ -112,3 +112,17 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.reuters.com/business/environment/strong-74-magnitude-quake-hits-off-japan-tsunami-warning-issued-2026-04-20/](https://www.reuters.com/business/environment/strong-74-magnitude-quake-hits-off-japan-tsunami-warning-issued-2026-04-20/)
 
 [https://apnews.com/article/japan-earthquake-tsunami-0746aebae49fc6cc37e20836ca37d570](https://apnews.com/article/japan-earthquake-tsunami-0746aebae49fc6cc37e20836ca37d570)
+
+2026-04-28 The National Drought Mitigation Center reported the highest level of drought since they started recording 25+ years ago. The Palmer drought severity index (by NOAA) showed that from 1895 to current, 2026 holds the worst March on record, and the third worst drought since the 1934 Dust Bowl.
+
+[https://drought.unl.edu/](https://drought.unl.edu/)
+
+[https://drought.unl.edu/Publications/AnnualReports.aspx](https://drought.unl.edu/Publications/AnnualReports.aspx)
+
+[https://www.drought.gov/about/partners/national-drought-mitigation-center-ndmc](https://www.drought.gov/about/partners/national-drought-mitigation-center-ndmc)
+
+[https://droughtmonitor.unl.edu/](https://droughtmonitor.unl.edu/)
+
+[https://fortune.com/2026/04/18/record-us-drought-rainfall-snowpack-wildfire-risk-southeast-west/](https://fortune.com/2026/04/18/record-us-drought-rainfall-snowpack-wildfire-risk-southeast-west/)
+
+[https://www.ncei.noaa.gov/access/monitoring/historical-palmers/](https://www.ncei.noaa.gov/access/monitoring/historical-palmers/)
