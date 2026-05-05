@@ -107,6 +107,8 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [ACLU](https://www.aclu.org/)
 
+[Fair Fight Action](https://www.fairfight.com/)
+
 [HavenWatch](https://havenwatch.org/)
 
 [Goods Unite Us](https://www.goodsuniteus.com/)
