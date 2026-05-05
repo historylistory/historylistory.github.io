@@ -56,3 +56,11 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 [https://truthsocial.com/@realDonaldTrump/114744200351138112](https://truthsocial.com/@realDonaldTrump/114744200351138112)
 
 [https://truthsocial.com/@realDonaldTrump/posts/114747234182168375](https://truthsocial.com/@realDonaldTrump/posts/114747234182168375)
+
+### 2026
+
+2026-05-04 The organization Reporters Without Borders released its 2026 Press Freedom index showing the lowest level of free speech in 25 years, with U.S. ranking at number 64.
+
+[https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years](https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years)
+
+[https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)

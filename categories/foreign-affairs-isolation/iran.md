@@ -1556,3 +1556,21 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=XQi7zttRc80&t=7s](https://www.youtube.com/watch?v=XQi7zttRc80&t=7s)
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
+
+2026-05-05 The US launched missiles at Iranian ships in the Strait of Hormuz during the ceasefire. Trump told Fox News that Iran will be “blown off the face of the earth” if it targets US ships, and then in a social media post invited South Korea to come “join the mission”. Trump dubbed the efforts “Project Freedom”. 
+
+[https://www.cbsnews.com/live-updates/iran-war-trump-strait-of-hormuz-ship-attack-threat-peace-proposal/](https://www.cbsnews.com/live-updates/iran-war-trump-strait-of-hormuz-ship-attack-threat-peace-proposal/)
+
+[https://www.cnbc.com/2026/05/04/iran-war-uae-trump-ceasefire-missiles.html](https://www.cnbc.com/2026/05/04/iran-war-uae-trump-ceasefire-missiles.html)
+
+[https://www.foxnews.com/live-news/trump-iran-war-hormuz-strait-may-4](https://www.foxnews.com/live-news/trump-iran-war-hormuz-strait-may-4)
+
+[https://www.cnbc.com/2026/05/04/iran-war-uae-trump-ceasefire-missiles.html](https://www.cnbc.com/2026/05/04/iran-war-uae-trump-ceasefire-missiles.html)
+
+[https://www.npr.org/2026/05/05/nx-s1-5811770/iran-war-updates](https://www.npr.org/2026/05/05/nx-s1-5811770/iran-war-updates)
+
+[https://www.thetimes.com/world/middle-east/article/iran-war-latest-us-warship-hit-by-missiles-iran-claims-bmqbsgcdc](https://www.thetimes.com/world/middle-east/article/iran-war-latest-us-warship-hit-by-missiles-iran-claims-bmqbsgcdc)
+
+TRUMP POST [https://truthsocial.com/@realDonaldTrump/posts/116517438678419639](https://truthsocial.com/@realDonaldTrump/posts/116517438678419639)
+
+PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html](https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html)
