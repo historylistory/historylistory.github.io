@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/japan/
 
 ### 2026 April
 
-2026-04-20 Japan opened its doors to the global arms market and passed a record $58B defense budget for 2026.
+2026-04-20 Japan opened its doors to the global arms market and passed a record $58B defense budget for 2026. Part of the change is to eliminate the ban on lethal weapons and allow Japan to export missiles and warships. Prime Minister Sanae Takaichi stated, “No single country can now protect its own peace and security alone, and partner countries that support each other in terms of defense equipment are necessary”.
 
 [https://www.cnn.com/2026/04/20/asia/japan-defense-export-arms-sales-intl-hnk](https://www.cnn.com/2026/04/20/asia/japan-defense-export-arms-sales-intl-hnk)
 
