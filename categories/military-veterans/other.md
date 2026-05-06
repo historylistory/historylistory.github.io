@@ -140,3 +140,13 @@ VIDEO [https://www.cbsnews.com/texas/video/automatic-draft-registration-to-begin
 VIDEO [https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3](https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3)
 
 SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/](https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/)
+
+### 2026 May
+
+2026-05-05 The Trump administration renamed the name of Operations in Iran from Operation Epic Fury to Project Freedom.
+
+[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
+
+[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
+
+[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)

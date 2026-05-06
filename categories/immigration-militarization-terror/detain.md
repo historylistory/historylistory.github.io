@@ -178,3 +178,19 @@ permalink: /categories/immigration-militarization-terror/detain/
 [https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody](https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody)
 
 SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html](https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html)
+
+### 2026 May
+
+2026-05-05 DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers. 
+
+[https://whistleblower.org/in-the-news/cnn-cuts-to-dhs-watchdogs-spark-more-questions-as-deportation-efforts-increase/](https://whistleblower.org/in-the-news/cnn-cuts-to-dhs-watchdogs-spark-more-questions-as-deportation-efforts-increase/)
+
+[https://thehill.com/homenews/5864182-oido-dhs-watchdog-closure/](https://thehill.com/homenews/5864182-oido-dhs-watchdog-closure/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/ice-detention-center-abuse-watchdog-office-closes-b2970785.html](https://www.the-independent.com/news/world/americas/us-politics/ice-detention-center-abuse-watchdog-office-closes-b2970785.html)
+
+[https://www.usnews.com/news/politics/articles/2026-05-05/us-to-close-watchdog-office-for-federal-immigration-detention-abuses](https://www.usnews.com/news/politics/articles/2026-05-05/us-to-close-watchdog-office-for-federal-immigration-detention-abuses)
+
+[https://www.commondreams.org/news/dhs-ombudsman-closed](https://www.commondreams.org/news/dhs-ombudsman-closed)
+
+[https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)

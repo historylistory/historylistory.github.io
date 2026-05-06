@@ -132,3 +132,9 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
 
 [https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)
+
+### 2026 May
+
+2026-05-05 Ukrainian strikes caused “black rain” in Russia.
+
+[https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain](https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain)

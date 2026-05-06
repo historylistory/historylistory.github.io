@@ -57,3 +57,24 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 ACCOUNT WALL [https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html](https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.html)
 
+### 2026 May
+
+2026-05-05 Protestors joined at the Met Gala to protest Jeff Bezos sponsoring the red-carpet event. They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”. 
+
+[https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
+
+[https://www.democracynow.org/2026/5/5/headlines/labor_unions_stage_ball_without_billionaires_as_bezos_sponsored_met_gala_faces_protests](https://www.democracynow.org/2026/5/5/headlines/labor_unions_stage_ball_without_billionaires_as_bezos_sponsored_met_gala_faces_protests)
+
+[https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/](https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/)
+
+TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
+
+2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
+
+[https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)
+
+[https://www.pbs.org/newshour/politics/senate-republicans-look-to-fund-1-billion-in-security-upgrades-for-trumps-ballroom](https://www.pbs.org/newshour/politics/senate-republicans-look-to-fund-1-billion-in-security-upgrades-for-trumps-ballroom)
+
+[https://www.today.com/video/gop-bill-would-fund-1b-in-taxpayer-money-for-trump-ballroom-262830149683](https://www.today.com/video/gop-bill-would-fund-1b-in-taxpayer-money-for-trump-ballroom-262830149683)
+
+[https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)

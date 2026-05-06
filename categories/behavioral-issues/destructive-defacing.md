@@ -179,3 +179,16 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
 
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+### 2026 May
+
+2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
+
+[https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)
+
+[https://www.pbs.org/newshour/politics/senate-republicans-look-to-fund-1-billion-in-security-upgrades-for-trumps-ballroom](https://www.pbs.org/newshour/politics/senate-republicans-look-to-fund-1-billion-in-security-upgrades-for-trumps-ballroom)
+
+[https://www.today.com/video/gop-bill-would-fund-1b-in-taxpayer-money-for-trump-ballroom-262830149683](https://www.today.com/video/gop-bill-would-fund-1b-in-taxpayer-money-for-trump-ballroom-262830149683)
+
+[https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
+

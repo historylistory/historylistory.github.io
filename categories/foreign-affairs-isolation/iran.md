@@ -1608,3 +1608,13 @@ PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-tra
 [https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)
 
 [https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
+
+
+2026-05-05 The Trump administration renamed the name of Operations in Iran from Operation Epic Fury to Project Freedom.
+
+[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
+
+[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
+
+[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
+
