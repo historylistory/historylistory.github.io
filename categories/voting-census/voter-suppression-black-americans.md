@@ -34,6 +34,9 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 
 [https://www.cbsnews.com/news/supreme-court-louisiana-redistricting-ruling-take-effect-immediately-alito-jackson/](https://www.cbsnews.com/news/supreme-court-louisiana-redistricting-ruling-take-effect-immediately-alito-jackson/)
 
+[https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s](https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s)
+
+
 2026-04-30 Louisiana suspended congressional primaries so they could redraw their maps.
 
 [https://apnews.com/article/congress-louisiana-primaries-supreme-court-03cdb6951d7fefb448bfd2f37f98c0ea](https://apnews.com/article/congress-louisiana-primaries-supreme-court-03cdb6951d7fefb448bfd2f37f98c0ea)

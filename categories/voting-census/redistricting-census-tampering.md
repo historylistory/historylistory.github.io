@@ -190,6 +190,7 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 [https://www.cbsnews.com/news/supreme-court-louisiana-redistricting-ruling-take-effect-immediately-alito-jackson/](https://www.cbsnews.com/news/supreme-court-louisiana-redistricting-ruling-take-effect-immediately-alito-jackson/)
 
+[https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s](https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s)
 
 
 2026-04-30 Trump urged Tennessee to redistrict to gain more Republican seats.
