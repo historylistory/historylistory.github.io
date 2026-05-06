@@ -152,6 +152,18 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
 
+2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+
+[https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
+
+[https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains](https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains)
+
+[https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491](https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491)
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3](https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3)
+
 2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)

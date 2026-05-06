@@ -245,3 +245,11 @@ OTHER SHADY BUSINESS
 [https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme](https://www.foxnews.com/opinion/trump-bold-option-counter-virginias-new-gerrymander-scheme)
 
 EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2)
+
+### 2026 May
+
+2026-05-01 Republican Governor Jeff Landry signed legislation to prevent criminal court clerk Calvin Duncan from taking office. Duncan was released from prison after being exonerated in 2021 for a crime he did not commit but still had to serve a 28-year sentence. He went on to achieve his law degree at age 60. The GOP governor signed legislation to abolish his position before he could take office. Governor Landry also cancelled upcoming primary elections. 
+
+[https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
+
+[https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)

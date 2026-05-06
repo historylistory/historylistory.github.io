@@ -65,3 +65,43 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 [https://www.americanprogress.org/article/the-trump-administrations-plans-to-covertly-cut-social-security-disability-benefits/](https://www.americanprogress.org/article/the-trump-administrations-plans-to-covertly-cut-social-security-disability-benefits/)
 
 [https://www.propublica.org/article/trump-housing-reforms-aid-hud-immigration-homelessness](https://www.propublica.org/article/trump-housing-reforms-aid-hud-immigration-homelessness)
+
+### 2026 January
+
+2026-01-29 Social security is estimated to run dry by 2035. 
+
+[https://www.cnbc.com/select/will-social-security-run-out-heres-what-you-need-to-know/](https://www.cnbc.com/select/will-social-security-run-out-heres-what-you-need-to-know/)
+
+### 2026 March
+
+2026-03-10 Americans were pulling money out of their 401k funds at record rates.
+
+[https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html](https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html)
+
+[https://www.foxbusiness.com/economy/americans-tap-retirement-funds-record-rates-mounting-financial-stress-takes-toll](https://www.foxbusiness.com/economy/americans-tap-retirement-funds-record-rates-mounting-financial-stress-takes-toll)
+
+[https://marketrealist.com/americans-withdrawing-401-k-funds/](https://marketrealist.com/americans-withdrawing-401-k-funds/)
+
+[https://www.hr-brew.com/stories/2026/03/13/record-number-401-k-hardship-withdrawals](https://www.hr-brew.com/stories/2026/03/13/record-number-401-k-hardship-withdrawals)
+
+[https://www.usatoday.com/story/money/2026/03/12/can-you-withdraw-401k-hardship-rules/89084285007/](https://www.usatoday.com/story/money/2026/03/12/can-you-withdraw-401k-hardship-rules/89084285007/)
+
+[https://www.cnbc.com/select/401k-hardship-withdrawals/](https://www.cnbc.com/select/401k-hardship-withdrawals/)
+
+[https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70](https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70)
+
+### 2026 April
+
+2026-04-21 Republican Senator of Alabama Tommy Tuberville called social security a scam in a viral social media post. 
+
+[https://x.com/SenTuberville/status/2045266805145456922?s=20](https://x.com/SenTuberville/status/2045266805145456922?s=20)
+
+[https://www.ncpssm.org/entitledtoknow/tommy-tuberville-thinks-your-social-security-benefits-are-a-scam/](https://www.ncpssm.org/entitledtoknow/tommy-tuberville-thinks-your-social-security-benefits-are-a-scam/)
+
+[https://evrimagaci.org/gpt/tuberville-sparks-outcry-over-social-security-comments-538778](https://evrimagaci.org/gpt/tuberville-sparks-outcry-over-social-security-comments-538778)
+
+[https://www.montgomeryadvertiser.com/story/news/2026/04/21/social-security-called-a-scam-by-tommy-tuberville-in-viral-post/89715414007/](https://www.montgomeryadvertiser.com/story/news/2026/04/21/social-security-called-a-scam-by-tommy-tuberville-in-viral-post/89715414007/)
+
+[https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK](https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK)
+
+[https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4](https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4)

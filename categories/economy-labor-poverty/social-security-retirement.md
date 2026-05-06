@@ -89,3 +89,19 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 [https://www.cnbc.com/select/401k-hardship-withdrawals/](https://www.cnbc.com/select/401k-hardship-withdrawals/)
 
 [https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70](https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70)
+
+### 2026 April
+
+2026-04-21 Republican Senator of Alabama Tommy Tuberville called social security a scam in a viral social media post. 
+
+[https://x.com/SenTuberville/status/2045266805145456922?s=20](https://x.com/SenTuberville/status/2045266805145456922?s=20)
+
+[https://www.ncpssm.org/entitledtoknow/tommy-tuberville-thinks-your-social-security-benefits-are-a-scam/](https://www.ncpssm.org/entitledtoknow/tommy-tuberville-thinks-your-social-security-benefits-are-a-scam/)
+
+[https://evrimagaci.org/gpt/tuberville-sparks-outcry-over-social-security-comments-538778](https://evrimagaci.org/gpt/tuberville-sparks-outcry-over-social-security-comments-538778)
+
+[https://www.montgomeryadvertiser.com/story/news/2026/04/21/social-security-called-a-scam-by-tommy-tuberville-in-viral-post/89715414007/](https://www.montgomeryadvertiser.com/story/news/2026/04/21/social-security-called-a-scam-by-tommy-tuberville-in-viral-post/89715414007/)
+
+[https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK](https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK)
+
+[https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4](https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4)

@@ -170,3 +170,11 @@ TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&i
 [https://sewell.house.gov/2026/4/rep-sewell-presses-hhs-secretary-robert-f-kennedy-jr-on-comments-suggesting-black-children-should-be-re-parented](https://sewell.house.gov/2026/4/rep-sewell-presses-hhs-secretary-robert-f-kennedy-jr-on-comments-suggesting-black-children-should-be-re-parented)
 
 [https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/](https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/)
+
+### 2026 May
+
+2026-05-01 Republican Governor Jeff Landry signed legislation to prevent criminal court clerk Calvin Duncan from taking office. Duncan was released from prison after being exonerated in 2021 for a crime he did not commit but still had to serve a 28-year sentence. He went on to achieve his law degree at age 60. The GOP governor signed legislation to abolish his position before he could take office. Governor Landry also cancelled upcoming primary elections. 
+
+[https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
+
+[https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)

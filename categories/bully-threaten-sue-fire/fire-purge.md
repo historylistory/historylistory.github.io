@@ -275,6 +275,17 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.youtube.com/watch?v=zBAlkIrzUh4](https://www.youtube.com/watch?v=zBAlkIrzUh4)
 
+2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+
+[https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
+
+[https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains](https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains)
+
+[https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491](https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491)
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3](https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3)
 
 
 
@@ -347,3 +358,9 @@ PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/ne
 SUB WALL [https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/](https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means-nicole-saphier/687021/)
 
 SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761](https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761)
+
+2026-05-01 Republican Governor Jeff Landry signed legislation to prevent criminal court clerk Calvin Duncan from taking office. Duncan was released from prison after being exonerated in 2021 for a crime he did not commit but still had to serve a 28-year sentence. He went on to achieve his law degree at age 60. The GOP governor signed legislation to abolish his position before he could take office. Governor Landry also cancelled upcoming primary elections. 
+
+[https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
+
+[https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)

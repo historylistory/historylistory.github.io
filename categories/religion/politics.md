@@ -195,6 +195,19 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 [https://www.youtube.com/shorts/9lmpBqaiGtI](https://www.youtube.com/shorts/9lmpBqaiGtI)
 
 
+2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+
+[https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
+
+[https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains](https://delauro.house.gov/media-center/press-releases/delauro-statement-firing-armys-chief-chaplains)
+
+[https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491](https://www.nbcnews.com/politics/national-security/pete-hegseth-forces-army-chief-staff-randy-george-rcna266491)
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
+
+[https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3](https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3)
+
+
 2026-04-14 Turning Point USA rallies in Georgia attracted an embarrassingly small crowd, and TPUSA blamed it on left wing activists. 
 
 [https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/](https://www.newsnationnow.com/politics/tpusa-vance-small-crowd/)
