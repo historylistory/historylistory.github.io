@@ -155,6 +155,22 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
+[Energy: CleanView.Co](https://cleanview.co)
+
+[Energy: FormEnergy.Com](https://formenergy.com)
+
+[Energy: UtilityDive.Com](https://www.utilitydive.com)
+
+[Energy: FormEnergy.Com](https://formenergy.com)
+
+[Energy: CanaryMedia.Com](https://www.canarymedia.com)
+
+[Energy: HeatMap.News](https://heatmap.news)
+
+[Energy: DataCenterKnowledge.Com](https://www.datacenterknowledge.com)
+
+[Energy: DataCenterMap.Com](https://www.datacentermap.com)
+
 [Free Speech: Reporters Without Borders](https://rsf.org)
 
 [Gaza - Gym Rat In Gaza on Instagram](https://www.instagram.com/gym_rat_in_gaza/?hl=en)
