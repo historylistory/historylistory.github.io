@@ -328,6 +328,16 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
 
+2026-05-03 Iran executed 3 protestors. According to some reports, Iran carried out over 600 executions within the first three months of 2026.
+
+[https://www.theguardian.com/world/2026/may/04/iran-executes-men-january-anti-regime-protests](https://www.theguardian.com/world/2026/may/04/iran-executes-men-january-anti-regime-protests)
+
+[https://www.cbsnews.com/news/iran-executions-anti-government-protests/](https://www.cbsnews.com/news/iran-executions-anti-government-protests/)
+
+[https://www.democracynow.org/2026/5/5/headlines/iran_hangs_three_men_over_january_anti_government_protests](https://www.democracynow.org/2026/5/5/headlines/iran_hangs_three_men_over_january_anti_government_protests)
+
+[https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence](https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence)
+
 2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
 
 [https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)
@@ -335,3 +345,32 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody](https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody)
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings](https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings)
+
+2026-05-04 Israel carried out separate attacks in Gaza killing three Palestinians and leaving several others badly injured. Israel reported a 60% occupation of the strip at this date. They also shot 26-year-old Naif Smaro in the head during a raid in Nablus when he was just dropping his wife off at the hospital to give birth to their first child. During the raid at least 4 others including 2 children were struck by ammunition. 
+
+TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
+
+2026-05-04 The U.S. struck another boat in the Caribbean.
+
+[https://www.youtube.com/watch?v=Hm8A5yBW2RM](https://www.youtube.com/watch?v=Hm8A5yBW2RM)
+
+[https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea](https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea)
+
+[https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2](https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2)
+
+2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. USCENTCOM confirmed they attacked several boats, but insisted they were threatening commercial vessels. 
+
+[https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html](https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html)
+
+[https://iranwire.com/en/news/152005-us-reports-strike-on-iranian-boats-tehran-calls-it-a-crime/](https://iranwire.com/en/news/152005-us-reports-strike-on-iranian-boats-tehran-calls-it-a-crime/)
+
+[https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom](https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom)
+
+2026-05-05 Nobel Peace Laureate Narges Muhammadi was hospitalized in critical condition after collapsing in prison from a heart condition. She had been imprisoned in Iran for the past twenty years for activism and had been repeatedly denied medical care even after two heart attacks. 
+
+[https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death](https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death)
+
+[https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)
+
+[https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
+

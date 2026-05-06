@@ -285,3 +285,13 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/27/us-three-killed-boat-alleged-narco-eastern-pacific)
 
 [https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc](https://www.cnn.com/2026/04/27/us/video/us-strikes-alleged-drug-boat-ldn-digvid-vrtc)
+
+### 2026 May
+
+2026-05-04 The U.S. struck another boat in the Caribbean.
+
+[https://www.youtube.com/watch?v=Hm8A5yBW2RM](https://www.youtube.com/watch?v=Hm8A5yBW2RM)
+
+[https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea](https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea)
+
+[https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2](https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2)

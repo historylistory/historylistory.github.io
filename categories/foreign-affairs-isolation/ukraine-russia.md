@@ -235,3 +235,11 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 [https://www.theguardian.com/world/2026/apr/25/russian-airstrikes-ukraine-dnipro-odesa-kharkiv](https://www.theguardian.com/world/2026/apr/25/russian-airstrikes-ukraine-dnipro-odesa-kharkiv)
 
 [https://apnews.com/article/russia-ukraine-war-odesa-drones-9394353262c6d13352d328fbd34258ba](https://apnews.com/article/russia-ukraine-war-odesa-drones-9394353262c6d13352d328fbd34258ba)
+
+### 2026 May
+
+2026-05-04 Russia killed at least 14 people and wounded at least 60 in Ukraine. 
+
+[https://www.trtworld.com/article/96a1068dc44b](https://www.trtworld.com/article/96a1068dc44b)
+
+PAY WALL [https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russias-war-on-ukraine-news-and-information-from-ukraine/](https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russias-war-on-ukraine-news-and-information-from-ukraine/)

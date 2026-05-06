@@ -1557,6 +1557,32 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
 
+2026-05-03 Iran executed 3 protestors. According to some reports, Iran carried out over 600 executions within the first three months of 2026.
+
+[https://www.theguardian.com/world/2026/may/04/iran-executes-men-january-anti-regime-protests](https://www.theguardian.com/world/2026/may/04/iran-executes-men-january-anti-regime-protests)
+
+[https://www.cbsnews.com/news/iran-executions-anti-government-protests/](https://www.cbsnews.com/news/iran-executions-anti-government-protests/)
+
+[https://www.democracynow.org/2026/5/5/headlines/iran_hangs_three_men_over_january_anti_government_protests](https://www.democracynow.org/2026/5/5/headlines/iran_hangs_three_men_over_january_anti_government_protests)
+
+[https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence](https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence)
+
+2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. USCENTCOM confirmed they attacked several boats, but insisted they were threatening commercial vessels. 
+
+[https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html](https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html)
+
+[https://iranwire.com/en/news/152005-us-reports-strike-on-iranian-boats-tehran-calls-it-a-crime/](https://iranwire.com/en/news/152005-us-reports-strike-on-iranian-boats-tehran-calls-it-a-crime/)
+
+[https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom](https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom)
+
+
+2026-05-04 The UAE reported an attack of Iranian drones on the Port of Fujairah fire causing an oil refinery fire.
+
+[https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/](https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/)
+
+[https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday](https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday)
+
+
 2026-05-05 The US launched missiles at Iranian ships in the Strait of Hormuz during the ceasefire. Trump told Fox News that Iran will be “blown off the face of the earth” if it targets US ships, and then in a social media post invited South Korea to come “join the mission”. Trump dubbed the efforts “Project Freedom”. 
 
 [https://www.cbsnews.com/live-updates/iran-war-trump-strait-of-hormuz-ship-attack-threat-peace-proposal/](https://www.cbsnews.com/live-updates/iran-war-trump-strait-of-hormuz-ship-attack-threat-peace-proposal/)
@@ -1574,3 +1600,11 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 TRUMP POST [https://truthsocial.com/@realDonaldTrump/posts/116517438678419639](https://truthsocial.com/@realDonaldTrump/posts/116517438678419639)
 
 PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html](https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html)
+
+2026-05-05 Nobel Peace Laureate Narges Muhammadi was hospitalized in critical condition after collapsing in prison from a heart condition. She had been imprisoned in Iran for the past twenty years for activism and had been repeatedly denied medical care even after two heart attacks. 
+
+[https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death](https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death)
+
+[https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)
+
+[https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)

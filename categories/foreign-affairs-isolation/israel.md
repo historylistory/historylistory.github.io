@@ -121,6 +121,7 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
 
+
 2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
 
 [https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)
@@ -128,3 +129,7 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 [https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody](https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody)
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings](https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings)
+
+2026-05-04 Israel carried out separate attacks in Gaza killing three Palestinians and leaving several others badly injured. Israel reported a 60% occupation of the strip at this date. They also shot 26-year-old Naif Smaro in the head during a raid in Nablus when he was just dropping his wife off at the hospital to give birth to their first child. During the raid at least 4 others including 2 children were struck by ammunition. 
+
+TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)

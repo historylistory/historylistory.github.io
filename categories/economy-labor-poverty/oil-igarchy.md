@@ -68,3 +68,10 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 [https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
 
+### 2026 May
+
+2026-05-04 The UAE reported an attack of Iranian drones on the Port of Fujairah fire causing an oil refinery fire.
+
+[https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/](https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/)
+
+[https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday](https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday)
