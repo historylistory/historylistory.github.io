@@ -90,3 +90,13 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 [https://thehill.com/policy/transportation/5592882-40-airports-faa-government-shutdown/](https://thehill.com/policy/transportation/5592882-40-airports-faa-government-shutdown/)
 
 [https://www.cnn.com/politics/live-news/trump-government-shutdown-flight-cancellations-delays-11-07-25](https://www.cnn.com/politics/live-news/trump-government-shutdown-flight-cancellations-delays-11-07-25)
+
+### 2026 May
+
+2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+
+[https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
+
+[https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month](https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month)
+
+[https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)

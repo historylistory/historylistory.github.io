@@ -409,3 +409,24 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 [https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge](https://www.ms.now/news/maurene-comey-doj-lawsuit-trump-judge)
 
 [https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/](https://thehill.com/regulation/court-battles/5852868-trump-fired-maurene-comey/)
+
+### 2026 May
+
+2026-05-05 Howard Lutnick was forced to testify for his involvement with Epstein.
+
+[https://www.nbcnews.com/politics/politics-news/howard-lutnick-congressional-showdown-epstein-files-island-visit-rcna343523](https://www.nbcnews.com/politics/politics-news/howard-lutnick-congressional-showdown-epstein-files-island-visit-rcna343523)
+
+[https://www.foxnews.com/politics/howard-lutnick-forced-face-jeffrey-epstein-ties-house-oversight-hearing](https://www.foxnews.com/politics/howard-lutnick-forced-face-jeffrey-epstein-ties-house-oversight-hearing)
+
+[https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html](https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html)
+
+SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865](https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865)
+
+2026-05-07 A federal judge unsealed an alleged suicide note by Epstein.
+
+[https://www.usatoday.com/story/news/nation/2026/05/06/apparent-epstein-suicide-note-released/89969974007/](https://www.usatoday.com/story/news/nation/2026/05/06/apparent-epstein-suicide-note-released/89969974007/)
+
+[https://www.axios.com/2026/05/06/jeffrey-epstein-purported-suicide-note-judge-release-read](https://www.axios.com/2026/05/06/jeffrey-epstein-purported-suicide-note-judge-release-read)
+
+[https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note](https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note)
+

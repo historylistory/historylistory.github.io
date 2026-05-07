@@ -467,3 +467,15 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
 
 [https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/](https://www.thedailybeast.com/maga-stooge-lindsey-graham-reveals-major-plot-twist-for-trumps-ballroom/)
+
+### 2026 May
+
+2026-05-05 Howard Lutnick was forced to testify for his involvement with Epstein.
+
+[https://www.nbcnews.com/politics/politics-news/howard-lutnick-congressional-showdown-epstein-files-island-visit-rcna343523](https://www.nbcnews.com/politics/politics-news/howard-lutnick-congressional-showdown-epstein-files-island-visit-rcna343523)
+
+[https://www.foxnews.com/politics/howard-lutnick-forced-face-jeffrey-epstein-ties-house-oversight-hearing](https://www.foxnews.com/politics/howard-lutnick-forced-face-jeffrey-epstein-ties-house-oversight-hearing)
+
+[https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html](https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html)
+
+SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865](https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865)

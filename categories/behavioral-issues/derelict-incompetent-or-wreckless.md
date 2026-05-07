@@ -551,3 +551,16 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 [https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)
 
+2026-04-23 US supplies of long-range missiles dwindled. Trump doubled down and told reporters the U.S. had twice as many missiles than when he started his term.
+
+[https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile](https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile)
+
+[https://fortune.com/2026/04/24/us-military-depleted-half-most-expensive-missiles-cost-of-iran-war/](https://fortune.com/2026/04/24/us-military-depleted-half-most-expensive-missiles-cost-of-iran-war/)
+
+SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html](https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html)
+
+2026-04-30 GOP leader Tom Kean had been absent from Capitol Hill for weeks.
+
+[https://www.cnn.com/2026/04/30/politics/tom-kean-medical-issue-absence-congress](https://www.cnn.com/2026/04/30/politics/tom-kean-medical-issue-absence-congress)
+
+[https://www.theguardian.com/us-news/2026/apr/24/tom-kean-republican-congress](https://www.theguardian.com/us-news/2026/apr/24/tom-kean-republican-congress)

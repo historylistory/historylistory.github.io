@@ -108,3 +108,11 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 [https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
 
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+
+[https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
+
+[https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month](https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month)
+
+[https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)

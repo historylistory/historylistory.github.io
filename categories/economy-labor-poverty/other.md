@@ -178,3 +178,11 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 [https://www.ici.org/news-release/money-market-funds-hit-seven-trillion](https://www.ici.org/news-release/money-market-funds-hit-seven-trillion)
 
 [https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html](https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html)
+
+2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+
+[https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
+
+[https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month](https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month)
+
+[https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)

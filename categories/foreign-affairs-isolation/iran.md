@@ -1508,6 +1508,15 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)
 
+2026-04-23 US supplies of long-range missiles dwindled. Trump doubled down and told reporters the U.S. had twice as many missiles than when he started his term.
+
+[https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile](https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile)
+
+[https://fortune.com/2026/04/24/us-military-depleted-half-most-expensive-missiles-cost-of-iran-war/](https://fortune.com/2026/04/24/us-military-depleted-half-most-expensive-missiles-cost-of-iran-war/)
+
+SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html](https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html)
+
+
 2026-04-26 Trump cancelled his special envoy’s trip to Pakistan for peace talks with Iran.
 
 [https://www.bbc.com/news/live/cd7j1g94d1lt](https://www.bbc.com/news/live/cd7j1g94d1lt)
