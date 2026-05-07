@@ -6,6 +6,12 @@ subcategory_slug: destructive-defacing
 permalink: /categories/behavioral-issues/destructive-defacing/
 ---
 
+### 2025 January
+
+2025-01-28 Bill HR792 was introduced to force U.S. park services to carve Trump’s face into the side of Mount Rushmore.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/792](https://www.congress.gov/bill/119th-congress/house-bill/792)
+
 ### 2025 June
 
 2025-06-09 Trump plowed over the White House Rose Garden.

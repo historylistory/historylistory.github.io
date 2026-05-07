@@ -259,6 +259,10 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/PressSec/status/1980288128867877125](https://x.com/PressSec/status/1980288128867877125)
 
+2025-10-17 Bill HR5766 was introduced to force the State Department to award a DJT peace prize every year and demands Trump be the first person to be awarded.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/5766](https://www.congress.gov/bill/119th-congress/house-bill/5766)
+
 2025-10-18 Trump posted an AI video of himself in a fighter jet dumping shit all over New York. Mike Johnson defended the video with a smirk, stating Trump “uses satire and social media to make a point”. When someone asked JD Vance on X to bring it up with the press to interview Trump, JD Vance sarcastically dismissed it with, “I’ll ask him for you Harry”.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-posts-ai-video-dumping-no-kings-protesters-rcna238521](https://www.nbcnews.com/politics/donald-trump/trump-posts-ai-video-dumping-no-kings-protesters-rcna238521)

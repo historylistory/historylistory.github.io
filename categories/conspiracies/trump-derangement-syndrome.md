@@ -6,6 +6,12 @@ subcategory_slug: trump-derangement-syndrome
 permalink: /categories/conspiracies/trump-derangement-syndrome/
 ---
 
+### 2025 March
+
+2025-03-25 Minnesota introduced SF 2589 to research the so-called Trump Derangement Syndrome.
+
+[https://www.revisor.mn.gov/bills/94/2025/0/SF/2589/versions/latest/](https://www.revisor.mn.gov/bills/94/2025/0/SF/2589/versions/latest/)
+
 ### 2025 May
 
 2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced the "Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn't aligned with the Trump agenda must be suffering from a mental illness. For context, this is not the first time the phrase “___insert-name-here derangement syndrome has been coined – it was also found in an opinion article in 2023 coined “Bari Weiss Derangement Syndrome”.
@@ -16,11 +22,21 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 
 [https://www.theunspeakablepodcast.com/p/bari-weiss-derangement-free-press-debate-review](https://www.theunspeakablepodcast.com/p/bari-weiss-derangement-free-press-debate-review)
 
+2025-05-15 Bill HR3432 was introduced to research the so-called Trump Derangement Syndrome.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/3432/text](https://www.congress.gov/bill/119th-congress/house-bill/3432/text)
+
+
 ### 2025 December
 
 2025-12-15 In a calloused social media post, Trump pushed his “Trump Derangement Syndrome” narrative, this time attacking the murder of well-known director Rob Reiner and his wife in their home.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115724141568860081](https://truthsocial.com/@realDonaldTrump/posts/115724141568860081)
+
+2025-12-22 Arizona introduced SB 1070 to research the so-called Trump Derangement Syndrome. 
+
+[https://www.azleg.gov/legtext/57leg/2R/bills/SB1070P.pdf](https://www.azleg.gov/legtext/57leg/2R/bills/SB1070P.pdf)
+
 
 ### 2026 March
 
@@ -31,6 +47,9 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 [https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/](https://www.forbes.com/sites/danalexander/2025/09/09/presidency-boosts-trumps-net-worth-by-3-billion-in-a-year/)
 
 [https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html](https://finance.yahoo.com/news/trump-became-3b-richer-since-145725968.html)
+
+
+
 
 ### 2026 April
 

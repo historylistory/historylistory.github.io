@@ -52,6 +52,11 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 January
 
+2025-01-23 Bill HR691 was introduced to change the Washington Dulles International Airport in Virginia to “Donald J. Trump International Airport”.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/691](https://www.congress.gov/bill/119th-congress/house-bill/691)
+
+
 2025-01-25 A Florida Congresswoman filed legislation to have Trump's face carved into Mount Rushmore.
 
 [https://floridaphoenix.com/briefs/anna-paulina-luna-files-legislation-to-put-carve-trumps-face-on-mount-rushmore/](https://floridaphoenix.com/briefs/anna-paulina-luna-files-legislation-to-put-carve-trumps-face-on-mount-rushmore/)
@@ -60,13 +65,28 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.congress.gov/bill/119th-congress/house-bill/792](https://www.congress.gov/bill/119th-congress/house-bill/792)
 
+2025-01-28 Bill HR792 was introduced to force U.S. park services to carve Trump’s face into the side of Mount Rushmore.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/792](https://www.congress.gov/bill/119th-congress/house-bill/792)
+
+
 ### 2025 February
+
+2025-02-15 Bill HR1395 was introduced to make Trump’s birthday an official federal holiday.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/1395](https://www.congress.gov/bill/119th-congress/house-bill/1395)
+
 
 2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
 {% include youtubePlayer.html id="PslOp883rfI" %}
+
+2025-02-27 Bill HR1761 was introduced to create a $250 bill with Trumps face on it.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/1761](https://www.congress.gov/bill/119th-congress/house-bill/1761)
+
 
 ### 2025 May
 
@@ -130,6 +150,13 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 [https://www.newsweek.com/department-labor-trump-portrait-2119185](https://www.newsweek.com/department-labor-trump-portrait-2119185)
 
 [https://www.youtube.com/shorts/FzZrYxgf7ZA](https://www.youtube.com/shorts/FzZrYxgf7ZA)
+
+### 2025 October
+
+2025-10-17 Bill HR5766 was introduced to force the State Department to award a DJT peace prize every year and demands Trump be the first person to be awarded.
+
+[https://www.congress.gov/bill/119th-congress/house-bill/5766](https://www.congress.gov/bill/119th-congress/house-bill/5766)
+
 
 ### 2025 December
 
