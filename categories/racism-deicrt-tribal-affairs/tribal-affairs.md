@@ -91,6 +91,16 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 [https://www.oregonlive.com/pacific-northwest-news/2025/11/indigenous-actor-elaine-miles-says-ice-called-her-oregon-tribal-id-fake.html](https://www.oregonlive.com/pacific-northwest-news/2025/11/indigenous-actor-elaine-miles-says-ice-called-her-oregon-tribal-id-fake.html)
 
+### 2026 February
+
+2026-02-05 The Trump Administration forced exhibits at Little Bighorn National Monument be sanitized from actual historical events so displays will align with the Trump agenda and Executive Order. The Northern Cheyenne Tribal Council unanimously voted 11-0 to prevent changes. 
+
+[https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/](https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/)
+
+[https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/](https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/)
+
+[https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html](https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html)
+
 ### 2026 April
 
 2026-04-21 (context) The U.N. Permanent Forum on indigenous issues this year. One topic on the agenda is the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. In one report, the Trump administration has allegedly made it increasingly difficult for indigenous people to obtain US Visas to attend the UN forum in New York. 

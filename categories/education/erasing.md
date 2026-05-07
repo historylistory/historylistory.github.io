@@ -142,6 +142,15 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 February
 
+2026-02-05 The Trump Administration forced exhibits at Little Bighorn National Monument be sanitized from actual historical events so displays will align with the Trump agenda and Executive Order. The Northern Cheyenne Tribal Council unanimously voted 11-0 to prevent changes. 
+
+[https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/](https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/)
+
+[https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/](https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/)
+
+[https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html](https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html)
+
+
 2026-02-17 A judge ordered the Trump administration to reinstate a slavery exhibit at the Presidential House in Philadelphia, citing George Orwell’s 1984, comparing the Trump administration to the book’s totalitarian regime which revised historical records to align with its own narratives.
 
 [https://www.pbs.org/newshour/nation/citing-orwells-1984-judge-orders-trump-administration-to-restore-slavery-exhibit-it-removed-in-philadelphia](https://www.pbs.org/newshour/nation/citing-orwells-1984-judge-orders-trump-administration-to-restore-slavery-exhibit-it-removed-in-philadelphia)

@@ -115,6 +115,15 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations](https://www.pbs.org/newshour/health/judge-blocks-rfk-jr-from-scaling-back-childhood-vaccine-recommendations)
 
+2025-06-13 Trump repeatedly bullied director of the National Portrait Gallery Kim Sajet until she finally resigned. 
+
+[https://www.theguardian.com/us-news/2025/jun/13/kim-sajet-resigns-national-portrait-gallery-director](https://www.theguardian.com/us-news/2025/jun/13/kim-sajet-resigns-national-portrait-gallery-director)
+
+[https://www.artnews.com/art-news/news/national-portrait-gallery-director-fired-trump-1234743964/](https://www.artnews.com/art-news/news/national-portrait-gallery-director-fired-trump-1234743964/)
+
+[https://www.theartnewspaper.com/2025/06/13/kim-sajet-national-portrait-gallery-director-resigns-trump-firing](https://www.theartnewspaper.com/2025/06/13/kim-sajet-national-portrait-gallery-director-resigns-trump-firing)
+
+PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html](https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smithsonian-national-portrait-gallery.html)
 
 ### 2025 July
 

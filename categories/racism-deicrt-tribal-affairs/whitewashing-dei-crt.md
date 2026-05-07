@@ -98,6 +98,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/](https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/)
 
+
 2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
 
 [https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon](https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon)
@@ -208,9 +209,20 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2026 February
 
+
+2026-02-05 The Trump Administration forced exhibits at Little Bighorn National Monument be sanitized from actual historical events so displays will align with the Trump agenda and Executive Order. The Northern Cheyenne Tribal Council unanimously voted 11-0 to prevent changes. 
+
+[https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/](https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/)
+
+[https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/](https://dailymontanan.com/2026/01/29/feds-order-interpretive-signs-in-glacier-little-bighorn-changed-or-removed/)
+
+[https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html](https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html)
+
 2025-02-10 Pete Hegseth signed a memorandum to rename Fort Liberty back to Fort Bragg back to a Confederate general. However, in the memorandum Hegseth referred to PFC Roland Bragg, a different “Bragg” from the original General.
 
 [https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg](https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg)
+
+
 
 2026-02-17 A judge ordered the Trump administration to reinstate a slavery exhibit at the Presidential House in Philadelphia, citing George Orwell’s 1984, comparing the Trump administration to the book’s totalitarian regime which revised historical records to align with its own narratives.
 
