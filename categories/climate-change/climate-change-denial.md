@@ -31,6 +31,17 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 June
 
+2025-06-10 The Trump administration forced national parks to place QR codes so visitors could report any exhibits deemed “too woke” or disparaging (i.e. information about slavery or hurting Native Americans), or anything related to climate change and pollution.
+
+[https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs](https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs)
+
+[https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/](https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/)
+
+[https://www.nationalparkstraveler.org/2025/06/national-park-visitors-asked-report-signs-depict-history-negatively](https://www.nationalparkstraveler.org/2025/06/national-park-visitors-asked-report-signs-depict-history-negatively)
+
+[https://www.npca.org/articles/9287-make-them-hear-you](https://www.npca.org/articles/9287-make-them-hear-you)
+
+
 2025-06-26 During an interview with the New York Times, Peter Thiel made a bizarre comment suggesting that the antichrist will work through ***climate activists like child activist Greta Thunberg as “legionnaires of the Antichrist”.***
 
 [https://www.theguardian.com/us-news/2025/oct/10/peter-thiel-lectures-antichrist#:~:text=Or%20Christian%20democracy%2C%20which%20is,disclaimer%20that%20I%20just%20gave](https://www.theguardian.com/us-news/2025/oct/10/peter-thiel-lectures-antichrist).
@@ -48,6 +59,15 @@ permalink: /categories/climate-change/climate-change-denial/
 [https://www.globalchange.gov/](https://www.globalchange.gov/) NO LONGER WORKING
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
+
+2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+
+[https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
+
+[https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive](https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive)
+
+[https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes](https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes)
+
 
 ### 2025 August
 

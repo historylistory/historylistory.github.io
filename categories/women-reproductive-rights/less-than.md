@@ -76,6 +76,16 @@ PAY WALL [https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tikto
 
 UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate](https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate)
 
+### 2023 
+
+2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+
+[https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
+
+[https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive](https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive)
+
+[https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes](https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes)
+
 
 ### 2024 July
 

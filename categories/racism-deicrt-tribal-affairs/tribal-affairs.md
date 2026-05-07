@@ -38,6 +38,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 [https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post](https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post)
 
+2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+
+[https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
+
+[https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive](https://www.kalw.org/2026-01-23/national-park-service-removes-climate-change-sign-at-muir-woods-per-trump-directive)
+
+[https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes](https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes)
+
 2025-07-25 Data centers (a.k.a. data colonialism) and mining are heavily threatening indigenous lands and sovereignty.
 
 [https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)

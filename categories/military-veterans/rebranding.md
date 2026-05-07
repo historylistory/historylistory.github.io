@@ -44,7 +44,12 @@ permalink: /categories/military-veterans/rebranding/
 
 {% include youtubePlayer.html id="4XrNsZ-fDjw" %}
 
- 
+### 2025 December
+
+2025-12-22 Trump announced Trump-class battleships, including USS Defiant. 
+
+[https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/](https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/)
+
 
 ### 2026 January
 

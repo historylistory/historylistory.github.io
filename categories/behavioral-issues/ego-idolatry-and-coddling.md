@@ -76,6 +76,9 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.congress.gov/bill/119th-congress/house-bill/1395](https://www.congress.gov/bill/119th-congress/house-bill/1395)
 
+2025-02-19 the White House posted an AI generated Time Magazine cover featuring Trump wearing a crown, captured “Long Live the King”.
+
+[https://x.com/WhiteHouse/status/1892295984928993698](https://x.com/WhiteHouse/status/1892295984928993698)
 
 2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
 
@@ -180,7 +183,9 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://abcnews.go.com/US/trump-kennedy-center-plans-sue-jazz-musician-canceled/story?id=128761195](https://abcnews.go.com/US/trump-kennedy-center-plans-sue-jazz-musician-canceled/story?id=128761195)
 
- 
+2025-12-22 Trump announced Trump-class battleships, including USS Defiant. 
+
+[https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/](https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/)
 
 ### 2026 February
 

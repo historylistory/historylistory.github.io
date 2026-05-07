@@ -142,6 +142,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/](https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/)
 
+2025-06-10 The Trump administration forced national parks to place QR codes so visitors could report any exhibits deemed “too woke” or disparaging (i.e. information about slavery or hurting Native Americans), or anything related to climate change and pollution.
+
+[https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs](https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs)
+
+[https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/](https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/)
+
+[https://www.nationalparkstraveler.org/2025/06/national-park-visitors-asked-report-signs-depict-history-negatively](https://www.nationalparkstraveler.org/2025/06/national-park-visitors-asked-report-signs-depict-history-negatively)
+
+[https://www.npca.org/articles/9287-make-them-hear-you](https://www.npca.org/articles/9287-make-them-hear-you)
+
+
 ### 2025 August
 
 2025-08-19 Trump sent out a social media post calling museums in Washington "WOKE", writing, "Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was". In his post, Trump instructed his attorneys to "go through the Museums and start the exact same process that has been done with Colleges and Universities...". He also tweeted "We have the HOTTEST Country in the World, and we want people to talk about it, including in our Museums".

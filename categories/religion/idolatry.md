@@ -6,6 +6,10 @@ subcategory_slug: idolatry
 permalink: /categories/religion/idolatry/
 ---
 
+### Comment
+
+Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & Coddling"
+
 ### 2019 "The Chosen One"
 
 2019-08-21 Trump referred to himself as "the chosen one".
@@ -21,6 +25,10 @@ permalink: /categories/religion/idolatry/
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
 
 ### 2025 February
+
+2025-02-19 the White House posted an AI generated Time Magazine cover featuring Trump wearing a crown, captured “Long Live the King”.
+
+[https://x.com/WhiteHouse/status/1892295984928993698](https://x.com/WhiteHouse/status/1892295984928993698)
 
 2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
 

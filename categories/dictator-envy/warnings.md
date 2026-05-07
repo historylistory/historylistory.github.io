@@ -59,6 +59,11 @@ permalink: /categories/dictator-envy/warnings/
 
 ### 2024
 
+2024-05-17 Article “Roy Cohn: The mysterious US lawyer who helped Donald Trump rise to power”. Cohn had been assisting McCarthy's investigations of suspected communists. In the 1970s and during the 1980s, he became a prominent legal and political fixer in New York City. He represented and mentored Donald Trump during Trump's early business career. New York City, U.S.
+
+[https://www.bbc.com/culture/article/20240517-roy-cohn-the-mysterious-us-lawyer-who-helped-donald-trump-rise-to-power](https://www.bbc.com/culture/article/20240517-roy-cohn-the-mysterious-us-lawyer-who-helped-donald-trump-rise-to-power)
+
+
 2024-10-23 John Kelley issued a warning during an interview that Trump raised the idea of German generals.
 
 [https://www.pbs.org/newshour/politics/trump-said-hitler-did-some-good-things-and-wanted-generals-like-the-nazis-former-chief-of-staff-kelly-claims](https://www.pbs.org/newshour/politics/trump-said-hitler-did-some-good-things-and-wanted-generals-like-the-nazis-former-chief-of-staff-kelly-claims)
