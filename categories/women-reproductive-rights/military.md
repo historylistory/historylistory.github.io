@@ -22,6 +22,14 @@ permalink: /categories/women-reproductive-rights/military/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
+### 2025 March
+
+2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website. 
+
+[https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update](https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update)
+
+FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationforwomenwarriors.org/)
+
 ### 2025 August
 
 2025-08-01 The Trump administration announced its plans to prevent Veterans from accessing abortion care or counseling.

@@ -116,6 +116,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/](https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/)
 
+2025-03-27 The Trump EO Restoring Truth & Sanity specifically targeted the Shape of Power art exhibit. Part of the EO reads, ““The Shape of Power:  Stories of Race and American Sculpture,” an exhibit representing that “[s]ocieties including the United States have used race to establish and maintain systems of power, privilege, and disenfranchisement.”  The exhibit further claims that “sculpture has been a powerful tool in promoting scientific racism” and promotes the view that race is not a biological reality but a social construct, stating “Race is a human invention.”
+
+[https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/](https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/)
+
+[https://www.npr.org/2025/04/02/nx-s1-5345933/smithsonian-executive-order-the-shape-of-power](https://www.npr.org/2025/04/02/nx-s1-5345933/smithsonian-executive-order-the-shape-of-power)
+
+[https://www.cnn.com/politics/trump-smithsonian-art-shape-of-power](https://www.cnn.com/politics/trump-smithsonian-art-shape-of-power)
+
+
 ### 2025 April
 
 2025-04-11 The Trump administration sent a letter to Harvard demanding they conduct a federal government-approved audit of its student and faculty to determine "viewpoint diversity" among other requests. Harvard refused, calling the demands unconstitutional.

@@ -103,6 +103,15 @@ UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogy
 
 [https://www.levelman.com/trump-masculinity-and-the-rise-of-the-bro-movement/](https://www.levelman.com/trump-masculinity-and-the-rise-of-the-bro-movement/)
 
+### 2025 March
+
+2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website. 
+
+[https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update](https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update)
+
+FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationforwomenwarriors.org/)
+
+
 ### 2025 August
 
 2025-08-07 CNN Pamela Brown interviewed Doug Wilson with Christ Church. The interview is very enlightening because he made several misogynist remarks about women including but not limited to “**women are people other people come out of**” and that having babies doesn’t take skill.  Summed up, **he claimed that women should not vote, and they should not hold leadership positions** because the bible says they shouldn’t. The interview featured two other church leaders with the same set of beliefs. For context, Doug Wilson erected a church in Washington D.C., helped co-author Project 2025, and is followed by Pete Hegseth.

@@ -187,6 +187,8 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [LGBTQ: TransLegislation Tracker](https://translegislation.com/)
 
+[NON PROFITS](https://greatnonprofits.org/org/foundation-for-women-warriors)
+
 [Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
 
 [Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
@@ -220,6 +222,8 @@ You know your bite is poisonous, and now I’m going to die’.
 [Vatican News: Pope Francis - First Sunday of Lent](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
 
 {% include youtubePlayer.html id="pbsTj8RrqsI" %}
+
+[WOMEN VETERANS: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
 
 [WHERE TO FILE?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
 
