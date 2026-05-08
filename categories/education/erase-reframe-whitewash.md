@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Erasing
+title: Erase Reframe Whitewash
 category_slug: education
-subcategory_slug: erasing
-permalink: /categories/education/erasing/
+subcategory_slug: erase-reframe-whitewash
+permalink: /categories/education/erase-reframe-whitewash/
 ---
 
 ### 1966
@@ -55,6 +55,11 @@ permalink: /categories/education/erasing/
 2025-01-26 As part of Trump's DEI initiative, The United States Air Force was directed to remove any training courses that include DEI, even those referencing the Tuskegee Airmen or the Women Air Force Service Pilots (WACS).
 
 [https://apnews.com/article/air-force-dei-tuskegee-women-wwii-pilots-ecdeac68dc7696535d093c7690ab73bc](https://apnews.com/article/air-force-dei-tuskegee-women-wwii-pilots-ecdeac68dc7696535d093c7690ab73bc)
+
+2025-01-29 Trump issued EO Ending Racial Indoctrination in K-12 Schooling.
+
+[https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/](https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/)
+
 
 ### 2025 March
 
@@ -133,6 +138,17 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 [https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/](https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/)
 
 ### 2026 January
+
+2026-01-08 The Smithsonian was told to remove the word “unjust” from a display about Japanese internment camps because it made the display look “too partisan”. 
+
+[https://www.msn.com/en-us/news/politics/smithsonian-reportedly-told-staffer-to-remove-unjust-from-exhibition-on-japanese-american-internment/ar-AA1TQgC1](https://www.msn.com/en-us/news/politics/smithsonian-reportedly-told-staffer-to-remove-unjust-from-exhibition-on-japanese-american-internment/ar-AA1TQgC1)
+
+[https://www.historians.org/news/aha-oah-statement-on-executive-order-ending-radical-indoctrination-in-k-12-schooling/](https://www.historians.org/news/aha-oah-statement-on-executive-order-ending-radical-indoctrination-in-k-12-schooling/)
+
+[https://www.cbcfinc.org/wp-content/uploads/2025/03/Ending-Radical-Indoctrination-in-K-12-Schooling-.pdf](https://www.cbcfinc.org/wp-content/uploads/2025/03/Ending-Radical-Indoctrination-in-K-12-Schooling-.pdf)
+
+A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-Final.pdf](https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-Final.pdf)
+
 
 2026-01-23 The Trump administration ordered the National Park Service staff to remove a slavery exhibit from a park in Philadelphia in alignment with Trump’s Executive order to “restore truth and sanity to American history”.
 
