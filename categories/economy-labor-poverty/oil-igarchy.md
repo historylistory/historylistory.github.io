@@ -75,3 +75,9 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 [https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/](https://www.reuters.com/world/middle-east/uaes-fujairah-says-fire-breaks-out-petroleum-complex-after-iranian-drone-attack-2026-05-04/)
 
 [https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday](https://www.aljazeera.com/news/2026/5/5/whats-the-significance-of-uaes-fujairah-hit-on-monday)
+
+2026-05-04 Kentucky Governor Andy Beshear announced a state emergency due to rising costs and gas prices. 
+
+[https://www.youtube.com/watch?v=m7E9FItIaPk&list=WL&index=6](https://www.youtube.com/watch?v=m7E9FItIaPk&list=WL&index=6)
+
+[https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas](https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas)

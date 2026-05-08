@@ -324,3 +324,13 @@ Think About:
 [https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition](https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition)
 
 [https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s](https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s)
+
+### 2026 May
+
+2026-05-05 The Associated Press won a Pulitzer Prize for international reporting on US companies enabling mass detention and surveillance in China.
+
+[https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2](https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2)
+
+[https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1](https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1)
+
+[https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)

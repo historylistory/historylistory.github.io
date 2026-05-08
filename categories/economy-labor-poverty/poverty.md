@@ -419,3 +419,26 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 [https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141](https://www.ketv.com/article/nebraska-implements-new-medicaid-work-requirements/71189141)
 
 [https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)
+
+2026-05-06 KraftHeinz reported that consumers are dipping into their savings accounts just to eat. 
+
+[https://www.msn.com/en-us/money/companies/kraft-heinz-ceo-pushes-value-consumers-are-literally-running-out-of-money/ar-AA22xAST](https://www.msn.com/en-us/money/companies/kraft-heinz-ceo-pushes-value-consumers-are-literally-running-out-of-money/ar-AA22xAST)
+
+PAY WALL [https://www.wsj.com/business/retail/kraft-heinz-ceo-pushes-value-consumers-are-literally-running-out-of-money-72b9b50f](https://www.wsj.com/business/retail/kraft-heinz-ceo-pushes-value-consumers-are-literally-running-out-of-money-72b9b50f)
+
+PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-money-and-cutting-back-ceos-warn/](https://www.seattletimes.com/business/consumers-are-running-out-of-money-and-cutting-back-ceos-warn/)
+
+
+2026-05-06 National Economic Council Director Kevin Hasset told Fox news “In fact, I had the head of one of the big five banks in my office yesterday going through the credit card data. And just as Secretary Bessent said, credit card spending is through the roof. They’re spending more on gasoline, but they’re spending more no everything else too.  
+
+[https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?](https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?)
+
+[https://thehill.com/homenews/administration/5867139-strong-job-market-us/](https://thehill.com/homenews/administration/5867139-strong-job-market-us/)
+
+[https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging](https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging)
+
+[https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/](https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/)
+
+[https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html](https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html)
+
+[https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)

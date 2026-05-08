@@ -207,3 +207,18 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 [https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/](https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/)
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
+
+
+2026-05-06 National Economic Council Director Kevin Hasset told Fox news “In fact, I had the head of one of the big five banks in my office yesterday going through the credit card data. And just as Secretary Bessent said, credit card spending is through the roof. They’re spending more on gasoline, but they’re spending more no everything else too.  
+
+[https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?](https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?)
+
+[https://thehill.com/homenews/administration/5867139-strong-job-market-us/](https://thehill.com/homenews/administration/5867139-strong-job-market-us/)
+
+[https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging](https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging)
+
+[https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/](https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/)
+
+[https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html](https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html)
+
+[https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)

@@ -339,6 +339,22 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2026 May
 
+2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. It is unclear if this was another protest against the war in Gaza (Israel is still occupying the West Bank and killing civilians). 
+
+[https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/](https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/)
+
+[https://www.nbcbayarea.com/news/local/charges-filed-bay-bridge-takeover/4081559/](https://www.nbcbayarea.com/news/local/charges-filed-bay-bridge-takeover/4081559/)
+
+[https://www.yahoo.com/news/articles/bay-bridge-crackdown-traps-illegal-120800984.html](https://www.yahoo.com/news/articles/bay-bridge-crackdown-traps-illegal-120800984.html)
+
+[https://www.youtube.com/watch?v=XFJYojZ4DMQ&list=WL&index=5](https://www.youtube.com/watch?v=XFJYojZ4DMQ&list=WL&index=5)
+
+2023 [https://www.youtube.com/watch?v=n_tXMhvKvTs](https://www.youtube.com/watch?v=n_tXMhvKvTs)
+
+2023 [https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462](https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462)
+
+2024 [https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/](https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/)
+
 2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
 
 [https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)

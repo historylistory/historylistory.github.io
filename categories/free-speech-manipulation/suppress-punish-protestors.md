@@ -341,3 +341,19 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 [https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges](https://www.foxnews.com/us/anti-ice-demonstrators-detained-protesting-arrest-illegal-immigrant-facing-assault-drug-charges)
 
 UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/](https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/)
+
+2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. It is unclear if this was another protest against the war in Gaza (Israel is still occupying the West Bank and killing civilians). 
+
+[https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/](https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/)
+
+[https://www.nbcbayarea.com/news/local/charges-filed-bay-bridge-takeover/4081559/](https://www.nbcbayarea.com/news/local/charges-filed-bay-bridge-takeover/4081559/)
+
+[https://www.yahoo.com/news/articles/bay-bridge-crackdown-traps-illegal-120800984.html](https://www.yahoo.com/news/articles/bay-bridge-crackdown-traps-illegal-120800984.html)
+
+[https://www.youtube.com/watch?v=XFJYojZ4DMQ&list=WL&index=5](https://www.youtube.com/watch?v=XFJYojZ4DMQ&list=WL&index=5)
+
+2023 [https://www.youtube.com/watch?v=n_tXMhvKvTs](https://www.youtube.com/watch?v=n_tXMhvKvTs)
+
+2023 [https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462](https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462)
+
+2024 [https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/](https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/)
