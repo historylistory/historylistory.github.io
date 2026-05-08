@@ -364,3 +364,7 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html](https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html)
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
+
+2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+
+[https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)

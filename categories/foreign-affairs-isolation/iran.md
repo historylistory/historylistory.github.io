@@ -1643,3 +1643,26 @@ PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-tra
 
 [https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
+2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+
+[https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
+
+2026-05-07 Scott Jennings lashed out at Adam Mockler on CNN. Mockler, “You said it was going to be four to six weeks…” Jennings “You have the attention span of a gnat…” Mockler, “…wait a minute, tell me. I debated you on TV four to six weeks ago and you said we were weeks away from it, and now you’re making condescending remarks because you can’t defend the fact that this war is not going your way…” Jennings “Get your hand out of my fucking face…”.
+
+[https://www.theguardian.com/world/2026/may/01/pro-trump-scott-jennings-commentator-cnn-iran-war](https://www.theguardian.com/world/2026/may/01/pro-trump-scott-jennings-commentator-cnn-iran-war)
+
+[https://www.yahoo.com/entertainment/tv/articles/conservative-pundit-scott-jennings-f-195943147.html](https://www.yahoo.com/entertainment/tv/articles/conservative-pundit-scott-jennings-f-195943147.html)
+
+VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-during-heated-cnn-clash-over-war-tells-him-to-back-off/vi-AA22bVZm?ocid=U508DHP](https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-during-heated-cnn-clash-over-war-tells-him-to-back-off/vi-AA22bVZm?ocid=U508DHP)
+
+[https://www.youtube.com/watch?v=X3yoNI_2vQg&list=WL&index=8](https://www.youtube.com/watch?v=X3yoNI_2vQg&list=WL&index=8)
+
+2026-05-07 The US launched strikes on Iran, claiming it was in “self-defense”.
+
+[https://www.usatoday.com/story/news/world/2026/05/07/iran-war-trump-israel-lebanon-updates--live/89971678007/](https://www.usatoday.com/story/news/world/2026/05/07/iran-war-trump-israel-lebanon-updates--live/89971678007/)
+
+[https://www.cbsnews.com/live-updates/trump-iran-war-peace-deal-strait-of-hormuz/](https://www.cbsnews.com/live-updates/trump-iran-war-peace-deal-strait-of-hormuz/)
+
+[https://kyivindependent.com/us-launches-new-strikes-on-iran-though-trump-claims-ceasefire-still-holds/](https://kyivindependent.com/us-launches-new-strikes-on-iran-though-trump-claims-ceasefire-still-holds/)
+
+[https://www.bbc.com/news/live/c152zyj0599t](https://www.bbc.com/news/live/c152zyj0599t)

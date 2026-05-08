@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: War Profits
-category_slug: greed
+category_slug: economy-labor-poverty
 subcategory_slug: war-profits
-permalink: /categories/greed/war-profits/
+permalink: /categories/economy-labor-poverty/war-profits/
 ---
 
 ### 2009 
@@ -81,3 +81,4 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 [https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html](https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html)
 
 PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)
+

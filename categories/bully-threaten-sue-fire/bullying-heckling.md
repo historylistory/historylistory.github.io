@@ -331,3 +331,10 @@ PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-tru
 [https://www.thedailybeast.com/60-minutes-anchor-norah-odonnell-corners-trump-after-he-lashes-out-at-her-for-noting-gunmans-manifesto/](https://www.thedailybeast.com/60-minutes-anchor-norah-odonnell-corners-trump-after-he-lashes-out-at-her-for-noting-gunmans-manifesto/)
 
 SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it](https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it)
+
+### 2026 May
+
+2026-05-07 Marco Rubio visited the Vatican for a private media with Pope Leo after the Trump administration’s repeated attack at the Pope for not supporting war. 
+
+[https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
+

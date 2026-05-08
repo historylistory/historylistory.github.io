@@ -205,3 +205,9 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.justice.gov/ag/media/1437806/dl?inline](https://www.justice.gov/ag/media/1437806/dl?inline)
 
 PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/news/articles/cg73l2d079ko)
+
+### 2026 May
+
+2026-05-07 Marco Rubio visited the Vatican for a private media with Pope Leo after the Trump administration’s repeated attack at the Pope for not supporting war. 
+
+[https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)

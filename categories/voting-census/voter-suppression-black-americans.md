@@ -58,3 +58,11 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/](https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/)
 
 [https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/](https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/)
+
+2026-05-07 Trump pressured South Carolina to start their redistricting process. Not the will of the people – the will of Trump.
+
+[https://thehill.com/homenews/5868640-clyburn-trump-sc-redistricting/](https://thehill.com/homenews/5868640-clyburn-trump-sc-redistricting/)
+
+[https://scdailygazette.com/2026/05/07/house-gop-releases-white-house-map-of-sc-voting-lines/](https://scdailygazette.com/2026/05/07/house-gop-releases-white-house-map-of-sc-voting-lines/)
+
+[https://www.democracydocket.com/news-alerts/south-carolina-clears-first-hurdle-on-path-to-gerrymander-eliminate-black-district/](https://www.democracydocket.com/news-alerts/south-carolina-clears-first-hurdle-on-path-to-gerrymander-eliminate-black-district/)

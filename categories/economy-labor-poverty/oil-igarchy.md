@@ -81,3 +81,19 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 [https://www.youtube.com/watch?v=m7E9FItIaPk&list=WL&index=6](https://www.youtube.com/watch?v=m7E9FItIaPk&list=WL&index=6)
 
 [https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas](https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas)
+
+2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+
+[https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
+
+2026-05-07 Oil companies reported record profits amidst rising fuel prices and the war in Iran. Shell reported $6.9B in its first quarter.
+
+[https://uk.finance.yahoo.com/news/shell-under-fire-over-outrageous-080422824.html](https://uk.finance.yahoo.com/news/shell-under-fire-over-outrageous-080422824.html)
+
+[https://www.reuters.com/business/energy/shells-profit-beats-expectations-69-billion-2026-05-07/](https://www.reuters.com/business/energy/shells-profit-beats-expectations-69-billion-2026-05-07/)
+
+[https://www.reuters.com/video/watch/idRW850907052026RP1/?chan=home](https://www.reuters.com/video/watch/idRW850907052026RP1/?chan=home)
+
+[https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html](https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html)
+
+PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)

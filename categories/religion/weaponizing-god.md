@@ -164,3 +164,9 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 [https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/](https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/)
 
 [https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)
+
+### 2026 May
+
+2026-05-07 Marco Rubio visited the Vatican for a private media with Pope Leo after the Trump administration’s repeated attack at the Pope for not supporting war. 
+
+[https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
