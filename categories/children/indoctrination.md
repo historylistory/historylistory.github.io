@@ -34,7 +34,7 @@ permalink: /categories/children/indoctrination/
 
 ### 2025 August
 
-2025-08-08 PragerU announced plans to completely replace PBS in children's education and peddle conservative content. Some examples of the material Prager U offers on their website include: Who’s behind the anti-ICE riots - How Foreign aid keeps Africa poor - Laughter on Lockdown featuring Roseanne Barr - Their Lives Mattered - a spin off the Black Lives Matter movement - MIA: Masculinity in America - Why do you hate conservatives - And an artificially generated AI version of John Adams who tells children “Facts do not care about your feelings”.
+2025-08-08 PragerU announced plans to completely replace PBS in children's education and peddle conservative content. Some examples of the material Prager U offers on their website include: Who’s behind the anti-ICE riots - How Foreign aid keeps Africa poor - Laughter on Lockdown featuring Roseanne Barr - Their Lives Mattered - a spin off the Black Lives Matter movement - MIA: Masculinity in America - Why do you hate conservatives - And an artificially generated AI version of John Adams who tells children “Facts do not care about your feelings”. The quote "Facts do not care about your feelings" comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being "almost designed to be anti-Catholic indoctrination centers". 
 
 [https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
 
@@ -45,6 +45,8 @@ permalink: /categories/children/indoctrination/
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 [https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
+[https://x.com/benshapiro/status/695638866993115136](https://x.com/benshapiro/status/695638866993115136)
 
 2025-08-18 As of mid-2025 teachers in California, Oklahoma and New York have to pass an “America First” test developed by Conservative Alt-Right Prager-U. One article said the test included questions related to false electoral claims of 2020. Oklahoma Superintendent Ryan Walters said the test was intended to ensure teachers from Democrat states weren’t indoctrinating kids. The President of the American Federation of Teachers said about Walters, “If he wants to be MAGA in chief then go be MAGA in chief. But let someone else be educator in chief and focus on other things people deserve, which is reading, literacy and wraparound services - and actual teachers who want to be in Oklahoma”.
 
@@ -58,9 +60,11 @@ permalink: /categories/children/indoctrination/
 
 ### 2025 September
 
-2025-09-03 PragerU installed a new AI-generated history exhibit of John Adams telling children "Facts do not care about your feelings".  Do you really want altered historical facts and content to come from the fuck-your-feelings crowd?
+2025-09-03 PragerU installed a new AI-generated history exhibit of John Adams telling children "Facts do not care about your feelings".  Do you really want altered historical facts and content to come from the fuck-your-feelings crowd? The quote "Facts do not care about your feelings" comes from right-wing influencer and propagandist Ben Shapiro.  Ben Shapiro, who accuses public schools of being "almost designed to be anti-Catholic indoctrination centers". 
 
 [https://www.npr.org/2025/09/03/nx-s1-5521261/white-house-ai-founders-museum](https://www.npr.org/2025/09/03/nx-s1-5521261/white-house-ai-founders-museum)
+
+[https://x.com/benshapiro/status/695638866993115136](https://x.com/benshapiro/status/695638866993115136)
 
 2025-09-28 Information circulated on X that conservatives are planning to incorporate Turning Point USA indoctrination in school curriculum. TRUMP ARMY posted a video on September 28th, then Trump reposted the video less than 12 hours later.
 
