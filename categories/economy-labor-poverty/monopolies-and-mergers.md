@@ -44,6 +44,13 @@ Three companies control roughly 75% of beer production.
 ### Appliances
 [https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx](https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx)
 
+2026-05-07 (for context because larger companies who have the edge on our markets seem to play victim to prices; it's their bottom line that matters here, not consumer survival). Whirlpool reported plans to raise their prices on appliances again after reporting shares are down 12%. They called it a “recession-level industry decline”. 
+
+[https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs](https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs)
+
+[https://www.youtube.com/watch?v=CwA_6aaneLM](https://www.youtube.com/watch?v=CwA_6aaneLM)
+
+[https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html](https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html)
 
 ### Apple
 

@@ -368,3 +368,11 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
 
 [https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
+
+2026-05-07 Whirlpool reported plans to raise their prices on appliances again after reporting shares are down 12%. They called it a “recession-level industry decline”. 
+
+[https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs](https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs)
+
+[https://www.youtube.com/watch?v=CwA_6aaneLM](https://www.youtube.com/watch?v=CwA_6aaneLM)
+
+[https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html](https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html)
