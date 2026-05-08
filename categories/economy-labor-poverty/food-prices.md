@@ -87,6 +87,14 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 2023 OVERSIGHT [https://www.govinfo.gov/content/pkg/CHRG-118hhrg52955/html/CHRG-118hhrg52955.htm?utm_source=chatgpt.com](https://www.govinfo.gov/content/pkg/CHRG-118hhrg52955/html/CHRG-118hhrg52955.htm?utm_source=chatgpt.com)
 
+2026-04-29 Maryland was the first State to ban dynamic pricing in grocery stores. Dynamic pricing is when companies use AI to charge consumers different prices based on their data, so one customer might pay more for the same product as another customer.
+
+[https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3](https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3)
+
+[https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing](https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing)
+
+[https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products](https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products)
+
 2026-04-30 By the end of April, a bale of hay costs $23 a piece, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits while farming families are under duress. 
 
 [https://www.instagram.com/reels/DXp39tRiciL/](https://www.instagram.com/reels/DXp39tRiciL/)

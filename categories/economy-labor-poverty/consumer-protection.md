@@ -87,3 +87,12 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 [https://theintercept.com/2024/11/15/click-to-cancel-ftc-trump/](https://theintercept.com/2024/11/15/click-to-cancel-ftc-trump/)
 
  
+### 2026 April
+
+2026-04-29 Maryland was the first State to ban dynamic pricing in grocery stores. Dynamic pricing is when companies use AI to charge consumers different prices based on their data, so one customer might pay more for the same product as another customer.
+
+[https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3](https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3)
+
+[https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing](https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing)
+
+[https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products](https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products)
