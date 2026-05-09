@@ -623,3 +623,9 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 [https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)
 
 [https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
+
+2026-05-07 An Arizona judge ordered the expedited deportation of the parents of 18-year-old Kimma Gonzalez who has terminal stage-4 colon cancer and had been pleading for months to be reunited with their parents. The parents have been held in ICE custody since mid-April.
+
+[https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/](https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/)
+
+[https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)
