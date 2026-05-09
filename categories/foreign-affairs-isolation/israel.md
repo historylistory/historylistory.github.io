@@ -133,3 +133,7 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 2026-05-04 Israel carried out separate attacks in Gaza killing three Palestinians and leaving several others badly injured. Israel reported a 60% occupation of the strip at this date. They also shot 26-year-old Naif Smaro in the head during a raid in Nablus when he was just dropping his wife off at the hospital to give birth to their first child. During the raid at least 4 others including 2 children were struck by ammunition. 
 
 TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
+
+2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, cooking with cardboard, no water or shelter, and rat infestation.
+
+[https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)

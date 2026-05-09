@@ -51,3 +51,11 @@ Adoption is a multi-billion-dollar for-profit industry.
 [https://georgiarecorder.com/briefs/supreme-court-sides-with-catholic-agency-in-gay-foster-care-dispute/](https://georgiarecorder.com/briefs/supreme-court-sides-with-catholic-agency-in-gay-foster-care-dispute/)
 
 [https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c](https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c)
+
+### 2026 May
+
+2026-05-07 (context due to child separation) The Guardian investigated that during the first 7 months of Trump’s ICE operations, ICE arrested the parents of at least 27,000 children. Advocates warn of a new family separation crisis. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested](https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested)
+
+[https://ca.news.yahoo.com/trump-ice-arrested-parents-least-170854889.html](https://ca.news.yahoo.com/trump-ice-arrested-parents-least-170854889.html)

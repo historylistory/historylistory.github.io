@@ -374,3 +374,6 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 [https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
 
+2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, cooking with cardboard, no water or shelter, and rat infestation.
+
+[https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)

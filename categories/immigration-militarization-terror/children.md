@@ -171,3 +171,17 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786](https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786)
 
 [https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368](https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368)
+
+### 2026 May
+
+2026-05-07 The Guardian investigated that during the first 7 months of Trump’s ICE operations, ICE arrested the parents of at least 27,000 children. Advocates warn of a new family separation crisis. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested](https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested)
+
+[https://ca.news.yahoo.com/trump-ice-arrested-parents-least-170854889.html](https://ca.news.yahoo.com/trump-ice-arrested-parents-least-170854889.html)
+
+2026-05-07 An Arizona judge ordered the expedited deportation of the parents of 18-year-old Kimma Gonzalez who has terminal stage-4 colon cancer and had been pleading for months to be reunited with their parents. The parents have been held in ICE custody since mid-April.
+
+[https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/](https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/)
+
+[https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)

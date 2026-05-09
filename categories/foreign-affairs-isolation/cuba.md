@@ -102,3 +102,15 @@ permalink: /categories/foreign-affairs-isolation/cuba/
 [https://www.democracynow.org/2026/5/4/headlines/trump_expands_sanctions_on_cubas_government_as_us_fuel_blockade_roils_cuban_economy](https://www.democracynow.org/2026/5/4/headlines/trump_expands_sanctions_on_cubas_government_as_us_fuel_blockade_roils_cuban_economy)
 
 [https://www.whitehouse.gov/presidential-actions/2026/05/imposing-sanctions-on-those-responsible-for-repression-in-cuba-and-for-threats-to-united-states-national-security-and-foreign-policy/](https://www.whitehouse.gov/presidential-actions/2026/05/imposing-sanctions-on-those-responsible-for-repression-in-cuba-and-for-threats-to-united-states-national-security-and-foreign-policy/)
+
+2026-05-05 (context) Leaked audio recordings revealed that the U.S., Israel and Honduras were all involved in a scheme together to target leftist governments in Latin America. Context, Trump pardoned Juan Orlando Hernandez in December after he was convicted of drug trafficking.
+
+[https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments](https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments)
+
+[https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/](https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/)
+
+TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+
+2026-05-08 Marco Rubio announced more sanctions for Cuba.
+
+[https://www.youtube.com/watch?v=z5gDLcc7BVw](https://www.youtube.com/watch?v=z5gDLcc7BVw)

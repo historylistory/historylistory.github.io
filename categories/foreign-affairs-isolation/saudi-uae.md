@@ -146,3 +146,12 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 [https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html](https://www.cnbc.com/2026/04/29/uae-opec-exit-oil-iran-war.html)
 
 [https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
+
+### 2026 May
+
+2026-05-08 The UAE arrested and deported more than 15000 Pakistani workers, any of them Shia Muslims, without formal charge.
+
+[https://www.democracynow.org/2026/5/8/headlines/uae_expels_pakistani_workers_as_strait_of_hormuz_crisis_leaves_20_000_sailors_stranded](https://www.democracynow.org/2026/5/8/headlines/uae_expels_pakistani_workers_as_strait_of_hormuz_crisis_leaves_20_000_sailors_stranded)
+
+TIMESTAMP 1:20 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+

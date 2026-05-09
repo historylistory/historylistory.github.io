@@ -178,3 +178,8 @@ TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&i
 [https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
 
 [https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)
+
+
+2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
+
+[https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)

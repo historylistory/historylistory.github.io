@@ -362,3 +362,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody](https://www.aljazeera.com/news/2026/5/3/gaza-flotilla-activists-appear-in-israeli-court-allege-torture-in-custody)
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings](https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings)
+
+2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, cooking with cardboard, no water or shelter, and rat infestation.
+
+[https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)

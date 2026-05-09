@@ -18,6 +18,15 @@ permalink: /categories/voting-census/voter-intimidation/
 
 [https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
 
+2026-03-27 Todd Blanche asked, “Why is there objection to sending ICE officers to polling places”.
+
+[https://thehill.com/homenews/administration/5803874-todd-blanche-immigration-enforcement-polling-places-2026-election/](https://thehill.com/homenews/administration/5803874-todd-blanche-immigration-enforcement-polling-places-2026-election/)
+
+[https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/](https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/)
+
+[https://www.youtube.com/shorts/NL-pU5sQYvk](https://www.youtube.com/shorts/NL-pU5sQYvk)
+
+
 ### 2026 April
 
 2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 

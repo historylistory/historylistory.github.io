@@ -26,5 +26,9 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-muslim
 
 [https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
 
+### 2026 May
 
+2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
+
+[https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)
 

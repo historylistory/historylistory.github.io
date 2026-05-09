@@ -404,3 +404,11 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 [https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation](https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation)
 
 [https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)
+
+### 2026 May
+
+2026-05-07 New York set to ban ICE from wearing face masks. Border Czar Tom Homan responded to this at a border security expo in Arizona, stating, “So what’s going to happen to places like New York and these other people that want to pass this ridiculous legislation not to work with us? We’re going to flood the zone. You’re going to see more ICE agents you ever seen before. So congratulations, because when we send these teams out there, we’ll find a bad guy. Most times we do. And when we find a bad guy, he’s with others. Others who may not be a priority target, but they’re in the country illegally. They weren’t people we’re looking for,. But we found them during these operations. Well guess what? They’re coming too”.
+
+[https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/](https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/)
+
+[https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches](https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches)

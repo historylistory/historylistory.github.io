@@ -66,3 +66,15 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://scdailygazette.com/2026/05/07/house-gop-releases-white-house-map-of-sc-voting-lines/](https://scdailygazette.com/2026/05/07/house-gop-releases-white-house-map-of-sc-voting-lines/)
 
 [https://www.democracydocket.com/news-alerts/south-carolina-clears-first-hurdle-on-path-to-gerrymander-eliminate-black-district/](https://www.democracydocket.com/news-alerts/south-carolina-clears-first-hurdle-on-path-to-gerrymander-eliminate-black-district/)
+
+2026-05-07 Tennessee approved a new congressional map that breaks up a majority-black city into three Republican-leaning districts.
+
+[https://www.pbs.org/newshour/politics/watch-tennessee-democrats-lock-arms-in-protest-as-gop-lawmakers-approve-new-congressional-map](https://www.pbs.org/newshour/politics/watch-tennessee-democrats-lock-arms-in-protest-as-gop-lawmakers-approve-new-congressional-map)
+
+[https://www.cnn.com/2026/05/07/politics/tennessee-redistricting-republicans-steve-cohen-us-house](https://www.cnn.com/2026/05/07/politics/tennessee-redistricting-republicans-steve-cohen-us-house)
+
+[https://www.foxnews.com/politics/tennessee-passes-new-congressional-map-likely-flip-final-dem-seat-protests-erupt-inside-capitol](https://www.foxnews.com/politics/tennessee-passes-new-congressional-map-likely-flip-final-dem-seat-protests-erupt-inside-capitol)
+
+[https://www.nbcnews.com/politics/2026-election/tennessee-republicans-pass-map-splitting-states-lone-majority-black-di-rcna343934](https://www.nbcnews.com/politics/2026-election/tennessee-republicans-pass-map-splitting-states-lone-majority-black-di-rcna343934)
+
+[https://www.npr.org/2026/05/07/nx-s1-5815023/tennessee-redistricting-map-passage](https://www.npr.org/2026/05/07/nx-s1-5815023/tennessee-redistricting-map-passage)
