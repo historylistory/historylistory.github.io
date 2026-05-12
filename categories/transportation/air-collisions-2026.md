@@ -38,3 +38,13 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://apnews.com/article/united-newark-plane-light-pole-bakery-truck-44b1aaa9e0209e3a5a9c62add4c37b43](https://apnews.com/article/united-newark-plane-light-pole-bakery-truck-44b1aaa9e0209e3a5a9c62add4c37b43)
 
 [https://www.cbsnews.com/baltimore/news/baltimore-truck-driver-bakery-united-jet-new-jersey-turnpike-father/](https://www.cbsnews.com/baltimore/news/baltimore-truck-driver-bakery-united-jet-new-jersey-turnpike-father/)
+
+2026-05-09 Frontier Airlines hit a trespasser on a runway.
+
+[https://www.youtube.com/watch?v=MgXG2jIoalo&list=WL&index=5](https://www.youtube.com/watch?v=MgXG2jIoalo&list=WL&index=5)
+
+[https://www.cnn.com/2026/05/09/us/frontier-reportedly-pedestrian-denver-runway-hnk](https://www.cnn.com/2026/05/09/us/frontier-reportedly-pedestrian-denver-runway-hnk)
+
+[https://www.businessinsider.com/frontier-airlines-passengers-broke-key-safety-rule-taking-their-bags-2026-5](https://www.businessinsider.com/frontier-airlines-passengers-broke-key-safety-rule-taking-their-bags-2026-5)
+
+[https://apnews.com/article/denver-airport-frontier-airline-person-injured-runway-e75355b2bed9ec3bae44cb064c92c1da](https://apnews.com/article/denver-airport-frontier-airline-person-injured-runway-e75355b2bed9ec3bae44cb064c92c1da)

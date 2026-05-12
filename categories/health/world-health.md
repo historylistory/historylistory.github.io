@@ -60,5 +60,9 @@ permalink: /categories/health/world-health/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/](https://www.whitehouse.gov/presidential-actions/2025/01/withdrawing-the-united-states-from-the-worldhealth-organization/)
 
+### 2026 May
 
+2026-05-08 Hantavirus reached 9 countries.
+
+[https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s](https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s)
 

@@ -97,3 +97,9 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 [https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html](https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html)
 
 PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)
+
+2026-05-09 An oil spill was detected near Kharg Island.
+
+[https://abcnews.com/video/132818823/](https://abcnews.com/video/132818823/)
+
+[https://www.youtube.com/watch?v=opbpxVvm2iI&list=WL&index=4](https://www.youtube.com/watch?v=opbpxVvm2iI&list=WL&index=4)

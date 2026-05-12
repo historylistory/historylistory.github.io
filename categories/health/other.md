@@ -111,3 +111,20 @@ permalink: /categories/health/other/
 [https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/](https://ictnews.org/news/war-climate-change-and-ai-whats-at-stake-at-this-years-un-indigenous-forum/)
 
 [https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues](https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues)
+
+2026-04-30 Headline in Men’s Health “Inside the Battle for Bigger and Bigger Balls”.
+
+[https://www.menshealth.com/sex-women/a70848194/saline-testicle-inflation/](https://www.menshealth.com/sex-women/a70848194/saline-testicle-inflation/)
+
+### 2026 May
+
+
+2026-05-08 RFK halted a ban on tanning beds for minors. 
+
+[https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258](https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258)
+
+[https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760](https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760)
+
+2026-05-08 Hantavirus reached 9 countries.
+
+[https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s](https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s)

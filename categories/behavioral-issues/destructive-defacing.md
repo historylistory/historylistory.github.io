@@ -188,6 +188,17 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2026 May
 
+2026-05-05 As of May 2026 the White House had dumped roughly 37,000 cubic yards of destroyed East Wing debris on a local municipal golf course.
+
+[https://www.youtube.com/watch?v=t3994nVhHSo](https://www.youtube.com/watch?v=t3994nVhHSo)
+
+[https://abcnews.com/US/wireStory/white-house-east-wing-debris-dumped-nearby-golf-132681876](https://abcnews.com/US/wireStory/white-house-east-wing-debris-dumped-nearby-golf-132681876)
+
+[https://fortune.com/2026/05/07/white-house-east-wing-demolition-debris-toxic-metals-golf-course-trump/](https://fortune.com/2026/05/07/white-house-east-wing-demolition-debris-toxic-metals-golf-course-trump/)
+
+[https://apnews.com/article/trump-east-wing-debris-golf-course-a78abeefed782423d70bd03a44d0b740](https://apnews.com/article/trump-east-wing-debris-golf-course-a78abeefed782423d70bd03a44d0b740)
+
+
 2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
 
 [https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)

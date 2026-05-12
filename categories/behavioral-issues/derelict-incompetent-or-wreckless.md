@@ -564,3 +564,15 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.cnn.com/2026/04/30/politics/tom-kean-medical-issue-absence-congress](https://www.cnn.com/2026/04/30/politics/tom-kean-medical-issue-absence-congress)
 
 [https://www.theguardian.com/us-news/2026/apr/24/tom-kean-republican-congress](https://www.theguardian.com/us-news/2026/apr/24/tom-kean-republican-congress)
+
+### 2026 May
+
+2026-05-06 Kash Patel’s personalized bourbon stash.
+
+[https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/](https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/)
+
+[https://globemagazine.com/fbi-director-kash-patels-custom-liquor-bottles-spark-outrage-among-current-and-former-agents/](https://globemagazine.com/fbi-director-kash-patels-custom-liquor-bottles-spark-outrage-among-current-and-former-agents/)
+
+[https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4](https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4)
+
+[https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/](https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/)

@@ -90,3 +90,8 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 [https://www.whitehouse.gov/wp-content/uploads/2026/03/03.20.26-National-Policy-Framework-for-Artificial-Intelligence-Legislative-Recommendations.pdf](https://www.whitehouse.gov/wp-content/uploads/2026/03/03.20.26-National-Policy-Framework-for-Artificial-Intelligence-Legislative-Recommendations.pdf)
 
+### 2026 May
+
+2026-05-10 Malware in robot dogs is a national security nightmare.
+
+RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8WuXDXfcI](https://www.youtube.com/watch?v=lA8WuXDXfcI)

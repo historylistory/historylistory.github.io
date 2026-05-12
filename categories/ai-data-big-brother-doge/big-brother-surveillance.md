@@ -334,3 +334,7 @@ Think About:
 [https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1](https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1)
 
 [https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)
+
+2026-05-10 Malware in robot dogs is a national security nightmare.
+
+RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8WuXDXfcI](https://www.youtube.com/watch?v=lA8WuXDXfcI)

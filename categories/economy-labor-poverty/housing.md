@@ -66,6 +66,12 @@ permalink: /categories/economy-labor-poverty/housing/
 
 [https://www.housingwire.com/articles/president-trump-says-he-wants-to-keep-home-prices-high-lower-borrowing-costs/](https://www.housingwire.com/articles/president-trump-says-he-wants-to-keep-home-prices-high-lower-borrowing-costs/)
 
+### 2026 February
+
+2026-02-05 Homeowners saw a return of homeowner debts, calling them zombie mortgages.
+
+[https://www.youtube.com/watch?v=3drD5g6nL_8&list=WL&index=2&t=8s](https://www.youtube.com/watch?v=3drD5g6nL_8&list=WL&index=2&t=8s)
+
 ### 2026 March
 
 2026-03-13 The Senate passed a bipartisan bill aimed at lowering housing costs. The bill passed 89 to 10.

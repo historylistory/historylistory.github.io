@@ -249,6 +249,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/](https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/)
 
+2025-10-03 Kash Patel had his own coin minted.
+
+[https://www.theatlantic.com/ideas/archive/2025/10/kash-patel-military-memento-internet/684456/](https://www.theatlantic.com/ideas/archive/2025/10/kash-patel-military-memento-internet/684456/)
+
+
+
+
 2025-10-09 In protest over Bad Bunny set to headline the Super Bowl halftime, the Trump administration announced it would be setting up its **own** Charlie Kirk Turning Point USA “All American Halftime Show”.
 
 [https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150](https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150)
@@ -358,6 +365,11 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.thedailybeast.com/trump-issues-sinister-warning-americans-need-a-dictator/](https://www.thedailybeast.com/trump-issues-sinister-warning-americans-need-a-dictator/)
 
 ### 2026 February
+
+2026-02-10 Andy Ogles issued a request for a formal request into the NFL for the Superbowl halftime show (because of Bad Bunny). 
+
+[https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show](https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show)
+
 
 2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 
@@ -470,6 +482,11 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.youtube.com/watch?v=7QldP6hff84](https://www.youtube.com/watch?v=7QldP6hff84)
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
+
+2026-03-19 Kash Patel had Nike design shoes for him. 
+
+[https://www.fastcompany.com/91511269/kash-patel-nike-sneakers](https://www.fastcompany.com/91511269/kash-patel-nike-sneakers)
+
 
 2026-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
@@ -605,3 +622,24 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 [https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
 
 [https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)
+
+### 2026 May
+
+2026-05-06 Kash Patel’s personalized bourbon stash.
+
+[https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/](https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/)
+
+[https://globemagazine.com/fbi-director-kash-patels-custom-liquor-bottles-spark-outrage-among-current-and-former-agents/](https://globemagazine.com/fbi-director-kash-patels-custom-liquor-bottles-spark-outrage-among-current-and-former-agents/)
+
+[https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4](https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4)
+
+[https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/](https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/)
+
+2026-05-09 MAGA issued formal complaints on Bad Bunny for his halftime show. 
+
+[https://www.yahoo.com/entertainment/music/articles/let-us-savor-saltiest-fcc-000105438.html](https://www.yahoo.com/entertainment/music/articles/let-us-savor-saltiest-fcc-000105438.html)
+
+PAY WALL [https://www.latimes.com/entertainment-arts/music/story/2026-05-09/bad-bunny-super-bowl-complaints-fcc-halftime-show](https://www.latimes.com/entertainment-arts/music/story/2026-05-09/bad-bunny-super-bowl-complaints-fcc-halftime-show)
+
+UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf](https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf)
+

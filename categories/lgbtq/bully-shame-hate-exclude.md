@@ -36,11 +36,25 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 [https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c](https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c)
 
+2021-09-02 China banned “sissy idols” and effeminate men on TV.
+
+[https://www.npr.org/2021/09/02/1033687586/china-ban-effeminate-men-tv-official-morality](https://www.npr.org/2021/09/02/1033687586/china-ban-effeminate-men-tv-official-morality)
+
+[https://www.bbc.com/news/world-asia-china-59576108](https://www.bbc.com/news/world-asia-china-59576108)
+
+
 ### 2022
 
 2022-06-01 Director Justin Folk produced titled “What is a Woman” starring conservative Matt Walsh.  In Walsh’s speech, he accused schoolboards who allowed gender identity of child abuse, preying upon impressionable children and indoctrination.
 
 [https://en.wikipedia.org/wiki/What_Is_a_Woman%3F](https://en.wikipedia.org/wiki/What_Is_a_Woman%3F)
+
+### 2023
+
+2023-11-30 The Russian Supreme Court labelled LGBT as a movement and an “extremist organization”.
+
+[https://www.hrw.org/news/2023/11/30/russia-supreme-court-bans-lgbt-movement-extremist](https://www.hrw.org/news/2023/11/30/russia-supreme-court-bans-lgbt-movement-extremist)
+
 
 ### 2024
 

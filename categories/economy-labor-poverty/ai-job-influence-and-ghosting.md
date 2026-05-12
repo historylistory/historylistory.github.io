@@ -29,3 +29,11 @@ permalink: /categories/economy-labor-poverty/ai-job-influence-and-ghosting/
 2025-08-03 Companies started using AI to do job interviews. 
 
 [https://fortune.com/2025/08/03/ai-interviewers-job-seekers-unemployment-hiring-hr-teams/](https://fortune.com/2025/08/03/ai-interviewers-job-seekers-unemployment-hiring-hr-teams/)
+
+### 2026 May
+
+2026-05-05 Coinbase cut 14% of its workforce due to AI. 
+
+[https://www.reuters.com/business/world-at-work/coinbase-cut-about-14-workforce-2026-05-05/](https://www.reuters.com/business/world-at-work/coinbase-cut-about-14-workforce-2026-05-05/)
+
+[https://fortune.com/2026/05/05/coinbase-layoffs-14-of-employees-ai-tech-ai-job-anxiety-crypto/](https://fortune.com/2026/05/05/coinbase-layoffs-14-of-employees-ai-tech-ai-job-anxiety-crypto/)

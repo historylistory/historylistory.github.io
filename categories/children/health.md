@@ -69,3 +69,11 @@ permalink: /categories/children/health/
 [https://jheor.org/post/3465-trump-claims-no-downside-to-avoiding-tylenol-during-pregnancy-he-s-wrong](https://jheor.org/post/3465-trump-claims-no-downside-to-avoiding-tylenol-during-pregnancy-he-s-wrong)
 
 [https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/](https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/)
+
+### 2026 May
+
+2026-05-08 RFK halted a ban on tanning beds for minors. 
+
+[https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258](https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258)
+
+[https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760](https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760)
