@@ -6,6 +6,11 @@ subcategory_slug: derelict-incompetent-or-wreckless
 permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 ---
 
+### SHADOW DOCKET ABUSE
+
+[https://www.youtube.com/watch?v=qKeq4CEZtm8](https://www.youtube.com/watch?v=qKeq4CEZtm8)
+
+
 ### 1991 (context)
 
 1991 thru 2009 – For context, Trump bankrupted at least 4 of his own casinos.
