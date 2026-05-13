@@ -366,3 +366,16 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, cooking with cardboard, no water or shelter, and rat infestation.
 
 [https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)
+
+
+2026-05-11 The BBC censored a documentary “Gaza: Doctors Under Attack”. 
+
+[https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta](https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta)
+
+[https://www.youtube.com/shorts/eh69K_7pAuE](https://www.youtube.com/shorts/eh69K_7pAuE)
+
+TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy](https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy)
+
+[https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/](https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/)
+
+[https://www.bbc.com/news/articles/clydv5yngq4o](https://www.bbc.com/news/articles/clydv5yngq4o)

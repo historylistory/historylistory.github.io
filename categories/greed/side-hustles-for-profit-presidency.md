@@ -160,3 +160,17 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD](https://www.msn.com/en-us/news/insight/eric-trump-backed-firm-s-24m-pentagon-deal-sparks-criticism/gm-GM7102CBFD)
 
 [https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
+
+### 2026 May
+
+2026-05-11 Trump Mobile was launched in June 2025 and took preorders for phones. In 2026 they changed their terms to indicate now phones aren’t coming, “Trump Mobile does not guarantee that: the Device will be commercially released; regulatory approvals…will be obtained; carrier certification will be secured…or delivery will occur within any specific timeframe”.
+
+[https://fortune.com/2026/05/11/trump-mobile-gold-trump-phone-deposits-t1-device-fcc/](https://fortune.com/2026/05/11/trump-mobile-gold-trump-phone-deposits-t1-device-fcc/)
+
+[https://thehill.com/homenews/state-watch/5872884-terms-on-trump-mobile-site-indicate-that-phones-may-never-come/](https://thehill.com/homenews/state-watch/5872884-terms-on-trump-mobile-site-indicate-that-phones-may-never-come/)
+
+USA TODAY SAYS THEY ARE SHIPPING THE PHONES: [https://www.usatoday.com/story/tech/2026/05/12/trump-mobile-t1-phone-shipping/90046321007/](https://www.usatoday.com/story/tech/2026/05/12/trump-mobile-t1-phone-shipping/90046321007/)
+
+[https://time.com/article/2026/05/11/trump-phone-late-not-made-in-u-s/](https://time.com/article/2026/05/11/trump-phone-late-not-made-in-u-s/)
+
+TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1)

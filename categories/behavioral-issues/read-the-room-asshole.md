@@ -222,3 +222,21 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html](https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html)
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
+
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+
+[https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841](https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841)
+
+[https://www.bbc.com/news/videos/cp8pmgmpgj3o](https://www.bbc.com/news/videos/cp8pmgmpgj3o)
+
+[https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit](https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit)
+
+[https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/](https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/)
+
+2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
+
+[https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
+
+[https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
+
+[https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)

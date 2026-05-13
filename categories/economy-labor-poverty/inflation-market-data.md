@@ -376,3 +376,11 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.youtube.com/watch?v=CwA_6aaneLM](https://www.youtube.com/watch?v=CwA_6aaneLM)
 
 [https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html](https://www.telegraphherald.com/news/business/article_d4117490-f07f-5c0c-9552-a4c7441f6b3f.html)
+
+2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
+
+[https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
+
+[https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
+
+[https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)

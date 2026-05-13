@@ -323,3 +323,19 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
 
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
+
+[https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
+
+[https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
+
+[https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
+
+2026-05-13 Trump met with President Xi Jinping in China to discuss trade and arms sales.
+
+[https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879](https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879)
+
+[https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi](https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi)
+
+[https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)

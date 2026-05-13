@@ -377,3 +377,15 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 [https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years](https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years)
 
 [https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)
+
+2026-05-11 The BBC censored a documentary “Gaza: Doctors Under Attack”. 
+
+[https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta](https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta)
+
+[https://www.youtube.com/shorts/eh69K_7pAuE](https://www.youtube.com/shorts/eh69K_7pAuE)
+
+TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy](https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy)
+
+[https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/](https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/)
+
+[https://www.bbc.com/news/articles/clydv5yngq4o](https://www.bbc.com/news/articles/clydv5yngq4o)

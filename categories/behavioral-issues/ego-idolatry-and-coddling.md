@@ -363,3 +363,15 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis](https://www.cnn.com/2026/04/29/politics/passports-trump-face-park-pass-currency-analysis)
 
 PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/news/articles/cr5pn1ngerpo)
+
+### 2026 May
+
+2026-05-10 A 22-foot golden statue of Donald Trump was erected at the Trump National Doral Miami. Pastor Mark Burns wrote on social media, “….Let me be clear: this is not a golden calf…”.
+
+[https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2](https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2)
+
+[https://www.usatoday.com/story/news/politics/2026/05/11/donald-trump-gold-statue/90029751007/](https://www.usatoday.com/story/news/politics/2026/05/11/donald-trump-gold-statue/90029751007/)
+
+[https://www.newsweek.com/pastor-defends-golden-trump-statue-from-biblical-backlash-11933490](https://www.newsweek.com/pastor-defends-golden-trump-statue-from-biblical-backlash-11933490)
+
+[https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/](https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/)

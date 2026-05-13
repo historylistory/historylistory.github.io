@@ -209,3 +209,12 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+
+[https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841](https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841)
+
+[https://www.bbc.com/news/videos/cp8pmgmpgj3o](https://www.bbc.com/news/videos/cp8pmgmpgj3o)
+
+[https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit](https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit)
+
+[https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/](https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/)

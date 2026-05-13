@@ -373,3 +373,15 @@ SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-gene
 [https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
 
 [https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)
+
+2026-05-12 FDA Marty Makary resigned.
+
+[https://www.youtube.com/watch?v=XY20ijch-Vc&list=WL&index=3](https://www.youtube.com/watch?v=XY20ijch-Vc&list=WL&index=3)
+
+AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makary-resigns-after-tumultuous-tenure](https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makary-resigns-after-tumultuous-tenure)
+
+[https://www.pbs.org/newshour/show/news-wrap-fda-head-marty-makary-resigning-after-uneven-tenure](https://www.pbs.org/newshour/show/news-wrap-fda-head-marty-makary-resigning-after-uneven-tenure)
+
+[https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765](https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765)
+
+SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)

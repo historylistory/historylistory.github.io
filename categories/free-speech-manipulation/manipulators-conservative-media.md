@@ -325,3 +325,17 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 SUB WALL [https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206](https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206)
 
 PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/news/articles/cr5p4pp1407o)
+
+### 2026 May
+
+2026-05-11 The BBC censored a documentary “Gaza: Doctors Under Attack”. 
+
+[https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta](https://www.aljazeera.com/news/2026/5/11/gaza-filmmakers-slam-bbc-after-shelved-documentary-wins-bafta)
+
+[https://www.youtube.com/shorts/eh69K_7pAuE](https://www.youtube.com/shorts/eh69K_7pAuE)
+
+TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy](https://www.camera.org/article/timeline-the-bbc-gaza-documentary-controversy)
+
+[https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/](https://www.bbc.co.uk/helpandfeedback/corrections_clarifications/)
+
+[https://www.bbc.com/news/articles/clydv5yngq4o](https://www.bbc.com/news/articles/clydv5yngq4o)

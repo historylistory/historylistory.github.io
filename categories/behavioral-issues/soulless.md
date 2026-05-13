@@ -629,3 +629,12 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 [https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/](https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/)
 
 [https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)
+
+2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
+
+[https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
+
+[https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
+
+[https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
+

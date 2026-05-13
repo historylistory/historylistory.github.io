@@ -47,3 +47,11 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1](https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1)
 
 [https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)
+
+2026-05-13 Trump met with President Xi Jinping in China to discuss trade and arms sales.
+
+[https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879](https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879)
+
+[https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi](https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi)
+
+[https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)

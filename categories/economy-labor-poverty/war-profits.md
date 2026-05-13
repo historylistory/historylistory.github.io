@@ -82,3 +82,10 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 
 PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)
 
+2026-05-13 (CONTEXT) Trump met with President Xi Jinping in China to discuss trade and arms sales.
+
+[https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879](https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879)
+
+[https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi](https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi)
+
+[https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)
