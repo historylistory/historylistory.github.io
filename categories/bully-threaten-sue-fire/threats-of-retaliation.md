@@ -699,3 +699,13 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 [https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
 
 [https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)
+
+### 2026 May
+
+2026-05-14 JD Vance announced Trump would withhold $1.3B in Medicaid reimbursement from California and cited other Democrat-led states like New York and Hawaii. Senator Alex Padilla cited “political retribution”.
+
+[https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2](https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2)
+
+[https://www.instagram.com/p/DYSu-7HlUE-/](https://www.instagram.com/p/DYSu-7HlUE-/)
+
+[https://www.commondreams.org/news/california-home-health](https://www.commondreams.org/news/california-home-health)

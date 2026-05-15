@@ -81,3 +81,13 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi](https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi)
 
 [https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)
+
+2026-05-14 China’s president Xi Jinping warned president Trump that the US and China could clash over issues with Taiwan. 
+
+[https://www.pbs.org/newshour/world/xi-tells-trump-u-s-and-china-could-clash-over-taiwan](https://www.pbs.org/newshour/world/xi-tells-trump-u-s-and-china-could-clash-over-taiwan)
+
+[https://www.cnn.com/politics/live-news/trump-china-visit-xi-meeting-hnk](https://www.cnn.com/politics/live-news/trump-china-visit-xi-meeting-hnk)
+
+[https://www.cnbc.com/2026/05/14/trump-xi-beijing-summit-trade-taiwan-ai-iran-rare-earths-tariffs.html](https://www.cnbc.com/2026/05/14/trump-xi-beijing-summit-trade-taiwan-ai-iran-rare-earths-tariffs.html)
+
+[https://www.nbcnews.com/world/china/xi-warns-trump-taiwan-conflict-summit-beijing-china-us-rcna345069](https://www.nbcnews.com/world/china/xi-warns-trump-taiwan-conflict-summit-beijing-china-us-rcna345069)

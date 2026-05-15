@@ -37,3 +37,10 @@ permalink: /categories/foreign-affairs-isolation/sudan/
 [https://www.reuters.com/world/africa/us-end-protected-status-south-sudanese-nationals-cbs-2025-11-05/](https://www.reuters.com/world/africa/us-end-protected-status-south-sudanese-nationals-cbs-2025-11-05/)
 
 [https://www.democracynow.org/2025/11/6/headlines/dhs_to_end_deportation_protections_for_south_sudanese_immigrants](https://www.democracynow.org/2025/11/6/headlines/dhs_to_end_deportation_protections_for_south_sudanese_immigrants)
+
+### 2026 May
+
+2026-05-14 Two weeks of clashes in Sudan killed 61 people and 9 children. 
+
+TIMESTAMP 10:12 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=620s](https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=620s)
+
