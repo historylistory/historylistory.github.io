@@ -217,6 +217,14 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
 
+### 2025 November
+
+2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 
+
+VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](https://www.youtube.com/watch?v=_7oOnkZvqQE)
+
+[https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
+
 ### 2025 December
 
 2025-12-17 Winter floods devastated Gaza, killing several people.

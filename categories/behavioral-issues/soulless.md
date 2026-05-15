@@ -200,6 +200,13 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 November
 
+2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 
+
+VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](https://www.youtube.com/watch?v=_7oOnkZvqQE)
+
+[https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
+
+
 2025-11-30 Pete Hegseth posted a meme on social media depicting a children’s cartoon character Franklin the Turtle firing missiles at boats and wrote above the caption “For your Christmas wish list…”
 
 [https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes](https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes)

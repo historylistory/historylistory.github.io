@@ -136,6 +136,17 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 [https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn](https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn)
 
+2022-07-28 Matt Gaetz at Turning Point Action, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
+
+[https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change](https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change)
+
+[https://www.yahoo.com/news/matt-gaetz-says-pro-choice-095047625.html](https://www.yahoo.com/news/matt-gaetz-says-pro-choice-095047625.html)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/matt-gaetz-ugly-rhetoric-women-abortion-matters-rcna39865](https://www.ms.now/rachel-maddow-show/maddowblog/matt-gaetz-ugly-rhetoric-women-abortion-matters-rcna39865)
+
+[https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care](https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care)
+
+
 2022-08-19 **Amber Nicole Thurman died at the age of 28.** She passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment **because her State had made performing the procedure a felony.** Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. **During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”***
 
 [https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death](https://www.propublica.org/article/georgia-abortion-ban-amber-thurman-death)

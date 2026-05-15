@@ -22,6 +22,16 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 ### 2022
 
+2022-07-28 Matt Gaetz at Turning Point Action, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
+
+[https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change](https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change)
+
+[https://www.yahoo.com/news/matt-gaetz-says-pro-choice-095047625.html](https://www.yahoo.com/news/matt-gaetz-says-pro-choice-095047625.html)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/matt-gaetz-ugly-rhetoric-women-abortion-matters-rcna39865](https://www.ms.now/rachel-maddow-show/maddowblog/matt-gaetz-ugly-rhetoric-women-abortion-matters-rcna39865)
+
+[https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care](https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care)
+
 2022-09-01 The Karoline Leavitt “hoe-bag ad” (as deemed by social media).
 
 TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)

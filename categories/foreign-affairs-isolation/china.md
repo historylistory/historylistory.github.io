@@ -10,6 +10,19 @@ permalink: /categories/foreign-affairs-isolation/china/
 
 Still in progress; have not transfered ByteDance/TikTok or other events yet 
 
+### 2025 December
+
+2025-12-18 (for context) The U.S. announced an $11B arms package for Taiwan.
+
+[https://www.reuters.com/world/china/taiwan-says-us-has-initiated-111-billion-arms-sale-procedure-2025-12-18/](https://www.reuters.com/world/china/taiwan-says-us-has-initiated-111-billion-arms-sale-procedure-2025-12-18/)
+
+[https://thehill.com/homenews/5875048-top-democrats-press-trump-to-approve-arms-sale-to-taiwan-ahead-of-xi-meeting/](https://thehill.com/homenews/5875048-top-democrats-press-trump-to-approve-arms-sale-to-taiwan-ahead-of-xi-meeting/)
+
+[https://www.yahoo.com/news/articles/us-14bn-taiwan-weapons-deal-043000067.html](https://www.yahoo.com/news/articles/us-14bn-taiwan-weapons-deal-043000067.html)
+
+SUB WALL [https://www.telegraph.co.uk/us/news/2026/05/15/us-taiwan-weapons-deal-xi-jinping-donald-trump/](https://www.telegraph.co.uk/us/news/2026/05/15/us-taiwan-weapons-deal-xi-jinping-donald-trump/)
+
+
 ### 2026 April
 
 2026-04-14 After Trump announced he’d place a blockade on the Strait of Hormuz, Chinese Defense Minister Dong Jun said in a statement, “We have trade and energy agreements with Iran; we expect others not to interfere in our affairs. The Strait of Hormuz is open to us”.

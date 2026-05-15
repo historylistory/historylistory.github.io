@@ -53,6 +53,14 @@ permalink: /categories/children/abroad/
 
 [https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/](https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/)
 
+### 2025 November
+
+2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 
+
+VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](https://www.youtube.com/watch?v=_7oOnkZvqQE)
+
+[https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
+
 ### 2025 December
 
 2025-12-17 After the Trump administration shut down USAID, reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud.

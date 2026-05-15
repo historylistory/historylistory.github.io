@@ -61,6 +61,15 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
+### 2025 November
+
+2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 
+
+VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](https://www.youtube.com/watch?v=_7oOnkZvqQE)
+
+[https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
+
+
 ### 2026 March
 
 2026-03-24 The UN demanded immediate release of Dr. Hussam Abu Safiya by Israel. In the demands they condemned Israel for severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
