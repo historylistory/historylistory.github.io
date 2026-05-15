@@ -645,3 +645,15 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
 
+2026-05-13 Israeli fire killed a 16-year-old Palestinian child Yusef Ali Kaabnah near the town of Jiljilya. 
+
+[https://x.com/MiddleEastEye/status/2054676281531175217](https://x.com/MiddleEastEye/status/2054676281531175217)
+
+[https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
+
+2026-05-13 Israeli forces shot and killed 44-year-old Zakaria Qatusa in the West Bank as he tired to climb a concrete barrier to find work in Israel to feed his four children.
+
+[https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f](https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f)
+
+[https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php](https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php)
+

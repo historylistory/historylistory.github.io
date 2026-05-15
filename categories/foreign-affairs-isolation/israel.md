@@ -146,3 +146,15 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, cooking with cardboard, no water or shelter, and rat infestation.
 
 [https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)
+
+2026-05-13 Israeli fire killed a 16-year-old Palestinian child Yusef Ali Kaabnah near the town of Jiljilya. 
+
+[https://x.com/MiddleEastEye/status/2054676281531175217](https://x.com/MiddleEastEye/status/2054676281531175217)
+
+[https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
+
+2026-05-13 Israeli forces shot and killed 44-year-old Zakaria Qatusa in the West Bank as he tired to climb a concrete barrier to find work in Israel to feed his four children.
+
+[https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f](https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f)
+
+[https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php](https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php)

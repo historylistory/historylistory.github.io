@@ -89,3 +89,8 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns](https://www.democracynow.org/2026/5/4/headlines/israel_kills_41_in_lebanon_despite_ceasefire_issues_new_displacement_orders_for_southern_towns)
 
+2026-05-13 Despite a ceasefire allegedly brokered by the US, Israel killed 12 people including 2 children. 
+
+[https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993](https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993)
+
+[https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/](https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/)

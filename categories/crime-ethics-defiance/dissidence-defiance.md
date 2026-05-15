@@ -411,3 +411,10 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+
+2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
+
+[https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
+
+[https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
+

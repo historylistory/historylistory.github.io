@@ -158,3 +158,18 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 [https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid](https://www.gulftoday.ae/news/2026/04/23/israeli-fire-kills-15-year-old-palestinian-in-west-bank-raid)
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
+
+### 2026 May
+
+2026-05-13 Despite a ceasefire allegedly brokered by the US, Israel killed 12 people including 2 children. 
+
+[https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993](https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993)
+
+[https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/](https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/)
+
+2026-05-13 Israeli fire killed a 16-year-old Palestinian child Yusef Ali Kaabnah near the town of Jiljilya. 
+
+[https://x.com/MiddleEastEye/status/2054676281531175217](https://x.com/MiddleEastEye/status/2054676281531175217)
+
+[https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
+

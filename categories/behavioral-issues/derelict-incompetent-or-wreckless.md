@@ -581,3 +581,9 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4](https://www.washingtonpost.com/ripple/2026/05/08/kash-patel-bourbon-swag/?itid=hp_brand_promo_4)
 
 [https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/](https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/)
+
+2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
+
+[https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
+
+[https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
