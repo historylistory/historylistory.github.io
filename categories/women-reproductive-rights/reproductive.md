@@ -350,6 +350,10 @@ It would also make it a felony to give someone information about where to get a
 
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
 
+
+
+
+
 ### 2026 May
 
 2026-05-02 The Supreme Court banned, then temporarily lifted the ban on, mifepristone. 
@@ -373,3 +377,15 @@ It would also make it a felony to give someone information about where to get a
 [https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/](https://www.thedailybeast.com/leaders-in-anti-abortion-movement-turn-on-problem-donald-trump/)
 
 PAY WALL [https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c](https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c)
+
+2026-05-12 Dr. Oz said 30% of American women are “under-babied”, saying “You have to get moms healthy enough to do the most creative thing the universe knows, which is making babies”. For context, a Johns Hopkins Bloomberg School of Public Health study cites that even though there is a record low fertility rate in 2024, the birth rate is still higher than the number of deaths, meaning population is not in decline. 
+
+[https://people.com/dr-oz-says-americans-under-babied-11972922](https://people.com/dr-oz-says-americans-under-babied-11972922)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/dr-oz-fertility-crisis-population-b2974957.html](https://www.independent.co.uk/news/world/americas/us-politics/dr-oz-fertility-crisis-population-b2974957.html)
+
+[https://www.the-independent.com/news/world/americas/us-politics/dr-oz-fertility-crisis-population-b2974957.html](https://www.the-independent.com/news/world/americas/us-politics/dr-oz-fertility-crisis-population-b2974957.html)
+
+JOHNS HOPKINS STUDY [https://publichealth.jhu.edu/2026/is-the-us-birth-rate-declining](https://publichealth.jhu.edu/2026/is-the-us-birth-rate-declining)
+
+GREAT VIDEO [https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5](https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5)

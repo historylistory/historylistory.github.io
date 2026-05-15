@@ -22,6 +22,15 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 
 [https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf](https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf)
 
+2026-05-12 The Trump administration announced former Vice President of for-profit private prisons Geo Group David Venturella would become the new acting director for ICE. 
+
+[https://www.reuters.com/legal/government/us-ice-official-who-worked-private-prison-firm-will-be-agencys-new-acting-head-2026-05-13/](https://www.reuters.com/legal/government/us-ice-official-who-worked-private-prison-firm-will-be-agencys-new-acting-head-2026-05-13/)
+
+[https://www.npr.org/2026/05/12/g-s1-121766/ice-acting-director-venturella](https://www.npr.org/2026/05/12/g-s1-121766/ice-acting-director-venturella)
+
+[https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/](https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/)
+
+
 ### Behind Closed Doors
 
 2026-05-05 (context) DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers. 

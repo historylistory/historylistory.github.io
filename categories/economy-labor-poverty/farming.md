@@ -199,6 +199,8 @@ permalink: /categories/economy-labor-poverty/farming/
 
 ### 2026 April
 
+
+
 2026-04-30 By the end of April, a bale of hay costs $23 a piece, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits while farming families are under duress. 
 
 [https://www.instagram.com/reels/DXp39tRiciL/](https://www.instagram.com/reels/DXp39tRiciL/)
@@ -210,3 +212,13 @@ permalink: /categories/economy-labor-poverty/farming/
 [https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/](https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/)
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
+
+### 2026 May
+
+2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+
+[https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
+
+[https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
+
+[https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)

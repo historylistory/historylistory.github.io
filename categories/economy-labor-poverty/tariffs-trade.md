@@ -234,6 +234,8 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2026 April
 
+
+
 2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
@@ -323,6 +325,16 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
 
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+
+2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+
+[https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
+
+[https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
+
+[https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
+
 
 2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
 

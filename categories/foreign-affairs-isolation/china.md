@@ -25,6 +25,8 @@ SUB WALL [https://www.telegraph.co.uk/us/news/2026/05/15/us-taiwan-weapons-deal-
 
 ### 2026 April
 
+
+
 2026-04-14 After Trump announced he’d place a blockade on the Strait of Hormuz, Chinese Defense Minister Dong Jun said in a statement, “We have trade and energy agreements with Iran; we expect others not to interfere in our affairs. The Strait of Hormuz is open to us”.
 
 [https://www.democracynow.org/2026/4/14/headlines/the_strait_of_hormuz_is_open_to_us_china_warns_us_against_blockading_iranian_ports](https://www.democracynow.org/2026/4/14/headlines/the_strait_of_hormuz_is_open_to_us_china_warns_us_against_blockading_iranian_ports)
@@ -60,6 +62,17 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1](https://apnews.com/article/pulitzers-ap-china-surveillance-investigation-916b0fa8d2eb022d7630da63be0c34d1)
 
 [https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)
+
+
+2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+
+[https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
+
+[https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
+
+[https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
+
+
 
 2026-05-13 Trump met with President Xi Jinping in China to discuss trade and arms sales.
 

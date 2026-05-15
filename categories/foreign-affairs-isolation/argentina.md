@@ -39,6 +39,8 @@ permalink: /categories/foreign-affairs-isolation/argentina/
 [https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml](https://batimes.com.ar/news/argentina/explainer-mileis-attempt-to-change-argentinas-glacier-protection-law.phtml)
 
 
+
+
 ### 2026 May
 
 
@@ -49,3 +51,11 @@ permalink: /categories/foreign-affairs-isolation/argentina/
 [https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/](https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/)
 
 TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+
+2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+
+[https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
+
+[https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
+
+[https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
