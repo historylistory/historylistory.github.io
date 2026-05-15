@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Poverty
+title: Poverty, Health & Welfare
 category_slug: economy-labor-poverty
-subcategory_slug: poverty
-permalink: /categories/economy-labor-poverty/poverty/
+subcategory_slug: poverty-health-welfare
+permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 ---
 
 ### 2012
@@ -13,6 +13,12 @@ permalink: /categories/economy-labor-poverty/poverty/
 {% include youtubePlayer.html id="sE1Bhzj81Zo" %}
 
 [https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
+
+### 2023
+
+2023-02-08 During a State of the Union address, Biden was booed and heckled after he warned that Republicans would make cuts to Medicare and Medicaid.
+
+{% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
 ### 2024
 
@@ -32,6 +38,29 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 {% include youtubePlayer.html id="yXH1p8_jhc8" %}
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+### 2025 January
+
+2025-01-20 Page 465 of Project 2025 outlines a plan to increase Medicare Part D prescription prices. 
+
+[https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
+
+### 2025 March
+
+2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
+
+{% include youtubePlayer.html id="ESzZHsqqHGM" %}
+
+2025-03-05 A military news outlet Military.com published an article speaking out on behalf of millions of Veterans who feel that privatized healthcare will rapidly eat into the VA budget.
+
+[https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html](https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html)
+
+### 2025 April
+
+2025-04-01 The Trump administration made cuts to Meals on Wheels and other services for seniors and disabled. The Trump administration also **made cuts to the Low-Income Home Energy Assistance Program**, **which provides energy assistance, weatherization, equipment, and crisis assistance to the elderly and disabled**.
+
+[https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl](https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl)
+
 
 ### 2025 May
 
@@ -57,11 +86,20 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 ### 2025 July
 
+2025-07-03 A news outlet reported that DeSantis vetoed funds set aside for a veteran program called “Patriot Passport” designed to allow permanent Florida residents who are veterans to ride transit lines for free.
+
+[https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/](https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/)
+
 2025-07-04 The Big Beautiful Bill was signed into law. Part of the bill’s agenda is to sharply reduce the number of Americans receiving food stamps or other programs designed to help struggling families.
 
 [https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable#:~:text=/-,SNAP%20Cuts%20in%20One%20Big%20Beautiful%20Bill%20Act%20Leave%20Almost,vulnerable%20to%20losing%20that%20assistance](https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable).
 
+
 ### 2025 August
+
+2025-08-01 The Trump administration announced plans to prevent Veterans from accessing abortion care or counseling.
+
+[https://reproductiverights.org/5-things-trump-va-abortion-ban/](https://reproductiverights.org/5-things-trump-va-abortion-ban/)
 
 2025-08-10 Trump posted on social media, "The Homeless have to move out, IMMEDIATELY…FAR from the Capital….It's all going to happen very fast, just like the Border….This will be easier - Be prepared! There will be no "MR. NICE GUY." We want our Capital BACK..."
 
@@ -221,7 +259,7 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://www.propublica.org/article/trump-housing-reforms-aid-hud-immigration-homelessness](https://www.propublica.org/article/trump-housing-reforms-aid-hud-immigration-homelessness)
 
- 
+
 
 2025-11-06 Trump removed the Direct File tool which allowed Americans to file their federal income taxes for free.
 
@@ -273,6 +311,17 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 ### 2025 December
 
+2025-12-15 Several news outlets reported the Trump administration plans to eliminate tens of thousands of VA health care jobs, reportedly around 35,000.
+
+[https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/va-eyeing-35000-health-care-job-cuts-drawing-rebuke-from-veterans-group](https://www.ms.now/rachel-maddow-show/maddowblog/va-eyeing-35000-health-care-job-cuts-drawing-rebuke-from-veterans-group)
+
+[https://www.washingtonpost.com/politics/2025/12/13/va-veterans-affairs-job-cuts-trump/](https://www.washingtonpost.com/politics/2025/12/13/va-veterans-affairs-job-cuts-trump/)
+
+[https://dccc.org/jen-kiggans-silent-as-trumps-va-plans-to-eliminate-tens-of-thousands-of-jobs-reduce-veteran-care/](https://dccc.org/jen-kiggans-silent-as-trumps-va-plans-to-eliminate-tens-of-thousands-of-jobs-reduce-veteran-care/)
+
+
 2025-12-16 Obamacare subsidies were set to expire with four Republicans joining the Democrats to force a vote to stop this from happening. Congress sent lawmakers home form the holiday before the vote could happen.
 
 [https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html](https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html)
@@ -280,6 +329,13 @@ permalink: /categories/economy-labor-poverty/poverty/
 [https://www.politico.com/news/2025/12/29/states-step-into-the-breach-as-obamacare-subsidies-lapse-00703609](https://www.politico.com/news/2025/12/29/states-step-into-the-breach-as-obamacare-subsidies-lapse-00703609)
 
 [https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring](https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring)
+
+### 2026 January
+
+
+2026-01-14 In addition to the billions of dollars in cuts already, the Trump administration added millions of dollars in funding cuts against substance abuse and mental health programs.
+
+[https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants](https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants)
 
 ### 2026 February
 
@@ -294,6 +350,17 @@ permalink: /categories/economy-labor-poverty/poverty/
 [https://abcnews.go.com/US/trump-kennedy-center-closing-2-years-complete-rebuilding/story?id=129764468](https://abcnews.go.com/US/trump-kennedy-center-closing-2-years-complete-rebuilding/story?id=129764468)
 
 [https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions](https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions)
+
+2026-02-25 Dr. Mehmet Oz and JD Vance announced a 6-month national moratorium blocking all new enrollments for durable medical equipment, prosthetics, orthotics, supplies across the board. He stated, “These crimes are becoming a major source of fraudulent activity…”. This was implemented in Minnesota. Walz stated in a social media post, “This has nothing to do with fraud. This is a campaign of retribution. Trump is weaponizing the entirety of the federal government to punish blue states like Minnesota”. 
+
+[https://www.reuters.com/world/us-administration-halting-some-medicaid-funding-minnesota-vance-says-2026-02-25/](https://www.reuters.com/world/us-administration-halting-some-medicaid-funding-minnesota-vance-says-2026-02-25/)
+
+[https://natlawreview.com/article/cms-announces-temporary-nationwide-dmepos-medical-supply-company-medicare](https://natlawreview.com/article/cms-announces-temporary-nationwide-dmepos-medical-supply-company-medicare)
+
+[https://www.aha.org/news/headline/2026-02-25-cms-announces-actions-addressing-fraud](https://www.aha.org/news/headline/2026-02-25-cms-announces-actions-addressing-fraud)
+
+[https://www.youtube.com/watch?v=F1l99wq4amo&list=WL&index=2](https://www.youtube.com/watch?v=F1l99wq4amo&list=WL&index=2)
+
 
 ### 2026 March
 
@@ -353,6 +420,30 @@ permalink: /categories/economy-labor-poverty/poverty/
 
 [https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
 
+2026-04-03 The Trump administration demanded $1.5T in defense spending to support Israels war and pay for the “Golden Dome”, while making further cuts to domestic necessities like heating and cooling and food. During an event at the White House Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.  In other words, Trump wants to funnel American taxpayer dollars into funding Israel’s power-grabbing war in the Middle East.
+
+[https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=qEURbAHBPvg](https://www.youtube.com/watch?v=qEURbAHBPvg)
+
+[https://www.youtube.com/watch?v=5GFcmIVM3Yc](https://www.youtube.com/watch?v=5GFcmIVM3Yc)
+
+[https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/](https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/)
+
+[https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars](https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars)
+
+[https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)
+
+[https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
+
+[https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3](https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3)
+
+[https://www.foxnews.com/politics/trump-unveils-1-5t-defense-surge-deep-domestic-cuts-whats-chopping-block](https://www.foxnews.com/politics/trump-unveils-1-5t-defense-surge-deep-domestic-cuts-whats-chopping-block)
+
+[https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK](https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK)
+
+[https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
+
 2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
@@ -374,6 +465,23 @@ permalink: /categories/economy-labor-poverty/poverty/
 [https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7](https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7)
 
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
+
+
+2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine. 
+
+[https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
+
+[https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html](https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html)
+
+[https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/](https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/)
+
+[https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics](https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics)
+
+[https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health](https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health)
+
+[https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics](https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics)
+
+[https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
 
 2026-04-28 Louisiana advanced HB211 to criminalize being homeless. Under the Streets to Success Act, homeless individuals would be arrested and fined for sleeping in public places. If they cannot pay the fines, they will be forced into hard labor to pay off the fines. In some cases they can be forced into a treatment program for which they would have to pay off with hard labor. Republican State Representative Debbie Villio stated in her proposal, “We aren’t looking to jail anyone, we’re looking to integrate them with the criminal justice system in an effort to connect them with service providers”.
 
