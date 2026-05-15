@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Parallels
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: parallels
-permalink: /categories/dictator-envy/parallels/
+permalink: /categories/control/parallels/
 ---
 
 ### 2014

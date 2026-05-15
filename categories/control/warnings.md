@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: WARNINGS
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: warnings
-permalink: /categories/dictator-envy/warnings/
+permalink: /categories/control/warnings/
 ---
 
 ### 2014

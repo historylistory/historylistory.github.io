@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Trump Envies Evil
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: trump-envies-evil
-permalink: /categories/dictator-envy/trump-envies-evil/
+permalink: /categories/control/trump-envies-evil/
 ---
 
 ### Viktor Orban (Hungary)

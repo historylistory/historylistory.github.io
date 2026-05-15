@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Oligarchy
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: oligarchy
-permalink: /categories/dictator-envy/oligarchy/
+permalink: /categories/control/oligarchy/
 ---
 
 ### Is it an oligarchy?

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Ominous Speech & Behavior"
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: ominous-speech-behavior
-permalink: /categories/dictator-envy/ominous-speech-behavior/
+permalink: /categories/control/ominous-speech-behavior/
 ---
 
 ### 2016

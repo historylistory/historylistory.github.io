@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Fascist Fans
-category_slug: dictator-envy
+category_slug: control
 subcategory_slug: fascist-fans
-permalink: /categories/dictator-envy/fascist-fans/
+permalink: /categories/control/fascist-fans/
 ---
 
 ### 2025 January
