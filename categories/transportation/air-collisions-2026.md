@@ -48,3 +48,9 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.businessinsider.com/frontier-airlines-passengers-broke-key-safety-rule-taking-their-bags-2026-5](https://www.businessinsider.com/frontier-airlines-passengers-broke-key-safety-rule-taking-their-bags-2026-5)
 
 [https://apnews.com/article/denver-airport-frontier-airline-person-injured-runway-e75355b2bed9ec3bae44cb064c92c1da](https://apnews.com/article/denver-airport-frontier-airline-person-injured-runway-e75355b2bed9ec3bae44cb064c92c1da)
+
+2026-05-15 An American Airlines jet made an emergency landing at the Kansas City airport due to smoke in the cockpit.
+
+[https://www.kshb.com/news/crime/passengers-evacuated-after-american-airlines-flight-lands-at-kmci-with-report-of-smoke-in-cockpit](https://www.kshb.com/news/crime/passengers-evacuated-after-american-airlines-flight-lands-at-kmci-with-report-of-smoke-in-cockpit)
+
+[https://www.cnn.com/2026/05/15/us/plane-smoke-congressman-emergency](https://www.cnn.com/2026/05/15/us/plane-smoke-congressman-emergency)

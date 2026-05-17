@@ -261,3 +261,13 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
 
 [https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected](https://ccrjustice.org/home/press-center/press-releases/federal-court-blocks-governor-landry-s-attempt-eliminate-elected)
+
+2026-05-15 Colorado Governor Jared Polis granted election denier Tina Peters clemency.
+
+[https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/](https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/)
+
+[https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters](https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters)
+
+[https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
+
+[https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)

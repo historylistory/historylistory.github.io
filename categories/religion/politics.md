@@ -247,3 +247,13 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-i
 [https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/](https://thehill.com/homenews/administration/5837716-trump-bible-reading-pope-leo-feud-ai-jesus/)
 
 [https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)
+
+### 2026 May
+
+2026-05-14 The White House erected a stage at the National Mall to host a religious ceremony for the U.S. 250, featuring Franklin Graham, Cardinal Timothy Dolan, Pastor and Samuel Rodriguez. This is another effort to advance Christian Nationalism, exclude other religions or respect non-followers, and dismantle the separation of church and state.
+
+[https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7](https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7)
+
+[https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian](https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian)
+
+[https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)

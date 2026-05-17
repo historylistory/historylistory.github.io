@@ -280,3 +280,15 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+### 2026 May
+
+2026-05-15 Colorado Governor Jared Polis granted election denier Tina Peters clemency.
+
+[https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/](https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/)
+
+[https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters](https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters)
+
+[https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
+
+[https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)

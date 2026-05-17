@@ -209,6 +209,14 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
+2026-05-11 Taxpayers will expect to pay $13.1M to cover Trump’s reflection pool project.
+
+[https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
+
+[https://www.bbc.com/news/articles/c202nj46p7wo](https://www.bbc.com/news/articles/c202nj46p7wo)
+
+[https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8](https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8)
+
 2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
 
 [https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841](https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841)
@@ -218,3 +226,13 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit](https://www.cnn.com/2026/05/11/politics/lincoln-memorial-reflecting-pool-blue-paint-lawsuit)
 
 [https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/](https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/)
+
+2026-05-12 Trump posted, “Dumacrats love sewage”. This included an AI generated image of Biden, Obama and Pelosi swimming in a sewage pool as part of the Reflection Pool.
+
+[https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/](https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/)
+
+[https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566](https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566)
+
+2026-05-15 Trump announced a sculpture garden project in D.C.
+
+[https://www.youtube.com/watch?v=tOpAygWWmPc&list=WL&index=3&t=28s](https://www.youtube.com/watch?v=tOpAygWWmPc&list=WL&index=3&t=28s)

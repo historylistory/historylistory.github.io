@@ -37,6 +37,21 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size](https://www.news5cleveland.com/weather/weather-news/stay-off-the-ice-large-crack-forms-on-lake-erie-over-the-weekend-thawing-temps-could-increase-its-size)
 
+2026-02-27 The Colorado River is drying up.
+
+[https://www.americanrivers.org/2026/03/the-ship-needs-a-captain-a-call-for-leadership-in-the-colorado-river-basin](https://www.americanrivers.org/2026/03/the-ship-needs-a-captain-a-call-for-leadership-in-the-colorado-river-basin)
+
+[https://www.cbsnews.com/news/colorado-river-crisis-could-force-drastic-water-measures-across-west/](https://www.cbsnews.com/news/colorado-river-crisis-could-force-drastic-water-measures-across-west/)
+
+[https://www.youtube.com/watch?v=39-z063W1WY](https://www.youtube.com/watch?v=39-z063W1WY)
+
+[https://www.youtube.com/watch?v=39-z063W1WY&list=WL&index=4&t=28s](https://www.youtube.com/watch?v=39-z063W1WY&list=WL&index=4&t=28s)
+
+[https://www.pbs.org/newshour/video/horizons/2026/05/as-the-colorado-river-dries-up-how-western-states-are-confronting-the-water-crisis](https://www.pbs.org/newshour/video/horizons/2026/05/as-the-colorado-river-dries-up-how-western-states-are-confronting-the-water-crisis)
+
+[https://time.com/7381402/water-rights-colorado-river-drought/](https://time.com/7381402/water-rights-colorado-river-drought/)
+
+
 ### 2026 March
 
 2026-03-01 NOAA confirmed that March 2026 was the hottest March on record in 132 years of record keeping.

@@ -262,3 +262,15 @@ OTHER SHADY BUSINESS
 [https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891](https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891)
 
 [https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
+
+### 2026 May
+
+2026-05-15 Colorado Governor Jared Polis granted election denier Tina Peters clemency.
+
+[https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/](https://www.democracydocket.com/news-alerts/colorado-governor-grants-election-denier-tina-peters-clemency-reduces-sentence/)
+
+[https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters](https://www.cnn.com/politics/video/src-gov-polis-defends-granting-clemency-to-tina-peters)
+
+[https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
+
+[https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)

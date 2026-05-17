@@ -114,3 +114,11 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 2026-05-08 Marco Rubio announced more sanctions for Cuba.
 
 [https://www.youtube.com/watch?v=z5gDLcc7BVw](https://www.youtube.com/watch?v=z5gDLcc7BVw)
+
+2026-05-14 CIA Director John Ratcliffe visited Cuba to urge Cuban officials to make diplomatic negotiations. 
+
+[https://www.axios.com/2026/05/14/cia-ratcliffe-cuba-talks-raulito](https://www.axios.com/2026/05/14/cia-ratcliffe-cuba-talks-raulito)
+
+[https://www.usatoday.com/story/news/politics/2026/05/14/cia-director-john-ratcliffe-cuba-changes/90085391007/](https://www.usatoday.com/story/news/politics/2026/05/14/cia-director-john-ratcliffe-cuba-changes/90085391007/)
+
+[https://www.cnbc.com/2026/05/15/cuba-cia-john-ratcliffe-oil-blockade-trump-blackouts.html](https://www.cnbc.com/2026/05/15/cuba-cia-john-ratcliffe-oil-blockade-trump-blackouts.html)

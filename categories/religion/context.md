@@ -20,6 +20,8 @@ There are roughly **400,000 churches** in the U.S. nationwide, but only **12,000
 
 [https://constitution.congress.gov/constitution/amendment-1/](https://constitution.congress.gov/constitution/amendment-1/)
 
+ITS THE FIRST AMENDMENT ESTABLISHMENT CLAUSE [https://firstamendment.mtsu.edu/article/establishment-clause-separation-of-church-and-state/](https://firstamendment.mtsu.edu/article/establishment-clause-separation-of-church-and-state/)
+
 ### 1992
 
 1992-08-17 Pat Buchanan declared a cultural and religious war, defining his "**Make America First Again**" campaign.

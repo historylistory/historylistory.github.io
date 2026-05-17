@@ -247,3 +247,11 @@ PAY WALL [https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russ
 2026-05-05 Ukrainian strikes caused “black rain” in Russia.
 
 [https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain](https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain)
+
+2026-05-15 A Russian drone strike killed 24 people including 3 children in Ukraine.
+
+[https://www.aljazeera.com/news/2026/5/15/zelenskyy-vows-response-after-russian-strike-kills-24-in-kyiv](https://www.aljazeera.com/news/2026/5/15/zelenskyy-vows-response-after-russian-strike-kills-24-in-kyiv)
+
+[https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/](https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/)
+
+SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/news/articles/c5ye480kxpmo)

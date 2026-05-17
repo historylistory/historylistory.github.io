@@ -173,3 +173,10 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
 
+2026-05-15 A Russian drone strike killed 24 people including 3 children in Ukraine.
+
+[https://www.aljazeera.com/news/2026/5/15/zelenskyy-vows-response-after-russian-strike-kills-24-in-kyiv](https://www.aljazeera.com/news/2026/5/15/zelenskyy-vows-response-after-russian-strike-kills-24-in-kyiv)
+
+[https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/](https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/)
+
+SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/news/articles/c5ye480kxpmo)

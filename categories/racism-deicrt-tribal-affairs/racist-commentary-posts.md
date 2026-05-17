@@ -389,3 +389,19 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 [https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/](https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/)
 
 TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4)
+
+### 2026 May
+
+2026-05-15 Jesse Watters said on “The Five”, “I did some research on the Blacks – as Judge Janine so eloquently would say – um. The solution to Hakeem’s problem, the (ske?) Obama, is baby making. Blacks for 150 years have only represented 10 to 15% of the American population. Okay? That’s not that much. So, if they wanna have more seats, they gotta get in between the sheets. Spanish – they’re comin’ North, they’re havin’ tons of kids, and at this point they have the same – almost – the same amount of house seats as Blacks! The Hispanic caucus is almost as big as the – the Black caucus. So, if you guys need to solve that problem you know what you need to do”. 
+
+[https://ca.news.yahoo.com/jesse-watters-says-blacks-more-150113637.html](https://ca.news.yahoo.com/jesse-watters-says-blacks-more-150113637.html)
+
+[https://uk.news.yahoo.com/jesse-watters-tells-blacks-more-221605439.html](https://uk.news.yahoo.com/jesse-watters-tells-blacks-more-221605439.html)
+
+[https://www.aol.com/articles/fox-news-host-jesse-watters-130100000.html](https://www.aol.com/articles/fox-news-host-jesse-watters-130100000.html)
+
+[https://www.huffpost.com/entry/jesse-watters-blacks-get-in-between-the-sheets-redistricting_n_6a06e0f9e4b0a33000e13231](https://www.huffpost.com/entry/jesse-watters-blacks-get-in-between-the-sheets-redistricting_n_6a06e0f9e4b0a33000e13231)
+
+[https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh](https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh)
+
+[https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s](https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s)

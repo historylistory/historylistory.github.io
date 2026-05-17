@@ -307,6 +307,15 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
+2026-05-11 Taxpayers will expect to pay $13.1M to cover Trump’s reflection pool project.
+
+[https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
+
+[https://www.bbc.com/news/articles/c202nj46p7wo](https://www.bbc.com/news/articles/c202nj46p7wo)
+
+[https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8](https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8)
+
+
 2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
@@ -322,3 +331,4 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
