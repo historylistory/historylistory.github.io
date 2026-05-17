@@ -6,11 +6,18 @@ subcategory_slug: trump-accounts
 permalink: /categories/children/trump-accounts/
 ---
 
+### Commentary
+
+See also Social Security for more detail - this is an admitted backdoor for privatized social security. 
+
+
 ### 2025 July
 
 2025-07-31 News outlets reported that Treasury Secretary Scott Bessent once referred to the "Trump Baby Account" as a “back door for privatizing Social Security". However, the same article referred to Bessent's social media post clarifying that those accounts are "...an additive benefit for future generations, which will supplement...", which White House Press Secretary Karoline Leavitt reasserted during a press conference. The article quoted Leavitt as saying, “What the secretary of treasury was saying, and what this administration believes, is that these Trump newborn accounts, which is an incredibly creative and great provision that was in the one big, beautiful bill for newborn babies and families and future generations of Americans, will help supplement not substitute Social Security”. 
 
 [https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243](https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243)
+
+[https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859](https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859)
 
 ### 2025 December
 
@@ -21,3 +28,13 @@ From what I gather, they have criteria and can only be given to children born be
 [https://www.npr.org/2025/12/02/nx-s1-5628412/michael-susan-dell-trump-account-children-investment-saving](https://www.npr.org/2025/12/02/nx-s1-5628412/michael-susan-dell-trump-account-children-investment-saving)
 
 [https://www.npr.org/2025/07/08/nx-s1-5455647/trump-accounts-babies-what-to-know](https://www.npr.org/2025/07/08/nx-s1-5455647/trump-accounts-babies-what-to-know)’
+
+### 2026 May
+
+2026-05-08 During a panel discussion at the Milken Institute’s Global Conference in Los Angeles, Ted Cruz admitted Trump Accounts for babies were a backdoor for privatized social security, calling it the GOP’s “dirty little secret”, arguing that “it’s because we gave the money to babies so the old people didn’t get pissed”.
+
+[https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/](https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/)
+
+[https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
+
+[https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)

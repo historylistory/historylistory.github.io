@@ -54,6 +54,8 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 
 [https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243](https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243)
 
+[https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859](https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859)
+
 ### 2025 November
 
 2025-11-04 News outlets report that the Trump administration is planning to make it harder to get Social Security Disability assistance or housing.
@@ -105,3 +107,13 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 [https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK](https://www.msn.com/en-us/money/retirement/tuberville-faces-backlash-after-calling-social-security-a-scam/ss-AA22nrPK)
 
 [https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4](https://www.youtube.com/watch?v=QX76omT5ptI&list=WL&index=4)
+
+### 2026 May
+
+2026-05-08 During a panel discussion at the Milken Institute’s Global Conference in Los Angeles, Ted Cruz admitted Trump Accounts for babies were a backdoor for privatized social security, calling it the GOP’s “dirty little secret”, arguing that “it’s because we gave the money to babies so the old people didn’t get pissed”.
+
+[https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/](https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/)
+
+[https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
+
+[https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)

@@ -48,6 +48,8 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243](https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243)
 
+[https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859](https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859)
+
 ### 2026 April
 
 2026-04-03 Trump’s new budget seeks TSA privatization.
@@ -73,3 +75,12 @@ TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=32
 [https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
 
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+
+2026-05-08 During a panel discussion at the Milken Institute’s Global Conference in Los Angeles, Ted Cruz admitted Trump Accounts for babies were a backdoor for privatized social security, calling it the GOP’s “dirty little secret”, arguing that “it’s because we gave the money to babies so the old people didn’t get pissed”.
+
+[https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/](https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/)
+
+[https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
+
+[https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)
