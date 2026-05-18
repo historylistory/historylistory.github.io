@@ -651,6 +651,19 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 
 [https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
 
+2026-05-12 The UN Children’s Fund UNICEF reported that Israel has killed 70 Palestinian children in the occupied West Bank since 2025, amounting to 1 child killed per week. UNICEF spokesperson James Elder reported March 2026 was the highest number of attacks in the past 20 years, including children shot, stabbed, beaten and pepper sprayed. About 78 years ago was Nakba, another genocide.
+
+[https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s](https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s)
+
+[https://news.un.org/en/story/2026/05/1167488](https://news.un.org/en/story/2026/05/1167488)
+
+[https://www.democracynow.org/2026/5/15/headlines/unicef_says_israeli_attacks_have_killed_or_wounded_59_children_in_a_week_despite_ceasefire_deal](https://www.democracynow.org/2026/5/15/headlines/unicef_says_israeli_attacks_have_killed_or_wounded_59_children_in_a_week_despite_ceasefire_deal)
+
+[https://www.reuters.com/world/middle-east/unicef-says-70-children-killed-west-bank-east-jerusalem-since-2025-2026-05-12/](https://www.reuters.com/world/middle-east/unicef-says-70-children-killed-west-bank-east-jerusalem-since-2025-2026-05-12/)
+
+TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)
+
+
 2026-05-13 Israeli forces shot and killed 44-year-old Zakaria Qatusa in the West Bank as he tired to climb a concrete barrier to find work in Israel to feed his four children.
 
 [https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f](https://apnews.com/article/west-bank-shooting-israel-palestinians-d230dc14e42fd45f319b4ad083a1495f)

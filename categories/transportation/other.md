@@ -116,3 +116,9 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 [https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month](https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month)
 
 [https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)
+
+2026-05-14 A jury in Chicago ordered Boeing to pay nearly $50M in a lawsuit stemming from a fatal crash.
+
+[https://www.reuters.com/legal/litigation/us-jury-awards-family-boeing-737-max-crash-victim-495-million-2026-05-14/](https://www.reuters.com/legal/litigation/us-jury-awards-family-boeing-737-max-crash-victim-495-million-2026-05-14/)
+
+[https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/](https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/)

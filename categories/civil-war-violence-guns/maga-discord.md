@@ -238,6 +238,13 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
 
+2026-03-27 The GOP divides over agricultural issues. District 24 Idaho Senator Glenneda Zuiderveld reported a group of dairies targeted her husband over her immigration policies. Representative Stephanie Mickelson said she was also targeted for her views on protecting farm workers.
+
+[https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3](https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3)
+
+[https://idahocapitalsun.com/2025/03/27/right-wing-idaho-activist-targets-republican-legislator-with-calls-for-ice-raids/](https://idahocapitalsun.com/2025/03/27/right-wing-idaho-activist-targets-republican-legislator-with-calls-for-ice-raids/)
+
+[https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html](https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html)
 
 
 ### 2026 April

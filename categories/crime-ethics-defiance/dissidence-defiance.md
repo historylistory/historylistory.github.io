@@ -412,9 +412,22 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
+2026-05-12 The Pentagon considered renaming Operation Epic Fury, Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
+
+[https://www.nbcnews.com/politics/national-security/pentagon-considering-re-naming-iran-war-sledgehammer-ceasefire-collaps-rcna344630](https://www.nbcnews.com/politics/national-security/pentagon-considering-re-naming-iran-war-sledgehammer-ceasefire-collaps-rcna344630)
+
+[https://www.jpost.com/middle-east/iran-news/article-896121](https://www.jpost.com/middle-east/iran-news/article-896121)
+
+[https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media](https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media)
+
+
 2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
 
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
 
 [https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
 
+
+2026-05-14 The House failed to advance an Iran war powers resolution tied 212 to 212.
+
+[https://www.cbsnews.com/news/house-iran-war-powers-resolution/](https://www.cbsnews.com/news/house-iran-war-powers-resolution/)

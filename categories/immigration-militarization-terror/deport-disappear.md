@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Deportation"
+title: Deport & Disappear
 category_slug: immigration-militarization-terror
-subcategory_slug: deportation
-permalink: /categories/immigration-militarization-terror/deportation/
+subcategory_slug: deport-disappear
+permalink: /categories/immigration-militarization-terror/deport-disappear/
 ---
 
 ### Abrego Garcia
@@ -62,6 +62,11 @@ permalink: /categories/immigration-militarization-terror/deportation/
 
 [https://progressive.international/wire/2025-09-24-immigration-judge-orders-mahmoud-khalil-to-be-deported/en](https://progressive.international/wire/2025-09-24-immigration-judge-orders-mahmoud-khalil-to-be-deported/en)
 
+2025-09-25 News outlets reported that the **detainees formerly kept at Alligator Alcatraz have come up missing** and nobody knows where they are.
+
+{% include youtubePlayer.html id="NwPbnsZ_XqU" %}
+
+
 ### 2025 November
 
 2025-11-13 The United States Conference of Catholic Bishops rebuked the mass deportations, calling it “dehumanizing rhetoric and violence”.
@@ -99,3 +104,9 @@ permalink: /categories/immigration-militarization-terror/deportation/
 [https://www.cnn.com/2025/12/01/us/babson-college-student-deported-thanksgiving-hnk](https://www.cnn.com/2025/12/01/us/babson-college-student-deported-thanksgiving-hnk)
 
 [https://abcnews.com/US/exclusive-student-living-american-dream-deported-despite-judges/story?id=128076781](https://abcnews.com/US/exclusive-student-living-american-dream-deported-despite-judges/story?id=128076781)
+
+### 2026 May
+
+2026-05-15 A federal judge ordered Trump administration to return a woman (Adriana Maria Quiroz Zapata) deported to the Democratic Republic of Congo by ICE. 
+
+[https://www.democracynow.org/2026/5/15/headlines/court_orders_trump_administration_to_return_colombian_woman_deported_to_congo](https://www.democracynow.org/2026/5/15/headlines/court_orders_trump_administration_to_return_colombian_woman_deported_to_congo)

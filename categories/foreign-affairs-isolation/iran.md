@@ -1709,6 +1709,14 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
 
+2026-05-12 The Pentagon considered renaming Operation Epic Fury, Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
+
+[https://www.nbcnews.com/politics/national-security/pentagon-considering-re-naming-iran-war-sledgehammer-ceasefire-collaps-rcna344630](https://www.nbcnews.com/politics/national-security/pentagon-considering-re-naming-iran-war-sledgehammer-ceasefire-collaps-rcna344630)
+
+[https://www.jpost.com/middle-east/iran-news/article-896121](https://www.jpost.com/middle-east/iran-news/article-896121)
+
+[https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media](https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media)
+
 2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
 
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
@@ -1726,3 +1734,25 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
+2026-05-14 The House failed to advance an Iran war powers resolution tied 212 to 212.
+
+[https://www.cbsnews.com/news/house-iran-war-powers-resolution/](https://www.cbsnews.com/news/house-iran-war-powers-resolution/)
+
+
+
+
+
+2026-05-15 Senator Kirsten Gillibrand questioned US Central Command head Admiral Brad Cooper during a hearing for the Senate Arms Committee about why the US had bombed 22 schools and hospitals in Iran. Cooper denied any such bombings except indicating an investigation on the first school bombing when a US Tomahawk missile struck an all-girls school on day 1 of the war. 
+
+[https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/](https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/)
+
+TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)
+
+2026-05-15 Foreign ministers from the BRICS group of nations gathered in India to discuss the war in Iran. 
+
+[https://www.reuters.com/sustainability/tense-brics-amid-iran-war-oil-crisis-2026-05-14/](https://www.reuters.com/sustainability/tense-brics-amid-iran-war-oil-crisis-2026-05-14/)
+
+[https://www.democracynow.org/2026/5/15/headlines/irans_foreign_minister_asks_brics_nations_to_unite_against_us_bullying](https://www.democracynow.org/2026/5/15/headlines/irans_foreign_minister_asks_brics_nations_to_unite_against_us_bullying)
+
+[https://www.aljazeera.com/news/2026/5/14/iran-war-why-the-brics-foreign-ministers-meeting-in-india-matters](https://www.aljazeera.com/news/2026/5/14/iran-war-why-the-brics-foreign-ministers-meeting-in-india-matters)

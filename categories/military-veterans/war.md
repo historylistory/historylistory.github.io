@@ -340,3 +340,8 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
+2026-05-15 Senator Kirsten Gillibrand questioned US Central Command head Admiral Brad Cooper during a hearing for the Senate Arms Committee about why the US had bombed 22 schools and hospitals in Iran. Cooper denied any such bombings except indicating an investigation on the first school bombing when a US Tomahawk missile struck an all-girls school on day 1 of the war. 
+
+[https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/](https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/)
+
+TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)

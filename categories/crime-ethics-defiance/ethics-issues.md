@@ -479,3 +479,10 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 [https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html](https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html)
 
 SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865](https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865)
+
+2026-05-14 Head of the US Border Patrol Michael Banks resigned weeks after the Washington Examiner reported he bragged about paying for sex with prostitutes while traveling in Columbia and Thailand. This prompted investigation which ended abruptly as Kristi Noem served as DHS head.
+
+[https://www.bbc.com/news/articles/c0k2zl6evk5o](https://www.bbc.com/news/articles/c0k2zl6evk5o)
+
+[https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482](https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482)
+

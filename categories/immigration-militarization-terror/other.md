@@ -23,6 +23,13 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.state.gov/releases/office-of-the-spokesperson/2026/03/the-united-states-to-host-the-shield-of-the-americas-summit](https://www.state.gov/releases/office-of-the-spokesperson/2026/03/the-united-states-to-host-the-shield-of-the-americas-summit)
 
+2026-03-27 The GOP divides over agricultural issues. District 24 Idaho Senator Glenneda Zuiderveld reported a group of dairies targeted her husband over her immigration policies. Representative Stephanie Mickelson said she was also targeted for her views on protecting farm workers.
+
+[https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3](https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3)
+
+[https://idahocapitalsun.com/2025/03/27/right-wing-idaho-activist-targets-republican-legislator-with-calls-for-ice-raids/](https://idahocapitalsun.com/2025/03/27/right-wing-idaho-activist-targets-republican-legislator-with-calls-for-ice-raids/)
+
+[https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html](https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html)
 
 ### 2026 April
 
@@ -41,3 +48,4 @@ permalink: /categories/immigration-militarization-terror/other/
 [https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case](https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case)
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
+
