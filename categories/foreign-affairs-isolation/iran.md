@@ -10,6 +10,15 @@ permalink: /categories/foreign-affairs-isolation/iran/
 
 1856-02-22 Treaty of Friendship and Commerce
 
+### 1909 Anglo-Persian Oil Company
+
+1909 (historical context) The Ango-Persian Oil Company was incorporated in the United Kingdom. Renamed to Anglo-Iranian Oil Company in 1935. 
+
+[https://www.iranicaonline.org/articles/anglo-persian-oil-company/](https://www.iranicaonline.org/articles/anglo-persian-oil-company/)
+
+[https://iranian-studies.stanford.edu/events/lecture-series/irans-1933-oil-concession-myths-and-realities](https://iranian-studies.stanford.edu/events/lecture-series/irans-1933-oil-concession-myths-and-realities)
+
+
 ### 1914 Sykes-Picot Agreement
 
 1914-01-01 European imperial powers began plans to partition up the Ottoman Empire region after World War I, including holding secret negotiations in 1915 called the Sykes-Picot Agreement which was signed May 16, 1916. This caused much resentment from Arabs and Muslims.
