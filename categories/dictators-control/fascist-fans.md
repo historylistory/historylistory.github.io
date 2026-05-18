@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Fascist Fans
-category_slug: control
+category_slug: dictators-control
 subcategory_slug: fascist-fans
-permalink: /categories/control/fascist-fans/
+permalink: /categories/dictators-control/fascist-fans/
 ---
 
 ### 2025 January

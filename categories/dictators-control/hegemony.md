@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Hegemony
-category_slug: control
+category_slug: dictators-control
 subcategory_slug: hegemony
-permalink: /categories/control/hegemony/
+permalink: /categories/dictators-control/hegemony/
 ---
 
 ### Define Hegemony

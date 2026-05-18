@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: WARNINGS
-category_slug: control
+category_slug: dictators-control
 subcategory_slug: warnings
-permalink: /categories/control/warnings/
+permalink: /categories/dictators-control/warnings/
 ---
 
 ### 2014

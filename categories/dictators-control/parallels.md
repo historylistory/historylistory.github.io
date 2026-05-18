@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Parallels
-category_slug: control
+category_slug: dictators-control
 subcategory_slug: parallels
-permalink: /categories/control/parallels/
+permalink: /categories/dictators-control/parallels/
 ---
 
 ### 2014

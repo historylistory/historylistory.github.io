@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Ominous Speech & Behavior"
-category_slug: control
+category_slug: dictators-control
 subcategory_slug: ominous-speech-behavior
-permalink: /categories/control/ominous-speech-behavior/
+permalink: /categories/dictators-control/ominous-speech-behavior/
 ---
 
 ### 2016
