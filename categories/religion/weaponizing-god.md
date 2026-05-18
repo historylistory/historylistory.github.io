@@ -76,6 +76,11 @@ There is much to cover; still trying to gather. However, such events are peppere
 
 [https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/](https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/)
 
+2026-04-10 Headline “Pete Hegseth’s holy war: the militant Christian theology animating the US attack on Iran”.  According to a professor of religious studies at the University of North Florida, The Communion of Reformed Evangelical Churches followers (i.e. Hegseth) don’t “believe in social equality among people. They think that God created the world and that some people are destined to have authority and to rule over other people, and other people are destined to be followers…legitimate authority comes directly from God”.
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/apr/10/pete-hegseth-christianity-iran-war-crusade](https://www.theguardian.com/us-news/ng-interactive/2026/apr/10/pete-hegseth-christianity-iran-war-crusade)
+
+
 2026-04-12 Trump posted – then deleted – an AI image of himself as Jesus Christ. After backlash, he claimed it was a picture of himself as a doctor healing people. 
 
 [https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html](https://www.cnbc.com/2026/04/13/trump-jesus-truth-social-pope-leo.html)
@@ -150,6 +155,9 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://www.military.com/daily-news/2026/04/09/pentagon-white-house-push-back-alleged-remarks-made-pope-vatican.html](https://www.military.com/daily-news/2026/04/09/pentagon-white-house-push-back-alleged-remarks-made-pope-vatican.html)
 
+2026-04-16 Headline “Pete Hegseth attacks ‘unpatriotic’ media and compares reporters to Jewish biblical group” (NBC News). He compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
+
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
 2026-04-19 (context because they are trying to establish one religion - this is exclusionary) The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
 

@@ -999,6 +999,12 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
 
+2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
+
+[https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways](https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways)
+
+
+
 ### 2026 March Week #4
 
 2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 

@@ -208,6 +208,15 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
+2026-05-05 Trump droned on about nuclear weapons during a Youth Sports & Fitness event.
+
+TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube.com/watch?v=M9YqAMyfwGM)
+
+[https://www.msn.com/en-us/news/politics/trump-tells-kids-at-wh-sports-event-you-may-be-too-young-for-this-but-you-can-t-let-a-bunch-of-lunatics-have-a-nuclear-weapon/vi-AA22rbGR?](https://www.msn.com/en-us/news/politics/trump-tells-kids-at-wh-sports-event-you-may-be-too-young-for-this-but-you-can-t-let-a-bunch-of-lunatics-have-a-nuclear-weapon/vi-AA22rbGR?)
+
+[https://atlantablackstar.com/2026/05/06/trump-goes-off-the-rails-in-front-of-schoolchildren-spiraling-with-insane-rant-as-folks-zoom-in-on-one-kids-expression/](https://atlantablackstar.com/2026/05/06/trump-goes-off-the-rails-in-front-of-schoolchildren-spiraling-with-insane-rant-as-folks-zoom-in-on-one-kids-expression/)
+
+
 
 2026-05-06 National Economic Council Director Kevin Hasset told Fox news “In fact, I had the head of one of the big five banks in my office yesterday going through the credit card data. And just as Secretary Bessent said, credit card spending is through the roof. They’re spending more on gasoline, but they’re spending more no everything else too.  
 

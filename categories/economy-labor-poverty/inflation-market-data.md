@@ -248,6 +248,11 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
+2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
+
+[https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways](https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways)
+
+
 2026-03-26 Wall Street suffered its worst day since the start of the Corona Virus pandemic. The price of crude oil topped $110 a barrel. 
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)

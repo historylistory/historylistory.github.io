@@ -14,6 +14,12 @@ This section is still in progress, but since Trump took office he has been tryin
 
 Oil dependency is the bottom-line for investors, which is why they repeatedly block clean energy and advocate for drilling and mining in protected areas. For more information, see the section ***CLIMATE CHANGE***
 
+### 2026 March
+
+2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
+
+[https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways](https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways)
+
 ### 2026 April
 
 2026-04-16 During an interview with Semafor, Senator Rick Scott (R-FL) advocated for aggressive US action against Iran, saying that blocking oil shipments to China would be a “wonderful” outcome. (VERY LITTLE COVERAGE)

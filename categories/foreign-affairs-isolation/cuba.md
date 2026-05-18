@@ -76,6 +76,36 @@ Unverified website: [https://nsarchive.gwu.edu/briefing-book/cuba/2022-02-02/cub
 TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1)
 
 
+### 2011
+
+2011-10-20 Headline, “Marco rubio’s compelling family story embellishes facts, documents show”. The article discuses how Rubio claimed his family fled the Castro regime, however his parents entered the US via a commercial flight over two years before Castro overthrew the Cuban government.
+
+[https://www.huffpost.com/entry/marco-rubio-compelling-story-embellishes_n_1022869/amp](https://www.huffpost.com/entry/marco-rubio-compelling-story-embellishes_n_1022869/amp)
+
+[https://www.theguardian.com/us-news/2015/jul/10/marco-rubio-cuba-obama-policy-roll-back](https://www.theguardian.com/us-news/2015/jul/10/marco-rubio-cuba-obama-policy-roll-back)
+
+[https://floridadems.org/2016/06/that-time-marco-rubio-pretended-his-parents-fled-from-castro-for-political-gain/](https://floridadems.org/2016/06/that-time-marco-rubio-pretended-his-parents-fled-from-castro-for-political-gain/)
+
+PAY WALL [https://www.washingtonpost.com/politics/marco-rubios-compelling-family-story-embellishes-facts-documents-show/2011/10/20/gIQAaVHD1L_story.html](https://www.washingtonpost.com/politics/marco-rubios-compelling-family-story-embellishes-facts-documents-show/2011/10/20/gIQAaVHD1L_story.html)
+
+
+### 2015
+
+2015-06-27 Ted Cruz alleged his parents were tortured by Fidel Castro.
+
+[https://www.theguardian.com/us-news/2015/jun/27/ted-cruz-memoir-father-cuba-revolutionary-fidel-castro](https://www.theguardian.com/us-news/2015/jun/27/ted-cruz-memoir-father-cuba-revolutionary-fidel-castro)
+
+[https://www.chron.com/news/politics/tedcruz/article/Ted-Cruz-s-Fathers-story-of-fighting-for-Castro-6620810.php](https://www.chron.com/news/politics/tedcruz/article/Ted-Cruz-s-Fathers-story-of-fighting-for-Castro-6620810.php)
+
+[https://www.foxnews.com/transcript/ted-cruz-calls-obamas-cuba-decision-a-tragic-mistake](https://www.foxnews.com/transcript/ted-cruz-calls-obamas-cuba-decision-a-tragic-mistake)
+
+SUB WALL [https://www.theatlantic.com/politics/archive/2014/12/ted-cruz-obamas-new-cuba-policy-will-be-remembered-as-a-tragic-mistake/451260/](https://www.theatlantic.com/politics/archive/2014/12/ted-cruz-obamas-new-cuba-policy-will-be-remembered-as-a-tragic-mistake/451260/)
+
+SUB WALL [https://www.nytimes.com/2015/11/10/us/politics/cuban-peers-dispute-ted-cruzs-fathers-story-of-fighting-for-castro.html](https://www.nytimes.com/2015/11/10/us/politics/cuban-peers-dispute-ted-cruzs-fathers-story-of-fighting-for-castro.html)
+
+
+
+### 2016
 
 2016-03-21 Obama made an historic visit to Cuba, eased travel restrictions, dropped the designation of state sponsor of terrorism, and urged Congress to lift the embargo.
 
