@@ -97,3 +97,9 @@ permalink: /categories/agriculture/farm-sales/
 [https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
 
 [https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
+
+2026-05-17 China committed to buy $17B in US farm goods each year from 2026 to 2028.
+
+[https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1](https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1)
+
+[https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/](https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/)

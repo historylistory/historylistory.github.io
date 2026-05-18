@@ -719,3 +719,13 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 [https://www.instagram.com/p/DYSu-7HlUE-/](https://www.instagram.com/p/DYSu-7HlUE-/)
 
 [https://www.commondreams.org/news/california-home-health](https://www.commondreams.org/news/california-home-health)
+
+2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B fund to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. 
+
+[https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
+
+[https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund](https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund)
+
+[https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
+
+[https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)

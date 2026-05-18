@@ -34,3 +34,13 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.cnn.com/2026/03/07/politics/january-6-plaque-installed-capitol](https://www.cnn.com/2026/03/07/politics/january-6-plaque-installed-capitol)
 
 [https://apnews.com/article/capitol-riot-plaque-police-officers-delay-27d90c9de3269eb508e0c8d4459f9d7d](https://apnews.com/article/capitol-riot-plaque-police-officers-delay-27d90c9de3269eb508e0c8d4459f9d7d)
+
+### 2026 May
+
+2026-05-16 Bill Cassidy (who voted to convict Trump for J6) lost the primary in Louisiana.
+
+[https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump](https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump)
+
+[https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump](https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump)
+
+[https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)

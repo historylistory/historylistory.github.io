@@ -246,3 +246,15 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 [https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s](https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s)
 
 GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s](https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s)
+
+### 2026 May
+
+2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B fund to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. 
+
+[https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
+
+[https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund](https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund)
+
+[https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
+
+[https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)

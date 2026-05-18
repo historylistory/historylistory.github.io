@@ -430,3 +430,10 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note](https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note)
 
+2026-05-16 Thomas Massie (who voted to release the Epstein files) was projected to lose in the Kentucky primaries. 
+
+[https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/](https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/)
+
+[https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823](https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823)
+
+[https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410](https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410)

@@ -91,3 +91,10 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://www.cnbc.com/2026/05/14/trump-xi-beijing-summit-trade-taiwan-ai-iran-rare-earths-tariffs.html](https://www.cnbc.com/2026/05/14/trump-xi-beijing-summit-trade-taiwan-ai-iran-rare-earths-tariffs.html)
 
 [https://www.nbcnews.com/world/china/xi-warns-trump-taiwan-conflict-summit-beijing-china-us-rcna345069](https://www.nbcnews.com/world/china/xi-warns-trump-taiwan-conflict-summit-beijing-china-us-rcna345069)
+
+
+2026-05-17 China committed to buy $17B in US farm goods each year from 2026 to 2028.
+
+[https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1](https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1)
+
+[https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/](https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/)

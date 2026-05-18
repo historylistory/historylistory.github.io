@@ -385,3 +385,19 @@ AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makar
 [https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765](https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765)
 
 SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)
+
+2026-05-16 Bill Cassidy (who voted to convict Trump for J6) lost the primary in Louisiana.
+
+[https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump](https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump)
+
+[https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump](https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump)
+
+[https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)
+
+2026-05-16 Thomas Massie (who voted to release the Epstein files) was projected to lose in the Kentucky primaries. 
+
+[https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/](https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/)
+
+[https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823](https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823)
+
+[https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410](https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410)

@@ -54,3 +54,7 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.kshb.com/news/crime/passengers-evacuated-after-american-airlines-flight-lands-at-kmci-with-report-of-smoke-in-cockpit](https://www.kshb.com/news/crime/passengers-evacuated-after-american-airlines-flight-lands-at-kmci-with-report-of-smoke-in-cockpit)
 
 [https://www.cnn.com/2026/05/15/us/plane-smoke-congressman-emergency](https://www.cnn.com/2026/05/15/us/plane-smoke-congressman-emergency)
+
+2026-05-18 Two US Navy jets crashed midair during an air show outside Boise, Idaho.
+
+[https://www.youtube.com/watch?v=uApOtSIouUA&list=WL&index=4](https://www.youtube.com/watch?v=uApOtSIouUA&list=WL&index=4)
