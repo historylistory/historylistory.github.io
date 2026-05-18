@@ -6,6 +6,63 @@ subcategory_slug: cuba
 permalink: /categories/foreign-affairs-isolation/cuba/
 ---
 
+### Some History
+
+1740 Cuba was a major hub for the transatlantic slave trade. 
+
+[https://www.britannica.com/place/Cuba/Sugarcane-and-the-growth-of-slavery](https://www.britannica.com/place/Cuba/Sugarcane-and-the-growth-of-slavery)
+
+TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1)
+
+
+1898-02-15 The US sent USS Maine to Cuba. It exploded while at port in Havana, killing 260 Americans. 
+
+[https://diplomacy.state.gov/teacher-resources/spanish-american-conflict-of-1898/](https://diplomacy.state.gov/teacher-resources/spanish-american-conflict-of-1898/)
+
+
+1898-12-10 Spain submitted to the Treaty of Paris and gave up their colonies in the Caribbean and West Indies. 
+
+[https://www.smithsonianmag.com/smithsonian-institution/how-the-war-of-1898-changed-history-foreverin-the-united-states-and-beyond-180982656/](https://www.smithsonianmag.com/smithsonian-institution/how-the-war-of-1898-changed-history-foreverin-the-united-states-and-beyond-180982656/)
+
+
+1901 (Platt Amendment) Cuba negotiated its own independence from the US under the agreement that both countries keep exclusive trade relations and the US would have the right to intervene in Cuban affairs. Also it leased Guantanamo Bay to the US military. This gave the US the upper hand to meddle in any movements that would threaten US business interests.
+
+[https://theconversation.com/explainer-the-long-complicated-history-of-the-us-at-guantanamo-bay-53922](https://theconversation.com/explainer-the-long-complicated-history-of-the-us-at-guantanamo-bay-53922)
+
+
+1952 The US put support behind Cuban dictator Fulgencio Batista. 
+
+[https://www.taylorfrancis.com/chapters/edit/10.4324/9780203794296-3/cuba-united-states-batista-1952-1958-hugh-thomas](https://www.taylorfrancis.com/chapters/edit/10.4324/9780203794296-3/cuba-united-states-batista-1952-1958-hugh-thomas)
+
+[https://www.jstor.org/stable/20672109](https://www.jstor.org/stable/20672109)
+
+
+1955-05-04 The CIA trained Fulgencio Batista’s torturers in Cuba.
+[https://jacobin.com/2025/08/cia-batista-cuba-anti-communism](https://jacobin.com/2025/08/cia-batista-cuba-anti-communism)
+
+
+1959 Fulgencio Batista fled Cuba under pressure from Castro who assumed power. The US also imposed embargos on Cuba. 
+[https://www.history.com/this-day-in-history/january-1/batista-forced-out-by-castro-led-revolution](https://www.history.com/this-day-in-history/january-1/batista-forced-out-by-castro-led-revolution)
+
+[https://en.wikipedia.org/wiki/United_States_embargo_against_Cuba](https://en.wikipedia.org/wiki/United_States_embargo_against_Cuba)
+
+
+1982-03-01 Regan added Cuba to the state sponsor of terrorism list.
+[https://www.everycrsreport.com/reports/RL32251.html](https://www.everycrsreport.com/reports/RL32251.html)
+
+
+1992 George Bush barred US companies from selling goods to Cuba.
+
+Unverified website: [https://nsarchive.gwu.edu/briefing-book/cuba/2022-02-02/cuba-embargoed-us-trade-sanctions-turn-sixty](https://nsarchive.gwu.edu/briefing-book/cuba/2022-02-02/cuba-embargoed-us-trade-sanctions-turn-sixty)
+
+
+2016-03-21 Obama made an historic visit to Cuba, eased travel restrictions, dropped the designation of state sponsor of terrorism, and urged Congress to lift the embargo.
+
+[https://www.youtube.com/watch?v=SsA81-KcsZg](https://www.youtube.com/watch?v=SsA81-KcsZg)
+
+[https://obamawhitehouse.archives.gov/blog/2016/03/21/president-obama-weve-reached-havana](https://obamawhitehouse.archives.gov/blog/2016/03/21/president-obama-weve-reached-havana)
+
+
 ### 2026 February
 
 2026-02-10 Due to the Trump pressure campaign, Cuba was not able to fuel their airplanes.
