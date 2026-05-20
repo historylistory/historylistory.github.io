@@ -332,6 +332,15 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
+2026-05-14 The White House erected a stage at the National Mall to host a religious ceremony for the U.S. 250, featuring Franklin Graham, Cardinal Timothy Dolan, Pastor and Samuel Rodriguez. This is another effort to advance Christian Nationalism, exclude other religions or respect non-followers, and dismantle the separation of church and state. This was taxpayer funded. Co-president of the Freedom From Religion Foundation Annie Laurie Gaylor wrote, “Our Constitution is godless by design. The government has no authority to organize religious revivals, much less use them to promote a Christian nationalist agenda”.
+
+[https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7](https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7)
+
+[https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian](https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian)
+
+[https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
+
+
 2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B fund to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. 
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
