@@ -141,6 +141,23 @@ permalink: /categories/health/healthcare-rx/
 
 [https://www.cnbc.com/2026/01/15/trump-direct-payments-health-care.html](https://www.cnbc.com/2026/01/15/trump-direct-payments-health-care.html)
 
+### 2026 February
+
+2026-02-06 Trump launched TrumpRX.
+
+[https://truthout.org/articles/critics-warn-trumprx-will-further-enrich-big-pharma-not-reduce-drug-prices/](https://truthout.org/articles/critics-warn-trumprx-will-further-enrich-big-pharma-not-reduce-drug-prices/)
+
+[https://www.whitehouse.gov/fact-sheets/2026/02/fact-sheet-president-donald-j-trump-launches-trumprx-gov-to-bring-lower-drug-prices-to-american-patients/](https://www.whitehouse.gov/fact-sheets/2026/02/fact-sheet-president-donald-j-trump-launches-trumprx-gov-to-bring-lower-drug-prices-to-american-patients/)
+
+[https://www.cbsnews.com/news/johnson-and-johnson-trumprx-prescription-drugs/](https://www.cbsnews.com/news/johnson-and-johnson-trumprx-prescription-drugs/)
+
+[https://finance.yahoo.com/personal-finance/banking/article/trumprx-expands-discount-drug-offerings-what-consumers-should-know-153118576.html](https://finance.yahoo.com/personal-finance/banking/article/trumprx-expands-discount-drug-offerings-what-consumers-should-know-153118576.html)
+
+[https://www.cato.org/blog/trumprx-when-government-tries-build-market](https://www.cato.org/blog/trumprx-when-government-tries-build-market)
+
+PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html](https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html)
+
+
 ### 2026 April
 
 2026-04-22 During a hearing of the Senate Finance Committee Senator Elizabeth Warren asked RFK about TrumpRx and revealed the pricing is higher than promised. For example, a drug for Protonix is $16 at Costco and $200 through TrumpRX. A heart medication costs $336 through TrumpRX can be obtained at CostPlus Drugs for $12. This was after Trump said he’d reduce drug prices by 600% or 1500% or whatever number he tossed out at Americans. In exchange for these drug companies in TrumpRX, Trump gave them a tariff exemption. Yet, prices are still higher. 

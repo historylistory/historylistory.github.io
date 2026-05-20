@@ -344,3 +344,18 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 
 [https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566](https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566)
 
+2026-05-19 Trump said Massie was the “worst congressman in the history of our country”. After Massie – who fought to get the Epstein files released – lost in Kentucky to Trump’s pick Ed Gallrein, White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”.  
+
+[https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/](https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/)
+
+[https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary](https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary)
+
+[https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary](https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary)
+
+[https://x.com/StevenCheung47/status/2056886701591613762](https://x.com/StevenCheung47/status/2056886701591613762)
+
+[https://ca.news.yahoo.com/donald-trump-comms-chief-triggers-071454849.html](https://ca.news.yahoo.com/donald-trump-comms-chief-triggers-071454849.html)
+
+[https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3](https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3)
+
+SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)

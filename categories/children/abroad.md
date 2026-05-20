@@ -192,3 +192,11 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/](https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/)
 
 SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/news/articles/c5ye480kxpmo)
+
+2026-05-18 A new report finds that more than 100,000 children in the US have had a parent detained since the Trump administration began its mass deportations. 
+
+[https://www.democracynow.org/2026/5/19/headlines/report_100_000_children_in_us_have_had_a_parent_detained_in_immigration_crackdown](https://www.democracynow.org/2026/5/19/headlines/report_100_000_children_in_us_have_had_a_parent_detained_in_immigration_crackdown)
+
+[https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings](https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings)
+
+[https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/](https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/)

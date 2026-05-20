@@ -258,3 +258,20 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 [https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
 
 [https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)
+
+2026-05-19 As part of Trump’s IRS settlement, the DOJ agreed to drop any pending tax claims against Trump and his family, barring any investigations. 
+
+[https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
+
+[https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit](https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit)
+
+[https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)
+
+2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets.
+
+[https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets](https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets)
+
+[https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets](https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets)
+
+[https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)
+

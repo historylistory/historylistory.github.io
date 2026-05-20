@@ -174,3 +174,17 @@ USA TODAY SAYS THEY ARE SHIPPING THE PHONES: [https://www.usatoday.com/story/tec
 [https://time.com/article/2026/05/11/trump-phone-late-not-made-in-u-s/](https://time.com/article/2026/05/11/trump-phone-late-not-made-in-u-s/)
 
 TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1)
+
+2026-05-18 Financial disclosure forms released by the US Office of Government Ethics showed Trump made between $220-$750M in trades in his first 3 months of 2026.
+
+[https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/](https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/)
+
+[https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html](https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html)
+
+2026-05-19 (for context) Trump sued Minnesota for banning Kalshi prediction markets.
+
+[https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets](https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets)
+
+[https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets](https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets)
+
+[https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)

@@ -50,6 +50,22 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859](https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859)
 
+### 2026 February
+
+2026-02-06 Trump launched TrumpRX.
+
+[https://truthout.org/articles/critics-warn-trumprx-will-further-enrich-big-pharma-not-reduce-drug-prices/](https://truthout.org/articles/critics-warn-trumprx-will-further-enrich-big-pharma-not-reduce-drug-prices/)
+
+[https://www.whitehouse.gov/fact-sheets/2026/02/fact-sheet-president-donald-j-trump-launches-trumprx-gov-to-bring-lower-drug-prices-to-american-patients/](https://www.whitehouse.gov/fact-sheets/2026/02/fact-sheet-president-donald-j-trump-launches-trumprx-gov-to-bring-lower-drug-prices-to-american-patients/)
+
+[https://www.cbsnews.com/news/johnson-and-johnson-trumprx-prescription-drugs/](https://www.cbsnews.com/news/johnson-and-johnson-trumprx-prescription-drugs/)
+
+[https://finance.yahoo.com/personal-finance/banking/article/trumprx-expands-discount-drug-offerings-what-consumers-should-know-153118576.html](https://finance.yahoo.com/personal-finance/banking/article/trumprx-expands-discount-drug-offerings-what-consumers-should-know-153118576.html)
+
+[https://www.cato.org/blog/trumprx-when-government-tries-build-market](https://www.cato.org/blog/trumprx-when-government-tries-build-market)
+
+PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html](https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html)
+
 ### 2026 April
 
 2026-04-03 Trump’s new budget seeks TSA privatization.

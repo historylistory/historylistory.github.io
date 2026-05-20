@@ -329,3 +329,9 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 [https://www.reuters.com/business/world-at-work/coinbase-cut-about-14-workforce-2026-05-05/](https://www.reuters.com/business/world-at-work/coinbase-cut-about-14-workforce-2026-05-05/)
 
 [https://fortune.com/2026/05/05/coinbase-layoffs-14-of-employees-ai-tech-ai-job-anxiety-crypto/](https://fortune.com/2026/05/05/coinbase-layoffs-14-of-employees-ai-tech-ai-job-anxiety-crypto/)
+
+2026-05-16 Over 3500 unionized workers walked off the job for the first LIR strike in over 30 years.
+
+[https://www.cbsnews.com/newyork/news/lirr-strike-mta-unions-tentative-agreement-hochul/](https://www.cbsnews.com/newyork/news/lirr-strike-mta-unions-tentative-agreement-hochul/)
+
+[https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/](https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/)

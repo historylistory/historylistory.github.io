@@ -311,3 +311,16 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/](https://nywolf.org/2025/05/trump-administration-proposes-rule-that-would-destroy-endangered-species-habitat/)
 
 [https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act](https://www.humaneworld.org/en/blog/trump-administration-gut-endangered-species-act)
+
+### 2026 May
+
+2026-05-18 The EPA proposed to eliminate drinking water limits for 4 forever-chemicals set by the Biden administration in 2024. The EPA will allow water utilities to extend their compliance deadline from 2029 to 2031. 
+
+[https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically](https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically)
+
+[https://www.democracynow.org/2026/5/19/headlines/epa_proposes_to_kill_drinking_water_limits_for_four_forever_chemicals](https://www.democracynow.org/2026/5/19/headlines/epa_proposes_to_kill_drinking_water_limits_for_four_forever_chemicals)
+
+[https://www.theguardian.com/us-news/2026/may/18/trump-administration-epa-pfas-water](https://www.theguardian.com/us-news/2026/may/18/trump-administration-epa-pfas-water)
+
+[https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6](https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6)
+

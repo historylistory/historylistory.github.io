@@ -233,3 +233,13 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.cnn.com/2026/04/23/europe/france-weather-sensor-polymarket-bet-intl-latam](https://www.cnn.com/2026/04/23/europe/france-weather-sensor-polymarket-bet-intl-latam)
 
 [https://finance.yahoo.com/markets/crypto/articles/france-probes-weather-data-tampering-075950500.html](https://finance.yahoo.com/markets/crypto/articles/france-probes-weather-data-tampering-075950500.html)
+
+### 2026 May
+
+2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets.
+
+[https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets](https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets)
+
+[https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets](https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets)
+
+[https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)

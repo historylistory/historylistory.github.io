@@ -180,3 +180,11 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.newsweek.com/pastor-defends-golden-trump-statue-from-biblical-backlash-11933490](https://www.newsweek.com/pastor-defends-golden-trump-statue-from-biblical-backlash-11933490)
 
 [https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/](https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/)
+
+2026-05-17 During the religious rededication ceremony at the National Mall, podcaster Eric Mataxis said, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”. 
+
+[https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057](https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057)
+
+[https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
+
+[https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)

@@ -409,3 +409,8 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 2026-05-01 During a speech to supporters in Florida Trump accused the left of “treason” for saying we aren’t winning in Iran.
 
 [https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)
+
+2026-05-18 Shooting at the Islamic Center of San Diego.
+
+[https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b](https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b)
+

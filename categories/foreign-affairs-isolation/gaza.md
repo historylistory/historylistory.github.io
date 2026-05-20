@@ -400,4 +400,9 @@ TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-cont
 
 [https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php](https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php)
 
+2026-05-18 Malaysian Prime Minister Anwar Ibrahim wrote, “The world cannot continue to bow to tyranny and corruption. The oppression against Palestinians and those who mobilize and deliver humanitarian aid must be stopped immediately, and Israel must face justice and accountability!”.
+
+[https://www.democracynow.org/2026/5/19/headlines/world_leaders_condemn_israels_abduction_of_activists_from_gaza_bound_aid_flotilla](https://www.democracynow.org/2026/5/19/headlines/world_leaders_condemn_israels_abduction_of_activists_from_gaza_bound_aid_flotilla)
+
+[https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639](https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639)
 

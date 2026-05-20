@@ -125,6 +125,13 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://www.lgbtqnation.com/2025/08/ron-desantis-rages-at-cities-that-virtue-signal-with-rainbow-crosswalks/](https://www.lgbtqnation.com/2025/08/ron-desantis-rages-at-cities-that-virtue-signal-with-rainbow-crosswalks/)
 
+### 2025 September
+
+2025-09-18 CSPAN headline, “I’m a woman. Are you a woman?”
+
+[https://www.youtube.com/watch?v=k8KIv5FSol0&list=WL&index=2&t=39s](https://www.youtube.com/watch?v=k8KIv5FSol0&list=WL&index=2&t=39s)
+
+
 ### 2025 October
 
 2025-10-28 Now Texas judges who refuse to perform gay marriages will not face charges of judicial partiality.

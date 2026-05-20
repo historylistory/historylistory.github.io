@@ -251,4 +251,7 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 [https://www.youtube.com/watch?v=HisWQVg5WC4&list=WL&index=2](https://www.youtube.com/watch?v=HisWQVg5WC4&list=WL&index=2)
 
+2026-05-15 The Supreme Court turned down efforts by Democrats to gain additional seats in Virginia.
+
+[https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats](https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats)
 

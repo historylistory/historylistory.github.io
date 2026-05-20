@@ -350,3 +350,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
 
 [https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)
+
+2026-05-19 As part of Trump’s IRS settlement, the DOJ agreed to drop any pending tax claims against Trump and his family, barring any investigations. 
+
+[https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
+
+[https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit](https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit)
+
+[https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)

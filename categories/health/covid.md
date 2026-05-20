@@ -193,3 +193,13 @@ Great Barrington Declaration links:
 [https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf](https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf)
 
 [https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns](https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns)
+
+### 2026 May
+
+2026-05-13 CIA whistleblower James Erdman testified before the Senate that there was an effort to downplay COVID 19. 
+
+[https://www.youtube.com/watch?v=7iKFaL8qPbM&list=WL&index=1](https://www.youtube.com/watch?v=7iKFaL8qPbM&list=WL&index=1)
+
+[https://www.c-span.org/clip/senate-committee/cia-whistleblower-says-government-circulated-scientific-papers-on-covid-lab-leak-theory-in-2020/5200269](https://www.c-span.org/clip/senate-committee/cia-whistleblower-says-government-circulated-scientific-papers-on-covid-lab-leak-theory-in-2020/5200269)
+
+[https://www.hsgac.senate.gov/wp-content/uploads/letter-and-testimomy.pdf](https://www.hsgac.senate.gov/wp-content/uploads/letter-and-testimomy.pdf)

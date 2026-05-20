@@ -141,3 +141,16 @@ permalink: /categories/climate-change/weird-weather/
 [https://fortune.com/2026/04/18/record-us-drought-rainfall-snowpack-wildfire-risk-southeast-west/](https://fortune.com/2026/04/18/record-us-drought-rainfall-snowpack-wildfire-risk-southeast-west/)
 
 [https://www.ncei.noaa.gov/access/monitoring/historical-palmers/](https://www.ncei.noaa.gov/access/monitoring/historical-palmers/)
+
+### 2026 May
+
+2026-05-19 On this date Sandy Fire roared in California, tornadoes ripped through the Midwest, freeze advisories were issued in North Dakota, and heat wave advisories were issued in New York.
+
+[https://abc7.com/live-updates/sandy-fire-simi-valley-several-structures-burned-184-acres-scorched/19125501/entry/19130618/](https://abc7.com/live-updates/sandy-fire-simi-valley-several-structures-burned-184-acres-scorched/19125501/entry/19130618/)
+
+[https://weather.com/2026/05/18/storms/tornado/multiple-tornadoes-devastate-nebraska-iowa-communities](https://weather.com/2026/05/18/storms/tornado/multiple-tornadoes-devastate-nebraska-iowa-communities)
+
+[https://www.valleynewslive.com/2026/05/20/freeze-warning-wednesday-morning-followed-by-warm-up/](https://www.valleynewslive.com/2026/05/20/freeze-warning-wednesday-morning-followed-by-warm-up/)
+
+[https://nypost.com/2026/05/18/us-news/nyc-air-quality-alert-as-temperatures-soar-into-the-90s/](https://nypost.com/2026/05/18/us-news/nyc-air-quality-alert-as-temperatures-soar-into-the-90s/)
+

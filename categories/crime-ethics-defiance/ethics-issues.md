@@ -486,3 +486,16 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482](https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482)
 
+2026-05-18 Financial disclosure forms released by the US Office of Government Ethics showed Trump made between $220-$750M in trades in his first 3 months of 2026.
+
+[https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/](https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/)
+
+[https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html](https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html)
+
+2026-05-19 As part of Trump’s IRS settlement, the DOJ agreed to drop any pending tax claims against Trump and his family, barring any investigations. 
+
+[https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
+
+[https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit](https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit)
+
+[https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)

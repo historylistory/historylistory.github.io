@@ -185,3 +185,11 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/](https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/)
 
 [https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)
+
+2026-05-18 A new report finds that more than 100,000 children in the US have had a parent detained since the Trump administration began its mass deportations. 
+
+[https://www.democracynow.org/2026/5/19/headlines/report_100_000_children_in_us_have_had_a_parent_detained_in_immigration_crackdown](https://www.democracynow.org/2026/5/19/headlines/report_100_000_children_in_us_have_had_a_parent_detained_in_immigration_crackdown)
+
+[https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings](https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings)
+
+[https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/](https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/)

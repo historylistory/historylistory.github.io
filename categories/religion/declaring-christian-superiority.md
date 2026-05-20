@@ -101,3 +101,11 @@ permalink: /categories/religion/declaring-christian-superiority/
 [https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian](https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian)
 
 [https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
+
+2026-05-17 During the religious rededication ceremony at the National Mall, podcaster Eric Mataxis said, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”. 
+
+[https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057](https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057)
+
+[https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
+
+[https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)
