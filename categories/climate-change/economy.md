@@ -21,3 +21,13 @@ permalink: /categories/climate-change/economy/
 [https://theconversation.com/why-does-chocolate-cost-so-much-this-easter-when-cocoas-price-is-at-a-3-year-low-279209](https://theconversation.com/why-does-chocolate-cost-so-much-this-easter-when-cocoas-price-is-at-a-3-year-low-279209)
 
 [https://tradingeconomics.com/commodity/cocoa](https://tradingeconomics.com/commodity/cocoa)
+
+### 2026 May
+
+2026-05-21 Trump rolled back refrigerant regulations aimed to reduce emissions, claiming the rollback was a means to reduce grocery prices.
+
+[https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123](https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123)
+
+[https://www.usatoday.com/story/news/politics/2026/05/21/trump-grocery-costs-refrigerant-rules-epa-biden/90186446007/](https://www.usatoday.com/story/news/politics/2026/05/21/trump-grocery-costs-refrigerant-rules-epa-biden/90186446007/)
+
+[https://www.reuters.com/world/trump-delay-biden-era-refrigerant-rules-push-ease-costs-white-house-official-2026-05-21/](https://www.reuters.com/world/trump-delay-biden-era-refrigerant-rules-push-ease-costs-white-house-official-2026-05-21/)
