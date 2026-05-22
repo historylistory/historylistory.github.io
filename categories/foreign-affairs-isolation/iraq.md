@@ -6,6 +6,17 @@ subcategory_slug: iraq
 permalink: /categories/foreign-affairs-isolation/iraq/
 ---
 
+### 2011
+
+2011-04-17 Trump said he would like to seize oil fields in Libya and Iraq.
+
+[https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html](https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html)
+
+[https://www.politico.com/blogs/politico-now/2011/04/trump-says-hed-get-opec-to-cut-oil-prices-035083](https://www.politico.com/blogs/politico-now/2011/04/trump-says-hed-get-opec-to-cut-oil-prices-035083)
+
+[https://www.buzzfeednews.com/article/andrewkaczynski/trump-pushed-for-us-action-in-iran-libya-in-2011-fox-news-ap](https://www.buzzfeednews.com/article/andrewkaczynski/trump-pushed-for-us-action-in-iran-libya-in-2011-fox-news-ap)
+
+
 ### 2016
 
 2016-09-21 Trump reportedly said he wanted to take the oil from Iraq. He stated, “You’re not stealing anything. We’re reimbursing ourselves”.

@@ -6,6 +6,9 @@ subcategory_slug: reducing-regulations-to-benefit-the-rich
 permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 ---
 
+
+
+
 ### 2016
 
 2016-12-31 During his podcast, RFK warned that Trump will try to eliminate environmental protections including things like safe water.
@@ -29,6 +32,18 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 2018-03-14 The Heritage Foundation published an article calling for the repeal of NEPA, which is the National Environmental Policy Act requiring federal agencies to assess the environmental effects of public works projects. The article reads, “On February 12, 2018, the Trump administration unveiled a $1.5 trillion initiative to repair the nation’s roads, bridges, airports and railways. The first step should be to reduce the regulatory barriers that impede infrastructure projects and vastly inflate their costs”.
 
 [https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa](https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa)
+
+### 2019
+
+2019-06-27 Ohio House Bill 6 “Clean Air Program” was seen as a bailout to provide subsidies to very specific companies in Ohio like FirstEnergy. Context: FirstEnergy dumped arsenic coal waste in 2013.
+
+[https://www.legislature.ohio.gov/legislation/133/hb6](https://www.legislature.ohio.gov/legislation/133/hb6)
+
+[https://www.commoncause.org/ohio/resources/a-cycle-of-corruption-a-timeline-of-the-householder-hb6-scandal/](https://www.commoncause.org/ohio/resources/a-cycle-of-corruption-a-timeline-of-the-householder-hb6-scandal/)
+
+[https://www.dallashartman.com/blog/firstenergy-dumping-waste-in-beaver-county/](https://www.dallashartman.com/blog/firstenergy-dumping-waste-in-beaver-county/)
+
+[https://www.cbsnews.com/pittsburgh/news/towns-dispute-where-to-dump-coal-waste/](https://www.cbsnews.com/pittsburgh/news/towns-dispute-where-to-dump-coal-waste/)
 
 ### 2024
 
