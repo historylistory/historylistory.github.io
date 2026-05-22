@@ -274,6 +274,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
 
+2026-04-20 Four GOP leaders refused to call Proud Boys or neo-Nazis white supremacists when asked by Representative Jasmine Crockett.
+
+[https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2](https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2)
+
+
 2026-04-22 Todd Blanche and the DOJ indicted the Southern Poverty Law Center on federal charges for allegedly “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
 
 [https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/](https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/)

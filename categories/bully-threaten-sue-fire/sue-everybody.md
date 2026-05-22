@@ -249,7 +249,7 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 ### 2026 May
 
-2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B fund to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. 
+2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B anti-weaponization fund (slush fund) to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. 
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
 
@@ -275,3 +275,14 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 [https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)
 
+2026-05-20 (CONTEXT - FOLLOW UP ON SLUSH FUND) Two officers filed a lawsuit against the Trump administration’s $1.8B “anti-weaponization” fund to reward J6 insurrectionists for their attack on the Capitol. 
+
+[https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3](https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=6EPDnUEagYo&list=WL&index=1](https://www.youtube.com/watch?v=6EPDnUEagYo&list=WL&index=1)
+
+[https://www.npr.org/2026/05/21/g-s1-123293/officers-who-defended-capitol-sue](https://www.npr.org/2026/05/21/g-s1-123293/officers-who-defended-capitol-sue)
+
+[https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)

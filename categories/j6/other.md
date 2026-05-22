@@ -44,3 +44,15 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump](https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump)
 
 [https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)
+
+2026-05-20 Two officers filed a lawsuit against the Trump administration’s $1.8B “anti-weaponization” fund to reward J6 insurrectionists for their attack on the Capitol. 
+
+[https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3](https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=6EPDnUEagYo&list=WL&index=1](https://www.youtube.com/watch?v=6EPDnUEagYo&list=WL&index=1)
+
+[https://www.npr.org/2026/05/21/g-s1-123293/officers-who-defended-capitol-sue](https://www.npr.org/2026/05/21/g-s1-123293/officers-who-defended-capitol-sue)
+
+[https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)

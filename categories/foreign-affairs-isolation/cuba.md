@@ -234,3 +234,13 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.usatoday.com/story/news/politics/2026/05/14/cia-director-john-ratcliffe-cuba-changes/90085391007/](https://www.usatoday.com/story/news/politics/2026/05/14/cia-director-john-ratcliffe-cuba-changes/90085391007/)
 
 [https://www.cnbc.com/2026/05/15/cuba-cia-john-ratcliffe-oil-blockade-trump-blackouts.html](https://www.cnbc.com/2026/05/15/cuba-cia-john-ratcliffe-oil-blockade-trump-blackouts.html)
+
+2026-05-20 The DOJ indicted Raul Castro.
+
+[https://www.justice.gov/opa/pr/united-states-unseals-superseding-indictment-charging-raul-castro-and-five-castro-regime-co](https://www.justice.gov/opa/pr/united-states-unseals-superseding-indictment-charging-raul-castro-and-five-castro-regime-co)
+
+[https://edition.cnn.com/2026/05/20/politics/live-news/raul-castro-doj-indictment](https://edition.cnn.com/2026/05/20/politics/live-news/raul-castro-doj-indictment)
+
+[https://www.nbcnews.com/politics/justice-department/raul-castro-indicted-trump-doj-plane-shootings-cuban-americans-rcna345707](https://www.nbcnews.com/politics/justice-department/raul-castro-indicted-trump-doj-plane-shootings-cuban-americans-rcna345707)
+
+[https://www.npr.org/2026/05/20/g-s1-122383/us-cuba-raul-castro-indictment](https://www.npr.org/2026/05/20/g-s1-122383/us-cuba-raul-castro-indictment)

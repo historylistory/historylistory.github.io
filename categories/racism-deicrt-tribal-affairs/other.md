@@ -110,3 +110,8 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+2026-04-20 Four GOP leaders refused to call Proud Boys or neo-Nazis white supremacists when asked by Representative Jasmine Crockett.
+
+[https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2](https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2)
+

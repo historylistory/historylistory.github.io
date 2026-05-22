@@ -208,6 +208,12 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.theguardian.com/us-news/2026/mar/22/maga-media-fight-trump-iran-war](https://www.theguardian.com/us-news/2026/mar/22/maga-media-fight-trump-iran-war)
 
+2026-03-11 Joe Rogan slammed Trump over the Iran war.
+
+[https://www.youtube.com/watch?v=D7kwHZv6cbs](https://www.youtube.com/watch?v=D7kwHZv6cbs)
+
+[https://thehill.com/policy/international/5846565-rogan-questions-trump-middle-east/](https://thehill.com/policy/international/5846565-rogan-questions-trump-middle-east/)
+
 
 2026-03-13 Laura Loomer v Tucker Carlson personal attacks and feud over allegations of antisemitism.
 
@@ -378,6 +384,15 @@ what women who are paid to do things are called”.
 [https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS](https://www.thefiscaltimes.com/2026/04/07/House-Freedom-Caucus-Rejects-GOP-Leaders-Plan-Fund-DHS)
 
 [https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)
+
+2026-04-22 Theo Von turned against Trump over Iran.
+
+[https://www.yahoo.com/entertainment/celebrity/articles/theo-von-turns-against-president-200443413.html](https://www.yahoo.com/entertainment/celebrity/articles/theo-von-turns-against-president-200443413.html)
+
+[https://www.youtube.com/watch?v=hXGYfZUmK9U](https://www.youtube.com/watch?v=hXGYfZUmK9U)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/theo-von-trump-iran-war-b2962072.html](https://www.independent.co.uk/news/world/americas/us-politics/theo-von-trump-iran-war-b2962072.html)
+
 
 2026-04-27 Elon Musk sued Sam Altman over OpenAI.
 
