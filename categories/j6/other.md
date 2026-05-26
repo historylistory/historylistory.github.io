@@ -56,3 +56,9 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)
+
+2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+
+[https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
+
+[https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)

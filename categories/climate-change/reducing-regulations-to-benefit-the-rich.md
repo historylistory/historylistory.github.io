@@ -348,3 +348,10 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 
 [https://www.reuters.com/world/trump-delay-biden-era-refrigerant-rules-push-ease-costs-white-house-official-2026-05-21/](https://www.reuters.com/world/trump-delay-biden-era-refrigerant-rules-push-ease-costs-white-house-official-2026-05-21/)
 
+[https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123](https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123)
+
+[https://www.theguardian.com/us-news/2026/may/21/trump-epa-refrigerant-rule-grocery-costs](https://www.theguardian.com/us-news/2026/may/21/trump-epa-refrigerant-rule-grocery-costs)
+
+[https://www.whitehouse.gov/fact-sheets/2026/05/fact-sheet-president-donald-j-trump-reverses-biden-era-refrigerant-rules/](https://www.whitehouse.gov/fact-sheets/2026/05/fact-sheet-president-donald-j-trump-reverses-biden-era-refrigerant-rules/)
+
+[https://www.epa.gov/newsreleases/epa-cuts-biden-era-refrigerant-rules-saving-americans-over-24-billion-and-lowering](https://www.epa.gov/newsreleases/epa-cuts-biden-era-refrigerant-rules-saving-americans-over-24-billion-and-lowering)

@@ -298,3 +298,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s](https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s)
 
 GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s](https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s)
+
+
+### 2026 May
+
+2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+
+[https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
+
+[https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
+

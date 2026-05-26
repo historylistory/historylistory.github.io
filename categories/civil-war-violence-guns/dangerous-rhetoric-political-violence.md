@@ -414,3 +414,6 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b](https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b)
 
+2025-05-22 Secret Service shot and killed an armed man outside the White House.
+
+[https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2](https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2)

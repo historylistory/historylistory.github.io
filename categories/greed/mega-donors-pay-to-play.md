@@ -235,3 +235,9 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 [https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455](https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455)
 
 [https://www.youtube.com/watch?v=vEuuPpq_AMQ](https://www.youtube.com/watch?v=vEuuPpq_AMQ)
+
+### 2026 May
+
+2026-05-23 Hawaii banned dark money elections like Citizens United, in a strategy known as the “Corporate Power Reset”.
+
+[https://www.youtube.com/watch?v=oBGpEcPrbso&list=WL&index=6](https://www.youtube.com/watch?v=oBGpEcPrbso&list=WL&index=6)

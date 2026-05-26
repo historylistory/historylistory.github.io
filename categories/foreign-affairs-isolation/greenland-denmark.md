@@ -57,3 +57,16 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 2026-01-18 During an interview, Scott Bessent said Greenland “can only be defended if it is part of the U.S.” after Trump threatened to acquire Greenland.
 
 [https://www.youtube.com/watch?v=55FtfIk8U94](https://www.youtube.com/watch?v=55FtfIk8U94)
+
+### 2026 May
+
+2025-05-22 Trump continued to harass Greenland. 
+
+[https://www.youtube.com/watch?v=m21ycbDEVro&list=WL&index=1](https://www.youtube.com/watch?v=m21ycbDEVro&list=WL&index=1)
+
+[https://www.yahoo.com/news/politics/articles/hello-greenland-trump-trolls-foreign-135515143.html](https://www.yahoo.com/news/politics/articles/hello-greenland-trump-trolls-foreign-135515143.html)
+
+[https://www.yahoo.com/news/articles/trump-tower-us-consulate-greenland-161541957.html](https://www.yahoo.com/news/articles/trump-tower-us-consulate-greenland-161541957.html)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116620553611959468](https://truthsocial.com/@realDonaldTrump/posts/116620553611959468)
+

@@ -499,3 +499,10 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 [https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit](https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit)
 
 [https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)
+
+2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+
+[https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
+
+[https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
+

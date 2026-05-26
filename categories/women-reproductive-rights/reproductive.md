@@ -63,6 +63,19 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751](https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751)
 
+### 2017 
+
+2017-01-03 “Make America Mate Again”
+
+[https://politicaltheology.com/make-america-mate-again%EF%BF%BC/](https://politicaltheology.com/make-america-mate-again%EF%BF%BC/)
+
+[https://americanmind.org/salvo/make-america-mate-again/](https://americanmind.org/salvo/make-america-mate-again/)
+
+[https://www.forbes.com/sites/patrickcox/2017/03/06/the-us-is-going-through-a-profound-demographic-shift-that-will-affect-everyone/](https://www.forbes.com/sites/patrickcox/2017/03/06/the-us-is-going-through-a-profound-demographic-shift-that-will-affect-everyone/)
+
+PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mate-again](https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mate-again)
+
+
 ### 2019
 
 2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 

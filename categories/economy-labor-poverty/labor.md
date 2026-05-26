@@ -335,3 +335,11 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 [https://www.cbsnews.com/newyork/news/lirr-strike-mta-unions-tentative-agreement-hochul/](https://www.cbsnews.com/newyork/news/lirr-strike-mta-unions-tentative-agreement-hochul/)
 
 [https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/](https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/)
+
+2026-05-21 Cargill locked out a labor union in Fort Morgan, Colorado. 
+
+[https://www.youtube.com/watch?v=R6stnHP8Pgk&list=WL&index=5](https://www.youtube.com/watch?v=R6stnHP8Pgk&list=WL&index=5)
+
+[https://jcpost.com/posts/810852f0-3a16-4d26-a331-b0ddc5bf8cdf](https://jcpost.com/posts/810852f0-3a16-4d26-a331-b0ddc5bf8cdf)
+
+[https://www.cpr.org/2026/05/21/cargill-locks-out-workers-fort-morgan/](https://www.cpr.org/2026/05/21/cargill-locks-out-workers-fort-morgan/)

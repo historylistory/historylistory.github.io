@@ -108,3 +108,12 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+### 2026 May
+
+2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+
+[https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
+
+[https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
+

@@ -384,3 +384,7 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)
 
+2026-05-22 Democrat Congressman after Republicans cancelled the Iran war powers vote, “…these chickenhawk motherfuckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullshit argument, and every American should be absolutely outraged about this. It’s a disgrace.”
+
+[https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
+

@@ -55,3 +55,12 @@ permalink: /categories/crime-ethics-defiance/other/
 [https://www.icc-cpi.int/philippines/duterte](https://www.icc-cpi.int/philippines/duterte)
 
 [https://www.icc-cpi.int/news/icc-pre-trial-chamber-i-confirms-all-charges-against-rodrigo-roa-duterte-and-commits-him-trial](https://www.icc-cpi.int/news/icc-pre-trial-chamber-i-confirms-all-charges-against-rodrigo-roa-duterte-and-commits-him-trial)
+
+### 2026 May
+
+2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+
+[https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
+
+[https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
+
