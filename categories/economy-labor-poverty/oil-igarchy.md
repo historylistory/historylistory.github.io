@@ -152,3 +152,13 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
+2026-05-26 There is a movement to have oil-rich Alberta separate from Canada. 
+
+[https://www.sierraclub.ca/alberta-separatism-oil-gas/](https://www.sierraclub.ca/alberta-separatism-oil-gas/)
+
+[https://www.theenergymix.com/afn-chief-calls-for-review-of-natural-resource-deals-amid-talk-of-alberta-separation](https://www.theenergymix.com/afn-chief-calls-for-review-of-natural-resource-deals-amid-talk-of-alberta-separation)
+
+[https://www.bbc.com/news/articles/c809jg1gj9yo](https://www.bbc.com/news/articles/c809jg1gj9yo)
+
+[https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7](https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7)

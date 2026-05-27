@@ -435,3 +435,11 @@ AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makar
 [https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765](https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765)
 
 SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)
+
+2026-05-27 South Carolina Senate rejected the GOP attempt to eliminate the last-standing Democratic district after 12 Republicans joined Democrats to vote against it. Representative Jim Clyburn stated, “The people who drew that map – some of them may not have ever set foot in South Carolina – this White House says to hell with the process – to hell with the Constitution”. 
+
+[https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s](https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s)
+
+[https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn](https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn)
+
+[https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)

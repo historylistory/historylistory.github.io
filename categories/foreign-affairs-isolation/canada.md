@@ -59,3 +59,15 @@ Also out of left field, one conservative commentator praised the win as a show o
 [https://www.euronews.com/2026/04/20/carney-says-canadas-economic-ties-with-the-us-are-weakness-that-must-be-corrected](https://www.euronews.com/2026/04/20/carney-says-canadas-economic-ties-with-the-us-are-weakness-that-must-be-corrected)
 
 [https://www.dw.com/en/canadas-us-ties-have-become-a-weakness-says-carney/a-76852129](https://www.dw.com/en/canadas-us-ties-have-become-a-weakness-says-carney/a-76852129)
+
+### 2026 May
+
+2026-05-26 There is a movement to have oil-rich Alberta separate from Canada. 
+
+[https://www.sierraclub.ca/alberta-separatism-oil-gas/](https://www.sierraclub.ca/alberta-separatism-oil-gas/)
+
+[https://www.theenergymix.com/afn-chief-calls-for-review-of-natural-resource-deals-amid-talk-of-alberta-separation](https://www.theenergymix.com/afn-chief-calls-for-review-of-natural-resource-deals-amid-talk-of-alberta-separation)
+
+[https://www.bbc.com/news/articles/c809jg1gj9yo](https://www.bbc.com/news/articles/c809jg1gj9yo)
+
+[https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7](https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7)

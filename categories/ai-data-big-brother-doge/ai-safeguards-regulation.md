@@ -103,3 +103,13 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.vaticannews.va/en/pope/news/2026-05/pope-leo-xiv-encyclical-magnifica-humanitas-ai.html](https://www.vaticannews.va/en/pope/news/2026-05/pope-leo-xiv-encyclical-magnifica-humanitas-ai.html)
 
 [https://www.pbs.org/newshour/show/pope-leo-warns-ai-should-be-disarmed-in-manifesto-on-potential-dangers](https://www.pbs.org/newshour/show/pope-leo-warns-ai-should-be-disarmed-in-manifesto-on-potential-dangers)
+
+2026-05-26 Trump scrapped an Executive Order on a proposed safety vetting system for AI. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”. 
+
+[https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4](https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4)
+
+[https://timesofindia.indiatimes.com/technology/tech-news/read-ai-oversight-order-that-president-donald-trump-said-didnt-like-certain-aspects-of-it/articleshow/131294197.cms](https://timesofindia.indiatimes.com/technology/tech-news/read-ai-oversight-order-that-president-donald-trump-said-didnt-like-certain-aspects-of-it/articleshow/131294197.cms)
+
+[https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/](https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/)
+
+[https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/](https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/)

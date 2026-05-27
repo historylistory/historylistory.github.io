@@ -224,3 +224,14 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 [https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002](https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002)
 
 [https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel](https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel)
+
+### 2026 May
+
+2026-05-26 The Trump administration announced that anyone currently in the US applying for a green card must return to their countries and re-apply.
+
+[https://www.youtube.com/watch?v=_sYyM9WpkxA&list=WL&index=1&t=14s](https://www.youtube.com/watch?v=_sYyM9WpkxA&list=WL&index=1&t=14s)
+
+[https://www.npr.org/2026/05/23/nx-s1-5832399/trump-administration-green-card-abroad](https://www.npr.org/2026/05/23/nx-s1-5832399/trump-administration-green-card-abroad)
+
+[https://www.pbs.org/newshour/politics/foreigners-in-u-s-must-apply-for-green-cards-abroad-new-trump-administration-rule-says](https://www.pbs.org/newshour/politics/foreigners-in-u-s-must-apply-for-green-cards-abroad-new-trump-administration-rule-says)
+

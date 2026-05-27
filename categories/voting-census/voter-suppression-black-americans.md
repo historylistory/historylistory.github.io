@@ -92,3 +92,10 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/](https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/)
 
 
+2026-05-27 South Carolina Senate rejected the GOP attempt to eliminate the last-standing Democratic district after 12 Republicans joined Democrats to vote against it. Representative Jim Clyburn stated, “The people who drew that map – some of them may not have ever set foot in South Carolina – this White House says to hell with the process – to hell with the Constitution”. 
+
+[https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s](https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s)
+
+[https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn](https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn)
+
+[https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)

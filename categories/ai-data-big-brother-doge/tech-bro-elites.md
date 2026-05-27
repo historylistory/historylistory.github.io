@@ -124,3 +124,13 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 [https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/](https://www.usatoday.com/story/news/2026/05/05/why-were-protesters-outside-of-the-met-gala-what-to-know-on-boycott/89943726007/)
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
+
+2026-05-26 Trump scrapped an Executive Order on a proposed safety vetting system for AI. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”. 
+
+[https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4](https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4)
+
+[https://timesofindia.indiatimes.com/technology/tech-news/read-ai-oversight-order-that-president-donald-trump-said-didnt-like-certain-aspects-of-it/articleshow/131294197.cms](https://timesofindia.indiatimes.com/technology/tech-news/read-ai-oversight-order-that-president-donald-trump-said-didnt-like-certain-aspects-of-it/articleshow/131294197.cms)
+
+[https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/](https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/)
+
+[https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/](https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/)
