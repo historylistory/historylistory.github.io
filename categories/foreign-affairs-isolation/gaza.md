@@ -406,3 +406,14 @@ TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-cont
 
 [https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639](https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639)
 
+2026-05-24 France’s foreign ministry barred Ben-Gvir from entering France, citing his “incitement of hatred and violence against Palestinians”. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.aljazeera.com/news/2026/5/24/france-bans-ben-gvir-which-other-israeli-leaders-have-been-penalised](https://www.aljazeera.com/news/2026/5/24/france-bans-ben-gvir-which-other-israeli-leaders-have-been-penalised)
+
+2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza](https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza)

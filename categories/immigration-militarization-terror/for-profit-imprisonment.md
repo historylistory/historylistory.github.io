@@ -30,6 +30,12 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 
 [https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/](https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/)
 
+2026-05-22 Detainees at ICE Delaney Hall have been on hunger strike due to horrid conditions and due process violations. The prison is operated by the private for-profit Geo Group. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests](https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests)
+
 
 ### Behind Closed Doors
 

@@ -94,3 +94,9 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993](https://apnews.com/article/lebanon-israel-drone-strikes-beirut-children-9faa08df52f16a683f603044d8077993)
 
 [https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/](https://www.upi.com/Top_News/World-News/2026/05/13/lebabon-12-killed-israeli-attacks-lebanon/7301778697520/)
+
+2026-05-24 By this date, as of March 2 2026 more than 1 million Lebanese have been forced to flee their homes.
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon](https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon)

@@ -247,3 +247,9 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.commondreams.org/news/dhs-ombudsman-closed](https://www.commondreams.org/news/dhs-ombudsman-closed)
 
 [https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)
+
+2026-05-22 Detainees at ICE Delaney Hall have been on hunger strike due to horrid conditions and due process violations. The prison is operated by the private for-profit Geo Group. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests](https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests)

@@ -568,3 +568,8 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
 
+2026-05-19 A survey showed that at least 25% of job seekers reported it has taken them a year or longer to find a replacement job. 
+
+[https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1](https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1)
+
+[https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096](https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096)

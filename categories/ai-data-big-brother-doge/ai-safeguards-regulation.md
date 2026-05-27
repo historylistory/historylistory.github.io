@@ -95,3 +95,11 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 2026-05-10 Malware in robot dogs is a national security nightmare.
 
 RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8WuXDXfcI](https://www.youtube.com/watch?v=lA8WuXDXfcI)
+
+2026-05-25 Pope Leo called for artificial intelligence to be “disarmed” in his first papal encyclical, urging more regulation to protect people.
+
+[https://www.youtube.com/watch?v=Nc31Cv9XAek&list=WL&index=12&t=91s](https://www.youtube.com/watch?v=Nc31Cv9XAek&list=WL&index=12&t=91s)
+
+[https://www.vaticannews.va/en/pope/news/2026-05/pope-leo-xiv-encyclical-magnifica-humanitas-ai.html](https://www.vaticannews.va/en/pope/news/2026-05/pope-leo-xiv-encyclical-magnifica-humanitas-ai.html)
+
+[https://www.pbs.org/newshour/show/pope-leo-warns-ai-should-be-disarmed-in-manifesto-on-potential-dangers](https://www.pbs.org/newshour/show/pope-leo-warns-ai-should-be-disarmed-in-manifesto-on-potential-dangers)

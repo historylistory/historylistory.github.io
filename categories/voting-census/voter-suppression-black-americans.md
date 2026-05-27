@@ -78,3 +78,17 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://www.nbcnews.com/politics/2026-election/tennessee-republicans-pass-map-splitting-states-lone-majority-black-di-rcna343934](https://www.nbcnews.com/politics/2026-election/tennessee-republicans-pass-map-splitting-states-lone-majority-black-di-rcna343934)
 
 [https://www.npr.org/2026/05/07/nx-s1-5815023/tennessee-redistricting-map-passage](https://www.npr.org/2026/05/07/nx-s1-5815023/tennessee-redistricting-map-passage)
+
+026-05-26 A federal court blocked the Alabama House map calling it unfair to Black voters. 
+
+[https://www.youtube.com/watch?v=pjhHbZ8SrdA&list=WL&index=7&t=77s](https://www.youtube.com/watch?v=pjhHbZ8SrdA&list=WL&index=7&t=77s)
+
+[https://www.pbs.org/newshour/politics/federal-court-blocks-alabama-plan-for-new-congressional-districts-that-could-help-republicans](https://www.pbs.org/newshour/politics/federal-court-blocks-alabama-plan-for-new-congressional-districts-that-could-help-republicans)
+
+[https://www.theguardian.com/us-news/2026/may/26/alabama-new-congressional-map-struck-down](https://www.theguardian.com/us-news/2026/may/26/alabama-new-congressional-map-struck-down)
+
+[https://apnews.com/article/redistricting-congress-alabama-voting-rights-trump-b67125657b36e9b915ea9bc5d587d08c](https://apnews.com/article/redistricting-congress-alabama-voting-rights-trump-b67125657b36e9b915ea9bc5d587d08c)
+
+[https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/](https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/)
+
+

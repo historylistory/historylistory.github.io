@@ -255,3 +255,9 @@ PAY WALL [https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russ
 [https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/](https://www.reuters.com/world/europe/zelenskiy-condemns-russia-after-strike-kyiv-apartment-bloc-kills-24-2026-05-15/)
 
 SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/news/articles/c5ye480kxpmo)
+
+2026-05-22 Russia used a powerful hypersonic ballistic missile to strike a high-rise apartment building, schools, a marketplace, and a water supply facility in Kiev.
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://apnews.com/article/russia-ukraine-war-kyiv-missile-drone-attack-998aeaab5833ca397290d9ee2737b0e5](https://apnews.com/article/russia-ukraine-war-kyiv-missile-drone-attack-998aeaab5833ca397290d9ee2737b0e5)

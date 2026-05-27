@@ -200,3 +200,9 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings](https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings)
 
 [https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/](https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/)
+
+2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza](https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza)

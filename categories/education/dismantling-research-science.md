@@ -74,3 +74,10 @@ permalink: /categories/education/dismantling-research-science/
 [https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article](https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article)
 
 [https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/](https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/)
+
+### 2026 May
+
+2026-05-26 NASA announced plans to build a moon base. 
+
+[https://www.youtube.com/watch?v=1Lul2ZUN0RI&list=WL&index=6](https://www.youtube.com/watch?v=1Lul2ZUN0RI&list=WL&index=6)
+

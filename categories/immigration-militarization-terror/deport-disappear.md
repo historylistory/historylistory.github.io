@@ -26,6 +26,14 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 [https://marylandmatters.org/2025/08/23/ice-plans-to-deport-kilmar-abrego-garcia-to-uganda-after-he-rejects-plea-deal/](https://marylandmatters.org/2025/08/23/ice-plans-to-deport-kilmar-abrego-garcia-to-uganda-after-he-rejects-plea-deal/)
 
+2026-05-22 A Tennessee judge dismissed all criminal charges against Kilmar Abrego Garcia, ruling that the then deputy attorney general Todd Blanche had tainted the investigation with a “vindictive motive”, and that “the evidence before this court sadly reflects an abuse of prosecuting power”. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia](https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia)
+
+
+
 ### 2025 March
 
 2025-03-16 Ignoring a ruling to turn a deportation plane around, Tom Homan said "I don't care what the judges think". Trump also responded to the ruling, demanding to impeach the judge who ordered the turnaround. President of El Salvador Nayib Bukele posted an obnoxious "oopsie, too late" followed by a laugh-cry emoji.
@@ -110,3 +118,9 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 2026-05-15 A federal judge ordered Trump administration to return a woman (Adriana Maria Quiroz Zapata) deported to the Democratic Republic of Congo by ICE. 
 
 [https://www.democracynow.org/2026/5/15/headlines/court_orders_trump_administration_to_return_colombian_woman_deported_to_congo](https://www.democracynow.org/2026/5/15/headlines/court_orders_trump_administration_to_return_colombian_woman_deported_to_congo)
+
+2026-05-22 A Tennessee judge dismissed all criminal charges against Kilmar Abrego Garcia, ruling that the then deputy attorney general Todd Blanche had tainted the investigation with a “vindictive motive”, and that “the evidence before this court sadly reflects an abuse of prosecuting power”. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia](https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia)

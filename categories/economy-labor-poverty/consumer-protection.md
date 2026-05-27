@@ -96,3 +96,11 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 [https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing](https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing)
 
 [https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products](https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products)
+
+### 2026 May
+
+2026-05-26 Vance hosted an anti-fraud roundtable with FTC chair and state attorney generals. 
+
+[https://www.youtube.com/watch?v=N_6Um_CW6rs&list=WL&index=5](https://www.youtube.com/watch?v=N_6Um_CW6rs&list=WL&index=5)
+
+

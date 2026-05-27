@@ -62,3 +62,8 @@ permalink: /categories/climate-change/ai-impacts/
 
 [https://apnews.com/article/data-centers-ai-electricity-sanders-aoc-65651bd28c3d911d18eeb46cd54f4c75](https://apnews.com/article/data-centers-ai-electricity-sanders-aoc-65651bd28c3d911d18eeb46cd54f4c75)
 
+### 2026 May
+
+2026-05-22 More reports emerged linking data centers to major environmental issues.
+
+[https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)

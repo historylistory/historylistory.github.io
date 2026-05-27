@@ -176,3 +176,33 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://www.democracynow.org/2026/5/19/headlines/world_leaders_condemn_israels_abduction_of_activists_from_gaza_bound_aid_flotilla](https://www.democracynow.org/2026/5/19/headlines/world_leaders_condemn_israels_abduction_of_activists_from_gaza_bound_aid_flotilla)
 
 [https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639](https://aa.com.tr/en/asia-pacific/world-should-not-continue-to-bow-to-oppression-says-malaysian-premier-after-israeli-attack-on-gaza-flotilla/3941639)
+
+2026-05-22 Activists in New Jersey were arrested for attempting to stop a shipment of weapons and components bound for Israel. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.democracynow.org/2026/5/26/headlines/new_jersey_police_arrest_10_activists_attempting_to_stop_ammunition_shipment_to_israel](https://www.democracynow.org/2026/5/26/headlines/new_jersey_police_arrest_10_activists_attempting_to_stop_ammunition_shipment_to_israel)
+
+2026-05-23 Trump campaigned for countries to normalize relations with Israel by joining the Abraham Accords. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.axios.com/2026/05/24/trump-iran-war-israel-muslim-countries-abraham-accords](https://www.axios.com/2026/05/24/trump-iran-war-israel-muslim-countries-abraham-accords)
+
+2026-05-23 Activists of the Global Sumud Flotilla were beaten with batons by police officers in Spain, bringing attention to the $1.9M security contract between Basque police and an Israeli firm. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.democracynow.org/2026/5/26/global_sumud_flotilla_activists_violent_repression](https://www.democracynow.org/2026/5/26/global_sumud_flotilla_activists_violent_repression)
+
+2026-05-24 By this date, as of March 2 2026 more than 1 million Lebanese have been forced to flee their homes.
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon](https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon)
+
+2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+
+[https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
+
+[https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza](https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza)

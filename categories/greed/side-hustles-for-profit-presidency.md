@@ -188,3 +188,11 @@ TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](htt
 [https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets](https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets)
 
 [https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)
+
+2026-05-18 The Trump phone was finally released after nine months, but the design leaves questions as to where the phone was made. The devices looked different than advertised, resembled another phone made in Taiwan, and the American flag has 11 stripes instead of 13. 
+
+[https://www.youtube.com/watch?v=8d8EojYVtCs&list=WL&index=2](https://www.youtube.com/watch?v=8d8EojYVtCs&list=WL&index=2)
+
+[https://www.nbcnews.com/tech/gadgets/trump-mobile-phone-review-t1-hands-on-specs-u24-shipping-rcna345657](https://www.nbcnews.com/tech/gadgets/trump-mobile-phone-review-t1-hands-on-specs-u24-shipping-rcna345657)
+
+[https://tech.yahoo.com/phones/articles/the-trump-cell-phone-has-finally-arrived---but-is-no-longer-made-in-the-usa-and-the-american-flag-design-is-missing-two-stripes-141732757.html](https://tech.yahoo.com/phones/articles/the-trump-cell-phone-has-finally-arrived---but-is-no-longer-made-in-the-usa-and-the-american-flag-design-is-missing-two-stripes-141732757.html)

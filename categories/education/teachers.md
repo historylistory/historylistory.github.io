@@ -37,3 +37,9 @@ permalink: /categories/education/teachers/
 [https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192](https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192)
 
 [https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2](https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2)
+
+### 2026 May
+
+2026-05-22 Teachers revolted against I-Ready; a private-equity-backed software used in education.
+
+[https://www.youtube.com/watch?v=QQALEGHg_Ls&list=WL&index=9&t=80s](https://www.youtube.com/watch?v=QQALEGHg_Ls&list=WL&index=9&t=80s)

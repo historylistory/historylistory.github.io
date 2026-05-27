@@ -336,6 +336,13 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 
 [https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/](https://www.cbsnews.com/newyork/news/lirr-strike-update-latest-train-mta/)
 
+2026-05-19 A survey showed that at least 25% of job seekers reported it has taken them a year or longer to find a replacement job. 
+
+[https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1](https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1)
+
+[https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096](https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096)
+
+
 2026-05-21 Cargill locked out a labor union in Fort Morgan, Colorado. 
 
 [https://www.youtube.com/watch?v=R6stnHP8Pgk&list=WL&index=5](https://www.youtube.com/watch?v=R6stnHP8Pgk&list=WL&index=5)

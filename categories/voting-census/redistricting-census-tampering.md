@@ -255,3 +255,14 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 [https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats](https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats)
 
+2026-05-26 A federal court blocked the Alabama House map calling it unfair to Black voters. 
+
+[https://www.youtube.com/watch?v=pjhHbZ8SrdA&list=WL&index=7&t=77s](https://www.youtube.com/watch?v=pjhHbZ8SrdA&list=WL&index=7&t=77s)
+
+[https://www.pbs.org/newshour/politics/federal-court-blocks-alabama-plan-for-new-congressional-districts-that-could-help-republicans](https://www.pbs.org/newshour/politics/federal-court-blocks-alabama-plan-for-new-congressional-districts-that-could-help-republicans)
+
+[https://www.theguardian.com/us-news/2026/may/26/alabama-new-congressional-map-struck-down](https://www.theguardian.com/us-news/2026/may/26/alabama-new-congressional-map-struck-down)
+
+[https://apnews.com/article/redistricting-congress-alabama-voting-rights-trump-b67125657b36e9b915ea9bc5d587d08c](https://apnews.com/article/redistricting-congress-alabama-voting-rights-trump-b67125657b36e9b915ea9bc5d587d08c)
+
+[https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/](https://www.cbsnews.com/news/court-alabama-congressional-district-midterms/)
