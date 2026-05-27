@@ -183,11 +183,13 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.democracynow.org/2026/5/26/headlines/new_jersey_police_arrest_10_activists_attempting_to_stop_ammunition_shipment_to_israel](https://www.democracynow.org/2026/5/26/headlines/new_jersey_police_arrest_10_activists_attempting_to_stop_ammunition_shipment_to_israel)
 
-2026-05-23 Trump campaigned for countries to normalize relations with Israel by joining the Abraham Accords. 
+2026-05-23 Trump campaigned for countries to normalize relations with Israel by joining the Abraham Accords. According to ABC News Australia, leaders fell silent during a phone conference when Trump insisted these countries must side with Israel. In a social media post, Trump said he was “…mandatorily requesting that all Countries immediately sign the Abraham Accords…”.  
 
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.axios.com/2026/05/24/trump-iran-war-israel-muslim-countries-abraham-accords](https://www.axios.com/2026/05/24/trump-iran-war-israel-muslim-countries-abraham-accords)
+
+[https://www.youtube.com/watch?v=fhRkdoEW1iw&list=WL&index=5](https://www.youtube.com/watch?v=fhRkdoEW1iw&list=WL&index=5)
 
 2026-05-23 Activists of the Global Sumud Flotilla were beaten with batons by police officers in Spain, bringing attention to the $1.9M security contract between Basque police and an Israeli firm. 
 
