@@ -65,3 +65,13 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 [https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336](https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336)
 
 [https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting](https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting)
+
+2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 
+
+[https://www.youtube.com/watch?v=yUVrHTjBm_8&list=WL&index=11&t=10s](https://www.youtube.com/watch?v=yUVrHTjBm_8&list=WL&index=11&t=10s)
+
+[https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-says-democracy-must-be-taken-away-force](https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-says-democracy-must-be-taken-away-force)
+
+[https://www.youtube.com/watch?v=OhxBC3-6u9o](https://www.youtube.com/watch?v=OhxBC3-6u9o)
+
+[https://www.instagram.com/reels/DYFryUyP4Gq/](https://www.instagram.com/reels/DYFryUyP4Gq/)

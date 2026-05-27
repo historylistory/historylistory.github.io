@@ -1758,6 +1758,15 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.aljazeera.com/news/2026/5/14/iran-war-why-the-brics-foreign-ministers-meeting-in-india-matters](https://www.aljazeera.com/news/2026/5/14/iran-war-why-the-brics-foreign-ministers-meeting-in-india-matters)
 
+2026-05-21 US CENTCOM carried out strikes on an Iranian naval base in “self-defense”. Meanwhile, Trump told everyone we are close to a peace deal with Iran which he stated was “largely negotiated”. 
+
+[https://www.reuters.com/business/aerospace-defense/us-military-strikes-iranian-boats-missile-launch-sites-centcom-2026-05-25/](https://www.reuters.com/business/aerospace-defense/us-military-strikes-iranian-boats-missile-launch-sites-centcom-2026-05-25/)
+
+[https://www.bbc.com/news/articles/cvgzzn4y1n8o](https://www.bbc.com/news/articles/cvgzzn4y1n8o)
+
+[https://www.bbc.com/news/articles/crmp121z3z8o](https://www.bbc.com/news/articles/crmp121z3z8o)
+
+[https://www.nbcnews.com/politics/white-house/deal-no-deal-trumps-social-media-posts-add-confusion-iran-conflict-rcna346953](https://www.nbcnews.com/politics/white-house/deal-no-deal-trumps-social-media-posts-add-confusion-iran-conflict-rcna346953)
 
 
 

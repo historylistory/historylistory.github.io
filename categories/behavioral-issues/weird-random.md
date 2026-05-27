@@ -303,3 +303,17 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting](https://www.theguardian.com/us-news/2026/apr/26/trump-white-house-ballroom-dinner-shooting)
 
 [https://www.bbc.com/news/articles/c2d8dg57rzdo](https://www.bbc.com/news/articles/c2d8dg57rzdo)
+
+### 2026 May
+
+2026-05-22 Trump forfeited his son’s wedding, writing in a post, “While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Family, his soon to be wife, Bettina, circumstances pertaining to Government, and my love for the United States of America, do not allow me to do so…”. For context, Trump frequently vacationed and visited his resorts during his presidency. 
+
+[https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9](https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9)
+
+[https://didtrumpgolftoday.com/](https://didtrumpgolftoday.com/)
+
+[https://www.yahoo.com/news/articles/taxpayer-cost-trump-golf-trips-160314952.html](https://www.yahoo.com/news/articles/taxpayer-cost-trump-golf-trips-160314952.html)
+
+[https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html](https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html)
+
+[https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html)

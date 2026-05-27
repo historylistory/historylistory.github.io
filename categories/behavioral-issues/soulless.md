@@ -677,3 +677,15 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
+2026-05-22 Trump forfeited his son’s wedding, writing in a post, “While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Family, his soon to be wife, Bettina, circumstances pertaining to Government, and my love for the United States of America, do not allow me to do so…”. For context, Trump frequently vacationed and visited his resorts during his presidency. 
+
+[https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9](https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9)
+
+[https://didtrumpgolftoday.com/](https://didtrumpgolftoday.com/)
+
+[https://www.yahoo.com/news/articles/taxpayer-cost-trump-golf-trips-160314952.html](https://www.yahoo.com/news/articles/taxpayer-cost-trump-golf-trips-160314952.html)
+
+[https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html](https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html)
+
+[https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html)

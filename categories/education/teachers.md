@@ -6,6 +6,13 @@ subcategory_slug: teachers
 permalink: /categories/education/teachers/
 ---
 
+### 2023 
+
+2023-06-06 The nation faced a teacher shortage and severe burnout. 
+
+[https://www.youtube.com/watch?v=Aj_UWp8Y5D4&list=WL&index=3](https://www.youtube.com/watch?v=Aj_UWp8Y5D4&list=WL&index=3)
+
+
 ### 2025
 
 2025-04-23 Trump signed an Executive Order encouraging schools to use more AI in class. 

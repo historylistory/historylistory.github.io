@@ -179,3 +179,15 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 [https://www.instagram.com/p/DYSu-7HlUE-/](https://www.instagram.com/p/DYSu-7HlUE-/)
 
 [https://www.commondreams.org/news/california-home-health](https://www.commondreams.org/news/california-home-health)
+
+2026-05-15 JD Vance and Dr. Oz announced a six-month freeze on all new Medicaid hospice enrollments. 
+
+[https://www.youtube.com/watch?v=aW27nXvJ6ls&list=WL&index=6](https://www.youtube.com/watch?v=aW27nXvJ6ls&list=WL&index=6)
+
+[https://www.healthcaredive.com/news/cms-suspends-new-medicare-enrollment-hospice-home-health-six-months/820137/](https://www.healthcaredive.com/news/cms-suspends-new-medicare-enrollment-hospice-home-health-six-months/820137/)
+
+[https://www.cms.gov/newsroom/press-releases/cms-announces-aggressive-nationwide-crackdown-fraud-six-month-hospice-home-health-agency-enrollment](https://www.cms.gov/newsroom/press-releases/cms-announces-aggressive-nationwide-crackdown-fraud-six-month-hospice-home-health-agency-enrollment)
+
+[https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48](https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48)
+
+[https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/](https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/)

@@ -261,6 +261,15 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/](https://www.usatoday.com/story/news/california/2026/03/17/president-donald-trump-attacks-california-gavin-newsom-for-his-learning-disability-dsylexia/89193406007/)
 
+2026-03-28 This was the date of the third No Kings Protest rally. The White House said in a statement, “The only people who care about these Trump Derangement therapy sessions are the reporters who are paid to cover them”. 
+
+[https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration](https://www.pbs.org/newshour/nation/no-kings-rallies-draw-crowds-across-u-s-and-europe-as-springsteen-headlines-minnesota-demonstration)
+
+[https://www.bbc.com/news/articles/cq8wy7g1gd1o](https://www.bbc.com/news/articles/cq8wy7g1gd1o)
+
+[https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/](https://www.cbsnews.com/baltimore/news/no-kings-protests-in-maryland/)
+
+
 ### 2026 April
 
 2026-04-01 Trump appeared as a “silent observer” for the Supreme Court hearing on his Executive Order to end birthright citizenship and the 14th Amendment.
@@ -359,3 +368,11 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 [https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3](https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3)
 
 SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)
+
+2026-05-25 Trump used a Memorial Day message to trash Democrats and anyone who questioned his plans in Iran. 
+
+[https://www.msn.com/en-us/news/insight/trump-s-memorial-day-attack-on-democrats-sparks-veteran-backlash/gm-GM140DA3C3](https://www.msn.com/en-us/news/insight/trump-s-memorial-day-attack-on-democrats-sparks-veteran-backlash/gm-GM140DA3C3)
+
+[https://nypost.com/2026/05/25/us-news/president-trump-heralds-memorial-day-by-trashing-dumocrats-rinos-and-fools/](https://nypost.com/2026/05/25/us-news/president-trump-heralds-memorial-day-by-trashing-dumocrats-rinos-and-fools/)
+
+[https://www.yahoo.com/news/politics/articles/donald-trump-uses-memorial-day-083412620.html](https://www.yahoo.com/news/politics/articles/donald-trump-uses-memorial-day-083412620.html)

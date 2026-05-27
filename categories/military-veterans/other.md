@@ -158,3 +158,15 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.cnn.com/2026/05/14/politics/us-military-troop-numbers-europe-trump](https://www.cnn.com/2026/05/14/politics/us-military-troop-numbers-europe-trump)
 
 [https://www.osw.waw.pl/en/publikacje/analyses/2026-05-05/united-states-planned-reduction-us-military-presence-germany](https://www.osw.waw.pl/en/publikacje/analyses/2026-05-05/united-states-planned-reduction-us-military-presence-germany)
+
+2026-05-20 Army Veteran Kerry Sheron was beaten outside his Trump-themed home and later died in the hospital. 
+
+[https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/](https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/)
+
+[https://thehill.com/homenews/state-watch/5894988-escondido-trump-house-attack/](https://thehill.com/homenews/state-watch/5894988-escondido-trump-house-attack/)
+
+[https://fox5sandiego.com/news/local-news/army-veteran-dies-escondido-trump-house/](https://fox5sandiego.com/news/local-news/army-veteran-dies-escondido-trump-house/)
+
+[https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-](https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-)
+
+[https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8](https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8)

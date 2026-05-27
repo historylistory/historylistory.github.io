@@ -50,3 +50,15 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
 {% include youtubePlayer.html id="BMTSGFzr4OE" %}
+
+### 2026 May
+
+2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 
+
+[https://www.youtube.com/watch?v=yUVrHTjBm_8&list=WL&index=11&t=10s](https://www.youtube.com/watch?v=yUVrHTjBm_8&list=WL&index=11&t=10s)
+
+[https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-says-democracy-must-be-taken-away-force](https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-joel-webbon-says-democracy-must-be-taken-away-force)
+
+[https://www.youtube.com/watch?v=OhxBC3-6u9o](https://www.youtube.com/watch?v=OhxBC3-6u9o)
+
+[https://www.instagram.com/reels/DYFryUyP4Gq/](https://www.instagram.com/reels/DYFryUyP4Gq/)

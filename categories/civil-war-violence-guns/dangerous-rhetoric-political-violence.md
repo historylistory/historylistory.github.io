@@ -414,6 +414,19 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b](https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b)
 
+2026-05-20 Army Veteran Kerry Sheron was beaten outside his Trump-themed home and later died in the hospital. 
+
+[https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/](https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/)
+
+[https://thehill.com/homenews/state-watch/5894988-escondido-trump-house-attack/](https://thehill.com/homenews/state-watch/5894988-escondido-trump-house-attack/)
+
+[https://fox5sandiego.com/news/local-news/army-veteran-dies-escondido-trump-house/](https://fox5sandiego.com/news/local-news/army-veteran-dies-escondido-trump-house/)
+
+[https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-](https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-)
+
+[https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8](https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8)
+
+
 2025-05-22 Secret Service shot and killed an armed man outside the White House.
 
 [https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2](https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2)
