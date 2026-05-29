@@ -121,3 +121,9 @@ PAY WALL [https://www.washingtonexaminer.com/news/4517288/newly-released-texts-s
 [https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html](https://www.kansascity.com/opinion/readers-opinion/guest-commentary/article315449750.html)
 
 SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://www.snopes.com/fact-check/cnn-online-rape-academy/)
+
+### 2026 May
+
+2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
+
+[https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)

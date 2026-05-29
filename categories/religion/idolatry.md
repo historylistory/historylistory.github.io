@@ -24,6 +24,13 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
 
+### 2024
+
+2024-04-11 Pastors respond after Trump claimed Christianity is under attack. In this video, interviewees likened Trump to Jesus Christ. 
+
+[https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2](https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2)
+
+
 ### 2025 February
 
 2025-02-19 the White House posted an AI generated Time Magazine cover featuring Trump wearing a crown, captured “Long Live the King”.

@@ -25,6 +25,13 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 [https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
 
+### 2022
+
+2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump. 
+
+[https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7](https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7)
+
+
 ### 2025 February
 
 2025-02-10 Trump fired the head of the independent Office of Government Ethics David Huitema.

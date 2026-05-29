@@ -573,3 +573,9 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1](https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1)
 
 [https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096](https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096)
+
+2026-05-23 Trump proposed a budget to entirely cut housing and community development funds.
+
+[https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)
+
+[https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)

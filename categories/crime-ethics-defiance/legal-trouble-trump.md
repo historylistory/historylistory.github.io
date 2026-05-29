@@ -237,3 +237,9 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 [https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228](https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228)
 
 [https://truthsocial.com/@realDonaldTrump/posts/115939889414201547](https://truthsocial.com/@realDonaldTrump/posts/115939889414201547)
+
+### 2026 May
+
+2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
+
+[https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)

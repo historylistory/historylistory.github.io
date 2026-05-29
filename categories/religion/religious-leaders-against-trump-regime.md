@@ -21,6 +21,18 @@ permalink: /categories/religion/religious-leaders-against-trump-regime/
 
 [https://www.washingtonpost.com/business/economy/pope-francis-denounces-trickle-down-economic-theories-in-critique-of-inequality/2013/11/26/e17ffe4e-56b6-11e3-8304-caf30787c0a9_story.html](https://www.washingtonpost.com/business/economy/pope-francis-denounces-trickle-down-economic-theories-in-critique-of-inequality/2013/11/26/e17ffe4e-56b6-11e3-8304-caf30787c0a9_story.html)
 
+### 2022
+
+2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump. 
+
+[https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7](https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7)
+
+### 2024
+
+2024-04-11 Pastors respond after Trump claimed Christianity is under attack. In this video, interviewees likened Trump to Jesus Christ. 
+
+[https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2](https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2)
+
 
 ### 2025 January
 

@@ -506,3 +506,6 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
 
+2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
+
+[https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)

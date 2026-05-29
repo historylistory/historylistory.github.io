@@ -253,3 +253,11 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests](https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests)
+
+2026-05-27 After Bari Weiss pulled a story from 60-Minutes about CECOT, reporting correspondent Sharyn Alfonsi wrote in a parting statement, “In the coming days, network leadership may attempt to hide behind corporate euphemisms like ‘modernization’ and ‘restructuring’ to explain away my departure. Don’t be misled. This was not a routine corporate transition; it was a deliberate choice to penalize a journalist for refusing to sanitize factually accurate reporting, and it sends a chilling message to the entire newsroom”. 
+
+TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube.com/watch?v=5yUjicp6VqU)
+
+[https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi](https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi)
+
+[https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html](https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html)

@@ -436,6 +436,18 @@ AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makar
 
 SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)
 
+2026-05-21 In response to Trump’s J6 slush fund, Senate Majority Leader John Thune of South Dakota said, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”. 
+
+[https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands](https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands)
+
+[https://www.yahoo.com/news/politics/articles/senate-gop-frustrated-with-trumps-18b-payout-fund-delays-vote-on-ice-money-123114452.html](https://www.yahoo.com/news/politics/articles/senate-gop-frustrated-with-trumps-18b-payout-fund-delays-vote-on-ice-money-123114452.html)
+
+[https://www.cbsnews.com/news/gop-senators-press-doj-todd-blanche-about-anti-weaponization-fund-in-tense-meeting/](https://www.cbsnews.com/news/gop-senators-press-doj-todd-blanche-about-anti-weaponization-fund-in-tense-meeting/)
+
+2026-05-23 Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
+
+[https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html](https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html)
+
 2026-05-27 South Carolina Senate rejected the GOP attempt to eliminate the last-standing Democratic district after 12 Republicans joined Democrats to vote against it. Representative Jim Clyburn stated, “The people who drew that map – some of them may not have ever set foot in South Carolina – this White House says to hell with the process – to hell with the Constitution”. 
 
 [https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s](https://www.youtube.com/watch?v=xHxpk7KLxeE&list=WL&index=2&t=92s)
@@ -443,3 +455,18 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 [https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn](https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn)
 
 [https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)
+
+2026-05-23 GOP Senator Mitch McConnell of Kentucky responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, “So the nation’s top law enforcement official is asking for a slush fund to pay people who assault cops. Utterly stupid, morally wrong. Take your pick”. 
+
+[https://fortune.com/2026/05/23/even-mitch-mcconnell-is-mortified-by-trumps-1-8-billion-slush-fund-to-pay-people-who-assault-cops/](https://fortune.com/2026/05/23/even-mitch-mcconnell-is-mortified-by-trumps-1-8-billion-slush-fund-to-pay-people-who-assault-cops/)
+
+[https://www.cnbc.com/2026/05/21/trump-doj-lawfare-fund-congress-blanche.html](https://www.cnbc.com/2026/05/21/trump-doj-lawfare-fund-congress-blanche.html)
+
+2026-05-24 GOP Senator Tom Tillis of North Carolina responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, calling it, “stupid on stilts”. 
+
+[https://www.thedailybeast.com/gop-senator-revolts-against-stupid-on-stilts-trump-plan/](https://www.thedailybeast.com/gop-senator-revolts-against-stupid-on-stilts-trump-plan/)
+
+[https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund](https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund)
+
+
+

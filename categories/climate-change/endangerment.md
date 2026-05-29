@@ -161,3 +161,11 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://www.theguardian.com/us-news/2026/may/18/trump-administration-epa-pfas-water](https://www.theguardian.com/us-news/2026/may/18/trump-administration-epa-pfas-water)
 
 [https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6](https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6)
+
+2026-05-27 West Virginia residents have repeatedly had to fight water contamination issues from mining runoff. 
+
+[https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/](https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/)
+
+[https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/](https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/)
+
+[https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s](https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s)

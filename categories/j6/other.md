@@ -62,3 +62,23 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
 
 [https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
+
+2026-05-21 In response to Trump’s J6 slush fund, Senate Majority Leader John Thune of South Dakota said, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”. 
+
+[https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands](https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands)
+
+[https://www.yahoo.com/news/politics/articles/senate-gop-frustrated-with-trumps-18b-payout-fund-delays-vote-on-ice-money-123114452.html](https://www.yahoo.com/news/politics/articles/senate-gop-frustrated-with-trumps-18b-payout-fund-delays-vote-on-ice-money-123114452.html)
+
+[https://www.cbsnews.com/news/gop-senators-press-doj-todd-blanche-about-anti-weaponization-fund-in-tense-meeting/](https://www.cbsnews.com/news/gop-senators-press-doj-todd-blanche-about-anti-weaponization-fund-in-tense-meeting/)
+
+2026-05-23 GOP Senator Mitch McConnell of Kentucky responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, “So the nation’s top law enforcement official is asking for a slush fund to pay people who assault cops. Utterly stupid, morally wrong. Take your pick”. 
+
+[https://fortune.com/2026/05/23/even-mitch-mcconnell-is-mortified-by-trumps-1-8-billion-slush-fund-to-pay-people-who-assault-cops/](https://fortune.com/2026/05/23/even-mitch-mcconnell-is-mortified-by-trumps-1-8-billion-slush-fund-to-pay-people-who-assault-cops/)
+
+[https://www.cnbc.com/2026/05/21/trump-doj-lawfare-fund-congress-blanche.html](https://www.cnbc.com/2026/05/21/trump-doj-lawfare-fund-congress-blanche.html)
+
+2026-05-24 GOP Senator Tom Tillis of North Carolina responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, calling it, “stupid on stilts”. 
+
+[https://www.thedailybeast.com/gop-senator-revolts-against-stupid-on-stilts-trump-plan/](https://www.thedailybeast.com/gop-senator-revolts-against-stupid-on-stilts-trump-plan/)
+
+[https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund](https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund)
