@@ -347,3 +347,11 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi](https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi)
 
 [https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html](https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html)
+
+2026-05-28 Student journalist Santiago Campos delivered a speech during a news Emmy award ceremony, “…as corporate elites take hold over the very pipes through which our information flows, journalism that serves people becomes increasingly harder to come by, yet ever more crucial. And what people want is the truth. So if at any time you hesitate to utter the word ‘genocide’ or remain silent in the face of blatant lies, remember to ask yourself who is this for”. 
+
+[https://www.thedailybeast.com/cbs-scholarship-winner-santiago-campos-tears-into-network-in-blistering-acceptance-speech/](https://www.thedailybeast.com/cbs-scholarship-winner-santiago-campos-tears-into-network-in-blistering-acceptance-speech/)
+
+[https://www.the-independent.com/bulletin/news/santiago-campos-cbs-news-bari-weiss-b2985217.html](https://www.the-independent.com/bulletin/news/santiago-campos-cbs-news-bari-weiss-b2985217.html)
+
+TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube.com/watch?v=5yUjicp6VqU)

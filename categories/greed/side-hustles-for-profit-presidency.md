@@ -196,3 +196,13 @@ TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](htt
 [https://www.nbcnews.com/tech/gadgets/trump-mobile-phone-review-t1-hands-on-specs-u24-shipping-rcna345657](https://www.nbcnews.com/tech/gadgets/trump-mobile-phone-review-t1-hands-on-specs-u24-shipping-rcna345657)
 
 [https://tech.yahoo.com/phones/articles/the-trump-cell-phone-has-finally-arrived---but-is-no-longer-made-in-the-usa-and-the-american-flag-design-is-missing-two-stripes-141732757.html](https://tech.yahoo.com/phones/articles/the-trump-cell-phone-has-finally-arrived---but-is-no-longer-made-in-the-usa-and-the-american-flag-design-is-missing-two-stripes-141732757.html)
+
+2026-05-28 The White House intervened to get a $620M business deal for a company tied to Donald Trump Jr. 
+
+[https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house](https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house)
+
+TIMESTAMP 5:20 [https://www.youtube.com/watch?v=LtBQIGtlEXQ&list=WL&index=3](https://www.youtube.com/watch?v=LtBQIGtlEXQ&list=WL&index=3)
+
+FROM DEC 2025: [https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html](https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html)
+
+FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789](https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789)

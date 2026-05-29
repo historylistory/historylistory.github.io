@@ -509,3 +509,14 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
 
 [https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)
+
+2026-05-28 The White House intervened to get a $620M business deal for a company tied to Donald Trump Jr. 
+
+[https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house](https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house)
+
+TIMESTAMP 5:20 [https://www.youtube.com/watch?v=LtBQIGtlEXQ&list=WL&index=3](https://www.youtube.com/watch?v=LtBQIGtlEXQ&list=WL&index=3)
+
+FROM DEC 2025: [https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html](https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html)
+
+FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789](https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789)
+

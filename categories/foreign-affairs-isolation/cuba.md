@@ -244,3 +244,7 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.nbcnews.com/politics/justice-department/raul-castro-indicted-trump-doj-plane-shootings-cuban-americans-rcna345707](https://www.nbcnews.com/politics/justice-department/raul-castro-indicted-trump-doj-plane-shootings-cuban-americans-rcna345707)
 
 [https://www.npr.org/2026/05/20/g-s1-122383/us-cuba-raul-castro-indictment](https://www.npr.org/2026/05/20/g-s1-122383/us-cuba-raul-castro-indictment)
+
+2026-05-28 Trump continued a pressure campaign on Cuba, claiming Cuba was “next”. 
+
+[https://www.youtube.com/watch?v=GdWaJglHusU&list=WL&index=5&t=107s](https://www.youtube.com/watch?v=GdWaJglHusU&list=WL&index=5&t=107s)
