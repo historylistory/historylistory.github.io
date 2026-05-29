@@ -146,7 +146,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump](https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump)
 
-2025-12-23 Trump hate posted about Stephen Colbert and even suggested in the post that Colbert be euthanized.
+2025-12-23 Trump posted about Stephen Colbert and even suggested in the post that Colbert be euthanized.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115772841536331132](https://truthsocial.com/@realDonaldTrump/posts/115772841536331132)
 

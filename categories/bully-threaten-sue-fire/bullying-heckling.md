@@ -18,7 +18,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop](https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop)
 
-2018-02-18 Trump sent out a hate post about Oprah Winfrey.
+2018-02-18 Trump sent out a post about Oprah Winfrey.
 
 [https://abcnews.go.com/GMA/Culture/oprah-winfrey-responds-donald-trumps-tweet-calling-biased/story?id=53274397](https://abcnews.go.com/GMA/Culture/oprah-winfrey-responds-donald-trumps-tweet-calling-biased/story?id=53274397)
 
