@@ -29,9 +29,19 @@ permalink: /categories/religion/religious-leaders-against-trump-regime/
 
 ### 2024
 
+2024-02-01 Minister Brad Onishi observed the religious extremism of Christian nationalism. 
+
+[https://www.youtube.com/watch?v=EgC7YQAtGOw&list=WL&index=1](https://www.youtube.com/watch?v=EgC7YQAtGOw&list=WL&index=1)
+
+
+
 2024-04-11 Pastors respond after Trump claimed Christianity is under attack. In this video, interviewees likened Trump to Jesus Christ. 
 
 [https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2](https://www.youtube.com/watch?v=EqmcPTi0N7Q&list=WL&index=2)
+
+2024-10-18 Pastor Sean Feucht spread a message of concern about the rise of Christian nationalism.
+
+[https://www.youtube.com/watch?v=o9-jhhnZ1JU&list=WL&index=2](https://www.youtube.com/watch?v=o9-jhhnZ1JU&list=WL&index=2)
 
 
 ### 2025 January

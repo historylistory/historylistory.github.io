@@ -191,3 +191,11 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 [https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48](https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48)
 
 [https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/](https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/)
+
+2026-05-28 Cases of GLP-1 weight loss drug overdoses rose from 1366 in 2021 to 15,102 in 2025. 
+
+[https://www.youtube.com/watch?v=-lvqfmRTH0E&list=WL&index=7&t=9s](https://www.youtube.com/watch?v=-lvqfmRTH0E&list=WL&index=7&t=9s)
+
+[https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187](https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187)
+
+[https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723](https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723)

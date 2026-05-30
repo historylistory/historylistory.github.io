@@ -128,3 +128,11 @@ permalink: /categories/health/other/
 2026-05-08 Hantavirus reached 9 countries.
 
 [https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s](https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s)
+
+2026-05-28 Cases of GLP-1 weight loss drug overdoses rose from 1366 in 2021 to 15,102 in 2025. 
+
+[https://www.youtube.com/watch?v=-lvqfmRTH0E&list=WL&index=7&t=9s](https://www.youtube.com/watch?v=-lvqfmRTH0E&list=WL&index=7&t=9s)
+
+[https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187](https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187)
+
+[https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723](https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723)

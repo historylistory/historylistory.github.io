@@ -468,5 +468,15 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 
 [https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund](https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund)
 
+2026-05-29 House GOP members rejected Trump’s NDAA demands.
 
+[https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6](https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6)
+
+[https://thehill.com/policy/defense/5896228-ndaa-house-trump-troops-battleship/](https://thehill.com/policy/defense/5896228-ndaa-house-trump-troops-battleship/)
+
+2025 [https://casten.house.gov/media/press-releases/casten-statement-on-voting-against-the-ndaa-for-fy-2026](https://casten.house.gov/media/press-releases/casten-statement-on-voting-against-the-ndaa-for-fy-2026)
+
+2020 [https://www.pbs.org/newshour/politics/house-votes-to-override-trumps-veto-of-defense-bill](https://www.pbs.org/newshour/politics/house-votes-to-override-trumps-veto-of-defense-bill)
+
+2020 [https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387](https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387)
 

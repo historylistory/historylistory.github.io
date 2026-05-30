@@ -551,6 +551,23 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
 
+2026-05-09 Former reality TV star, Trump supporter, and healing crystal peddler Spencer Pratt campaigned to be the next Los Angeles mayor, touting claims that the homeless have homes and choose to live in the streets, stating “They’re not homeless – they’re drug addicts”. 
+
+[https://www.cnn.com/2026/05/28/politics/kfile-spencer-pratt-alex-jones-9-11-conspiracy-theory](https://www.cnn.com/2026/05/28/politics/kfile-spencer-pratt-alex-jones-9-11-conspiracy-theory)
+
+[https://en.wikipedia.org/wiki/Spencer_Pratt](https://en.wikipedia.org/wiki/Spencer_Pratt)
+
+[https://www.politico.com/news/2026/05/29/tmz-harvey-levin-spencer-pratt-la-00942036](https://www.politico.com/news/2026/05/29/tmz-harvey-levin-spencer-pratt-la-00942036)
+
+[https://prattdaddy.com/?srsltid=AfmBOooMElWRCGhUfuWSB0_OkMmMmW-ryNt-27mazVuxMPsjiTYQGY0y](https://prattdaddy.com/?srsltid=AfmBOooMElWRCGhUfuWSB0_OkMmMmW-ryNt-27mazVuxMPsjiTYQGY0y)
+
+[https://abc7.com/post/la-mayors-race-spencer-pratt-claims-homeless-have-homes-choose-drug-addicts/19148120/](https://abc7.com/post/la-mayors-race-spencer-pratt-claims-homeless-have-homes-choose-drug-addicts/19148120/)
+
+[https://www.youtube.com/shorts/lcT9z-g5GIc](https://www.youtube.com/shorts/lcT9z-g5GIc)
+
+SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-homeless-super-meth](https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-homeless-super-meth)
+
+
 2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)

@@ -1768,6 +1768,9 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.nbcnews.com/politics/white-house/deal-no-deal-trumps-social-media-posts-add-confusion-iran-conflict-rcna346953](https://www.nbcnews.com/politics/white-house/deal-no-deal-trumps-social-media-posts-add-confusion-iran-conflict-rcna346953)
 
+[https://www.bbc.com/news/articles/cvgzzn4y1n8o](https://www.bbc.com/news/articles/cvgzzn4y1n8o)
+
+[https://www.pbs.org/newshour/world/us-military-accuses-iran-of-ceasefire-violation-after-kuwait-comes-under-missile-attack](https://www.pbs.org/newshour/world/us-military-accuses-iran-of-ceasefire-violation-after-kuwait-comes-under-missile-attack)
 
 
 
