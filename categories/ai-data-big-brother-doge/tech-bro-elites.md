@@ -134,3 +134,15 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/](https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/)
 
 [https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/](https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/)
+
+2026-05-29 Peter Thiel relocated to Argentina.
+
+[https://nypost.com/2026/05/29/business/peter-thiel-moves-family-to-argentina-to-flee-taxes-ai-meltdown-potential-nuclear-war-report/](https://nypost.com/2026/05/29/business/peter-thiel-moves-family-to-argentina-to-flee-taxes-ai-meltdown-potential-nuclear-war-report/)
+
+[https://www.businessinsider.com/peter-thiel-argentina-billionaire-moving-abroad-2026-5](https://www.businessinsider.com/peter-thiel-argentina-billionaire-moving-abroad-2026-5)
+
+[https://www.thedailybeast.com/billionaire-trump-ally-peter-thiel-flees-to-argentina-just-like-the-nazis/](https://www.thedailybeast.com/billionaire-trump-ally-peter-thiel-flees-to-argentina-just-like-the-nazis/)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html](https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html)
+
+[https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s](https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s)

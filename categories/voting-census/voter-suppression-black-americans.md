@@ -99,3 +99,11 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn](https://www.cnn.com/2026/05/26/politics/south-carolina-senate-redistricting-jim-clyburn)
 
 [https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)
+
+2026-05-29 Louisiana lawmakers approve a map to eliminate a majority Black district.
+
+[https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5](https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5)
+
+[https://blackchronicle.com/national/louisiana-lawmakers-approve-new-congressional-map-eliminating-majority-black-district/](https://blackchronicle.com/national/louisiana-lawmakers-approve-new-congressional-map-eliminating-majority-black-district/)
+
+[https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat](https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat)

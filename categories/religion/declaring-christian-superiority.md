@@ -6,6 +6,25 @@ subcategory_slug: declaring-christian-superiority
 permalink: /categories/religion/declaring-christian-superiority/
 ---
 
+### 2023
+
+2023-09-09 OPINION: Christian Nationalism is not Christianity – it is a polarizing extremist group bent on pushing political agendas and greed and promotes political violence.
+
+[https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s](https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s)
+
+[https://www.aclund.org/news/danger-christian-nationalism/](https://www.aclund.org/news/danger-christian-nationalism/)
+
+[https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/](https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/)
+
+[https://www.christiansagainstchristiannationalism.org/learn-more](https://www.christiansagainstchristiannationalism.org/learn-more)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/](https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/)
+
+[https://faith.yale.edu/media/violence-fascism-and-christian-nationalism](https://faith.yale.edu/media/violence-fascism-and-christian-nationalism)
+
+[https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6](https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6)
+
+
 ### 2025 January
 
 2025-01-20 Project 2025 page 589 mandates additional pay in observance of Sundays but completely bypasses all other religious observances. If you do for one, you must do for everybody.

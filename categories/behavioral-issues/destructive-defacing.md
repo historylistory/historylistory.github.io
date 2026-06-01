@@ -236,3 +236,11 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 2026-05-15 Trump announced a sculpture garden project in D.C.
 
 [https://www.youtube.com/watch?v=tOpAygWWmPc&list=WL&index=3&t=28s](https://www.youtube.com/watch?v=tOpAygWWmPc&list=WL&index=3&t=28s)
+
+2026-05-30 A judge ordered Trump to remove his name from the Kennedy Center, saying, “congress named the John F. Kennedy Center for the Performing Arts for President John F. Kennedy by federal statute…and the Center may not be officially named for anyone else except by an Act of Congress”.  Trump reacted in a social media post, “Unless I am free to do what I do better than anyone else, bring this Institution back, physically, financially, and artistically, I have no interest in continuing what could only be a hopeless journey into "NEVER NEVER LAND."
+
+[https://www.youtube.com/watch?v=_jXQdgyO2fI&list=WL&index=3](https://www.youtube.com/watch?v=_jXQdgyO2fI&list=WL&index=3)
+
+[https://www.politico.com/news/2026/05/31/trump-vents-about-judge-who-blocked-kennedy-center-changes-00943727](https://www.politico.com/news/2026/05/31/trump-vents-about-judge-who-blocked-kennedy-center-changes-00943727)
+
+[https://www.reuters.com/world/us-judge-orders-removal-trumps-name-kennedy-center-2026-05-29/](https://www.reuters.com/world/us-judge-orders-removal-trumps-name-kennedy-center-2026-05-29/)

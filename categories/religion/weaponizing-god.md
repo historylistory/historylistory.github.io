@@ -16,6 +16,24 @@ Due to the lofty nature of this section, I don’t have a timeline for completio
 
 There is much to cover; still trying to gather. However, such events are peppered throughout the file
 
+### 2023
+
+2023-09-09 OPINION: Christian Nationalism is not Christianity – it is a polarizing extremist group bent on pushing political agendas and greed and promotes political violence.
+
+[https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s](https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s)
+
+[https://www.aclund.org/news/danger-christian-nationalism/](https://www.aclund.org/news/danger-christian-nationalism/)
+
+[https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/](https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/)
+
+[https://www.christiansagainstchristiannationalism.org/learn-more](https://www.christiansagainstchristiannationalism.org/learn-more)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/](https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/)
+
+[https://faith.yale.edu/media/violence-fascism-and-christian-nationalism](https://faith.yale.edu/media/violence-fascism-and-christian-nationalism)
+
+[https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6](https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6)
+
 ### 2026 March
 
 2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 

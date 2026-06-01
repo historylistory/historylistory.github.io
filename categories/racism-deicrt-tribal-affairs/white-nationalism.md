@@ -308,3 +308,10 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 [https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
 
+2026-05-26 White supremacist group Patriot Front marched in the streets at Virginia Beach.
+
+[https://www.youtube.com/watch?v=cyyP1LWmVW8&list=WL&index=4](https://www.youtube.com/watch?v=cyyP1LWmVW8&list=WL&index=4)
+
+[https://www.wavy.com/news/local-news/virginia-beach/white-supremacist-march-sparks-community-concern-in-virginia-beach/](https://www.wavy.com/news/local-news/virginia-beach/white-supremacist-march-sparks-community-concern-in-virginia-beach/)
+
+[https://www.wtkr.com/news/in-the-community/virginia-beach/white-supremacy-group-patriot-front-marches-in-virginia-beach-angering-naacp](https://www.wtkr.com/news/in-the-community/virginia-beach/white-supremacy-group-patriot-front-marches-in-virginia-beach-angering-naacp)

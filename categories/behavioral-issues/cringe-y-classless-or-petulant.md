@@ -658,3 +658,11 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 [https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/](https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/)
 
 [https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566](https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566)
+
+2026-05-29 Several music artists dropped out of Trump’s 250 event, stating they felt it was a politicized partisan event. In place of the event Trump proposed a MAGA rally.
+
+[https://www.youtube.com/watch?v=HVNyP1ekrDg&list=WL&index=7&t=212s](https://www.youtube.com/watch?v=HVNyP1ekrDg&list=WL&index=7&t=212s)
+
+[https://www.bbc.com/news/articles/cwy2z23122zo](https://www.bbc.com/news/articles/cwy2z23122zo)
+
+[https://www.npr.org/2026/05/31/nx-s1-5841889/trump-america-250-state-fair-artists-rally](https://www.npr.org/2026/05/31/nx-s1-5841889/trump-america-250-state-fair-artists-rally)

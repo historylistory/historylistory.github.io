@@ -77,6 +77,22 @@ permalink: /categories/religion/politics/
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 
+2023-09-09 OPINION: Christian Nationalism is not Christianity – it is a polarizing extremist group bent on pushing political agendas and greed and promotes political violence.
+
+[https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s](https://www.youtube.com/watch?v=vZukWuT9lcA&list=WL&index=6&t=66s)
+
+[https://www.aclund.org/news/danger-christian-nationalism/](https://www.aclund.org/news/danger-christian-nationalism/)
+
+[https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/](https://www.au.org/the-latest/church-and-state/articles/origin-story-the-history-of-christian-nationalism-is-littered-with-hate-and-extremism/)
+
+[https://www.christiansagainstchristiannationalism.org/learn-more](https://www.christiansagainstchristiannationalism.org/learn-more)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/](https://pmc.ncbi.nlm.nih.gov/articles/PMC8724742/)
+
+[https://faith.yale.edu/media/violence-fascism-and-christian-nationalism](https://faith.yale.edu/media/violence-fascism-and-christian-nationalism)
+
+[https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6](https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6)
+
 ### 2024
 
 2024-05-28 Speaker Mike Johnson hung an “An Appeal to Heaven” flag outside his office. The flag is associated with the Christian Nationalist movement.

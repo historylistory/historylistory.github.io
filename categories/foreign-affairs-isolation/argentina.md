@@ -59,3 +59,16 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions](https://www.farmprogress.com/marketing/china-inks-900-million-deal-for-argentine-crops-sidestepping-us-amid-trade-tensions)
 
 [https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
+
+2026-05-29 Peter Thiel relocated to Argentina.
+
+[https://nypost.com/2026/05/29/business/peter-thiel-moves-family-to-argentina-to-flee-taxes-ai-meltdown-potential-nuclear-war-report/](https://nypost.com/2026/05/29/business/peter-thiel-moves-family-to-argentina-to-flee-taxes-ai-meltdown-potential-nuclear-war-report/)
+
+[https://www.businessinsider.com/peter-thiel-argentina-billionaire-moving-abroad-2026-5](https://www.businessinsider.com/peter-thiel-argentina-billionaire-moving-abroad-2026-5)
+
+[https://www.thedailybeast.com/billionaire-trump-ally-peter-thiel-flees-to-argentina-just-like-the-nazis/](https://www.thedailybeast.com/billionaire-trump-ally-peter-thiel-flees-to-argentina-just-like-the-nazis/)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html](https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html)
+
+[https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s](https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s)
+
