@@ -44,6 +44,15 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
+
+
+2024-11-12 Trump selected Elon Musk and Ramaswamy to lead DOGE. Three months later in February the White House claimed Musk was not part of DOGE, then in March the White House claimed Musk was leading DOGE. All the while Musk was sending out his “What did you do last week” emails.
+
+[https://www.npr.org/2024/11/12/g-s1-33972/trump-elon-musk-vivek-ramaswamy-doge-government-efficiency-deep-state](https://www.npr.org/2024/11/12/g-s1-33972/trump-elon-musk-vivek-ramaswamy-doge-government-efficiency-deep-state)
+
+[https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf](https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf)
+
+
 ### 2025 January
 
 2025-01-20 DOGE began making indiscriminate cuts to federal workers for the next 18 months, totaling roughly 271,000 positions up until DOGE was dismantled.
