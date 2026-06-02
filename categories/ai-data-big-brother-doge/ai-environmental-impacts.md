@@ -75,3 +75,4 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 [https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/](https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/)
 
 [https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/](https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/)
+

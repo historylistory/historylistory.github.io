@@ -176,3 +176,4 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/](https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/)
 
 [https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)
+

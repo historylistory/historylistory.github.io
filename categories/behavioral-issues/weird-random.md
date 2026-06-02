@@ -324,6 +324,8 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 [https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)
 
+### 2026 June
+
 2026-06-02 The booking agent for the White House 250 event is Jeff Epstein of Universal Attractions.
 
 [https://www.rollingstone.com/tv-movies/tv-movie-news/jon-stewart-epstein-trump-freedom-250-concert-daily-show-1235571070/](https://www.rollingstone.com/tv-movies/tv-movie-news/jon-stewart-epstein-trump-freedom-250-concert-daily-show-1235571070/)
@@ -334,3 +336,4 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 [https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602](https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602)
 
+ 
