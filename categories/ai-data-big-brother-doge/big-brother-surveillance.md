@@ -98,6 +98,15 @@ Think About:
 
 ### 2023
 
+
+2023-07-11 Matt Gaetz broke at times over surveillance powers and foreign intervention posture, warning against “deep state” escalation even under Trump-aligned leadership.
+
+[https://www.foxnews.com/politics/matt-gaetz-fisa-surveillance-citizens](https://www.foxnews.com/politics/matt-gaetz-fisa-surveillance-citizens)
+
+[https://www.pbs.org/newshour/politics/in-nominating-close-ally-gaetz-trump-shows-he-values-loyalty-and-retribution](https://www.pbs.org/newshour/politics/in-nominating-close-ally-gaetz-trump-shows-he-values-loyalty-and-retribution)
+
+[https://www.congress.gov/event/118th-congress/house-event/117688/text](https://www.congress.gov/event/118th-congress/house-event/117688/text)
+
 2023-11-01 Following the October 7 Hamas attacks on Israel, U.S. lawmakers called for a TikTok ban, claiming the platform had an anti-Israel bias.  One article cites a series of posts by tech venture capitalist Jeff Morris about a “TikTok War”. 
 
 [https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849](https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849)
