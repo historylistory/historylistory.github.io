@@ -183,3 +183,15 @@ TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&i
 2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
 
 [https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)
+
+### 2026 June
+
+2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
+
+[https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412](https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412)
+
+PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2](https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2)
+
+PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
+
+MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)

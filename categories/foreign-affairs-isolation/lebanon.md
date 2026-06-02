@@ -100,3 +100,9 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon](https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon)
+
+### 2026 June
+
+2026-06-02 Israel continued attacks on Lebanon and killed 8 people even after Trump said both sides agreed to a ceasefire.
+
+[https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack](https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack)

@@ -405,3 +405,15 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.the-independent.com/bulletin/news/santiago-campos-cbs-news-bari-weiss-b2985217.html](https://www.the-independent.com/bulletin/news/santiago-campos-cbs-news-bari-weiss-b2985217.html)
 
 TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube.com/watch?v=5yUjicp6VqU)
+
+### 2026 June
+
+2026-06-02 Hegseth classified the Pentagon press office as a classified space (like a SCIF?) and physically barred journalists. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”. 
+
+[https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/](https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/)
+
+[https://www.politico.com/news/2026/06/01/pentagon-classified-area-reporters-00945550](https://www.politico.com/news/2026/06/01/pentagon-classified-area-reporters-00945550)
+
+[https://apnews.com/article/pentagon-media-restrictions-trump-hegseth-91bae8b82d16b96091f31518cc4d4c72](https://apnews.com/article/pentagon-media-restrictions-trump-hegseth-91bae8b82d16b96091f31518cc4d4c72)
+
+[https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space](https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space)

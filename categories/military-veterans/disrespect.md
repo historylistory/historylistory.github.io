@@ -167,3 +167,15 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
+
+### 2026 June
+
+2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
+
+[https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412](https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412)
+
+PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2](https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2)
+
+PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
+
+MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)

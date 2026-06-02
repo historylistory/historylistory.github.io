@@ -35,3 +35,13 @@ permalink: /categories/lgbtq/military/
 [https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/](https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/)
 
 [https://www.washingtontimes.com/news/2025/nov/14/hegseth-says-us-must-defend-freedom-christians-worship/](https://www.washingtontimes.com/news/2025/nov/14/hegseth-says-us-must-defend-freedom-christians-worship/)
+
+### 2026 June
+
+2026-06-01 Federal courts blocked the Pentagon from discharging transgender service members but allowed the Pentagon to continue banning transgender people from entering. 
+
+[https://www.military.com/trump-admin-illegally-banned-transgender-troops-from-military-court-ruling](https://www.military.com/trump-admin-illegally-banned-transgender-troops-from-military-court-ruling)
+
+[https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/](https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/)
+
+[https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/](https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/)

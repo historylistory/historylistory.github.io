@@ -215,3 +215,11 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=XAqE03jiff4](https://www.youtube.com/watch?v=XAqE03jiff4)
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
+
+### 2026 June
+
+2026-06-01 Florida formally sued ChatGPT and Sam Altman for endangering children.
+
+[https://www.pbs.org/newshour/nation/florida-sues-openai-and-ceo-sam-altman-claiming-company-hid-chatgpt-risks-from-users](https://www.pbs.org/newshour/nation/florida-sues-openai-and-ceo-sam-altman-claiming-company-hid-chatgpt-risks-from-users)
+
+[https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602](https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602)

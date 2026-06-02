@@ -185,5 +185,16 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
 
+### 2026 June
+
+2026-06-01 Anthropic filed for an initial public offering after it raised $65B and pushed its valuation to $965B. Bernie Sanders announced a new bill that would create a sovereign wealth fund by imposing a one-time 50% tax on big-tech stock. Sanders wrote in an op-ed it would, “give the public a direct role in determining the future of this technology….not simply to make the richest people in the world even richer…”.
+
+[https://www.msn.com/en-au/news/insight/anthropic-files-for-ipo-after-65b-funding-boost/gm-GMDE74FCD0](https://www.msn.com/en-au/news/insight/anthropic-files-for-ipo-after-65b-funding-boost/gm-GMDE74FCD0)
+
+[https://www.anthropic.com/news/confidential-draft-s1-sec](https://www.anthropic.com/news/confidential-draft-s1-sec)
+
+[https://www.cnbc.com/2026/05/28/anthropic-open-ai-startup-value.html](https://www.cnbc.com/2026/05/28/anthropic-open-ai-startup-value.html)
+
+[https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies](https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies)
 
 

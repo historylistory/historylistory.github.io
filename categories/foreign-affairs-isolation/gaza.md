@@ -417,3 +417,9 @@ TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-cont
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza](https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza)
+
+2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
+
+[https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york](https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york)
+
+[https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders](https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders)

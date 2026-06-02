@@ -261,3 +261,11 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi](https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi)
 
 [https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html](https://www.yahoo.com/entertainment/tv/articles/longtime-correspondent-sharyn-alfonsi-expects-to-depart-3960-minutes39-as-big-changes-loom-184448757.html)
+
+### 2026 June
+
+2026-06-01 The mayor of Newark, New Jersey announced it would push to shut down the Delaney Hall ICE facility.
+
+[https://www.cbsnews.com/newyork/news/delaney-hall-newark-nj-ice/](https://www.cbsnews.com/newyork/news/delaney-hall-newark-nj-ice/)
+
+[https://abcnews.com/US/newark-sue-feds-close-delaney-hall-ice-facility/story?id=133513879](https://abcnews.com/US/newark-sue-feds-close-delaney-hall-ice-facility/story?id=133513879)

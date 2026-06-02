@@ -208,3 +208,15 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza](https://www.democracynow.org/2026/5/26/headlines/israeli_strikes_kill_at_least_five_palestinians_at_a_refugee_camp_in_gaza)
+
+### 2026 June
+
+2026-06-02 Israel continued attacks on Lebanon and killed 8 people even after Trump said both sides agreed to a ceasefire.
+
+[https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack](https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack)
+
+2026-06-02 Axios reported that Trump allegedly told Netanyanu, “You’re fucking crazy. You’d be in prison if it weren’t for me. I’m saving your ass. Everybody hates you now. Everybody hates Israel because of this”. 
+
+[https://www.axios.com/2026/06/01/trump-netanyahu-israel-lebanon-call](https://www.axios.com/2026/06/01/trump-netanyahu-israel-lebanon-call)
+
+[https://www.theguardian.com/us-news/2026/jun/02/trump-shouted-and-cursed-netanyahu-over-threat-to-resume-beirut-bombing](https://www.theguardian.com/us-news/2026/jun/02/trump-shouted-and-cursed-netanyahu-over-threat-to-resume-beirut-bombing)

@@ -258,3 +258,8 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
+2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
+
+[https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york](https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york)
+
+[https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders](https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders)

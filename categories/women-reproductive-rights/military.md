@@ -44,6 +44,8 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 March
 
+2026-03-26 Hegseth removed female and Black Army officers from a promotion list. He did this again in June to the Navy. 
+
 2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, leaving some senior military officials to question if women and minorities were being singled out. In the same article presenting this information, the article wrote that Chief of Staff Ricky Buria told the Army Secretary Daniel Driscoll about assigning Major General Antoinette R. Gant command of the Military District of Washington **President Trump would not want to stand next to a Black female officer at military events.**
 
 [https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html](https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html)
@@ -57,3 +59,17 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 [https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms](https://timesofindia.indiatimes.com/world/us/trump-did-not-want-to-stand-next-to-black-female-officers-at-military-events-claims-defence-staff-report/articleshow/129850686.cms)
 
 [https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html](https://www.yahoo.com/news/articles/trump-official-told-military-officer-132409515.html)
+
+[https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
+
+### 2026 June
+
+2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
+
+[https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412](https://abcnews.com/Politics/hegseth-blocks-promotion-navy-officers-1-star-rank/story?id=133498412)
+
+PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2](https://www.wsj.com/politics/national-security/hegseth-blocks-eight-navy-senior-officer-promotions-aa536aa2)
+
+PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
+
+MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)

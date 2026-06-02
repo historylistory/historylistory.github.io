@@ -261,3 +261,13 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://apnews.com/article/russia-ukraine-war-kyiv-missile-drone-attack-998aeaab5833ca397290d9ee2737b0e5](https://apnews.com/article/russia-ukraine-war-kyiv-missile-drone-attack-998aeaab5833ca397290d9ee2737b0e5)
+
+### 2026 June
+
+2026-06-02 Russia launched 73 missiles and 656 drones on Ukraine. Zelensky asked the US for interceptor assistance and was ignored. 
+
+[https://www.aljazeera.com/news/2026/6/2/at-least-nine-people-killed-dozens-wounded-in-russian-attacks-on-ukraine](https://www.aljazeera.com/news/2026/6/2/at-least-nine-people-killed-dozens-wounded-in-russian-attacks-on-ukraine)
+
+[https://www.reuters.com/world/large-pillar-smoke-seen-kyiv-after-air-raid-alert-issued-reuters-witness-reports-2026-06-01/](https://www.reuters.com/world/large-pillar-smoke-seen-kyiv-after-air-raid-alert-issued-reuters-witness-reports-2026-06-01/)
+
+[https://www.france24.com/en/140-00-kyiv-residents-without-power-after-russian-attack](https://www.france24.com/en/140-00-kyiv-residents-without-power-after-russian-attack)

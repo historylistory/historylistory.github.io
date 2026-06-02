@@ -177,3 +177,12 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 [https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)
 
+### 2026 June
+
+2026-06-01 Federal courts blocked the Pentagon from discharging transgender service members but allowed the Pentagon to continue banning transgender people from entering. 
+
+[https://www.military.com/trump-admin-illegally-banned-transgender-troops-from-military-court-ruling](https://www.military.com/trump-admin-illegally-banned-transgender-troops-from-military-court-ruling)
+
+[https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/](https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/)
+
+[https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/](https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/)
