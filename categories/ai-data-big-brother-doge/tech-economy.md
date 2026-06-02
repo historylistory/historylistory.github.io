@@ -142,6 +142,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2026 February
 
+
 2026-02-15 A global push for age verification on widely used platforms emerged. Peter Thiel’s venture capital firm Founders fun is a major investor in the age verification provider used, called Persona.
 
 [https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/](https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/)
@@ -149,6 +150,12 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 [https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/](https://fortune.com/2026/02/24/discord-peter-thiel-backed-persona-identity-verification-breach/)
 
 [https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed](https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed)
+
+2026-02-26 NVIDIA’s driver updated focused on vibecoding. 
+
+[https://wccftech.com/nvidia-new-gpu-driver-is-a-disaster-it-has-now-been-pulled-back/](https://wccftech.com/nvidia-new-gpu-driver-is-a-disaster-it-has-now-been-pulled-back/)
+
+[https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/](https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/)
 
 ### 2026 March
 
@@ -177,3 +184,5 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 [https://www.youtube.com/watch?v=oTfyd_0F45w](https://www.youtube.com/watch?v=oTfyd_0F45w)
 
 [https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
+
+

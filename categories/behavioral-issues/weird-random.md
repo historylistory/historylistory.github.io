@@ -317,3 +317,20 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html](https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html)
 
 [https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html)
+
+2026-05-30 The White House allegedly recruited troops to attend the White House lawn UFC match but required them to 1) pay for the trip themselves and 2) meet a waist-to-height ratio standard. 
+
+[https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/](https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/)
+
+[https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)
+
+2026-06-02 The booking agent for the White House 250 event is Jeff Epstein of Universal Attractions.
+
+[https://www.rollingstone.com/tv-movies/tv-movie-news/jon-stewart-epstein-trump-freedom-250-concert-daily-show-1235571070/](https://www.rollingstone.com/tv-movies/tv-movie-news/jon-stewart-epstein-trump-freedom-250-concert-daily-show-1235571070/)
+
+[https://ew.com/jon-stewart-notes-another-jeff-epstein-represents-bands-leaving-freedom-250-concert-11988665](https://ew.com/jon-stewart-notes-another-jeff-epstein-represents-bands-leaving-freedom-250-concert-11988665)
+
+[https://www.yahoo.com/news/politics/articles/talent-recruiter-behind-acts-failed-132344047.html](https://www.yahoo.com/news/politics/articles/talent-recruiter-behind-acts-failed-132344047.html)
+
+[https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602](https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602)
+

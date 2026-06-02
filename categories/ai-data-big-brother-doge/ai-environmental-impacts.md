@@ -68,3 +68,10 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 
 [https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)
 
+2026-05-18 China built data centers under water. 
+
+[https://www.tomshardware.com/tech-industry/china-says-worlds-first-offshore-wind-powered-underwater-data-center-has-entered-full-operation-houses-2-000-servers-24-megawatt-subsea-ai-facility-uses-ocean-water-for-passive-cooling-and-offshore-wind-for-power](https://www.tomshardware.com/tech-industry/china-says-worlds-first-offshore-wind-powered-underwater-data-center-has-entered-full-operation-houses-2-000-servers-24-megawatt-subsea-ai-facility-uses-ocean-water-for-passive-cooling-and-offshore-wind-for-power)
+
+[https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/](https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/)
+
+[https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/](https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/)

@@ -170,3 +170,9 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-](https://www.foxnews.com/us/veteran-owner-iconic-trump-house-dies-vicious-alleged-beating-stranger-)
 
 [https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8](https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8)
+
+2026-05-30 The White House allegedly recruited troops to attend the White House lawn UFC match but required them to 1) pay for the trip themselves and 2) meet a waist-to-height ratio standard. 
+
+[https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/](https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/)
+
+[https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)

@@ -520,3 +520,10 @@ FROM DEC 2025: [https://finance.yahoo.com/news/company-backed-donald-trump-jr-19
 
 FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789](https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789)
 
+2026-05-29 Trump allegedly spent thousands on TKO stock while promoting the White House UFC event. 
+
+[https://www.nytimes.com/athletic/7319008/2026/05/29/trump-white-house-ufc-fight-stock/](https://www.nytimes.com/athletic/7319008/2026/05/29/trump-white-house-ufc-fight-stock/)
+
+[https://www.msn.com/en-us/news/insight/trump-bought-ufc-parent-stock-while-promoting-white-house-fight/gm-GM3AB053B3](https://www.msn.com/en-us/news/insight/trump-bought-ufc-parent-stock-while-promoting-white-house-fight/gm-GM3AB053B3)
+
+[https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html](https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html)

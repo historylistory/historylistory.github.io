@@ -666,3 +666,9 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 [https://www.bbc.com/news/articles/cwy2z23122zo](https://www.bbc.com/news/articles/cwy2z23122zo)
 
 [https://www.npr.org/2026/05/31/nx-s1-5841889/trump-america-250-state-fair-artists-rally](https://www.npr.org/2026/05/31/nx-s1-5841889/trump-america-250-state-fair-artists-rally)
+
+2026-05-30 The White House allegedly recruited troops to attend the White House lawn UFC match but required them to 1) pay for the trip themselves and 2) meet a waist-to-height ratio standard. 
+
+[https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/](https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/)
+
+[https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)

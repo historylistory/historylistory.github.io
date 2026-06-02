@@ -113,3 +113,13 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 [https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny](https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny)
 
 SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html](https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html)
+
+### 2026 May
+
+2026-05-18 The White House passed legislation for a national annual $130 registration fee for electric vehicles. 
+
+[https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/](https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/)
+
+[https://finance.yahoo.com/economy/policy/articles/house-lawmakers-propose-130-annual-173816714.html](https://finance.yahoo.com/economy/policy/articles/house-lawmakers-propose-130-annual-173816714.html)
+
+[https://www.reuters.com/world/us-house-lawmakers-propose-130-annual-ev-fee-pay-road-repairs-2026-05-18/](https://www.reuters.com/world/us-house-lawmakers-propose-130-annual-ev-fee-pay-road-repairs-2026-05-18/)
