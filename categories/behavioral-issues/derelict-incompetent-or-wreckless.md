@@ -587,3 +587,12 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
 
 [https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
+
+### 2026 June
+
+2026-06-02 Trump named housing official Bill Pulte as acting director of national intelligence.
+[https://www.youtube.com/watch?v=vRIdilkr0oM&list=WL&index=3](https://www.youtube.com/watch?v=vRIdilkr0oM&list=WL&index=3)
+
+[https://www.nbcnews.com/politics/national-security/trump-william-pulte-acting-director-national-intelligence-tulsi-gabbar-rcna348036](https://www.nbcnews.com/politics/national-security/trump-william-pulte-acting-director-national-intelligence-tulsi-gabbar-rcna348036)
+
+[https://www.bbc.com/news/articles/cyv2dpyz3dpo](https://www.bbc.com/news/articles/cyv2dpyz3dpo)

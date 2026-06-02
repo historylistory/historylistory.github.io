@@ -113,3 +113,13 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/](https://thehill.com/policy/technology/5891923-trump-ai-order-scrapped-divide/)
 
 [https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/](https://thehill.com/policy/technology/5889379-trump-postpones-ai-testing/)
+
+### 2026 June
+
+2026-06-02 Trump signed an EO laying groundwork for federal testing on AI before public release.
+
+[https://www.youtube.com/watch?v=c_tgR6fRAU0&list=WL&index=1](https://www.youtube.com/watch?v=c_tgR6fRAU0&list=WL&index=1)
+
+[https://www.nbcnews.com/tech/tech-news/trump-ai-executive-order-rcna348072](https://www.nbcnews.com/tech/tech-news/trump-ai-executive-order-rcna348072)
+
+[https://www.pbs.org/newshour/nation/trump-signs-executive-order-that-allows-voluntary-federal-vetting-of-top-ai-models-for-national-security-risks](https://www.pbs.org/newshour/nation/trump-signs-executive-order-that-allows-voluntary-federal-vetting-of-top-ai-models-for-national-security-risks)

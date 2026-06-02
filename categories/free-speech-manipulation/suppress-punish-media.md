@@ -406,6 +406,12 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube.com/watch?v=5yUjicp6VqU)
 
+2026-05-29 Bari Weiss and Larry Ellison hollowed out 60-Minutes.
+
+[https://www.youtube.com/watch?v=f8lUddU6_yM&list=WL&index=8](https://www.youtube.com/watch?v=f8lUddU6_yM&list=WL&index=8)
+
+[https://www.npr.org/2026/05/29/nx-s1-5837993/bari-weiss-works-to-reinvent-60-minutes-cbs-most-prestigious-program](https://www.npr.org/2026/05/29/nx-s1-5837993/bari-weiss-works-to-reinvent-60-minutes-cbs-most-prestigious-program)
+
 ### 2026 June
 
 2026-06-02 Hegseth classified the Pentagon press office as a classified space (like a SCIF?) and physically barred journalists. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”. 
@@ -417,3 +423,5 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 [https://apnews.com/article/pentagon-media-restrictions-trump-hegseth-91bae8b82d16b96091f31518cc4d4c72](https://apnews.com/article/pentagon-media-restrictions-trump-hegseth-91bae8b82d16b96091f31518cc4d4c72)
 
 [https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space](https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space)
+
+

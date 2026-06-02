@@ -195,3 +195,14 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
 
 [https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)
+
+### 2026 June
+
+2026-05-19 Mark Meckler claimed Trump was touched or ordained by God.
+
+[https://www.anarchistfederation.net/mark-meckler-says-trump-is-a-man-transformed-by-god/](https://www.anarchistfederation.net/mark-meckler-says-trump-is-a-man-transformed-by-god/)
+
+[https://www.peoplefor.org/rightwingwatch/mark-meckler-says-trump-man-transformed-god](https://www.peoplefor.org/rightwingwatch/mark-meckler-says-trump-man-transformed-god)
+
+[https://www.youtube.com/watch?v=7s-oHAosovk&list=WL&index=7&t=91s](https://www.youtube.com/watch?v=7s-oHAosovk&list=WL&index=7&t=91s)
+

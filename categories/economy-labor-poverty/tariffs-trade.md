@@ -363,3 +363,11 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
+2026-05-31 The aluminum market was caught in between tariffs and the elective Iranian war and faced a supply risk.
+
+[https://www.youtube.com/watch?v=sPQx0WrVDSE&list=WL&index=5](https://www.youtube.com/watch?v=sPQx0WrVDSE&list=WL&index=5)
+
+[https://www.reuters.com/world/china/aluminium-hits-four-year-high-renewed-middle-east-supply-risks-2026-06-01/](https://www.reuters.com/world/china/aluminium-hits-four-year-high-renewed-middle-east-supply-risks-2026-06-01/)
+
+[https://finance.yahoo.com/markets/commodities/articles/aluminum-market-facing-serious-prolonged-150000068.html](https://finance.yahoo.com/markets/commodities/articles/aluminum-market-facing-serious-prolonged-150000068.html)

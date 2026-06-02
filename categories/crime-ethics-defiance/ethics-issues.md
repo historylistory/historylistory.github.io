@@ -528,3 +528,8 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 
 [https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html](https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html)
 
+2026-05-31 On Fox, Ken Paxton responded to the interview question about being called ‘scandal plagued’, “The reality is they could say the same thing about Donald Trump…”
+
+[https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html](https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html)
+
+SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c8f67e4b0dade60327c0b](https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c8f67e4b0dade60327c0b)

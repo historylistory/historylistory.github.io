@@ -12,6 +12,21 @@ HERE IS A TRACKER OF ALL THE SCHOOL SHOOTINGS:
 
 [https://k12ssdb.org/all-shootings](https://k12ssdb.org/all-shootings)
 
+### Did You Know?
+
+Congress does NOT allow the CDC to study gun violence.
+
+You can be put on a no-fly list for terrorism but can still buy a gun.
+
+You must pass a test and obtain a license before driving a car, but you don't need to do that to own a gun.
+
+[https://giffords.org/press-release/2023/11/house-gop-just-voted-to-ban-cdc-gun-violence-research/](https://giffords.org/press-release/2023/11/house-gop-just-voted-to-ban-cdc-gun-violence-research/)
+
+[https://www.science.org/content/article/obama-lifts-ban-funding-gun-violence-research](https://www.science.org/content/article/obama-lifts-ban-funding-gun-violence-research)
+
+[https://www.propublica.org/article/what-researchers-learned-about-gun-violence-before-congress-killed-funding](https://www.propublica.org/article/what-researchers-learned-about-gun-violence-before-congress-killed-funding)
+
+
 ### 1999
 
 1999-08-16 David Horowitz wrote an article in Salon.com titled, “Guns don’t kill black people, other blacks do” and the caption below said, “The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior”. Another excerpt of this article read, “If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.

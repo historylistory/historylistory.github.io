@@ -480,3 +480,11 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 
 2020 [https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387](https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387)
 
+2026-05-29 Trump snubbed loyalist Nancy Mace in the South Carolina elections.
+
+[https://thehill.com/homenews/campaign/5902146-trump-endorses-pam-evette-over-mace/](https://thehill.com/homenews/campaign/5902146-trump-endorses-pam-evette-over-mace/)
+
+[https://www.youtube.com/watch?v=162_4xx579g](https://www.youtube.com/watch?v=162_4xx579g)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/mondays-campaign-round-up-6-1-26-nancy-mace-snubbed-by-trump-in-gubernatorial-race](https://www.ms.now/rachel-maddow-show/maddowblog/mondays-campaign-round-up-6-1-26-nancy-mace-snubbed-by-trump-in-gubernatorial-race)
+
