@@ -6,6 +6,10 @@ subcategory_slug: pardons
 permalink: /categories/crime-ethics-defiance/pardons/
 ---
 
+### ABOUT PARDONS
+
+[https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
+
 ### 2024
 
 2024-05-01 Governor Greg Abbott gave a full pardon to Daniel Perry, the former US Army sergeant who murdered Garrett Foster during a Black Lives Matter protest in Austin Texas in July of 2020. Prior to Perry murdering a protestor, he posted online “I’m going to go kill a protester”.
