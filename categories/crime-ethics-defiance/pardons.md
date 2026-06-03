@@ -217,17 +217,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 ### 2025 December
 
-2025-12-01 Trump announced plans to pardon Honduras president Juan Orlando Hernandez just ahead of current elections. Hernandez was in prison for directing a massive cocaine trafficking operation while holding the presidency from 2014 to 2022. He ran Honduras as a narco state and accepted millions of dollars in bribes. For context, Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals. Later Trump threatened there would be “Hell to Pay” if the Honduras presidential election results were changed, insinuating that there may be election tampering.
 
-[https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
-
-[https://www.bbc.com/news/articles/c1kpm0rvxepo](https://www.bbc.com/news/articles/c1kpm0rvxepo)
-
-[https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651](https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651)
-
-[https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
-
-[https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
 2025-12-19 Trump pardoned Joseph Schwartz, who was convicted in a $38 million nursing home fraud case and orchestrated a $39 million payroll tax scheme. In 2017, conditions at his facilities were so poor that inspectors found maggots on patients' catheters and cited them for neglect. The pardon allowed Schwartz to avoid paying restitution to victims. Notably, he had donated more than $1 million to right-wing campaigns and Trump-connected lobbyists. Trump then effectively gave him a $5 million break, leaving nursing home victims unpaid.
 
@@ -251,6 +241,18 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://apnews.com/article/trump-pardons-donor-twice-convicted-fraud-99263a04b8a60ce8c081b9c5feaffd2e](https://apnews.com/article/trump-pardons-donor-twice-convicted-fraud-99263a04b8a60ce8c081b9c5feaffd2e)
 
 [https://www.cnn.com/2026/01/16/politics/wanda-vazquez-trump-pardon-puerto-rico](https://www.cnn.com/2026/01/16/politics/wanda-vazquez-trump-pardon-puerto-rico)
+
+2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed.
+
+[https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
+
+[https://www.bbc.com/news/articles/c1kpm0rvxepo](https://www.bbc.com/news/articles/c1kpm0rvxepo)
+
+[https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651](https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651)
+
+[https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
+
+[https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
 ### 2026 February
 

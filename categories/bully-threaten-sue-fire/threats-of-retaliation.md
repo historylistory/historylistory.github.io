@@ -344,17 +344,6 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 December
 
-2025-12-01 Trump announced plans to pardon Honduras president Juan Orlando Hernandez just ahead of current elections. Hernandez was in prison for directing a massive cocaine trafficking operation while holding the presidency from 2014 to 2022. He ran Honduras as a narco state and accepted millions of dollars in bribes. For context, Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals. Later Trump threatened there would be “Hell to Pay” if the Honduras presidential election results were changed, insinuating that there may be election tampering.
-
-[https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
-
-[https://www.bbc.com/news/articles/c1kpm0rvxepo](https://www.bbc.com/news/articles/c1kpm0rvxepo)
-
-[https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651](https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651)
-
-[https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
-
-[https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
 2025-12-10 According to Reuters, the Trump administration demanded that the International Criminal Court amend its founding documents – the Rome Statute – to ensure that Trump and his senior officials would not be investigated or prosecuted for any war crimes, and threatened sanctions if the ICC didn’t comply.
 
@@ -431,6 +420,18 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 2026-01-19 Trump sent a message to the Norwegian Prime Minister Jonas Gahr Store demanding the Nobel Prize, blamed Norway for not giving him the prize, then insisted in the same message he needed “Complete and Total Control of Greenland”. He also added in the message, “I no longer feel an obligation to think purely of Peace”.
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
+
+2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed.
+
+[https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
+
+[https://www.bbc.com/news/articles/c1kpm0rvxepo](https://www.bbc.com/news/articles/c1kpm0rvxepo)
+
+[https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651](https://apnews.com/article/trump-hernandez-honduras-pardon-96ac8d1d44d438f64beb8b24ca54b651)
+
+[https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
+
+[https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
 2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in an effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
 
