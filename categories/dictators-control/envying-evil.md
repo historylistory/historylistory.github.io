@@ -95,6 +95,18 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 [https://truthsocial.com/@realDonaldTrump/posts/115288486061498188](https://truthsocial.com/@realDonaldTrump/posts/115288486061498188)
 
+2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries.
+
+[https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries](https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries)
+
+[https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters](https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters)
+
+[https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+[https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
+
+
+
 ### Israeli Investors
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.

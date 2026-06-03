@@ -18,7 +18,7 @@ Cultural Hegemony: A social group or "popular crowd" dictating cultural norms an
 
 Economic Hegemony: The economic power of the U.S. following World War I, influencing global markets. 
 
-### 2026
+### 2026 April
 
 2026-04-18 Palantir posted a 22-point “supervillain” manifesto on X outlining American dominance and power goals, including advocating for nuclear dominance and autonomous AI weapons systems.   In that manifesto they also said that some cultures were "inferior" to others and that "postwar neutering" of Germany and Japan must be undone. 
 
@@ -45,3 +45,15 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html](https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html)
 
 [https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
+
+### 2026 June
+
+2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries.
+
+[https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries](https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries)
+
+[https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters](https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters)
+
+[https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+[https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)

@@ -345,3 +345,13 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 [https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/](https://www.gillibrand.senate.gov/news/press/release/watch-gillibrand-presses-the-pentagon-on-cost-of-iran-war-and-u-s-bombing-of-civilian-schools-and-hospitals/)
 
 TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)
+
+2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries.
+
+[https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries](https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries)
+
+[https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters](https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters)
+
+[https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+[https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)

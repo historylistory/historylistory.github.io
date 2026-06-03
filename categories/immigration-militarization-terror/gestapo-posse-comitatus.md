@@ -412,3 +412,13 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 [https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/](https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/)
 
 [https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches](https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches)
+
+2026-05-31 Bovino delivered a speech at the neo-fascist Remigration Summit in Portugal (RESUM26).  
+
+[https://www.youtube.com/watch?v=N2J8h_TQUvk](https://www.youtube.com/watch?v=N2J8h_TQUvk)
+
+[https://www.youtube.com/watch?v=eDV2duioQQM&list=WL&index=2&t=95s](https://www.youtube.com/watch?v=eDV2duioQQM&list=WL&index=2&t=95s)
+
+[https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf](https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf)
+
+SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/](https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/)

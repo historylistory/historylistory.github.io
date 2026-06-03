@@ -211,6 +211,16 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 ### 2026 June
 
+2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries.
+
+[https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries](https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries)
+
+[https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters](https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters)
+
+[https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+[https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
+
 2026-06-02 Israel continued attacks on Lebanon and killed 8 people even after Trump said both sides agreed to a ceasefire.
 
 [https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack](https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack)
@@ -220,3 +230,7 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://www.axios.com/2026/06/01/trump-netanyahu-israel-lebanon-call](https://www.axios.com/2026/06/01/trump-netanyahu-israel-lebanon-call)
 
 [https://www.theguardian.com/us-news/2026/jun/02/trump-shouted-and-cursed-netanyahu-over-threat-to-resume-beirut-bombing](https://www.theguardian.com/us-news/2026/jun/02/trump-shouted-and-cursed-netanyahu-over-threat-to-resume-beirut-bombing)
+
+2026-06-01 Orthodox Israeli protestors blocked roads and trains to forgo military draft.
+
+[https://www.youtube.com/watch?v=0C3E4MBf1CQ](https://www.youtube.com/watch?v=0C3E4MBf1CQ)

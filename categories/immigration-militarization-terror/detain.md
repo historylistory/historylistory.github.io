@@ -6,6 +6,13 @@ subcategory_slug: detain
 permalink: /categories/immigration-militarization-terror/detain/
 ---
 
+### 2025 January
+
+2025-01-29 The Laken Riley Act was introduced to give power to DHS to prioritize the detention of noncitizens who commit lower-level offenses.
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/5](https://www.congress.gov/bill/119th-congress/senate-bill/5)
+
+
 ### 2025 March
 
 2025-03-18 News outlets reported family outcries because their loved ones being detained were **not** gang members **or** criminals.
