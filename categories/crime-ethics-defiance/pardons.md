@@ -64,7 +64,8 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m](https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m)
 
-2025-03-27 Trump pardoned Trevor Milton. Trevor Milton was convicted of a massive fraud scheme. The DOJ sought over $600M in restitution. 
+2025-03-27 Trump pardoned Trevor Milton. Trevor Milton was convicted of a massive fraud scheme. The DOJ sought over $600M in restitution. Trevor Milton founded a fraudulent electric trucking company, Nikola. They claimed the trucks were zero-emission. As admitted by employees later, the trucks were towed to the top of hills and allowed to roll down, so they used that to claim “zero emissions”. 
+
 [https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
 
 [https://www.fox13now.com/news/local-news/trump-explains-pardon-of-utah-billionaire-trevor-milton-who-was-convicted-of-fraud](https://www.fox13now.com/news/local-news/trump-explains-pardon-of-utah-billionaire-trevor-milton-who-was-convicted-of-fraud)
@@ -74,6 +75,8 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://www.cnn.com/2025/03/28/politics/trump-pardon-trevor-milton-nikola](https://www.cnn.com/2025/03/28/politics/trump-pardon-trevor-milton-nikola)
 
 [https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/](https://www.washingtonpost.com/politics/2025/12/19/donald-trump-pardons-trevor-milton-nikola/)
+
+[https://www.wsj.com/business/trevor-milton-pardon-nikola-trump-3163e19c](https://www.wsj.com/business/trevor-milton-pardon-nikola-trump-3163e19c)
 
 2025-03-28 Trump pardoned Carlos Watson who was convicted of $60M in investor fraud.
 
