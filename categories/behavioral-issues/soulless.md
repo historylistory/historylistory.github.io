@@ -198,6 +198,10 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://x.com/DHSgov/status/1982819431894901043](https://x.com/DHSgov/status/1982819431894901043)
 
+2025-10-31 Lindsey Grahm said, “We’re killing all the right people” at a Republican Jewish Coalition Summit in Las Vegas.  
+
+[https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties](https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties)
+
 ### 2025 November
 
 2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 
@@ -251,6 +255,11 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 
 ### 2026 January
+
+2026-01-09 Lindsey Graham said “Because I’m pro-life doesn’t mean I won’t kill you” at a pro-life dinner hosted by South Carolina Citizens for Life.
+
+[https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
+
 
 2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
 

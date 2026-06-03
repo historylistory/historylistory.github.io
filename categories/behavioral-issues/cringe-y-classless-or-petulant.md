@@ -6,6 +6,17 @@ subcategory_slug: cringe-y-classless-or-petulant
 permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 ---
 
+### 2018 
+
+2018-02-12 After Mirai Nagasu landed a triple axel at the Winter Olympics, Bari Weiss posted, “Immigrants: They get the job done”. 
+
+[https://sports.yahoo.com/new-york-times-writer-ignites-controversy-olympic-tweet-mirai-nagasu-034853159.html](https://sports.yahoo.com/new-york-times-writer-ignites-controversy-olympic-tweet-mirai-nagasu-034853159.html)
+
+[https://www.youtube.com/shorts/hdy0xn3kwm4](https://www.youtube.com/shorts/hdy0xn3kwm4)
+
+THE ATLANTIC’S TAKE: [https://www.theatlantic.com/politics/archive/2018/02/bari-weiss-immigrants/553550/](https://www.theatlantic.com/politics/archive/2018/02/bari-weiss-immigrants/553550/)
+
+
 ### 2019
 
 2019-05-06 Laura Loomer had a Facebook ban meltdown on InfoWars with Alex Jones, crying and screaming about the ban and claiming it stopped her from making a living.
@@ -300,6 +311,9 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.foxnews.com/politics/white-house-trolls-democrats-over-ballroom-meltdown-adds-cocaine-clinton-obama-scandals-timeline](https://www.foxnews.com/politics/white-house-trolls-democrats-over-ballroom-meltdown-adds-cocaine-clinton-obama-scandals-timeline)
 
+2025-10-31 Lindsey Grahm said, “We’re killing all the right people” at a Republican Jewish Coalition Summit in Las Vegas.  
+
+[https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties](https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties)
 
 
 ### 2025 November
@@ -353,6 +367,10 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.thebanner.com/national/new-plaques-unveiled-presidential-walk-of-fame-62CJD7RDKBBALDAXHMYESL25IQ/](https://www.thebanner.com/national/new-plaques-unveiled-presidential-walk-of-fame-62CJD7RDKBBALDAXHMYESL25IQ/)
 
 ### 2026 January
+
+2026-01-09 Lindsey Graham said “Because I’m pro-life doesn’t mean I won’t kill you” at a pro-life dinner hosted by South Carolina Citizens for Life.
+
+[https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
 
 2026-01-14 During his visit to a Ford plant, Trump flipped off an autoworker and mouthed for him to fuck off.
 

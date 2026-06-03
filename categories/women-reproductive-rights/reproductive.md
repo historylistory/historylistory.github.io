@@ -332,6 +332,12 @@ It would also make it a felony to give someone information about where to get a
 
 [https://www.youtube.com/watch?v=GDRPN6cmWEg](https://www.youtube.com/watch?v=GDRPN6cmWEg)
 
+### 2026 January
+
+2026-01-09 Lindsey Graham said “Because I’m pro-life doesn’t mean I won’t kill you” at a pro-life dinner hosted by South Carolina Citizens for Life.
+
+[https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
+
 
 ### 2026 March
 
