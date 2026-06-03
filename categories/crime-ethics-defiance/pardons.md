@@ -229,7 +229,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
-2025-12-19 Trump pardoned Joseph Schwartz who was convicted of $38M in fraud.
+2025-12-19 Trump pardoned Joseph Schwartz, who was convicted in a $38 million nursing home fraud case and orchestrated a $39 million payroll tax scheme. In 2017, conditions at his facilities were so poor that inspectors found maggots on patients' catheters and cited them for neglect. The pardon allowed Schwartz to avoid paying restitution to victims. Notably, he had donated more than $1 million to right-wing campaigns and Trump-connected lobbyists. Trump then effectively gave him a $5 million break, leaving nursing home victims unpaid.
 
 [https://www.justice.gov/pardon/media/1418296/dl?inline](https://www.justice.gov/pardon/media/1418296/dl?inline)
 
