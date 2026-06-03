@@ -10,6 +10,21 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
 
+### 2017 
+
+2017-01-20 Trump ordered 238 pardons and commutations in his first term. In his second year of his first term he ordered 2000.
+
+[https://www.prisonology.com/blog/trump-makes-news-with-more-pardons-and-commutations](https://www.prisonology.com/blog/trump-makes-news-with-more-pardons-and-commutations)
+
+
+2017-08-25 Trump pardoned sheriff Joe Arpaio who was found guilty of criminal contempt of court for defying a federal judge’s orders to stop his deputies from racially profiling and detaining Latino motorists suspected of being undocumented.
+
+[https://trumpwhitehouse.archives.gov/briefings-statements/president-trump-pardons-sheriff-joe-arpaio/](https://trumpwhitehouse.archives.gov/briefings-statements/president-trump-pardons-sheriff-joe-arpaio/)
+
+[https://www.aclu.org/press-releases/aclu-comment-trump-pardon-joe-arpaio-0](https://www.aclu.org/press-releases/aclu-comment-trump-pardon-joe-arpaio-0)
+
+
+
 ### 2024
 
 2024-05-01 Governor Greg Abbott gave a full pardon to Daniel Perry, the former US Army sergeant who murdered Garrett Foster during a Black Lives Matter protest in Austin Texas in July of 2020. Prior to Perry murdering a protestor, he posted online “I’m going to go kill a protester”.
@@ -34,6 +49,15 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight](https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight)
 
+2026-01-20 When Trump pardoned 1500 J6 insurrectionists (including Proud Boys leader Enrique Tarrio), he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods. 
+
+[https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735](https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735)
+
+[https://www.bbc.com/news/articles/c5y7l47xrpko](https://www.bbc.com/news/articles/c5y7l47xrpko)
+
+[https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund](https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund)
+
+
 2025-01-23 Trump pardoned 2 DC officers who were convicted in a fatal crash.
 
 [https://www.nbcnews.com/news/us-news/trump-pardons-two-dc-officers-convicted-fatal-chase-20-year-old-man-co-rcna188920](https://www.nbcnews.com/news/us-news/trump-pardons-two-dc-officers-convicted-fatal-chase-20-year-old-man-co-rcna188920)
@@ -45,6 +69,41 @@ permalink: /categories/crime-ethics-defiance/pardons/
 2025-01-23 Trump pardoned anti-abortion activists who blockaded clinic entrances, violated the FACE Act by severely harassing doctors and patients. Page 558 of **Project 2025 outlines recommendations to question and/or dismantle the FACE Act**.
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
+
+2026-01-20 Trump pardoned Andrew Paul Johnson, who was charged for storming the Capitol. Once released, he sexually abused a child, then tried to buy the child’s silence by telling the child victim he was going to give them $10M. 
+
+[https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627](https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627)
+
+[https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison](https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison)
+
+[https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf](https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf)
+
+2026-01-20 Due to Trumps pardons, he has taken a $1.3B away from victims and survivors in restitution. 
+
+[https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/](https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/)
+
+[https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/](https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/)
+
+2026-01-20 Of the many people who petitioned for pardons, Trump granted clemency to only 10 through the formal process. He personally selected the rest, often without providing a clear rationale. There is a recurring pattern though: significant media attention, financial connections, or Trump's personal interests and vanity.
+
+[https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists](https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists)
+
+[https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful](https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful)
+
+[https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy](https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy)
+
+[https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
+
+2026-01-21 Trump pardoned Russ Ulbricht who founded the dark web’s Silk Road marketplace which listed more than 13,000 illegal substances for sale.   
+
+[https://www.justice.gov/pardon/media/1386096/dl?inline](https://www.justice.gov/pardon/media/1386096/dl?inline)
+
+[https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht](https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht)
+
+[https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi](https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi)
+
+
+
 
 ### 2025 March
 
@@ -84,6 +143,9 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html](https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html)
 
+2026-03-31 Since the J6 pardons, several of them reoffended and had been charged with assault, harassment, and murder plots.
+
+PAY WALL [https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-recidivism.html](https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-recidivism.html)
 
 ### 2025 April
 
@@ -111,6 +173,10 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 
 ### 2025 May
+
+2026-05-13 Trump announced the possible pardons of 250 more criminals for America’s 250th. 
+
+PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-to-mark-americas-250th-20fccfbc](https://www.wsj.com/politics/policy/white-house-explores-250-pardons-to-mark-americas-250th-20fccfbc)
 
 2025-05-27 Trump pardoned Todd and Julie Chrisley who were convicted of bank fraud and tax evasion in 2022. Their daughter advocated for the pardon, saying her parents were victims of a weaponized justice system because of their conservative views.
 
