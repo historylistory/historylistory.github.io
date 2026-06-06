@@ -388,3 +388,16 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
 
+
+### 2026 June
+
+2026-06-03 Republicans joined Democrats in a House vote 215 to 208 to end the war in Iran. It is only symbolic; even if it passes the Senate it would still require Trump’s signature.
+
+[https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/](https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/)
+
+[https://thehill.com/homenews/house/5908560-iran-war-resolution-house/](https://thehill.com/homenews/house/5908560-iran-war-resolution-house/)
+
+[https://patryan.house.gov/media/press-releases/congressman-pat-ryan-votes-end-war-iran-fourth-time-resolution-successfully](https://patryan.house.gov/media/press-releases/congressman-pat-ryan-votes-end-war-iran-fourth-time-resolution-successfully)
+
+[https://www.npr.org/2026/06/03/nx-s1-5845102/house-iran-war-powers-vote](https://www.npr.org/2026/06/03/nx-s1-5845102/house-iran-war-powers-vote)
+

@@ -263,3 +263,10 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 [https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york](https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york)
 
 [https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders](https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders)
+
+### 2026 June
+
+2026-06-03 Mass protests emerged in Albania over Jared Kushner and Ivanka Trump’s purchase of protected land to develop resorts.
+
+[https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4](https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4)
+

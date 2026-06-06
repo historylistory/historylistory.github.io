@@ -370,3 +370,13 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)
+
+### 2026 June
+
+
+2026-06-05 The Senate passed a $70B ICE funding budget.
+
+[https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html](https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html)
+
+[https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund](https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund)
+

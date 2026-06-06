@@ -49,3 +49,10 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
 
+### 2026 June
+
+2026-06-05 The Senate passed a $70B ICE funding budget.
+
+[https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html](https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html)
+
+[https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund](https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund)

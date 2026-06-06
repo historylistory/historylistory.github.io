@@ -154,3 +154,8 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://nypost.com/2026/05/18/us-news/nyc-air-quality-alert-as-temperatures-soar-into-the-90s/](https://nypost.com/2026/05/18/us-news/nyc-air-quality-alert-as-temperatures-soar-into-the-90s/)
 
+### 2026 June
+
+2026-06-01 The drought crisis forced farmers to navigate water shortages. 
+
+[https://www.youtube.com/watch?v=twRvurz-Hhk&list=WL&index=6](https://www.youtube.com/watch?v=twRvurz-Hhk&list=WL&index=6)

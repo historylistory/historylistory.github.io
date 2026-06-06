@@ -596,3 +596,10 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.nbcnews.com/politics/national-security/trump-william-pulte-acting-director-national-intelligence-tulsi-gabbar-rcna348036](https://www.nbcnews.com/politics/national-security/trump-william-pulte-acting-director-national-intelligence-tulsi-gabbar-rcna348036)
 
 [https://www.bbc.com/news/articles/cyv2dpyz3dpo](https://www.bbc.com/news/articles/cyv2dpyz3dpo)
+
+2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies. 
+
+[https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts](https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts)
+
+[https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html](https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html)
+

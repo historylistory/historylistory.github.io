@@ -405,3 +405,14 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh](https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh)
 
 [https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s](https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s)
+
+
+
+### 2026 June
+
+
+2026-06-03 Vivek Ramaswamy said, “…actually a Black baby is probably safer in the inner street of Chicago – in the inner city of Chicago – than in the womb of his own Black mother…”
+
+[https://www.youtube.com/watch?v=hA9ydIiKI7c&list=WL&index=10&t=251s](https://www.youtube.com/watch?v=hA9ydIiKI7c&list=WL&index=10&t=251s)
+
+[https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/](https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/)

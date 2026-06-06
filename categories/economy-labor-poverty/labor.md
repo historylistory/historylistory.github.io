@@ -359,3 +359,16 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 [https://jcpost.com/posts/810852f0-3a16-4d26-a331-b0ddc5bf8cdf](https://jcpost.com/posts/810852f0-3a16-4d26-a331-b0ddc5bf8cdf)
 
 [https://www.cpr.org/2026/05/21/cargill-locks-out-workers-fort-morgan/](https://www.cpr.org/2026/05/21/cargill-locks-out-workers-fort-morgan/)
+
+
+### 2026 June
+
+2026-06-03 Trump signed an EO to make it easier to fire federal workers.
+
+[https://www.youtube.com/watch?v=G02CvewRLD8&list=WL&index=3](https://www.youtube.com/watch?v=G02CvewRLD8&list=WL&index=3)
+
+[https://www.cnn.com/2026/06/03/politics/trump-at-will-federal-workers-executive-order](https://www.cnn.com/2026/06/03/politics/trump-at-will-federal-workers-executive-order)
+
+2026-06-03 On Capitol hill Mark Rubio testified that military operations against Iran were over, while Trump on the same day in the Oval Office told reporters the U.S. attacked Iran recently. 
+
+TIMESTAMP 2:24 [https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2](https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2)

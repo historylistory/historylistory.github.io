@@ -213,3 +213,9 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years](https://www.democracynow.org/2026/5/4/headlines/reporters_without_borders_press_freedom_falls_to_its_lowest_level_in_25_years)
 
 [https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)
+
+2026-05-31 The British government banned two political commentators from entering the U.K. “on the grounds that their presence in the UK may not be conducive to the public good”. Both figures are outspoken in their criticism of Israel. Cenk Uygur posted, “I’ve been banned for criticizing Israel. Are we free anymore?”. Hasan Piker posted, “the uk has revoked my visa as well. All at the behest of israel.”
+
+[https://www.theguardian.com/politics/2026/jun/01/why-two-us-commentators-banned-from-uk-hasan-piker-cenk-uygur](https://www.theguardian.com/politics/2026/jun/01/why-two-us-commentators-banned-from-uk-hasan-piker-cenk-uygur)
+
+[https://www.bbc.com/news/articles/cwy2rxyvvl1o](https://www.bbc.com/news/articles/cwy2rxyvvl1o)

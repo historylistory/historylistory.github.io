@@ -271,3 +271,8 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://www.reuters.com/world/large-pillar-smoke-seen-kyiv-after-air-raid-alert-issued-reuters-witness-reports-2026-06-01/](https://www.reuters.com/world/large-pillar-smoke-seen-kyiv-after-air-raid-alert-issued-reuters-witness-reports-2026-06-01/)
 
 [https://www.france24.com/en/140-00-kyiv-residents-without-power-after-russian-attack](https://www.france24.com/en/140-00-kyiv-residents-without-power-after-russian-attack)
+
+
+2026-06-03 Ukraine struck an oil Depot in St. Petersburg.
+
+[https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9](https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9)

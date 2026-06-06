@@ -186,3 +186,9 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/](https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/)
 
 [https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/](https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/)
+
+2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies. 
+
+[https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts](https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts)
+
+[https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html](https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html)

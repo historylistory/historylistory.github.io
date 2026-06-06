@@ -234,3 +234,7 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 2026-06-01 Orthodox Israeli protestors blocked roads and trains to forgo military draft.
 
 [https://www.youtube.com/watch?v=0C3E4MBf1CQ](https://www.youtube.com/watch?v=0C3E4MBf1CQ)
+
+2026-06-06 Overnight Israel killed 9 civilians including 4 children.
+
+[https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers](https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers)

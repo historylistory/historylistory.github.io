@@ -212,3 +212,10 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york](https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york)
 
 [https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders](https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders)
+
+### 2026 June
+
+2026-06-06 Overnight Israel killed 9 civilians including 4 children.
+
+[https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers](https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers)
+

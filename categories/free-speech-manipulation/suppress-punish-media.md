@@ -424,4 +424,7 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 
 [https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space](https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space)
 
+2026-06-03 CBS fired Scott Pelley of 60 Minutes.
+
+[https://www.pbs.org/newshour/nation/scott-pelley-fired-from-60-minutes-deepening-turmoil-at-cbs-news](https://www.pbs.org/newshour/nation/scott-pelley-fired-from-60-minutes-deepening-turmoil-at-cbs-news)
 

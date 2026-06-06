@@ -58,3 +58,12 @@ permalink: /categories/transportation/air-collisions-2026/
 2026-05-18 Two US Navy jets crashed midair during an air show outside Boise, Idaho.
 
 [https://www.youtube.com/watch?v=uApOtSIouUA&list=WL&index=4](https://www.youtube.com/watch?v=uApOtSIouUA&list=WL&index=4)
+
+
+### 2026 June
+
+2026-06-03 United Flight 169 passed 15 feet above the New Jersey turnpike and hit a light pole.
+
+[https://abc7chicago.com/story/new-details-released-united-plane-flew-15-feet-jersey-turnpike-striking-pole-truck-ntsb-report-says/19239322/](https://abc7chicago.com/story/new-details-released-united-plane-flew-15-feet-jersey-turnpike-striking-pole-truck-ntsb-report-says/19239322/)
+
+[https://abcnews.com/video/133601833/](https://abcnews.com/video/133601833/)
