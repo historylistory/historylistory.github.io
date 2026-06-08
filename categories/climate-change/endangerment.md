@@ -169,3 +169,18 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/](https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/)
 
 [https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s](https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s)
+
+### 2026 June
+
+
+2026-06-06 As outlined in Project 2025 by the Heritage Foundation, Trump dismantled the Ocean Observatories Initiative designed to help with weather reporting and climate change studies. 
+
+[https://oceanographicmagazine.com/news/trump-administration-dismantles-critical-ocean-floor-observation-network/](https://oceanographicmagazine.com/news/trump-administration-dismantles-critical-ocean-floor-observation-network/)
+
+[https://www.surfertoday.com/environment/why-the-ocean-observatories-initiative-is-being-dismantled](https://www.surfertoday.com/environment/why-the-ocean-observatories-initiative-is-being-dismantled)
+
+[https://www.bgr.com/2186782/us-government-dismantle-ocean-observatories-initiative/](https://www.bgr.com/2186782/us-government-dismantle-ocean-observatories-initiative/)
+
+[https://www.eenews.net/articles/trump-admin-is-terminating-a-vast-network-of-ocean-monitors/](https://www.eenews.net/articles/trump-admin-is-terminating-a-vast-network-of-ocean-monitors/)
+
+[https://www.youtube.com/watch?v=yTpETcRkwqI&list=WL&index=3](https://www.youtube.com/watch?v=yTpETcRkwqI&list=WL&index=3)

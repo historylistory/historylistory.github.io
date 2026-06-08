@@ -91,3 +91,11 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd](https://apnews.com/article/mining-moratorium-trump-boundary-waters-permits-3d32cd0f591e0de0bfa3a85e3a7d8ebd)
 
 [https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos](https://earthjustice.org/feature/boundary-waters-canoe-area-wilderness-photos)
+
+### 2026 June
+
+2026-06-04 Trump used a Cold-War era national defense law to grant $700M to coal plants.
+
+[https://apnews.com/article/trump-coal-mining-power-plant-climate-electricity-0a7126d66de97b10f32eaa39b1af669f](https://apnews.com/article/trump-coal-mining-power-plant-climate-electricity-0a7126d66de97b10f32eaa39b1af669f)
+
+[https://www.theguardian.com/us-news/2026/jun/04/trump-coal-defense-production-act](https://www.theguardian.com/us-news/2026/jun/04/trump-coal-defense-production-act)

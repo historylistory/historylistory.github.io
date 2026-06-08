@@ -128,3 +128,11 @@ permalink: /categories/religion/declaring-christian-superiority/
 [https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
 
 [https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)
+
+### 2026 June
+
+2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic. 
+
+[https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s](https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s)
+
+[https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list](https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list)

@@ -690,4 +690,14 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 [https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/](https://www.dailyherald.com/20260530/nation-and-world-politics/pentagon-recruiting-troops-to-watch-white-house-ufc-fights-memos-show/)
 
 [https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/](https://www.thedailybeast.com/trump-humiliated-as-leak-reveals-military-is-recruiting-crowd-for-ufc-white-house-fight/)
- 
+
+### 2026 June
+
+2026-06-07 Trump had a tantrum during an NBC interview and stormed off the set.
+
+[https://www.cnbc.com/2026/06/07/trump-election-fraud-doj-fund-weaponization-storms-out.html](https://www.cnbc.com/2026/06/07/trump-election-fraud-doj-fund-weaponization-storms-out.html)
+
+[https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/](https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/)
+
+PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press](https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press)
+

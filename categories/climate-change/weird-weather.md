@@ -159,3 +159,7 @@ permalink: /categories/climate-change/weird-weather/
 2026-06-01 The drought crisis forced farmers to navigate water shortages. 
 
 [https://www.youtube.com/watch?v=twRvurz-Hhk&list=WL&index=6](https://www.youtube.com/watch?v=twRvurz-Hhk&list=WL&index=6)
+
+2026-06-03 Experts warned that the 2026 El Nino will be the strongest on record. 
+
+[https://www.youtube.com/watch?v=uWkOD_ukuE0&list=WL&index=2](https://www.youtube.com/watch?v=uWkOD_ukuE0&list=WL&index=2)

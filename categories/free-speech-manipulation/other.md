@@ -96,3 +96,13 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-i
 [https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition](https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition)
 
 [https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s](https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s)
+
+### 2026 June
+
+2026-06-07 Trump had a tantrum during an NBC interview and stormed off the set.
+
+[https://www.cnbc.com/2026/06/07/trump-election-fraud-doj-fund-weaponization-storms-out.html](https://www.cnbc.com/2026/06/07/trump-election-fraud-doj-fund-weaponization-storms-out.html)
+
+[https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/](https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/)
+
+PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press](https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press)

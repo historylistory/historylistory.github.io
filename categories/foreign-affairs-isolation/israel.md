@@ -235,6 +235,20 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.youtube.com/watch?v=0C3E4MBf1CQ](https://www.youtube.com/watch?v=0C3E4MBf1CQ)
 
+2026-06-04 A family burned alive in Gaza after Israeli strikes. This is not the first time. Civilians were burned alive during Israeli strikes in October 2024 and April 2025. 
+
+[https://www.youtube.com/shorts/dPLTz5IlqJk](https://www.youtube.com/shorts/dPLTz5IlqJk)
+
+October 2024: [https://www.bbc.com/news/articles/cr54y0qplgvo](https://www.bbc.com/news/articles/cr54y0qplgvo)
+
+October 2024: [https://www.nbcnews.com/news/world/teen-burnt-alive-israeli-strike-gaza-hospital-rcna175595](https://www.nbcnews.com/news/world/teen-burnt-alive-israeli-strike-gaza-hospital-rcna175595)
+
+April 2025: [https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/](https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/)
+
+April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/](https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/)
+
+
 2026-06-06 Overnight Israel killed 9 civilians including 4 children.
 
 [https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers](https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers)
+

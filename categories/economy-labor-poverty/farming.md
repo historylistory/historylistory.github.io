@@ -243,3 +243,13 @@ permalink: /categories/economy-labor-poverty/farming/
 [https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8](https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8)
 
 [https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5](https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5)
+
+2026-06-05 Trump visited a swing district in Wisconsin amidst rising costs for American farmers.  Experts reported numerous farmers are asset heavy and going bankrupt. Farm families held up banners while Trump talked about his reflecting pool project. 
+
+[https://www.youtube.com/watch?v=XtJcWtYqxRI&list=WL&index=1&t=152s](https://www.youtube.com/watch?v=XtJcWtYqxRI&list=WL&index=1&t=152s)
+
+[https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district](https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district)
+
+[https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district](https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district)
+
+SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html](https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html)

@@ -448,3 +448,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 2020 [https://www.pbs.org/newshour/politics/house-votes-to-override-trumps-veto-of-defense-bill](https://www.pbs.org/newshour/politics/house-votes-to-override-trumps-veto-of-defense-bill)
 
 2020 [https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387](https://www.politico.com/news/2020/12/24/republicans-armed-services-ndaa-veto-450387)
+
+### 2026 June
+
+2026-06-05 The White House took over federal grant-making draws, allowing the President to have more partisan power over grants and research. 
+
+[https://www.aip.org/fyi/white-house-plan-to-take-over-federal-grantmaking-draws-criticism-from-science-groups](https://www.aip.org/fyi/white-house-plan-to-take-over-federal-grantmaking-draws-criticism-from-science-groups)
+
+[https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/](https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/)
+
+[https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal](https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal)

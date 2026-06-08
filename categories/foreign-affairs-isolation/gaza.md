@@ -423,3 +423,17 @@ TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-cont
 [https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york](https://www.theguardian.com/us-news/2026/jun/01/democrats-israel-parade-new-york)
 
 [https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders](https://www.jta.org/2026/06/01/ny/smotrichs-surprise-appearance-at-israel-day-parade-sparks-backlash-from-ny-and-jewish-leaders)
+
+### 2026 June
+
+2026-06-04 A family burned alive in Gaza after Israeli strikes. This is not the first time. Civilians were burned alive during Israeli strikes in October 2024 and April 2025. 
+
+[https://www.youtube.com/shorts/dPLTz5IlqJk](https://www.youtube.com/shorts/dPLTz5IlqJk)
+
+October 2024: [https://www.bbc.com/news/articles/cr54y0qplgvo](https://www.bbc.com/news/articles/cr54y0qplgvo)
+
+October 2024: [https://www.nbcnews.com/news/world/teen-burnt-alive-israeli-strike-gaza-hospital-rcna175595](https://www.nbcnews.com/news/world/teen-burnt-alive-israeli-strike-gaza-hospital-rcna175595)
+
+April 2025: [https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/](https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/)
+
+April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/](https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/)

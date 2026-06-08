@@ -488,3 +488,12 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/mondays-campaign-round-up-6-1-26-nancy-mace-snubbed-by-trump-in-gubernatorial-race](https://www.ms.now/rachel-maddow-show/maddowblog/mondays-campaign-round-up-6-1-26-nancy-mace-snubbed-by-trump-in-gubernatorial-race)
 
+### 2026 June
+
+2026-06-04 Pam Bondi shifted blame on Todd Blanche for being in charge of the Epstein files.
+
+[https://www.theguardian.com/us-news/2026/jun/04/pam-bondi-epstein-transcript](https://www.theguardian.com/us-news/2026/jun/04/pam-bondi-epstein-transcript)
+
+[https://spectrumlocalnews.com/us/snplus/politics/2026/06/05/pam-bondi-todd-blanche-epstein-files-investigation-house-oversight-committee-](https://spectrumlocalnews.com/us/snplus/politics/2026/06/05/pam-bondi-todd-blanche-epstein-files-investigation-house-oversight-committee-)
+
+[https://abcnews.com/Politics/bondi-invoked-privilege-declined-answer-questions-interactions-trump/story?id=133598250](https://abcnews.com/Politics/bondi-invoked-privilege-declined-answer-questions-interactions-trump/story?id=133598250)

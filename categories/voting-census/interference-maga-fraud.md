@@ -271,3 +271,13 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
 
 [https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)
+
+### 2026 June
+
+2026-06-02 Despite being missing for several months, Republican Tom Kean won the election in New Jersey’s 12 district after receiving Trump’s endorsement.
+
+[https://www.njspotlightnews.org/2026/06/nj-primary-elections-tom-kean-gets-democratic-challenger-in-bennett/](https://www.njspotlightnews.org/2026/06/nj-primary-elections-tom-kean-gets-democratic-challenger-in-bennett/)
+
+[https://www.bbc.com/news/articles/c5y7nnjlrd5o](https://www.bbc.com/news/articles/c5y7nnjlrd5o)
+
+SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilot-wins-primary-to-try-unseating-tom-kean-jr-in-new-jerseys-most-contested-house-race-00947722](https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilot-wins-primary-to-try-unseating-tom-kean-jr-in-new-jerseys-most-contested-house-race-00947722)

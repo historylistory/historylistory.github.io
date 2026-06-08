@@ -373,10 +373,23 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 ### 2026 June
 
+2026-06-04 Trump used a Cold-War era national defense law to grant $700M to coal plants.
+
+[https://apnews.com/article/trump-coal-mining-power-plant-climate-electricity-0a7126d66de97b10f32eaa39b1af669f](https://apnews.com/article/trump-coal-mining-power-plant-climate-electricity-0a7126d66de97b10f32eaa39b1af669f)
+
+[https://www.theguardian.com/us-news/2026/jun/04/trump-coal-defense-production-act](https://www.theguardian.com/us-news/2026/jun/04/trump-coal-defense-production-act)
 
 2026-06-05 The Senate passed a $70B ICE funding budget.
 
 [https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html](https://www.cnbc.com/2026/06/05/senate-passes-70-billion-in-new-funds-for-ice-border-patrol.html)
 
 [https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund](https://www.npr.org/2026/06/05/nx-s1-5847589/senate-passes-immigration-enforcement-bill-without-limits-on-trump-settlement-fund)
+
+2026-06-05 The White House took over federal grant-making draws, allowing the President to have more partisan power over grants and research. 
+
+[https://www.aip.org/fyi/white-house-plan-to-take-over-federal-grantmaking-draws-criticism-from-science-groups](https://www.aip.org/fyi/white-house-plan-to-take-over-federal-grantmaking-draws-criticism-from-science-groups)
+
+[https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/](https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/)
+
+[https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal](https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal)
 

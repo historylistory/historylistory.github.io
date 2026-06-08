@@ -367,3 +367,11 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 [https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
 
 [https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)
+
+### 2026 June
+
+2026-06-02 Shortly after Trump pardoned George Santos, Kalshi prediction markets reported Santos for insider trading. 
+
+[phttps://www.npr.org/2026/06/02/nx-s1-5843371/george-santos-kalshi-insider-trading-investigation](https://www.npr.org/2026/06/02/nx-s1-5843371/george-santos-kalshi-insider-trading-investigation)
+
+[https://www.reuters.com/legal/government/kalshi-reports-george-santos-us-prosecutors-over-prediction-market-bets-ap-2026-06-03/](https://www.reuters.com/legal/government/kalshi-reports-george-santos-us-prosecutors-over-prediction-market-bets-ap-2026-06-03/)
