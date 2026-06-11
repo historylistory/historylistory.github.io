@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 ### 2009
 
-2009-04-13 Founder of PayPal and Palantir Peter Thiel wrote in an essay The Education of a Libertarian, *“The 1920s were the last decade in American history during which one could be genuinely optimistic about politics. Since 1920, the vast increase in welfare beneficiaries and the extension of the franchise to women – two constituencies that are notoriously tough for libertarians – have rendered the notion of ‘capitalist democracy’ into an oxymoron”.* Peter Thiel also wrote, *“…I no longer believe that freedom and democracy are compatible”.* 
+2009-04-13 Peter Thiel wrote in The Education of a Libertarian that expanded welfare and women’s suffrage made “capitalist democracy” an oxymoron, adding that he no longer believed “freedom and democracy are compatible.”
 
 [https://www.cato-unbound.org/2009/04/13/peter-thiel/education-libertarian/](https://www.cato-unbound.org/2009/04/13/peter-thiel/education-libertarian/)
 

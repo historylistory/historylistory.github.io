@@ -30,7 +30,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 2016
 
-2016-01-01 A Cambridge Analytica whistleblower uncovered that data was harvested for political advertising, and **the Trump 2016 campaign used that harvested data to build psychographic profiles of users' personality traits** based on Facebook activity. In the oral evidence transcript dated February 27, 2018, Trump comes up 24 times and Cruz comes up 17 times when I did a search. The following year, Mark Zuckerberg testified in front of Congress and was fined **$5 billion**.
+2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
 [https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal](https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal)
 

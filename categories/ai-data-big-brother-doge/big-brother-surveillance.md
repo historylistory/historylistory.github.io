@@ -33,7 +33,7 @@ Think About:
 
 ### 2003 
 
-2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence agencies. It is a data mining and surveillance company. On the upside, it is a very powerful tool for security. On the other hand, nearly anyone could potentially pay to misuse its technology for things like AI-driven warfare, predictive policing, beta-testing on civilians, and warfare. In 2025 alone, the Department of Defense paid a $113M contract for defense on top of the existing $795M it had, and ICE paid $30M to get real-time data on tracking immigrants.
+2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
 
 [https://en.wikipedia.org/wiki/Palantir#:~:text=Its%20flagship%20products%E2%80%94Gotham%20(for%20intelligence%20and%20defense),was%20founded%20in%202003%20by%20Peter%20Thiel%2C](https://en.wikipedia.org/wiki/Palantir)
 
@@ -57,7 +57,7 @@ Think About:
 
 ### 2016
 
-2016-01-01 A Cambridge Analytica whistleblower uncovered that data was harvested for political advertising, and **the Trump 2016 campaign used that harvested data to build psychographic profiles of users' personality traits** based on Facebook activity. In the oral evidence transcript dated February 27, 2018, Trump comes up 24 times and Cruz comes up 17 times when I did a search.
+2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
 [https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal](https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal)
 
@@ -67,7 +67,7 @@ Think About:
 
 ### 2017
 
-2017-04-01 Project Mavin is a Palantir-run system which helps the Pentagon pick bomb targets. 
+2017-04-01 Project Maven, run by Palantir, helped the Pentagon identify bomb targets.
 
 [https://en.wikipedia.org/wiki/Project_Maven](https://en.wikipedia.org/wiki/Project_Maven)
 
