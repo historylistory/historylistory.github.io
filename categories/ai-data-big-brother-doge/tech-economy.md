@@ -41,7 +41,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2024 
 
-2024-05-06 According to a few articles, lawmakers allegedly admitted the reason they wanted TikTok banned was over pro-Palestinian content. 
+2024-05-06 Reports claimed lawmakers admitted TikTok ban efforts were tied to pro-Palestinian content. 
 
 [https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/](https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/)
 

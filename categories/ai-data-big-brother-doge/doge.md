@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2024 November
 
-2024-11-12 Trump selected Elon Musk and Ramaswamy to lead DOGE. Three months later in February the White House claimed Musk was not part of DOGE, then in March the White House claimed Musk was leading DOGE. All the while Musk was sending out his “What did you do last week” emails.
+2024-11-12 Trump appointed Elon Musk and Vivek Ramaswamy to DOGE. The White House later alternated between claiming Musk was and was not leading DOGE. Musk was sending out his “What did you do last week” emails.
 
 [https://www.npr.org/2024/11/12/g-s1-33972/trump-elon-musk-vivek-ramaswamy-doge-government-efficiency-deep-state](https://www.npr.org/2024/11/12/g-s1-33972/trump-elon-musk-vivek-ramaswamy-doge-government-efficiency-deep-state)
 

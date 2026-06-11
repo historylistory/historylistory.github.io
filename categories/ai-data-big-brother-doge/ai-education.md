@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-education/
 
 ### 2024
 
-2024-07-30 Studies dating back to 2024 show AI hallucinations were frequent: at a staggering 79%.
+2024-07-30 Studies reported AI hallucination rates as high as 79%.
 
 [https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information](https://www.captechu.edu/blog/combatting-ai-hallucinations-and-falsified-information)
 

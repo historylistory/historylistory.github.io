@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 ### Commentary
 
-2024-12-27 Algorithms are designed to survey consumer behavior. It may be important to consider why Trump keeps tech giants in his back pocket.  
+2024-12-27 Algorithms increasingly tracked user behavior, fueling concerns over tech-billionaire influence and surveillance.
 
 [https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
 
@@ -45,7 +45,7 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 ### 2024 
 
-2024-05-06 According to a few articles, lawmakers allegedly admitted the reason they wanted TikTok banned was over pro-Palestinian content. 
+2024-05-06 Reports claimed lawmakers admitted TikTok ban efforts were tied to pro-Palestinian content. 
 
 [https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/](https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/)
 
