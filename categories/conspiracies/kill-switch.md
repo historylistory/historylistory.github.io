@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/kill-switch/
 
 ### 2021
 
-2021-06-04 Legislation was passed to require new automobiles to have a “kill switch”. It was implemented under the HALT Drunk Driving Act. In its most extreme form, it would allow government officials to remotely activate cars in the case of drunk drivers. Ron DeSantis posted to X, “The idea that the federal government would require auto manufacturers to equip cars with a ‘kill switch’ that can be controlled by the government is something you’d expect in Orwell’s 1984”. Rumors and controversies have spread, with many consumers worried that the function would be used for other purposes outside of safety or infringes upon privacy. 
+2021-06-04 Legislation under the HALT Drunk Driving Act required new vehicles to include “kill switch” technology, sparking privacy and government overreach concerns. Ron DeSantis posted to X, “The idea that the federal government would require auto manufacturers to equip cars with a ‘kill switch’ that can be controlled by the government is something you’d expect in Orwell’s 1984”.
 
 [https://www.congress.gov/bill/117th-congress/house-bill/3684](https://www.congress.gov/bill/117th-congress/house-bill/3684)
 

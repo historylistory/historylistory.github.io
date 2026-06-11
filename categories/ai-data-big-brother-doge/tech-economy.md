@@ -15,19 +15,19 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2020
 
-2020-09-19 Trump said he would give his blessing to a deal in which Oracle and Walmart would partner with TikTok in the U.S., where Walmart would purchase a 7.5% stake, CEO Doug McMillon would serve as one of the five board members, and ByteDance would own the remaining 80%. 
+2020-09-19 Trump backed a TikTok deal where Oracle and Walmart partnered with ByteDance; Walmart would hold 7.5% and ByteDance 80%.
 
 [https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
 
 ### 2023
 
-2023-05-07 Hewlett Packard introduced subscription tier so users would be forced to pay a monthly fee to use their printer. One article explains that the “light” plan of $6.99/month only allows the user to print up to 20 pages from their own printer. The article also cites the company will charge users for printing “over” their allotment, and there are cancellation fees. 
+2023-05-07 HP introduced printer subscription tiers charging monthly fees, print limits, overage fees, and cancellation penalties.
 
 [https://www.pcworld.com/article/2251993/the-nightmare-is-real-hp-makes-printing-a-subscription.html](https://www.pcworld.com/article/2251993/the-nightmare-is-real-hp-makes-printing-a-subscription.html)
 
 [https://www.tomshardware.com/peripherals/printers/hp-begins-subscription-plans-for-its-printers-and-ink-up-to-dollar36-per-month-includes-limits-and-cancellation-fees](https://www.tomshardware.com/peripherals/printers/hp-begins-subscription-plans-for-its-printers-and-ink-up-to-dollar36-per-month-includes-limits-and-cancellation-fees)
 
-2023-11-01 Following the October 7 Hamas attacks on Israel, U.S. lawmakers called for a TikTok ban, claiming the platform had an anti-Israel bias.  One article cites a series of posts by tech venture capitalist Jeff Morris about a “TikTok War”. 
+2023-11-01 After the Hamas attacks on Israel, lawmakers pushed for a TikTok ban over alleged anti-Israel bias; venture capitalist Jeff Morris described a “TikTok War.”
 
 [https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849](https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849)
 

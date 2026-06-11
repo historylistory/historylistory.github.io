@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/microchip-shortage/
 
 ### 2022
 
-2022-08-11 After the pandemic catalyzed a chip shortage, Biden signed a $53B CHIPS Act into law. 
+2022-08-11 Biden signed the $53B CHIPS Act after pandemic-era chip shortages.
 
 [https://www.cnet.com/tech/computing/global-chip-shortage-gives-us-manufacturing-a-boost/](https://www.cnet.com/tech/computing/global-chip-shortage-gives-us-manufacturing-a-boost/)
 

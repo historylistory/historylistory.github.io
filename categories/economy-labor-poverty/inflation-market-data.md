@@ -49,7 +49,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2022
 
-2022-01-01 Dynamic (or ‘surge’) pricing worsened in 2022, affecting things like airline prices, groceries, travel expenses and ticket prices. The basis of dynamic pricing is to use algorithms to determine the maximum amount of money people are willing to pay for a service or good and exploit that data with the intent of squeezing every available dollar out of every working citizen. The dynamic pricing crisis expanded to digital price-tags and markups, removal of price tags altogether, and price surging at certain times of the day or week. The Iran war, Trump’s tariffs, and emerging “K” economy of 2026 may have exacerbated it. 
+2022-01-01 AI-driven dynamic pricing expanded across airlines, groceries, travel, and retail, using algorithms to maximize what consumers would pay. The Iran war, Trump’s tariffs, and emerging “K” economy of 2026 may have exacerbated it.
 
 [https://www.cnbc.com/2026/03/17/iran-war-oil-price-surge-worsen-k-shaped-economy-say-economists.html	](https://www.cnbc.com/2026/03/17/iran-war-oil-price-surge-worsen-k-shaped-economy-say-economists.html	)
 

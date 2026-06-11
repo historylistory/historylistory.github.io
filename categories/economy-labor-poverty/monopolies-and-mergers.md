@@ -308,7 +308,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### TikTok/ByteDance
 
-2020-09-19 Trump said he would give his blessing to a deal in which Oracle and Walmart would partner with TikTok in the U.S., where Walmart would purchase a 7.5% stake, CEO Doug McMillon would serve as one of the five board members, and ByteDance would own the remaining 80%. 
+2020-09-19 Trump backed a TikTok deal where Oracle and Walmart partnered with ByteDance; Walmart would hold 7.5% and ByteDance 80%.
 
 [https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
 
