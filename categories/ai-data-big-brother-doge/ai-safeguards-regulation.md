@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2025 January
 
-2025-01-14 Biden signed Executive Order 14141 “Advancing U.S. Leadership in Artificial Intelligence Infrastructure” to balance AI development with environmental impacts of data centers.
+2025-01-14 Biden signed Executive Order 14141 on AI infrastructure and environmental impacts
 
 [https://www.quarles.com/newsroom/publications/no-ai-moratorium-for-now-but-what-comes-next](https://www.quarles.com/newsroom/publications/no-ai-moratorium-for-now-but-what-comes-next)
 
@@ -20,7 +20,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 [https://www.federalregister.gov/documents/2023/11/01/2023-24283/safe-secure-and-trustworthy-development-and-use-of-artificial-intelligence](https://www.federalregister.gov/documents/2023/11/01/2023-24283/safe-secure-and-trustworthy-development-and-use-of-artificial-intelligence)
 
-2025-01-23 Trump signed an executive order “Removing Barriers to American Leadership in Artificial Intelligence”
+2025-01-23 Trump signed the executive order “Removing Barriers to American Leadership in Artificial Intelligence
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/removing-barriers-to-american-leadership-in-artificial-intelligence/](https://www.whitehouse.gov/presidential-actions/2025/01/removing-barriers-to-american-leadership-in-artificial-intelligence/)
 

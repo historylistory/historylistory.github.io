@@ -16,7 +16,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 February
 
-2025-02-17 The Trump administration stated Elon Musk was not the leader of DOGE and issue a document calling Musk a "non-career Special Government Employee" who holds no formal authority to make government decisions himself.
+2025-02-17 The Trump administration stated Elon Musk was not DOGE’s leader, calling him a “Special Government Employee” without formal authority.
 
 [https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639](https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639)
 

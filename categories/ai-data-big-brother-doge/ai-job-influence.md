@@ -14,7 +14,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-job-influence/
 
 ### 2025 April
 
-2025-04-08 Companies started using AI to scan and read resumes, automate which candidates are more suitable by matching applications with keywords, and drop candidates who didn’t meet certain criteria or match algorithms. So basically AI performs like a job gatekeeper even before resumes are being viewed by human eyes.
+2025-04-08 Companies increasingly used AI to scan resumes, rank candidates, and reject applicants before human review.
 
 [https://www.cnn.com/2025/04/08/tech/ai-resume-job-hunters](https://www.cnn.com/2025/04/08/tech/ai-resume-job-hunters)
 

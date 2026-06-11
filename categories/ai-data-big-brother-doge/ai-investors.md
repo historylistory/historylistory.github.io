@@ -36,7 +36,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-investors/
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
 
-2025-01-21 Trump announced a $500 billion private sector investment for AI infrastructure by Stargate
+2025-01-21 Trump announced the $500B private-sector AI infrastructure investment through Stargate.
 
 [https://www.cnn.com/2025/01/21/tech/openai-oracle-softbank-trump-ai-investment](https://www.cnn.com/2025/01/21/tech/openai-oracle-softbank-trump-ai-investment)
 

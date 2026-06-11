@@ -145,7 +145,7 @@ Think About:
 
 ### 2025 January
 
-2025-01-18 The U.S. banned TikTok for about 15 hours, claiming it was a security risk. Then the Trump administration strong-armed ByteDance to sell to a US-based company on January 22, 2026. According to an article with CNN, “there is no public evidence that Beijing has actually harvested TikTok’s commercial data for intelligence or other purposes”. 
+2025-01-18 The U.S. temporarily banned TikTok for about 15 hours, then pressured ByteDance to sell to a U.S. company despite CNN reporting no public evidence China harvested TikTok user data.
 
 [https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
 
@@ -166,13 +166,13 @@ Think About:
 
 ### 2025 February
 
-2025-02-01 DOGE was given unbridled access to payroll and coding.
+2025-02-01 DOGE received extensive access to payroll systems and government code.
 
 [https://www.cbpp.org/research/federal-budget/doge-access-to-treasury-payment-systems-raises-serious-risks](https://www.cbpp.org/research/federal-budget/doge-access-to-treasury-payment-systems-raises-serious-risks)
 
 [https://apnews.com/article/donald-trump-elon-musk-doge-treasury-5e26cc80fcb766981cea56afd57ae759](https://apnews.com/article/donald-trump-elon-musk-doge-treasury-5e26cc80fcb766981cea56afd57ae759)
 
-2025-02-02 Office of Personnel Management employees were locked out of their computer systems.
+2025-02-02 Office of Personnel Management employees were locked out of computer systems.
 
 [https://www.reuters.com/world/us/musk-aides-lock-government-workers-out-computer-systems-us-agency-sources-say-2025-01-31/](https://www.reuters.com/world/us/musk-aides-lock-government-workers-out-computer-systems-us-agency-sources-say-2025-01-31/)
 

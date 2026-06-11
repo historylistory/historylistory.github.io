@@ -78,7 +78,7 @@ permalink: /categories/economy-labor-poverty/big-tech/
 
 [https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it](https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it)
 
-2025-01-18 The U.S. banned TikTok for about 15 hours, claiming it was a security risk. Then the Trump administration strong-armed ByteDance to sell to a US-based company on January 22, 2026. According to an article with CNN, “there is no public evidence that Beijing has actually harvested TikTok’s commercial data for intelligence or other purposes”. 
+2025-01-18 The U.S. temporarily banned TikTok for about 15 hours, then pressured ByteDance to sell to a U.S. company despite CNN reporting no public evidence China harvested TikTok user data.
 
 [https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
 
