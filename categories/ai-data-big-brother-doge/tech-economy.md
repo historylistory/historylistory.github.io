@@ -94,7 +94,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2025 April
 
-2025-04-12 Apple received a special exemption retroactively back to April 5 2025 from certain Chinese tariffs for their smartphones.
+2025-04-12 Apple received retroactive exemptions from certain Chinese tariffs on smartphones.
 
 [https://www.usatoday.com/story/money/2025/04/12/apple-iphone-trump-tariff-exemption/83059143007/](https://www.usatoday.com/story/money/2025/04/12/apple-iphone-trump-tariff-exemption/83059143007/)
 

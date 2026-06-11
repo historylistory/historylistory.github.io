@@ -145,7 +145,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 June
 
-2025-06-24 The Trump administration scrambled to rehire key federal workers after the sweeping and unscrupulous DOGE firings. Estimates suggest the actions by DOGE between firings and rehiring had cost American taxpayers roughly $135B.
+2025-06-24 The Trump administration scrambled to rehire federal workers after DOGE cuts reportedly cost taxpayers an estimated $135B.
 
 [https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired](https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired)
 

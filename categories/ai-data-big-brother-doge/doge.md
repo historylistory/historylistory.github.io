@@ -22,7 +22,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 June
 
-2025-06-24 The Trump administration scrambled to rehire key federal workers after the sweeping and unscrupulous DOGE firings. Estimates suggest the actions by DOGE between firings and rehiring had cost American taxpayers roughly $135B.
+2025-06-24 The Trump administration scrambled to rehire federal workers after DOGE cuts reportedly cost taxpayers an estimated $135B.
 
 [https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired](https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired)
 
@@ -32,7 +32,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 July
 
-2025-07-15 The Trump administration defunded CISA – the Cybersecurity and Infrastructure Security Agency – claiming the organization spread misinformation and had been trying to counter online foreign disinformation campaigns. For context, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
+2025-07-15 The Trump administration defunded CISA, accusing it of spreading misinformation and combating foreign disinformation. Interesting sidenote, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
 
 [https://www.meritalk.com/articles/trump-budget-slashes-cisa-science-funding-boosts-space-mission/](https://www.meritalk.com/articles/trump-budget-slashes-cisa-science-funding-boosts-space-mission/)
 

@@ -26,13 +26,11 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 ### 2025
 
-2025-06-02 Far-right influencer Curtis Yarvin – a software developer and political blogger – writes about autocratic takeovers and neo reactionary movements. Yarvin uses the pen name Mencius Moldbug and advocates a system of government run by CEO-like authoritarians with unchecked power. 
+2025-06-02 Curtis Yarvin promoted authoritarian “CEO-style” government systems and RAGE (“Retire All Government Employees”). JD Vance praised Yarvin’s ideas in a 2021 interview. JD Vance was interviewed in 2021 on Jack Murphy Live, and stated, “There’s this guy Curtis Yarvin who’s written about some of these things…I think that what Trump should do, like, if I was giving him one piece of advice, fire every single mid-level bureaucrat, every civil servant in the administrative state, replace them with our people. And when the courts – because you will get taken to court – and when the courts stop you, stand before the country like Andrew Jackson did and say ‘The chief justice has made his ruling, now let him enforce it’”.
 
 [https://www.britannica.com/biography/Curtis-Yarvin](https://www.britannica.com/biography/Curtis-Yarvin)
 
 [https://www.theguardian.com/us-news/2024/dec/21/curtis-yarvin-trump](https://www.theguardian.com/us-news/2024/dec/21/curtis-yarvin-trump)
-
-2025-06-02 A news article wrote that Curtis Yarvin argued for a policy he called RAGE (Retire All Government Employees) to seize and consolidate power. JD Vance was interviewed in 2021 on Jack Murphy Live, and stated, *“There’s this guy Curtis Yarvin who’s written about some of these things…I think that what Trump should do, like, if I was giving him one piece of advice, fire every single mid-level bureaucrat, every civil servant in the administrative state, replace them with our people. And when the courts – because you will get taken to court – and when the courts stop you, stand before the country like Andrew Jackson did and say ‘The chief justice has made his ruling, now let him enforce it’”.* 
 
 [https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile](https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile)
 

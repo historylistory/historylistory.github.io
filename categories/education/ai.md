@@ -8,7 +8,7 @@ permalink: /categories/education/ai/
 
 ### 2025
 
-2025-04-23 Trump signed an Executive Order encouraging schools to use more AI in class. 
+2025-04-23 Trump signed an executive order encouraging greater AI use in schools.
 
 [https://www.whitehouse.gov/presidential-actions/2025/04/advancing-artificial-intelligence-education-for-american-youth/](https://www.whitehouse.gov/presidential-actions/2025/04/advancing-artificial-intelligence-education-for-american-youth/)
 
@@ -21,7 +21,7 @@ permalink: /categories/education/ai/
 [https://whiteboardadvisors.com/executive-order-aims-to-improve-ai-literacy-in-k-12-schools/](https://whiteboardadvisors.com/executive-order-aims-to-improve-ai-literacy-in-k-12-schools/)
 
 
-2025-06-10 An MIT study of timed essays showed that students using ChatGPT for essays experienced cognitive debt. 
+2025-06-10 An MIT essay study suggested students using ChatGPT experienced “cognitive debt.”
 
 [https://time.com/7295195/ai-chatgpt-google-learning-school/](https://time.com/7295195/ai-chatgpt-google-learning-school/)
 

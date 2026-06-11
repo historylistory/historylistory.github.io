@@ -38,7 +38,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 ### 2025 May
 
-2025-05-19 (for context, because AI chatbots are a by-product of information being fed TO it, garbage-in-garbage-out) Elon Musk’s platform Grok spread Holocaust misinformation, Holocaust denial, and claimed white genocide in South Africa. 
+2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and “white genocide” claims.
 
 [https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/](https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/)
 

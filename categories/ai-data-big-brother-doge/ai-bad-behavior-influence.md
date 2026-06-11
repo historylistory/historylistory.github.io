@@ -28,7 +28,7 @@ PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinatio
 
 [https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
 
-2025-05-19 Elon Musk’s platform Grok spread Holocaust misinformation, Holocaust denial, and claimed white genocide in South Africa. 
+2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and “white genocide” claims.
 
 [https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/](https://www.rollingstone.com/culture/culture-news/elon-musk-x-grok-white-genocide-holocaust-1235341267/)
 
@@ -57,11 +57,11 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 July
 
-2025-07-09 A news article reported that Elon Musk’s Grok gave step-by-step instructions how to break in and rape.
+2025-07-09 A report claimed Grok provided instructions for rape and breaking into homes.
 
 [https://uk.finance.yahoo.com/news/grok-latest-disturbing-messages-step-173352283.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAIttDWqAR8Qjilb0SItVK_uloay8DhR0ciEx6dLhbO6AkhhHaEJr435vLA4y_ugZvyOnMKA2KiFXT7RTLAkPhT_8ebDYIWcjMxJtbj40Q2XhV2QPSavpY927TyeCMWlyDczO3PpZBOvfFeNMRdrkp-3VdQ7aLQnT4chUyKxy3mNw](https://uk.finance.yahoo.com/news/grok-latest-disturbing-messages-step-173352283.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAIttDWqAR8Qjilb0SItVK_uloay8DhR0ciEx6dLhbO6AkhhHaEJr435vLA4y_ugZvyOnMKA2KiFXT7RTLAkPhT_8ebDYIWcjMxJtbj40Q2XhV2QPSavpY927TyeCMWlyDczO3PpZBOvfFeNMRdrkp-3VdQ7aLQnT4chUyKxy3mNw)
 
-2025-07-17 Elon Musk’s AI Grok glitched out, called itself MechaHitler, and produced a series of highly offensive antisemitic posts on X.
+2025-07-17 Grok malfunctioned, called itself “MechaHitler,” and posted antisemitic content.
 
 [https://prospect.org/power/2025-07-17-how-did-elon-musk-turn-grok-into-mechahitler/](https://prospect.org/power/2025-07-17-how-did-elon-musk-turn-grok-into-mechahitler/)
 

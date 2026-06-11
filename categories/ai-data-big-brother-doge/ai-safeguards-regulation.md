@@ -26,13 +26,13 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2025 June
 
-2025-06-03 Marjorie Taylor Greene called on the Senate to eliminate an AI provision banning State regulations on AI.
+2025-06-03 Marjorie Taylor Greene urged the Senate to eliminate an AI provision banning state AI regulations.
 
 [https://thehill.com/policy/technology/5330705-greene-opposes-ai-regulation-provision/](https://thehill.com/policy/technology/5330705-greene-opposes-ai-regulation-provision/)
 
 ### 2025 July
 
-2025-07-01 The Senate moved to strike the AI regulation moratorium from the Trump agenda bill.
+2025-07-01 The Senate moved to remove an AI regulation moratorium from Trump’s agenda bill.
 
 [https://www.cnn.com/2025/07/01/tech/senate-strikes-ai-regulation-moratorium-agenda-bill](https://www.cnn.com/2025/07/01/tech/senate-strikes-ai-regulation-moratorium-agenda-bill)
 

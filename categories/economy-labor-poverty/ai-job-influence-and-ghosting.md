@@ -20,7 +20,7 @@ permalink: /categories/economy-labor-poverty/ai-job-influence-and-ghosting/
 
 ### 2025 June
 
-2025-06-26 Candidates started using AI to submit ghost resumes and blanket applications to try to get an edge on the job market.
+2025-06-26 Job applicants increasingly used AI-generated “ghost resumes” and mass applications.
 
 [https://walterareid.medium.com/ghosts-in-the-resume-machine-how-fake-resumes-and-ats-logic-will-eventually-break-hiring-at-scale-83e745c31f9c](https://walterareid.medium.com/ghosts-in-the-resume-machine-how-fake-resumes-and-ats-logic-will-eventually-break-hiring-at-scale-83e745c31f9c)
 

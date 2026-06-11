@@ -155,7 +155,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2025 June
 
-2025-06-02 Leaked emails exposed DHS use of mobile app Mobile Fortify, which used face scanning technology to put protestors in an ICE database.
+2025-06-02 Leaked emails exposed DHS use of the face-scanning app Mobile Fortify to add protestors to ICE databases.
 
 [https://en.wikipedia.org/wiki/Mobile_Fortify#:~:text=In%20June%202025%2C%20use%20of,%2C%20China%2C%20India%20and%20Malaysia](https://en.wikipedia.org/wiki/Mobile_Fortify).
 
