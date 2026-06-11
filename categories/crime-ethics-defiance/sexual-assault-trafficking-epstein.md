@@ -454,3 +454,13 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)
 
+### 2026 June
+
+2026-06-10 The NYT reported how the Epstein files caused extreme panic within the White House.
+
+[https://www.youtube.com/watch?v=NXuOz2BFxLk&list=WL&index=8&t=265s](https://www.youtube.com/watch?v=NXuOz2BFxLk&list=WL&index=8&t=265s)
+
+[https://www.nytimes.com/2026/06/10/magazine/trump-epstein-files-white-house-vance-doj.html](https://www.nytimes.com/2026/06/10/magazine/trump-epstein-files-white-house-vance-doj.html)
+
+[https://www.youtube.com/watch?v=8ETW_nTcJyo](https://www.youtube.com/watch?v=8ETW_nTcJyo)
+

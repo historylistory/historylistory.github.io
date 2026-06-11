@@ -422,3 +422,11 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 [https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf](https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf)
 
 SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/](https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/)
+
+### 2026 June
+
+2026-06-10 Representative Maxwell Frost of Florida wrote, “Instead of investing in you and ensuring you can afford your healthcare, groceries, or rent – they chose to hand $70 BILLION to agencies operating without any guardrails while terrorizing and brutalizing our communities.”
+
+[https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)
+
+[https://www.commondreams.org/news/house-republicans-2677019857](https://www.commondreams.org/news/house-republicans-2677019857)

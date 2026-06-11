@@ -596,3 +596,12 @@ SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-h
 [https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)
 
 [https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
+
+### 2026 June
+
+
+2026-06-10 Representative Maxwell Frost of Florida wrote, “Instead of investing in you and ensuring you can afford your healthcare, groceries, or rent – they chose to hand $70 BILLION to agencies operating without any guardrails while terrorizing and brutalizing our communities.”
+
+[https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)
+
+[https://www.commondreams.org/news/house-republicans-2677019857](https://www.commondreams.org/news/house-republicans-2677019857)

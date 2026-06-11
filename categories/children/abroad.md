@@ -219,3 +219,8 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 
 [https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers](https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers)
 
+2026-06-10 An investigation by AP found the Trump administration separated children from their families again in violation of a landmark settlement meant to unite children with their parents. 
+
+[https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039](https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039)
+
+[https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time](https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time)

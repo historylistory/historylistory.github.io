@@ -1799,3 +1799,9 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 TIMESTAMP 2:24 [https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2](https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2)
 
+
+2026-06-10 Trump posted Iran was taking too long in negotiations and will have to “pay the price”. This was after U.S. strikes reportedly hit 2 reservoirs in Iran, leaving 20,000 people without access to drinking water. 
+
+TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2)
+
+[https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel](https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel)

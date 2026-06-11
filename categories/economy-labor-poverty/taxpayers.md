@@ -404,3 +404,10 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://apnews.com/article/ice-immigration-crackdown-texas-camp-montana-report-04bc547c02e7241fc73541a4d0ba26ad](https://apnews.com/article/ice-immigration-crackdown-texas-camp-montana-report-04bc547c02e7241fc73541a4d0ba26ad)
 
 [https://www.nbcnews.com/news/us-news/-ice-camp-east-montana-gao-report-tuberculosis-guard-lost-gun-rcna349213](https://www.nbcnews.com/news/us-news/-ice-camp-east-montana-gao-report-tuberculosis-guard-lost-gun-rcna349213)
+
+
+2026-06-10 Representative Maxwell Frost of Florida wrote, “Instead of investing in you and ensuring you can afford your healthcare, groceries, or rent – they chose to hand $70 BILLION to agencies operating without any guardrails while terrorizing and brutalizing our communities.”
+
+[https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)
+
+[https://www.commondreams.org/news/house-republicans-2677019857](https://www.commondreams.org/news/house-republicans-2677019857)

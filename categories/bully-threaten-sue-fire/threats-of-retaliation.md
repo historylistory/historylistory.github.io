@@ -742,3 +742,11 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 [https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)
+
+### 2026 June
+
+2026-06-10 Trump posted Iran was taking too long in negotiations and will have to “pay the price”. This was after U.S. strikes reportedly hit 2 reservoirs in Iran, leaving 20,000 people without access to drinking water. 
+
+TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2)
+
+[https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel](https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel)

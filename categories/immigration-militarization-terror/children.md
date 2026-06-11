@@ -193,3 +193,11 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings](https://www.propublica.org/article/trump-immigration-child-parent-separation-estimates-brookings)
 
 [https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/](https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/)
+
+### 2026 June
+
+2026-06-10 An investigation by AP found the Trump administration separated children from their families again in violation of a landmark settlement meant to unite children with their parents. 
+
+[https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039](https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039)
+
+[https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time](https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time)
