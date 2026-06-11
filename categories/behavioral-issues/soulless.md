@@ -698,3 +698,12 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html](https://www.cnbc.com/2026/05/22/trump-wedding-donald-bettina-anderson-bahamas.html)
 
 [https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html)
+
+### 2026 June
+
+2026-06-09 The UN documented hundreds of cases of extrajudicial punishment in Gaza including knee capping and bone breaking with metal pipes. 
+
+[https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians](https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians)
+
+[https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)
+

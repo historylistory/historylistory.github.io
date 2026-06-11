@@ -32,6 +32,16 @@ permalink: /categories/education/villainizing-rhetoric/
 
 {% include youtubePlayer.html id="0FR65Cifnhw" %}
 
+### 2023 
+
+2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign. 
+
+[https://www.whathappenedtonewcollege.org/](https://www.whathappenedtonewcollege.org/)
+
+[https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755](https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755)
+
+[https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s](https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s)
+
 ### 2025 September
 
 2025-09-14 During a prayer vigil for Kirk, Kari Lake addressed the crowd with conspiracy theories that the suspect was "brainwashed" by woke. She went on to “warn” parents not to send their children to universities, which she labeled "indoctrination camps". This is important because she is the senior advisor for the US Agency for Global Media and could potentially hold a lot of unchecked power in the media. For context, Kari Lake also helped stir controversy in 2022 when she demanded ballots be counted by hand.

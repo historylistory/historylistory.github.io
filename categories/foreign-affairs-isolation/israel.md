@@ -252,3 +252,9 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers](https://www.npr.org/2026/06/06/nx-s1-5848595/israeli-airstrikes-kill-lebanese-army-officers)
 
+
+2026-06-09 The UN documented hundreds of cases of extrajudicial punishment in Gaza including knee capping and bone breaking with metal pipes. 
+
+[https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians](https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians)
+
+[https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)

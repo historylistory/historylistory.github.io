@@ -18,6 +18,17 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 
 [https://time.com/4536212/james-okeefe-project-veritas-video-democrats/](https://time.com/4536212/james-okeefe-project-veritas-video-democrats/)
 
+### 2023 March
+
+2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign. 
+
+[https://www.whathappenedtonewcollege.org/](https://www.whathappenedtonewcollege.org/)
+
+[https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755](https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755)
+
+[https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s](https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s)
+
+
 ### 2023 October
 
 2023-10-01 At least since the Gaza war, Israel reportedly launched a multi-million-dollar global propaganda campaign, paying influencers to say positive things about Israel, and funding tours for MAGA and pro-Trump influencers. In November 2025 FARA (Foreign Agents Registration Act) filed complaints against the Israeli government.

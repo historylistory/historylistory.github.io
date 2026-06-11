@@ -325,3 +325,13 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 [https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf](https://www.illiberalism.org/wp-content/uploads/2025/11/IERES-occasional-papers-32-october-2025-3.pdf-3.pdf)
 
 SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/](https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-launches-maga-revolt-from-far-right-remigration-summit/)
+
+### 2026 June
+
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+
+[https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
+
+[https://www.justice.gov/opa/media/1437146/dl?inline](https://www.justice.gov/opa/media/1437146/dl?inline)
+
+[https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668](https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668)

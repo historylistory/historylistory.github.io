@@ -195,3 +195,11 @@ PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-na
 PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
 
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
+
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+
+[https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
+
+[https://www.justice.gov/opa/media/1437146/dl?inline](https://www.justice.gov/opa/media/1437146/dl?inline)
+
+[https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668](https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668)

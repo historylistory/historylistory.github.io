@@ -28,6 +28,15 @@ The publication “A Short History of the Department of State” was retired.
 
 ### 2023
 
+2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign. 
+
+[https://www.whathappenedtonewcollege.org/](https://www.whathappenedtonewcollege.org/)
+
+[https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755](https://apnews.com/article/desantis-new-college-florida-woke-timeline-5a5bcd78230ddd2a1adb8021fea8a755)
+
+[https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s](https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s)
+
+
 2023-10-23 News outlets reported that U.S. House Republicans are increasingly banning and censoring books in school libraries.
 
 [https://pen.org/report/the-normalization-of-book-banning/](https://pen.org/report/the-normalization-of-book-banning/)
@@ -104,3 +113,4 @@ The publication “A Short History of the Department of State” was retired.
 [https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article](https://www.chemistryworld.com/news/trump-administration-fires-entire-board-of-uss-national-science-foundation-without-warning/4023353.article)
 
 [https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/](https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/)
+

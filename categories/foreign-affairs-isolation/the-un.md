@@ -89,3 +89,12 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 [https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist](https://www.foodbev.com/news/fao-warns-of-looming-food-inflation-crisis-if-strait-of-hormuz-disruptions-persist)
 
 [https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en)
+
+### 2026 June
+
+2026-06-09 The UN documented hundreds of cases of extrajudicial punishment in Gaza including knee capping and bone breaking with metal pipes. 
+
+[https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians](https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians)
+
+[https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)
+

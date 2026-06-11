@@ -195,3 +195,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 [https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/](https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/)
 
 TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4)
+
+### 2026 June
+
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+
+[https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
+
+[https://www.justice.gov/opa/media/1437146/dl?inline](https://www.justice.gov/opa/media/1437146/dl?inline)
+
+[https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668](https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668)

@@ -269,3 +269,15 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.cbsnews.com/newyork/news/delaney-hall-newark-nj-ice/](https://www.cbsnews.com/newyork/news/delaney-hall-newark-nj-ice/)
 
 [https://abcnews.com/US/newark-sue-feds-close-delaney-hall-ice-facility/story?id=133513879](https://abcnews.com/US/newark-sue-feds-close-delaney-hall-ice-facility/story?id=133513879)
+
+2026-06-09 A new report from the Government Accountability Office was released on ICE detention facility Camp East Montana which cited “serious performance and oversight challenges” and a huge drain in fraud, waste and abuse of taxpayer money. 
+
+[https://www.youtube.com/watch?v=-GCnwm8zwyI&list=WL&index=7](https://www.youtube.com/watch?v=-GCnwm8zwyI&list=WL&index=7)
+
+[https://www.npr.org/2026/06/10/nx-s1-5853534/report-ice-wasted-millions-endangered-detainees-in-largest-immigration-facility](https://www.npr.org/2026/06/10/nx-s1-5853534/report-ice-wasted-millions-endangered-detainees-in-largest-immigration-facility)
+
+[https://www.gao.gov/products/gao-26-108886](https://www.gao.gov/products/gao-26-108886)
+
+[https://apnews.com/article/ice-immigration-crackdown-texas-camp-montana-report-04bc547c02e7241fc73541a4d0ba26ad](https://apnews.com/article/ice-immigration-crackdown-texas-camp-montana-report-04bc547c02e7241fc73541a4d0ba26ad)
+
+[https://www.nbcnews.com/news/us-news/-ice-camp-east-montana-gao-report-tuberculosis-guard-lost-gun-rcna349213](https://www.nbcnews.com/news/us-news/-ice-camp-east-montana-gao-report-tuberculosis-guard-lost-gun-rcna349213)
