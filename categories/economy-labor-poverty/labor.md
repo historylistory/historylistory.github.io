@@ -159,7 +159,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.cnbc.com/2025/08/01/us-job-market-jobs-report-july-2025.html](https://www.cnbc.com/2025/08/01/us-job-market-jobs-report-july-2025.html)
 
-2025-08-05 Trump stated that DOGE cuts would be "surgical". Instead, the Trump administration made indiscriminate cuts to a wide chunk of agricultural, educational, scientific, research, environmental, and civil engineering services designed to help millions of Americans thrive. After Elon Musk left DOGE, the Trump administration continued to make slashing cuts across the board, primarily in Democrat-led cities as a retaliatory measure.
+2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions. Trump claimed DOGE cuts would be “surgical”.
 
 [https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 

@@ -100,15 +100,15 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2025 August
 
-2025-08-06 Apple announced it would invest $600B in the U.S. over the next 4 years.
+2025-08-06 Apple announced a $600B U.S. investment over 4 years. 
 
 [https://www.apple.com/newsroom/2025/08/apple-increases-us-commitment-to-600-billion-usd-announces-ambitious-program/](https://www.apple.com/newsroom/2025/08/apple-increases-us-commitment-to-600-billion-usd-announces-ambitious-program/)
 
-2025-08-07 Trump called for the Intel CEO to resign, causing its stock to tumble.
+2025-08-07 Trump called for Intel’s CEO to resign, causing the company’s stock to drop.
 
 [https://www.pbs.org/newshour/economy/trump-says-intels-ceo-must-resign-sending-its-stock-tumbling](https://www.pbs.org/newshour/economy/trump-says-intels-ceo-must-resign-sending-its-stock-tumbling)
 
-2025-08-11 Trump changed his mind about the Intel CEO, writing on Truth Social “The meeting was a very interesting one. His success and rise is an amazing story. Mr. Tan and my Cabinet members are going to spend time together and bring suggestions to me during the next week”.
+2025-08-11 Trump reversed course on Intel’s CEO after a meeting, praising his “success and rise”, writing on Truth Social “The meeting was a very interesting one. His success and rise is an amazing story. Mr. Tan and my Cabinet members are going to spend time together and bring suggestions to me during the next week”.
 
 [https://www.cnbc.com/2025/08/11/intel-ceo-trump-lip-bu-tan.html](https://www.cnbc.com/2025/08/11/intel-ceo-trump-lip-bu-tan.html)
 
