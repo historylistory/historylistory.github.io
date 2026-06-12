@@ -69,7 +69,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 ### 2026
 
-2026-04-06 Sam Altman and OpenAI article – New Yorker “Can Sam Altman be Trusted?”
+2026-04-06 The New Yorker published “Can Sam Altman be Trusted?”
 
 [https://www.youtube.com/watch?v=uf_eDlf7h8E&list=WL&index=5](https://www.youtube.com/watch?v=uf_eDlf7h8E&list=WL&index=5)
 
@@ -77,7 +77,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 [https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted](https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted)
 
-2026-04-16 Peter Theil and other tech giants funded Objection, which is an AI tribunal “judge” designed to investigate media claims.
+2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 

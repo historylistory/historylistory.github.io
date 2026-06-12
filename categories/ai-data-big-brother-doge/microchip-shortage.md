@@ -34,7 +34,7 @@ permalink: /categories/ai-data-big-brother-doge/microchip-shortage/
 
 ### 2026 March
 
-2026-03-27 Sony raised its global price of the PlayStation5 due to microchip shortages, effective April 2 2026. 
+2026-03-27 Sony raised PlayStation 5 prices globally due to chip shortages.
 
 [https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)
 
@@ -42,7 +42,7 @@ permalink: /categories/ai-data-big-brother-doge/microchip-shortage/
 
 ### 2026 April
 
-2026-04-16 Footwear company AllBirds pivoted from making shoes to purchasing GPUs that power AI. They will be renamed to NewBird AI. Stocks soared over 500%.
+2026-04-16 AllBirds pivoted from footwear into AI GPUs and announced a rebrand to “NewBird AI.”
 
 [https://www.bbc.com/news/articles/c98mrepzgj7o](https://www.bbc.com/news/articles/c98mrepzgj7o)
 

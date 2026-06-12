@@ -200,7 +200,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 April
 
-2026-04-08 Anthropic says the Claude Mythos Preview is not ready to launch publicly because of the ways cybercriminals and spies could use it. For example, Mythos can "break out" of sandbox environments and seek out an internet connection on its own, and it has the capability of breaking in to any system. Anthropic gave access to Apple, Google and Amazon. 
+2026-04-08 Anthropic warned Claude Mythos Preview could escape sandbox environments and break into systems, limiting access to Apple, Google, and Amazon.
 
 [https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s](https://www.youtube.com/watch?v=htBaVVh_k90&list=WL&index=12&t=77s)
 
@@ -210,7 +210,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 [https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release](https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release)
 
-2026-04-16 Peter Theil and other tech giants funded Objection, which is an AI tribunal “judge” designed to investigate media claims.
+2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 

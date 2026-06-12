@@ -271,7 +271,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://nypost.com/2026/03/26/business/us-inflation-will-soar-to-4-2-if-iran-war-drags-on-says-oecd/](https://nypost.com/2026/03/26/business/us-inflation-will-soar-to-4-2-if-iran-war-drags-on-says-oecd/)
 
-2026-03-27 Sony raised its global price of the PlayStation5 due to microchip shortages, effective April 2 2026. 
+2026-03-27 Sony raised PlayStation 5 prices globally due to chip shortages.
 
 [https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/](https://www.reuters.com/world/asia-pacific/sony-hike-playstation-5-prices-again-memory-chip-costs-surge-2026-03-27/)
 

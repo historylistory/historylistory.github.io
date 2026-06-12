@@ -307,7 +307,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/](https://www.washingtonpost.com/business/2026/04/06/trump-leak-missing-pilot-jail-threat-media/)
 
-2026-04-16 Peter Theil and other tech giants funded Objection, which is an AI tribunal “judge” designed to investigate media claims.
+2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 

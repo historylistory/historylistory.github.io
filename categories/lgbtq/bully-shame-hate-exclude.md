@@ -155,3 +155,10 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.reuters.com/world/us/scouting-america-reaches-accord-with-pentagon-maintain-military-support-2026-02-28/](https://www.reuters.com/world/us/scouting-america-reaches-accord-with-pentagon-maintain-military-support-2026-02-28/)
 
 [https://www.washingtonpost.com/national-security/2026/02/27/hegseth-scouting-america/](https://www.washingtonpost.com/national-security/2026/02/27/hegseth-scouting-america/)
+
+### 2026 April
+
+2026-04-17 Wired reported Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
+
+[https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
+

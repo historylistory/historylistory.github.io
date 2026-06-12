@@ -297,7 +297,7 @@ Think About:
 
 [https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6](https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6)
 
-2026-03-26 In the case of Anthropic refusing to allow unchecked use of their AI tools for autonomous weapons and mass surveillance, District Court Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”. 
+2026-03-26 Judge Rita Lin rejected the Pentagon’s “Orwellian” argument against Anthropic for disagreeing with government AI policy. Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
@@ -309,7 +309,7 @@ Think About:
 
 ### 2026 April
 
-2026-04-08 The White House is requesting access to personal medical records for federal workers, retirees, and their families.
+2026-04-08 The White House requested personal medical records for federal workers, retirees, and families.
 
 [https://www.cnn.com/2026/04/08/health/trump-federal-workers-medical-records-kff](https://www.cnn.com/2026/04/08/health/trump-federal-workers-medical-records-kff)
 
@@ -319,7 +319,7 @@ Think About:
 
 [https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/](https://kffhealthnews.org/news/article/trump-opm-federal-workers-medical-records-privacy/)
 
-2026-04-17 Wired magazine uncovered reports about facial recognition monitoring being used at Madison Square Garden. In part of the report they noted the surveillance system was used to track the movements of a trans woman in part to prevent her image from being seen on TV. Wired obtained an 18-page dossier showing the system tracked all of her movements including when she entered and exited the bathroom. 
+2026-04-17 Wired reported Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
 
