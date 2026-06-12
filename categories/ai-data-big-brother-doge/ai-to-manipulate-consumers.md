@@ -40,7 +40,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-to-manipulate-consumers/
 
 ### 2026 April
 
-2026-04-29 Maryland was the first State to ban dynamic pricing in grocery stores. Dynamic pricing is when companies use AI to charge consumers different prices based on their data, so one customer might pay more for the same product as another customer.
+2026-04-29 Maryland became the first state to ban AI-driven grocery dynamic pricing.
 
 [https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3](https://www.youtube.com/watch?v=ITROfCXUIWM&list=WL&index=3)
 

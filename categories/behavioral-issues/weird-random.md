@@ -265,7 +265,7 @@ FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1
 
 FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
 
-2026-04-18 Palantir posted a 22-point “supervillain” manifesto on X outlining American dominance and power goals, including advocating for nuclear dominance and autonomous AI weapons systems.  In that manifesto they also said that some cultures were "inferior" to others and that "postwar neutering" of Germany and Japan must be undone. 
+2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 

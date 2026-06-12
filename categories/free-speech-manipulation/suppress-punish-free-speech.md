@@ -195,7 +195,7 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)
 
 
-2026-04-30 Congress passed a 45-day extension of the Foreign Intelligence Surveillance Act (FISA) section 702. This is controversial because the bill would allow the government to abuse the power and spy on American citizens while claiming it’s for national security. 
+2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
 
 [https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
 

@@ -323,7 +323,7 @@ Think About:
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
 
-2026-04-30 Congress passed a 45-day extension of the Foreign Intelligence Surveillance Act (FISA) section 702. This is controversial because the bill would allow the government to abuse the power and spy on American citizens while claiming it’s for national security. 
+2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
 
 [https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
 
@@ -335,7 +335,7 @@ Think About:
 
 ### 2026 May
 
-2026-05-05 The Associated Press won a Pulitzer Prize for international reporting on US companies enabling mass detention and surveillance in China.
+2026-05-05 The Associated Press won a Pulitzer Prize for reporting on U.S. companies enabling surveillance and detention in China.
 
 [https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2](https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2)
 
@@ -343,6 +343,6 @@ Think About:
 
 [https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)
 
-2026-05-10 Malware in robot dogs is a national security nightmare.
+2026-05-10 Malware infecting robot dogs raised national-security concerns.
 
 RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8WuXDXfcI](https://www.youtube.com/watch?v=lA8WuXDXfcI)

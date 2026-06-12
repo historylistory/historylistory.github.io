@@ -64,6 +64,6 @@ permalink: /categories/climate-change/ai-impacts/
 
 ### 2026 May
 
-2026-05-22 More reports emerged linking data centers to major environmental issues.
+2026-05-22 More reports linked data centers to major environmental damage.
 
 [https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)

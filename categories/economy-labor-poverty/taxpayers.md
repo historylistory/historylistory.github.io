@@ -287,7 +287,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 [https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business](https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business)
 
-2026-05-05 Protestors joined at the Met Gala to protest Jeff Bezos sponsoring the red-carpet event. They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”. 
+2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 

@@ -89,7 +89,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
 
-2026-04-18 Palantir posted a 22-point “supervillain” manifesto on X outlining American dominance and power goals, including advocating for nuclear dominance and autonomous AI weapons systems. In that manifesto they also said that some cultures were "inferior" to others and that "postwar neutering" of Germany and Japan must be undone. 
+2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 
@@ -113,7 +113,7 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-05 Protestors joined at the Met Gala to protest Jeff Bezos sponsoring the red-carpet event. They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”. 
+2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 
@@ -123,7 +123,7 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
-2026-05-26 Trump scrapped an Executive Order on a proposed safety vetting system for AI. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”. 
+2026-05-26 Trump rescinded a proposed AI safety-vetting executive order, prompting criticism from Senator Mark Kelly about billionaire influence over AI policy. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”.
 
 [https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4](https://www.youtube.com/watch?v=1JcIpIZhdIo&list=WL&index=4)
 

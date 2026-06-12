@@ -55,7 +55,7 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 
 ### 2026 May
 
-2026-05-05 The Associated Press won a Pulitzer Prize for international reporting on US companies enabling mass detention and surveillance in China.
+2026-05-05 The Associated Press won a Pulitzer Prize for reporting on U.S. companies enabling surveillance and detention in China.
 
 [https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2](https://www.youtube.com/watch?v=vGYd6emyk-0&list=WL&index=2)
 

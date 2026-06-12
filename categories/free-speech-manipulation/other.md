@@ -87,7 +87,7 @@ permalink: /categories/free-speech-manipulation/other/
 SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/](https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/)
 
 
-2026-04-30 Congress passed a 45-day extension of the Foreign Intelligence Surveillance Act (FISA) section 702. This is controversial because the bill would allow the government to abuse the power and spy on American citizens while claiming it’s for national security. 
+2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
 
 [https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
 
