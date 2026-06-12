@@ -105,15 +105,21 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 January
 
-2026-01-03 Elon Musk’s AI chatbot Grok started supplying pictures undressing women and children and began creating revenge porn and CSAM material – none of which Musk or states are regulating – because Trump signed an executive order blocking anyone from regulating it.
+2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
-2026-01-12 The DOD awarded a contract to integrate Elon Musk’s GROK with the Pentagon regardless of the endless reports of glitches, sexual content and misuse.
+[https://oag.ca.gov/news/press-releases/attorney-general-bonta-launches-investigation-xai-grok-over-undressed-sexual-ai](https://oag.ca.gov/news/press-releases/attorney-general-bonta-launches-investigation-xai-grok-over-undressed-sexual-ai)
+
+[https://www.theguardian.com/technology/2026/jan/08/ai-chatbot-grok-used-to-create-child-sexual-abuse-imagery-watchdog-says](https://www.theguardian.com/technology/2026/jan/08/ai-chatbot-grok-used-to-create-child-sexual-abuse-imagery-watchdog-says)
+
+[https://www.bbc.com/news/articles/cvg1mzlryxeo](https://www.bbc.com/news/articles/cvg1mzlryxeo)
+
+2026-01-12 The DOD awarded a Pentagon integration contract to Grok despite reports of glitches and explicit content.
 
 [https://www.warren.senate.gov/imo/media/doc/letter_to_pentagon_regarding_integration_of_grok_91025.pdf](https://www.warren.senate.gov/imo/media/doc/letter_to_pentagon_regarding_integration_of_grok_91025.pdf)
 
 [https://www.theguardian.com/technology/2026/jan/13/elon-musk-grok-hegseth-military-pentagon](https://www.theguardian.com/technology/2026/jan/13/elon-musk-grok-hegseth-military-pentagon)
 
-2026-01-12 Malaysia and Indonesia became the first countries to ban Grok due to global concerns over the app generating sexually explicit and nonconsensual content. Meanwhile, Apple and Google continued to carry the app on their platforms.
+2026-01-12 Malaysia and Indonesia banned Grok over explicit and nonconsensual content concerns.
 
 [https://apnews.com/article/grok-malaysia-indonesia-block-c7cb320327f259c4da35908e1269c225](https://apnews.com/article/grok-malaysia-indonesia-block-c7cb320327f259c4da35908e1269c225)
 

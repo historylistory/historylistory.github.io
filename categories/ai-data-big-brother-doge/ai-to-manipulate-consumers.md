@@ -28,7 +28,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-to-manipulate-consumers/
 
 ### 2025 December
 
-2025-12-10 News outlets reported that Instacart and other online shopping tools were experimenting with AI pricing and charging different customers different prices for the same exact items from the same exact storefronts. The investigation material was provided by Groundwork Collaborative.
+2025-12-10 Reports alleged Instacart and other retailers experimented with AI pricing that charged different customers different prices.
 
 [https://www.foxbusiness.com/fox-news-lifestyle/instacarts-ai-pricing-experiment-drives-up-costs-some-shoppers-study-says.amp](https://www.foxbusiness.com/fox-news-lifestyle/instacarts-ai-pricing-experiment-drives-up-costs-some-shoppers-study-says.amp)
 

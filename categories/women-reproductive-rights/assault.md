@@ -105,7 +105,7 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 
 ### 2026 January
 
-2026-01-03 Elon Musk’s AI chatbot Grok started supplying pictures undressing women and children and began creating revenge porn and CSAM material – none of which Musk or states are regulating – because Trump signed an executive order blocking anyone from regulating it.
+2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
 [https://oag.ca.gov/news/press-releases/attorney-general-bonta-launches-investigation-xai-grok-over-undressed-sexual-ai](https://oag.ca.gov/news/press-releases/attorney-general-bonta-launches-investigation-xai-grok-over-undressed-sexual-ai)
 

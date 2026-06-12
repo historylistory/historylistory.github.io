@@ -44,7 +44,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2025 December
 
-2025-12-11 Trump signed an Executive Order to prevent States from restricting AI or imposing regulations.
+2025-12-11 Trump signed an executive order preventing states from restricting or regulating AI.
 
 [https://www.whitehouse.gov/presidential-actions/2025/12/eliminating-state-law-obstruction-of-national-artificial-intelligence-policy/](https://www.whitehouse.gov/presidential-actions/2025/12/eliminating-state-law-obstruction-of-national-artificial-intelligence-policy/)
 
@@ -56,7 +56,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 [https://www.nytimes.com/2025/12/11/technology/ai-trump-executive-order.html](https://www.nytimes.com/2025/12/11/technology/ai-trump-executive-order.html)
 
-2025-12-17 Representative AOC called out corruption on Trump’s Executive Order to ban States from regulating AI.
+2025-12-17 AOC criticized Trump’s executive order blocking state AI regulation.
 
 {% include youtubePlayer.html id="5NdndeDNkws" %}
 

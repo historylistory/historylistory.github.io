@@ -200,7 +200,7 @@ Think About:
 
 ### 2026 January
 
-2026-01-13 The White House ordered the FBI to search and seize journalist material from the home of a Washington Post reporter Hannah Natanson. Project 2025 page 214 specifically mandates this action. The reporter’s role was specifically to cover the federal government. After over a thousand federal employees reached out to confidentially share their stories with Hannah about the job cuts from DOGE, the FBI showed up to seize her computers and her phone. The warrant also authorized the FBI to force Hannah to unlock the devices with biometrics.  
+2026-01-13 The FBI searched Washington Post reporter Hannah Natanson’s home and seized devices after she reported on DOGE-related layoffs.
 
 [https://www.npr.org/2026/01/15/g-s1-106103/fbi-search-washington-post-reporter-home](https://www.npr.org/2026/01/15/g-s1-106103/fbi-search-washington-post-reporter-home)
 
@@ -208,7 +208,7 @@ Think About:
 
 {% include youtubePlayer.html id="hZtNjijS5bo" %}
 
-2026-01-27 After TikTok was forced to sell to a US company, users began noticing any material mentioning anti-Trump, ICE or Epstein files were being censored and shadow-banned.
+2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 
 [https://www.cnn.com/2026/01/27/media/tiktok-trump-ice-epstein-censorship-tech-issues](https://www.cnn.com/2026/01/27/media/tiktok-trump-ice-epstein-censorship-tech-issues)
 

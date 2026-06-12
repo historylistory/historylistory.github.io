@@ -62,7 +62,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
 
-2026-01-13 An article reports that Amazon founder Jeff Bezo predicted that personal computing will eventually become obsolete and be replaced by cloud-based computing. For example, renting processing power from services like – for example – Amazon Web Services.
+2026-01-13 Reports cited Jeff Bezos predicting personal computing would eventually move to rented cloud computing.
 
 [https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.](https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.)
 

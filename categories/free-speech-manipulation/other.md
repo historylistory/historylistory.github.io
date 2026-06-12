@@ -22,7 +22,7 @@ permalink: /categories/free-speech-manipulation/other/
 
 ### 2026 January
 
-2026-01-27 After TikTok was forced to sell to a US company, users began noticing any material mentioning anti-Trump, ICE or Epstein files were being censored and shadow-banned.
+2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 
 [https://www.cnn.com/2026/01/27/media/tiktok-trump-ice-epstein-censorship-tech-issues](https://www.cnn.com/2026/01/27/media/tiktok-trump-ice-epstein-censorship-tech-issues)
 

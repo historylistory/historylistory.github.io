@@ -8,7 +8,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 
 ### 2025 November
 
-2025-11-24 Free open-source AI agent framework OpenClaw was released. It isn’t quite a chatbot. It acts on behalf of the user to run shell commands, manage files, and navigate browsers. 
+2025-11-24 The open-source AI agent framework OpenClaw launched, enabling shell commands, file management, and browser automation on behalf of the user. 
 
 [https://www.malwarebytes.com/blog/news/2026/02/openclaw-what-is-it-and-can-you-use-it-safely](https://www.malwarebytes.com/blog/news/2026/02/openclaw-what-is-it-and-can-you-use-it-safely)
 
