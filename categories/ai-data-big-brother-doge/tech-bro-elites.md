@@ -43,7 +43,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
 
-2025-10-10 Peter Thiel was quoted in an article saying, *“…critics of technology or artificial intelligence are ‘legionnaires of the Antichrist”.* 
+2025-10-10 Peter Thiel reportedly called critics of AI and technology “legionnaires of the Antichrist.”
 
 [https://www.washingtonpost.com/technology/2025/10/10/peter-thiel-antichrist-lectures-leaked/](https://www.washingtonpost.com/technology/2025/10/10/peter-thiel-antichrist-lectures-leaked/)
 

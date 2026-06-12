@@ -21,7 +21,7 @@ Think About:
 
 [https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole](https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole)
 
-2025-09-30 Meta launched their Meta Ray-Ban Display smart glasses.
+2025-09-30 Meta launched Ray-Ban Display smart glasses.
 
 [https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/](https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/)
 
@@ -194,7 +194,7 @@ Think About:
 
 ### 2025 October
 
-2025-10-13 California passed bipartisan bill AB 1043 forcing Linux and Windows to require users to verify their age before using their platforms.
+2025-10-13 California passed AB 1043 requiring Linux and Windows users to verify their age.
 
 [https://leginfo.legislature.ca.gov/faces/billTextClient.xhtml?bill_id=202520260AB1043](https://leginfo.legislature.ca.gov/faces/billTextClient.xhtml?bill_id=202520260AB1043)
 

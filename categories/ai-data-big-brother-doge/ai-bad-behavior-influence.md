@@ -79,7 +79,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 October
 
-2025-10-24 Open AI announced plans to sell erotica to boost sales.
+2025-10-24 OpenAI announced plans to sell erotica to boost revenue.
 
 [https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
 
@@ -89,13 +89,13 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 November
 
-2025-11-11 A 13-year-old girl was expelled from a Louisianna middle school for hitting a fellow male student. The male student relentlessly harassed her by sharing AI deepfake nudes of her, and even after she reported the bullying to school adults the student continued to share the images.
+. 2025-11-11 A Louisiana girl was expelled after hitting a boy who repeatedly shared AI-generated deepfake nudes of her.
 
 [https://www.wwnytv.com/2025/11/12/girl-13-expelled-hitting-classmate-who-made-deepfake-porn-image-her-lawyers-say/](https://www.wwnytv.com/2025/11/12/girl-13-expelled-hitting-classmate-who-made-deepfake-porn-image-her-lawyers-say/)
 
 [https://www.nola.com/news/education/deepfake-nude-photos-student-expelled-lafourche-parish/article_d4fab4cb-745a-4b0a-b198-7810d3919dfc.html](https://www.nola.com/news/education/deepfake-nude-photos-student-expelled-lafourche-parish/article_d4fab4cb-745a-4b0a-b198-7810d3919dfc.html)
 
-2025-11-19 Sales of the AI enabled Kumma teddy bear were suspended after parents discovered the toy was giving sex advice to their children, offering advice on how to light a match, and giving direction on where to find a knife.
+2025-11-19 Sales of the AI-enabled Kumma teddy bear were suspended after it gave children sexual and dangerous advice such as how to light matches or find knives. 
 
 [https://www.cnn.com/2025/11/19/tech/folotoy-kumma-ai-bear-scli-intl](https://www.cnn.com/2025/11/19/tech/folotoy-kumma-ai-bear-scli-intl)
 

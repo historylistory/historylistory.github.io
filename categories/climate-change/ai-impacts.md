@@ -38,7 +38,7 @@ permalink: /categories/climate-change/ai-impacts/
 
 ### 2025 October
 
-2025-10-24 News outlets began to warn about the massive environmental impact of AI sites.
+2025-10-24 News outlets increasingly warned about AI’s environmental impact.
 
 [https://news.mit.edu/2025/explained-generative-ai-environmental-impact-0117](https://news.mit.edu/2025/explained-generative-ai-environmental-impact-0117)
 
