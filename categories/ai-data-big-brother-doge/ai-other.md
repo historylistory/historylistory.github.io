@@ -35,7 +35,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 
 [https://mashable.com/article/ai-hard-drive-hdd-shortages-western-digital-sold-out](https://mashable.com/article/ai-hard-drive-hdd-shortages-western-digital-sold-out)
 
-2026-02-18 Tech sources reported that due to NAND shortages, prices for consumers would skyrocket and even require up-front payment. This affects everything from TV replacement, devices, buying RAM, gamer PCs, and upgrading or replacing your computer, to name a short few. Alongside this, over 80% of companies reported no productivity gains from AI so far despite billions of dollars in investments.
+2026-02-18 AI data center demand caused hard-drive shortages and rising NAND prices, while reports claimed over 80% of companies saw no productivity gains from AI. This affects everything from TV replacement, devices, buying RAM, gamer PCs, and upgrading or replacing your computer, to name a short few.
 
 [https://www.tomshardware.com/pc-components/storage/phison-ceo-thinks-nand-shortages-could-shut-down-entire-consumer-electronics-companies-in-2026-claims-at-least-one-foundry-demands-three-year-cash-payment-upfront](https://www.tomshardware.com/pc-components/storage/phison-ceo-thinks-nand-shortages-could-shut-down-entire-consumer-electronics-companies-in-2026-claims-at-least-one-foundry-demands-three-year-cash-payment-upfront)
 

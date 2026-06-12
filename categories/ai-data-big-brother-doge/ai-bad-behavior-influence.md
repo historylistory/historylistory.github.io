@@ -129,25 +129,25 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 February
 
-2026-02-03 French prosecutors raided Elon Musk’s X office as part of investigations into allegations of CSAM material produced by GROK.
+2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
 [https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes](https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes)
 
 [https://www.bbc.com/news/articles/ce3ex92557jo](https://www.bbc.com/news/articles/ce3ex92557jo)
 
-2026-02-10 RFK launched the website RealFood.gov, but it used AI-tool Grok to answer nutrition questions. When tested, users discovered that Grok would give advice on how to insert food into the rectum.
+2026-02-10 RFK’s RealFood.gov used Grok for nutrition advice, but users reported bizarre and unsafe responses. In one user experience, the platform gave a recommendation to insert food into the rectum. 
 
 [https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/#:~:text=Kyle%20Diamantas%2C%20head%20of%20the,%2C%20salmon%2C%20and%20olive%20oil](https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/).
 
 [https://www.foodbible.com/news/us-food/ai-chatbot-us-government-rectal-food-advice-218720-20260216](https://www.foodbible.com/news/us-food/ai-chatbot-us-government-rectal-food-advice-218720-20260216)
 
-2026-02-17 Meta secured a patent that would allow AI to mimic deceased relatives so they could virtually continue to post on platforms like Facebook and Instagram.
-
+ 2026-02-17 Meta secured a patent for AI systems that could imitate deceased relatives online.
+ 
 [https://www.fastcompany.com/91493794/meta-patents-ai-dead-people-posting](https://www.fastcompany.com/91493794/meta-patents-ai-dead-people-posting)
 
 [https://futurism.com/future-society/meta-patented-ai-die-keeps-posting](https://futurism.com/future-society/meta-patented-ai-die-keeps-posting)
 
-2026-02-13 OpenAI retired its AI model GPT-4 for a less-chatty GPT-5. Users were upset and asked to return 4 because they had developed strong emotional ties to their AI bots. Other companies developed their own version of chatbots to replace the model, charging customers predatory pricing, promising fewer safety guardrails, and offering AI personalities as sycophantic as the MAGA base. 
+2026-02-13 OpenAI retired GPT-4 in favor of GPT-5, upsetting users attached to chatbot personalities.
 
 [https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
 

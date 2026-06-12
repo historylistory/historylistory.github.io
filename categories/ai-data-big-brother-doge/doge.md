@@ -63,7 +63,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2026 January
 
-2026-01-27 A whistleblower reported in an interview that members of DOGE shared sensitive data such as personally identifiable information of 1000 people via email, shared third-party data on cloud servers outside security protocols, and other data concerns. A complaint for these violations had been filed the previous summer, then that person – Chuck Borges – involuntarily resigned in August and filed a retaliation complaint after.
+2026-01-27 A whistleblower alleged DOGE mishandled sensitive personal data and violated security protocols.
 
 {% include youtubePlayer.html id="EmcgsMg194I" %}
 

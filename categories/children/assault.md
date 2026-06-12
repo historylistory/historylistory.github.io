@@ -88,7 +88,7 @@ There’s video of the oversight committee hearing September 18 2025 where Repre
 
 ### 2026 February
 
-2026-02-03 French prosecutors raided Elon Musk’s X office to investigate allegations of CSAM material produced by GROK.
+2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
 [https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes](https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes)
 

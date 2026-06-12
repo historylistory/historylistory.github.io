@@ -347,7 +347,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.cnbc.com/2026/02/01/spy-sheikh-stake-trump-crypto.html](https://www.cnbc.com/2026/02/01/spy-sheikh-stake-trump-crypto.html)
 
-2026-02-03 French prosecutors raided Elon Musk’s X office as part of investigations into allegations of CSAM material produced by GROK.
+2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
 [https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes](https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes)
 

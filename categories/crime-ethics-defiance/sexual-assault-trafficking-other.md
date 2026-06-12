@@ -88,7 +88,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 2026 February
 
-2026-02-03 **Not a sexual assault, but for context**: French prosecutors raided Elon Musk’s X office as part of investigations into allegations of CSAM material produced by GROK.
+2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
 [https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes](https://www.pbs.org/newshour/world/paris-prosecutors-raid-x-offices-as-part-of-investigation-over-child-abuse-images-deepfakes)
 

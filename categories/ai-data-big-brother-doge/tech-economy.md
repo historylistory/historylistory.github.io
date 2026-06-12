@@ -143,7 +143,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 ### 2026 February
 
 
-2026-02-15 A global push for age verification on widely used platforms emerged. Peter Thiel’s venture capital firm Founders fun is a major investor in the age verification provider used, called Persona.
+2026-02-15 A global push for online age verification accelerated. Peter Thiel-backed Persona became a major provider.
 
 [https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/](https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/)
 

@@ -125,7 +125,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.aclu.org/press-releases/department-of-homeland-security-withdraws-subpoena-targeting-man-who-criticized-them](https://www.aclu.org/press-releases/department-of-homeland-security-withdraws-subpoena-targeting-man-who-criticized-them)
 
-2026-02-14 DHS requested personal information of online users who have been critical of ICE, including names, email addresses, phone numbers and other identifying data. 
+2026-02-14 DHS reportedly requested identifying information on online users critical of ICE.
 
 [https://www.military.com/daily-news/2026/02/17/dhs-collecting-big-tech-users-personal-data-issuing-subpoenas-ice-related-criticism.html](https://www.military.com/daily-news/2026/02/17/dhs-collecting-big-tech-users-personal-data-issuing-subpoenas-ice-related-criticism.html)
 

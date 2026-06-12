@@ -230,7 +230,7 @@ Think About:
 
 [https://www.aclu.org/press-releases/department-of-homeland-security-withdraws-subpoena-targeting-man-who-criticized-them](https://www.aclu.org/press-releases/department-of-homeland-security-withdraws-subpoena-targeting-man-who-criticized-them)
 
-2026-02-09 Discord and other platforms announced plans to roll out teen-by-default settings globally, forcing users to upload an ID or face scan to verify they are over 18.
+2026-02-09 Discord and other platforms announced global age-verification systems requiring IDs or face scans.
 
 [https://discord.com/press-releases/discord-launches-teen-by-default-settings-globally](https://discord.com/press-releases/discord-launches-teen-by-default-settings-globally)
 
@@ -238,7 +238,7 @@ Think About:
 
 [https://www.bbc.com/news/technology-68161632](https://www.bbc.com/news/technology-68161632)
 
-2026-02-10 After Amazon revealed the capabilities of their Ring camera tracking and surveillance systems, some consumers opted out of the system over concerns of persistent surveillance.
+2026-02-10 Some consumers opted out of Amazon Ring after expanded surveillance capabilities were revealed.
 
 [https://www.cnet.com/home/security/amazons-ring-cameras-push-deeper-into-police-and-government-surveillance/](https://www.cnet.com/home/security/amazons-ring-cameras-push-deeper-into-police-and-government-surveillance/)
 
@@ -246,7 +246,7 @@ Think About:
 
 [https://www.404media.co/with-ring-american-consumers-built-a-surveillance-dragnet/](https://www.404media.co/with-ring-american-consumers-built-a-surveillance-dragnet/)
 
-2026-02-14 DHS requested personal information of online users who have been critical of ICE, including names, email addresses, phone numbers and other identifying data. 
+2026-02-14 DHS reportedly requested identifying information on online users critical of ICE.
 
 [https://www.military.com/daily-news/2026/02/17/dhs-collecting-big-tech-users-personal-data-issuing-subpoenas-ice-related-criticism.html](https://www.military.com/daily-news/2026/02/17/dhs-collecting-big-tech-users-personal-data-issuing-subpoenas-ice-related-criticism.html)
 
@@ -255,7 +255,7 @@ Think About:
 [https://www.thedailybeast.com/dhs-orders-tech-giants-to-unmask-anti-ice-accounts/](https://www.thedailybeast.com/dhs-orders-tech-giants-to-unmask-anti-ice-accounts/)
 
 
-2026-02-15 A global push for age verification on widely used platforms emerged. Peter Thiel’s venture capital firm Founders fun is a major investor in the age verification provider used, called Persona.
+2026-02-15 A global push for online age verification accelerated. Peter Thiel-backed Persona became a major provider.
 
 [https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/](https://www.openrightsgroup.org/press-releases/roblox-reddit-and-discord-users-compelled-to-use-biometric-id-system-backed-by-palantir-co-founder-peter-thiel/)
 

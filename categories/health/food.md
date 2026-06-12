@@ -161,7 +161,7 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 ### 2026 February
 
-2026-02-10 RFK launched the website RealFood.gov, but it used AI-tool Grok to answer nutrition questions. When tested, users discovered that Grok would give advice on how to insert food into the rectum.
+2026-02-10 RFK’s RealFood.gov used Grok for nutrition advice, but users reported bizarre and unsafe responses. In one user experience, the platform gave a recommendation to insert food into the rectum. 
 
 [https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/#:~:text=Kyle%20Diamantas%2C%20head%20of%20the,%2C%20salmon%2C%20and%20olive%20oil](https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/).
 

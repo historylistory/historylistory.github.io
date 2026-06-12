@@ -64,7 +64,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2026 February
 
-2026-02-13 OpenAI retired its AI model GPT-4 for a less-chatty GPT-5. Users were upset and asked to return 4 because they had developed strong emotional ties to their AI bots. Other companies developed their own version of chatbots to replace the model, charging customers predatory pricing, promising fewer safety guardrails, and offering AI personalities as sycophantic as the MAGA base. 
+2026-02-13 OpenAI retired GPT-4 in favor of GPT-5, upsetting users attached to chatbot personalities.
 
 [https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection](https://www.apa.org/monitor/2026/01-02/trends-digital-ai-relationships-emotional-connection)
 
