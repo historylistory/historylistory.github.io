@@ -48,7 +48,7 @@ permalink: /categories/climate-change/ai-impacts/
 
 ### 2026 March
 
-2026-03-25 Bernie Sanders and AOC introduced a bill to impose an AI data center moratorium.  The bill includes efforts to quell environmental impacts, prevent an uptick in utility costs, prevent job displacement, and impose a ban on exporting computing hardware to any countries that don’t provide the same protections (i.e. China). The bill had already received backlash from Senator John Fetterman of Pennsylvania, who labelled the policy proposal as “China First” according to an article by Fox ‘News’. 
+2026-03-25 Bernie Sanders and AOC proposed an AI data-center moratorium addressing environmental harm, energy costs, job displacement, and hardware exports.
 
 [https://www.theguardian.com/us-news/2026/mar/25/datacenters-bernie-sanders-aoc](https://www.theguardian.com/us-news/2026/mar/25/datacenters-bernie-sanders-aoc)
 

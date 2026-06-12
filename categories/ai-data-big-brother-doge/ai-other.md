@@ -43,7 +43,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 
 ### 2026 March
 
-2026-03-24 Only a few months after its launch, OpenAI shut down the Sora video app and a deal with Disney for $1B was cancelled. Some articles reported problematic content and harmful deepfakes, others reported copyright issues; and some articles indicated it was because the company was operating at a greater loss than expected. 
+2026-03-24 Only a few months after its launch, OpenAI shut down the Sora video app and a deal with Disney for $1B was cancelled. Some articles reported problematic content and harmful deepfakes, others reported copyright issues; and some articles indicated it was because the company was operating at a greater loss than expected.
 
 [https://variety.com/2026/digital/news/openai-shutting-down-sora-video-disney-1236698277/](https://variety.com/2026/digital/news/openai-shutting-down-sora-video-disney-1236698277/)
 

@@ -82,7 +82,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2026 March
 
-2026-03-17 In a press release Senator Elissa Slotkin announced the AI Guardrails Act to establish guardrails in three areas: autonomous weapons, surveillance, and nuclear defense. The White House issued its own framework on March 20th. 
+2026-03-17 Senator Slotkin introduced the AI Guardrails Act addressing autonomous weapons, surveillance, and nuclear defense.
 
 [https://www.slotkin.senate.gov/2026/03/17/slotkin-legislation-puts-common-sense-guardrails-on-dod-ai-use-around-lethal-force-spying-on-americans-and-nuclear-weapons/](https://www.slotkin.senate.gov/2026/03/17/slotkin-legislation-puts-common-sense-guardrails-on-dod-ai-use-around-lethal-force-spying-on-americans-and-nuclear-weapons/)
 

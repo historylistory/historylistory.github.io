@@ -159,7 +159,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2026 March
 
-2026-03-14 After Trump brokered a deal to sell TikTok to Larry Ellison, the Trump administration gained a $10B transactional payout, which is 70% of the company’s $14B worth. 
+2026-03-14 Trump brokered TikTok’s sale to Larry Ellison, The Trump administration allegedly gained a $10B transactional payout, which is 70% of the company’s $14B worth.
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 

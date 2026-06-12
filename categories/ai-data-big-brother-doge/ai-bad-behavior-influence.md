@@ -164,7 +164,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 [https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/](https://www.forbes.com/sites/traceyfollows/2025/11/15/people-are-now-marrying-ai-inside-the-rise-of-synthetic-intimacy/)
 
 
-2026-02-27 An AI-integrated phone tree for customer service with the Washington State DOL hotline gave option 2 for Spanish, then offered an English-speaking chatbot with a heavy Spanish accent.
+2026-02-27 A Washington State DOL AI phone system offered English support through a chatbot with a heavy Spanish accent instead of the actual Spanish language.
 
 [https://apnews.com/article/washington-dol-spanish-accent-ai-3a1b8438a5674c07242a8d48c057d5a3](https://apnews.com/article/washington-dol-spanish-accent-ai-3a1b8438a5674c07242a8d48c057d5a3)
 
@@ -174,7 +174,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 March
 
-2026-03-20 GOP members fell hard for an AI-generated female MAGA influencer “Jessica Foster” as she posed in her crop-top army uniform and offered feet picks.
+2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 
@@ -184,7 +184,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
 
-2026-03-25 Both Meta and YouTube were found negligent in a landmark social media addiction trial.
+2026-03-25 Meta and YouTube were found negligent in a landmark social-media addiction case.
 
 [https://www.npr.org/2026/03/25/nx-s1-5746125/meta-youtube-social-media-trial-verdict](https://www.npr.org/2026/03/25/nx-s1-5746125/meta-youtube-social-media-trial-verdict)
 

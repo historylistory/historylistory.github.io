@@ -477,7 +477,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://theweek.com/business/trump-netflix-susan-rice-state-run-capitalism](https://theweek.com/business/trump-netflix-susan-rice-state-run-capitalism)
 
-2026-02-27 The Pentagon gave Anthropic a deadline to agree to the Pentagon’s terms for widespread domestic surveillance and autonomous weapons, saying if Anthropic didn’t agree to all those terms then they would label the company as a “supply chain risk” as an ultimatum. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
+2026-02-27 Anthropic said it refused Pentagon demands involving domestic surveillance and autonomous weapons after being threatened with “supply chain risk” designation. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
 
 [https://www.politico.com/news/2026/02/26/incoherent-hegseths-anthropic-ultimatum-confounds-ai-policymakers-00800135](https://www.politico.com/news/2026/02/26/incoherent-hegseths-anthropic-ultimatum-confounds-ai-policymakers-00800135)
 
@@ -485,7 +485,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 March
 
-2026-03-06 Following Anthropic’s ethical refusal to allow their AI to hold unchecked power over weapons systems, the Trump administration followed through on a retaliatory threat to designate the company a supply chain risk. On March 25th 2026 Anthropic sued the Pentagon for the stigmatizing AI supply-chain risk label.
+2026-03-06 Anthropic sued the Pentagon after being labeled a supply chain risk for refusing military AI demands.
 
 [https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk](https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk)
 

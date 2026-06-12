@@ -270,7 +270,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent](https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent)
 
 
-2026-02-20 Mark Zuckerberg and his entourage wore Ray-Ban smart glasses during court proceedings.
+2026-02-20 Mark Zuckerberg wore Ray-Ban smart glasses during court proceedings.
 
 [https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg](https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg)
 

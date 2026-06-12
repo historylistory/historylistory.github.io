@@ -103,7 +103,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html](https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html)
 
-2026-03-20 GOP members fell hard for an AI-generated female MAGA influencer “Jessica Foster” as she posed in her crop-top army uniform and offered feet picks.
+2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 

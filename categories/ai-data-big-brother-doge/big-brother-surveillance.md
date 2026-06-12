@@ -25,7 +25,7 @@ Think About:
 
 [https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/](https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/)
 
-2026-02-20 Mark Zuckerberg and his entourage wore Ray-Ban smart glasses during court proceedings.
+2026-02-20 Mark Zuckerberg wore Ray-Ban smart glasses during court proceedings.
 
 [https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg](https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg)
 
@@ -263,11 +263,11 @@ Think About:
 
 [https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed](https://www.malwarebytes.com/blog/news/2026/02/age-verification-vendor-persona-left-frontend-exposed)
 
-2026-02-26 Senator Slotkin questioned Mr. Ditlevson about the Pentagon’s use of mass surveillance of Americans.
+2026-02-26 Senator Elissa Slotkin questioned Pentagon officials about mass surveillance of Americans.
 
 {% include youtubePlayer.html id="LBLYLE7KgMc" %}
 
-2026-02-27 The Pentagon gave Anthropic a deadline to agree to the Pentagon’s terms for widespread domestic surveillance and autonomous weapons, saying if Anthropic didn’t agree to all those terms then they would label the company as a “supply chain risk” as an ultimatum. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
+2026-02-27 Anthropic said it refused Pentagon demands involving domestic surveillance and autonomous weapons after being threatened with “supply chain risk” designation. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
 
 [https://www.politico.com/news/2026/02/26/incoherent-hegseths-anthropic-ultimatum-confounds-ai-policymakers-00800135](https://www.politico.com/news/2026/02/26/incoherent-hegseths-anthropic-ultimatum-confounds-ai-policymakers-00800135)
 
@@ -275,7 +275,7 @@ Think About:
 
 ### 2026 March
 
-2026-03-01 OpenAI took the place of Anthropic for the Pentagon deal.
+2026-03-01 OpenAI replaced Anthropic in the Pentagon deal.
 
 [https://techcrunch.com/2026/03/01/openai-shares-more-details-about-its-agreement-with-the-pentagon/](https://techcrunch.com/2026/03/01/openai-shares-more-details-about-its-agreement-with-the-pentagon/)
 
@@ -283,7 +283,7 @@ Think About:
 
 [https://openai.com/index/our-agreement-with-the-department-of-war/](https://openai.com/index/our-agreement-with-the-department-of-war/)
 
-2026-03-06 Following Anthropic’s ethical refusal to allow their AI to hold unchecked power over weapons systems, the Trump administration followed through on a retaliatory threat to designate the company a supply chain risk. On March 25th 2026 Anthropic sued the Pentagon for the stigmatizing AI supply-chain risk label.
+2026-03-06 Anthropic sued the Pentagon after being labeled a supply chain risk for refusing military AI demands.
 
 [https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk](https://www.npr.org/2026/03/06/g-s1-112713/pentagon-labels-ai-company-anthropic-a-supply-chain-risk)
 

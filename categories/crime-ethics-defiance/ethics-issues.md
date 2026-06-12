@@ -367,7 +367,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office#:~:text=Former%20Senior%20Official%20for%20the,it%20produced%20in%20federal%20court](https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office).
 
-2026-03-14 After Trump brokered a deal to sell TikTok to Larry Ellison, the Trump administration gained a $10B transactional payout, which is 70% of the company’s $14B worth. 
+2026-03-14 Trump brokered TikTok’s sale to Larry Ellison, The Trump administration allegedly gained a $10B transactional payout, which is 70% of the company’s $14B worth.
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 
