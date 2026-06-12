@@ -1,13 +1,13 @@
 ---
 layout: subcategory
-title: ZZZ WRITE CONGRESS
+title: ZZZ 
 category_slug: ai-data-big-brother-doge
-subcategory_slug: zzz-write-congress
-permalink: /categories/ai-data-big-brother-doge/zzz-write-congress/
+subcategory_slug: zzz
+permalink: /categories/ai-data-big-brother-doge/zzz/
 ---
 
 
-### WHAT?
+### WRITE CONGRESS AND YOUR SENATORS
 
 If this topic matters to you, write your Senator or write Congress. Send them an email.  
 
@@ -21,7 +21,7 @@ Dear Sir or Madam,
 
 I do not agree with the current direction of technology policy in my country, particularly regarding AI deregulation, mass surveillance, and the environmental impacts of emerging technologies. Below are several examples that illustrate these concerns.
 
-### LIST OF EVERYTHING
+### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
 
@@ -29,8 +29,6 @@ I do not agree with the current direction of technology policy in my country, pa
 
 
 2014-02-19 Google launched smart glasses.
-[https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole](https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole)
-
 
 2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
