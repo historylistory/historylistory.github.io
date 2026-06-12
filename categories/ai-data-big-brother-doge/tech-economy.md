@@ -112,7 +112,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://www.cnbc.com/2025/08/11/intel-ceo-trump-lip-bu-tan.html](https://www.cnbc.com/2025/08/11/intel-ceo-trump-lip-bu-tan.html)
 
-2025-08-22 Trump announced that the federal government obtained a 10% stake in Intel, purchasing 433.3M primary shares.
+2025-08-22 The federal government announced a 10% stake purchase in Intel, purchasing 433.3M primary shares.
 
 [https://www.pbs.org/newshour/politics/what-economic-and-policy-experts-think-about-the-u-s-governments-stake-in-intel#:~:text=On%20Aug.%2022%2C%20President%20Donald,per%20share%2C%20equaling%209.9%25](https://www.pbs.org/newshour/politics/what-economic-and-policy-experts-think-about-the-u-s-governments-stake-in-intel)
 
@@ -122,13 +122,13 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2025 September
 
-2025-09-15 The U.S. discussed selling TikTok to Oracle's founder and chair Larry Ellison.
+2025-09-15 The U.S. discussed selling TikTok to Oracle founder Larry Ellison.
 
 [https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/](https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/)
 
 [https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html](https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html)
 
-2025-09-21 Trump stated he might sell ByteDance to media mogul Rupert Murdoch. Pending the TikTok deal, the U.S. said they want 6-of-7 board seats.
+2025-09-21 Trump discussed selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
 
 [https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html](https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html)
 
@@ -136,7 +136,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 {% include youtubePlayer.html id="DbjTlwpC0c0" %}
 
-2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
+2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 
 {% include youtubePlayer.html id="5NecjNqL11c" %}
 

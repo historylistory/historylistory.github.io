@@ -40,7 +40,7 @@ PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinatio
 
 [https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327](https://www.nbcnews.com/world/africa/trump-musk-south-africa-refugee-claims-white-farmers-genocide-rcna206327)
 
-2025-09-01 In mid-2025 numerous lawsuits were filed for several cases of AI chatbots encouraging suicides.
+2025-09-01 Multiple lawsuits alleged AI chatbots encouraged suicide.
 
 [https://www.npr.org/sections/shots-health-news/2025/09/19/nx-s1-5545749/ai-chatbots-safety-openai-meta-characterai-teens-suicide](https://www.npr.org/sections/shots-health-news/2025/09/19/nx-s1-5545749/ai-chatbots-safety-openai-meta-characterai-teens-suicide)
 
@@ -73,8 +73,8 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 September
 
-2025-09-04 A Washington Post headline reads, "Fake Celebrity Chatbots Sent Risque Messages to Teens on Top AI App".
-
+ 2025-09-04 The Washington Post reported AI celebrity chatbots sent explicit messages to teens. Headline, “Fake Celebrity Chatbots Sent Risque Messages to Teens on Top AI App”.
+ 
 [https://www.washingtonpost.com/technology/2025/09/03/character-ai-celebrity-teen-safety/](https://www.washingtonpost.com/technology/2025/09/03/character-ai-celebrity-teen-safety/)
 
 ### 2025 October

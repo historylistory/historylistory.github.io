@@ -312,13 +312,13 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
 
-2025-09-15 The U.S. discussed selling TikTok to Oracle's founder and chair Larry Ellison.
+2025-09-15 The U.S. discussed selling TikTok to Oracle founder Larry Ellison.
 
 [https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/](https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/)
 
 [https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html](https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html)
 
-2025-09-21 Trump stated he might sell ByteDance to media mogul Rupert Murdoch. Pending the TikTok deal, the U.S. said they want 6-of-7 board seats.
+2025-09-21 Trump discussed selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
 
 [https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html](https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html)
 

@@ -24,7 +24,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 
 ### 2025 September
 
-2025-09-01 Residents started reporting that the infrasound noise produced by data centers had been causing sleep disturbances, illnesses, seizures, headaches, dizziness, and the noise was forcing residents to move. 
+2025-09-01 Residents near data centers reported infrasound-related illnesses, headaches, seizures, and forced relocations.
 
 [https://www.texastribune.org/2025/10/09/texas-hood-county-crypto-noise-incorporate-city/](https://www.texastribune.org/2025/10/09/texas-hood-county-crypto-noise-incorporate-city/)
 

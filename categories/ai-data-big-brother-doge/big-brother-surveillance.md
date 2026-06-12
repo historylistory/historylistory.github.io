@@ -188,7 +188,7 @@ Think About:
 
 ### 2025 September
 
-2025-09-26 Trump quipped that he would make the TikTok algorithm 100% MAGA if he could.
+2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 
 {% include youtubePlayer.html id="5NecjNqL11c" %}
 

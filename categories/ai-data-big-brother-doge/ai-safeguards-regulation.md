@@ -38,7 +38,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
 
 ### 2025 September
 
-2025-09-16 During an interview with Politico Ted Cruz stated the AI regulation moratorium would be back.
+2025-09-16 Ted Cruz said the AI regulation moratorium would return.
 
 [https://www.politico.com/news/2025/09/16/not-at-all-dead-cruz-says-ai-moratorium-will-return-00566369](https://www.politico.com/news/2025/09/16/not-at-all-dead-cruz-says-ai-moratorium-will-return-00566369)
 

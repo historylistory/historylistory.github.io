@@ -42,6 +42,6 @@ permalink: /categories/ai-data-big-brother-doge/ai-investors/
 
 ### 2025 September
 
-2025-09-16 Microsoft announced plans to invest $30B in AI infrastructure in the UK.
+2025-09-16 Microsoft announced a $30B AI infrastructure investment in the UK.
 
 [https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2](https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2)
