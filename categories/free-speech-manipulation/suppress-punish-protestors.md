@@ -79,7 +79,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 {% include youtubePlayer.html id="xk94il8L820" %}
 
-2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
+2024-05-02 Lauren Boebert unsuccessfully tried to tear down a Palestinian flag during a protest at George Washington University. 
 
 {% include youtubePlayer.html id="emuKlnqwlcc" %}
 

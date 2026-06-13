@@ -16,7 +16,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2022
 
-2022-08-13 During his podcast "Unfiltered with Dan Bongino" Bongino made unfounded claims about the FBI, called liberals dip wads, brought up the Hunter Biden laptop, accused Comey of FBI entrapment and corruption, denounced the Mar-a-Lago classified document investigation as the "final straw" and spewed general vitriol.
+2022-08-13 Dan Bongino spread anti-FBI rhetoric and conspiracy claims on his podcast.
 
 [https://www.bbc.com/news/articles/cpwd2qrn1e2o](https://www.bbc.com/news/articles/cpwd2qrn1e2o)
 
@@ -24,7 +24,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2024
 
-2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
+2024-05-02 Lauren Boebert unsuccessfully tried to tear down a Palestinian flag during a protest at George Washington University. 
 
 {% include youtubePlayer.html id="emuKlnqwlcc" %}
 

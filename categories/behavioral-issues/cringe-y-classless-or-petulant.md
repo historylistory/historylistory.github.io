@@ -43,7 +43,7 @@ THE ATLANTIC’S TAKE: [https://www.theatlantic.com/politics/archive/2018/02/bar
 
 [https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care](https://fox11online.com/news/connect-to-congress/be-offended-florida-rep-matt-gaetz-stands-by-controversial-comments-on-female-abortion-rights-protesters-turning-point-usa-student-action-summit-florida-tampa-roe-v-wade-supreme-court-ruling-dobbs-v-jackson-united-states-pro-choice-pro-life-health-care)
 
-2022-09-01 The Karoline Leavitt “hoe-bag ad” (as deemed by social media).
+2022-09-01 Karoline Leavitt’s “hoe-bag ad” circulated online.
 
 TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 
@@ -53,23 +53,23 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta](https://www.msn.com/en-us/news/politics/woke-karoline-leavitt-s-liberal-past-exposed-in-unearthed-political-ad/ar-AA1E0izN?ocid=fbcta)
 
-2022-12-31 News outlets reported on concerns about Pete Hegseth’s temperance, exploring the numerous times he was caught drinking, drunk, or in front of a liquor stash.
+2022-12-31 News outlets questioned Pete Hegseth’s drinking habits and temperament.
 
 [https://meidasnews.com/news/liquor-stash-photos-bolster-nbc-report-on-pete-hegseth-drinking-allegations](https://meidasnews.com/news/liquor-stash-photos-bolster-nbc-report-on-pete-hegseth-drinking-allegations)
 
 ### 2023
 
-2023-09-15 Lauren Boebert was caught on video at a Beetlejuice movie vaping, taking flash photography, and getting groped. After she was ushered out, she was caught on camera flipping off the staff.
+2023-09-15 Lauren Boebert was removed from a Beetlejuice performance after vaping, filming, and disruptive behavior including flipping off the staff.
 
 {% include youtubePlayer.html id="Hq-DvmZsn5s" %}
 
-2023-11-02 In an exaggerated and exasperated tone, Lauren Boebert sarcastically mocked the federal bicycle subsidy program.
+2023-11-02 Lauren Boebert sarcastically mocked the federal bicycle subsidy program.
 
 {% include youtubePlayer.html id="eOfJjcPbkRw" %}
 
 ### 2024 March
 
-2024-03-07 Katie Britt’s weird state of the union address.
+2024-03-07 Katie Britt delivered a widely mocked State of the Union response.
 
 [https://www.pbs.org/newshour/politics/read-sen-katie-britts-full-response-to-the-state-of-the-union](https://www.pbs.org/newshour/politics/read-sen-katie-britts-full-response-to-the-state-of-the-union)
 
@@ -77,13 +77,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2024 May
 
-2024-05-17 During a U.S. House Committee meeting, Marjorie Taylor Greene decided to unnecessarily pick a catfight with Congresswoman Jasmine Crockett and make fun of the Congresswoman’s eyelashes.
+2024-05-17 Marjorie Taylor Greene mocked Jasmine Crockett’s eyelashes during a committee meeting.
 
 {% include youtubePlayer.html id="Y-f0t5Wk0TA" %}
 
 ### 2024 August
 
-2024-08-01 Trump made numerous references to Hannibal Lecter at several of his speeches.
+2024-08-01 Trump repeatedly referenced Hannibal Lecter during speeches.
 
 [https://www.youtube.com/shorts/UzxFtJ0aSPU](https://www.youtube.com/shorts/UzxFtJ0aSPU)
 
@@ -236,7 +236,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
  
 
-2025-09-23 During an address to the U.N., Trump stated, "What is the purpose of the United Nations?", dismissed climate change calling it "the greatest con job ever perpetrated on the world…", offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody "I'm really good at this stuff - your countries are going to hell".
+2025-09-23 Trump mocked the UN, climate change, and immigration policy during a speech. Trump stated, “What is the purpose of the United Nations?”, dismissed climate change calling it “the greatest con job ever perpetrated on the world…”, offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody “I’m really good at this stuff - your countries are going to hell”.
 
 [https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/](https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/)
 

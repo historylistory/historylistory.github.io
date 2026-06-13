@@ -64,7 +64,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://en.wikipedia.org/wiki/Mohammed_Hatem](https://en.wikipedia.org/wiki/Mohammed_Hatem)
 
-2024-05-02 During a peaceful protest at George Washington University, Boebert tried to rip a Palestinian flag down from a statue, failed, and then demanded the crowd to take it down.
+2024-05-02 Lauren Boebert unsuccessfully tried to tear down a Palestinian flag during a protest at George Washington University. 
 
 {% include youtubePlayer.html id="emuKlnqwlcc" %}
 

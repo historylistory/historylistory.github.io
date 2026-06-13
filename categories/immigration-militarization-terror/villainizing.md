@@ -40,7 +40,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2024
 
-2024-06-22 During a Faith & Freedom conference in Washington D.C., Trump floated the idea of a "**migrant UFC**" fight.
+2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.
 
 {% include youtubePlayer.html id="bZvTStL5GB8" %}
 

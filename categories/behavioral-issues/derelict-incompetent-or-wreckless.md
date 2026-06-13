@@ -43,7 +43,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 ### 2022
 
-2022-09-01 The Karoline Leavitt “hoe-bag ad” (as deemed by social media).
+2022-09-01 Karoline Leavitt’s “hoe-bag ad” circulated online.
 
 TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 

@@ -58,7 +58,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2022
 
-2022-08-13 During his podcast "Unfiltered with Dan Bongino" Bongino made unfounded claims about the FBI, called liberals dip wads, brought up the Hunter Biden laptop, accused Comey of FBI entrapment and corruption, denounced the Mar-a-Lago classified document investigation as the "final straw" and spewed general vitriol.
+2022-08-13 Dan Bongino spread anti-FBI rhetoric and conspiracy claims on his podcast.
 
 [https://www.bbc.com/news/articles/cpwd2qrn1e2o](https://www.bbc.com/news/articles/cpwd2qrn1e2o)
 

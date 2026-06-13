@@ -93,7 +93,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://ktvz.com/cnn-other/2025/09/02/scientists-submit-coordinated-response-to-trump-admin-report-casting-doubt-on-climate-change-it-makes-a-mockery-of-science/](https://ktvz.com/cnn-other/2025/09/02/scientists-submit-coordinated-response-to-trump-admin-report-casting-doubt-on-climate-change-it-makes-a-mockery-of-science/)
 
-2025-09-23 During an address to the U.N., Trump stated, "What is the purpose of the United Nations?", dismissed climate change calling it ***"the greatest con job ever perpetrated on the world…"***, offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody "I'm really good at this stuff - your countries are going to hell".
+2025-09-23 Trump mocked the UN, climate change, and immigration policy during a speech. Trump stated, “What is the purpose of the United Nations?”, dismissed climate change calling it “the greatest con job ever perpetrated on the world…”, offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody “I’m really good at this stuff - your countries are going to hell”.
 
 [https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/](https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/)
 
