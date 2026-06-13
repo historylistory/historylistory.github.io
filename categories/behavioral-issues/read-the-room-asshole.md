@@ -46,7 +46,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2025 October
 
-2025-10-16 Trump proposed building himself a “victory arch”. **No word about how much the arch would cost taxpayers**, but Trump did share his proposal during a government shutdown while he withheld food benefits from millions of Americans. The plan was to construct the arch overlooking the Arlington Cemetery, and the structure would be nearly twice the size of both the Lincoln and Jefferson memorials.
+2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
 
 [https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
 
@@ -54,7 +54,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
 
-2025-10-24 Trump demolished the White House East Wing shortly after promising the American people his ballroom project would not interfere with or cut into the existing White House structure. Outlets report that the administration did not submit their plans to the National Capitol Planning Commission, and that they may have cut corners on  asbestos-abatement guidelines during the demolition, putting surrounding citizens at risk.
+2025-10-24 Trump demolished the White House East Wing for ballroom construction despite earlier assurances.
 
 [https://www.pbs.org/newshour/politics/the-east-wing-of-the-white-house-has-been-demolished-heres-a-look-at-its-history](https://www.pbs.org/newshour/politics/the-east-wing-of-the-white-house-has-been-demolished-heres-a-look-at-its-history)
 
@@ -64,13 +64,13 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/](https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/)
 
-2025-10-31 Just hours before SNAP benefits were set to expire, Trump hosted a lavish Great Gatsby Halloween party at the White House.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 
 [https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480](https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480)
 
-2025-10-31 Trump posted 6 times about renovating a White House bathroom completely in marble amidst a government shutdown and hunger crisis.
+2025-10-31 Trump repeatedly posted about a marble White House bathroom renovation during a hunger crisis.
 
 [https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/](https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/)
 

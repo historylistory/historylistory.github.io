@@ -281,17 +281,17 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150](https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150)
 
-2025-10-17 In response to a HuffPost press inquiry asking who recommended Budapest as the location for an upcoming meeting between Trump and Putin, Karoline Leavitt responded “**Your mom did**” via social media. After the journalist asked if she thought this was funny, Leavitt continued her childish rant by writing, “**It’s funny to me that you****actually consider****yourself a journal [sic]. You are a****far left****hack who nobody takes seriously, including your colleagues in the media, they just don’t tell you that to your face. Stop texting me your disingenuous, biased, and bullshit questions**”.
+2025-10-17 Karoline Leavitt insulted a HuffPost reporter online with vulgar responses. In Leavitt’s childish rant she wrote, “Your mom did”. After the journalist asked if she thought this was funny, Leavitt continued “It’s funny to me that you actually consider yourself a journal [sic]. You are left hack who nobody takes seriously, including your colleagues in the media, they just don’t tell you that to your face. Stop texting me your disingenuous, biased, and bullshit questions”.
 
 [https://www.huffpost.com/entry/white-house-wild-response-to-huffpost-question_n_68f26217e4b0ee732e24eb66](https://www.huffpost.com/entry/white-house-wild-response-to-huffpost-question_n_68f26217e4b0ee732e24eb66)
 
 [https://x.com/PressSec/status/1980288128867877125](https://x.com/PressSec/status/1980288128867877125)
 
-2025-10-17 Bill HR5766 was introduced to force the State Department to award a DJT peace prize every year and demands Trump be the first person to be awarded.
+2025-10-17 Bill HR5766 proposed creating a “DJT Peace Prize” and demands Trump be the first person to be awarded.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/5766](https://www.congress.gov/bill/119th-congress/house-bill/5766)
 
-2025-10-18 Trump posted an AI video of himself in a fighter jet dumping shit all over New York. Mike Johnson defended the video with a smirk, stating Trump “uses satire and social media to make a point”. When someone asked JD Vance on X to bring it up with the press to interview Trump, JD Vance sarcastically dismissed it with, “I’ll ask him for you Harry”.
+2025-10-18 Trump posted an AI-generated fighter-jet video dumping shit all over New York. Mike Johnson defended the video, stating Trump “uses satire and social media to make a point”. When someone asked JD Vance on X to bring it up with the press to interview Trump, JD Vance sarcastically dismissed it with, “I’ll ask him for you Harry”.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-posts-ai-video-dumping-no-kings-protesters-rcna238521](https://www.nbcnews.com/politics/donald-trump/trump-posts-ai-video-dumping-no-kings-protesters-rcna238521)
 
@@ -301,7 +301,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/speaker-johnson-defends-trump-posting-ai-video-drops-excrement-america-rcna238876](https://www.msnbc.com/rachel-maddow-show/maddowblog/speaker-johnson-defends-trump-posting-ai-video-drops-excrement-america-rcna238876)
 
-2025-10-24 The White House added a historical timeline to the website, peppering the timeline with things like the Hunter Biden laptop incident, Obama dressed in Middle Eastern wardrobe, and the Clinton scandal. The trolling pictures were finally taken down towards the last few days of October. Sycophant opinion network Fox News also trolled via their news headlines, calling Democrats out as having a “meltdown” over the ballroom construction, that Democrats would have a “full cardiac arrest”, and that scandals **plagued**Democratic administrations.
+2025-10-24 The White House added trolling political imagery to a historical website timeline.
 
 [https://people.com/president-donald-trump-adds-clinton-scandal-cocaine-discovered-to-white-house-major-events-timeline-amid-renovations-11836293](https://people.com/president-donald-trump-adds-clinton-scandal-cocaine-discovered-to-white-house-major-events-timeline-amid-renovations-11836293)
 

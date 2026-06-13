@@ -73,7 +73,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://www.reuters.com/world/us-judge-says-she-will-likely-block-trumps-mass-layoffs-during-government-2025-10-15/](https://www.reuters.com/world/us-judge-says-she-will-likely-block-trumps-mass-layoffs-during-government-2025-10-15/)
 
-2025-10-16 Trump proposed building himself a “victory arch”. **No word about how much the arch would cost taxpayers**, but Trump did share his proposal during a government shutdown while he withheld food benefits from millions of Americans. The plan was to construct the arch overlooking the Arlington Cemetery, and the structure would be nearly twice the size of both the Lincoln and Jefferson memorials.
+2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
 
 [https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
 
@@ -81,7 +81,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
 
-2025-10-31 Just hours before SNAP benefits were set to expire, Trump hosted a lavish Great Gatsby Halloween party at the White House. This was AFTER Trump donated $40B in taxpayer money to bail out Argentina. This was just BEFORE Trump defied judge orders to release contingency funds set aside to continue SNAP benefits. There are contingency benefits set aside for emergencies (like government shutdowns).  Meanwhile, States had to step in to try to make up the difference, and food pantries were absolutely overrun.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 

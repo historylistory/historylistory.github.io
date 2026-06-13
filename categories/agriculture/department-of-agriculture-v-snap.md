@@ -8,7 +8,7 @@ permalink: /categories/agriculture/department-of-agriculture-v-snap/
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins weighed in on SNAP benefits in an X post, spinning rhetoric of SNAP fraud, attacking blue states, and calling Trump the “new sheriff in town”.
+2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 

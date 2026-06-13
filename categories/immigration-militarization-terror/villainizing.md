@@ -155,7 +155,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 [https://www.npr.org/2026/01/31/nx-s1-5690124/ice-alex-pretti-immigration-unproven-claims-dhs-enforcement-arrests](https://www.npr.org/2026/01/31/nx-s1-5690124/ice-alex-pretti-immigration-unproven-claims-dhs-enforcement-arrests)
 
-2025-10-14 Border patrol (ICE) posted a video about immigration arrests to the tune of a Michael Jackson song featuring antisemitic slurs. The post had since been taken down but copies were made and shared on X.
+2025-10-14 ICE posted an immigration-arrest video set to music containing antisemitic slurs. The post had since been taken down but copies were made and shared on X.
 
 [https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song](https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song)
 
@@ -167,7 +167,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 [https://x.com/AFpost/status/1978305706018144460](https://x.com/AFpost/status/1978305706018144460)
 
-2025-10-27 ICE agents used Halo (game) images in their recruitment tactics. One article reported that the administration traded Halo memes with the GameStop account.
+2025-10-27 ICE used Halo imagery and memes for recruitment campaigns.
 
 [https://mashable.com/article/ice-use-halo-for-social-media-recruitment](https://mashable.com/article/ice-use-halo-for-social-media-recruitment)
 
@@ -177,7 +177,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 [https://x.com/gamestop/status/1982654845166428607](https://x.com/gamestop/status/1982654845166428607)
 
-2025-10-27 DHS posted a meme on X captioned “DESTROY THE FLOOD” join.ice.gov.
+2025-10-27 DHS posted “DESTROY THE FLOOD” recruitment messaging on X.
 
 [https://x.com/DHSgov/status/1982819431894901043](https://x.com/DHSgov/status/1982819431894901043)
 

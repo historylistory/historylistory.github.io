@@ -207,13 +207,13 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds](http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds)
 
-2025-10-31 Just hours before SNAP benefits were set to expire, Trump hosted a lavish Great Gatsby Halloween party at the White House.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 
 [https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480](https://abcnews.go.com/Politics/snap-benefits-run-dry-government-shutdown-continues-states/story?id=127059480)
 
-2025-10-31 Trump posted 6 times about renovating a White House bathroom completely in marble amidst a government shutdown and hunger crisis.
+2025-10-31 Trump repeatedly posted about a marble White House bathroom renovation during a hunger crisis.
 
 [https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/](https://deadline.com/2025/10/trump-lincoln-bathroom-white-house-1236604245/)
 
@@ -223,7 +223,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins weighed in on SNAP benefits in an X post, spinning rhetoric of SNAP fraud, attacking blue states, and calling Trump the “new sheriff in town”.
+2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 

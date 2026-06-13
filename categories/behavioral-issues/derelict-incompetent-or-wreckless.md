@@ -210,7 +210,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 November
 
-2025-11-04 News outlets begin to report on the ridiculous ad-nauseam number of times Mike Johnson says he doesn’t have information, doesn’t know anything, didn’t get the memo, or hasn’t heard of anything.
+2025-11-04 Reports mocked Mike Johnson for repeatedly claiming ignorance about current events when it suits him. 
 
 [https://www.thedailybeast.com/mike-johnson-mocked-for-insisting-he-doesnt-know-about-anything-trump-does/](https://www.thedailybeast.com/mike-johnson-mocked-for-insisting-he-doesnt-know-about-anything-trump-does/)
 

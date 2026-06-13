@@ -157,7 +157,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 October
 
-2025-10-17 Bill HR5766 was introduced to force the State Department to award a DJT peace prize every year and demands Trump be the first person to be awarded.
+2025-10-17 Bill HR5766 proposed creating a “DJT Peace Prize” and demands Trump be the first person to be awarded.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/5766](https://www.congress.gov/bill/119th-congress/house-bill/5766)
 

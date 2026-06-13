@@ -242,7 +242,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2025 October
 
-2025-10-14 Border patrol (ICE) posted a video about immigration arrests to the tune of a Michael Jackson song featuring antisemitic slurs. The post had since been taken down but copies were made and shared on X.
+2025-10-14 ICE posted an immigration-arrest video set to music containing antisemitic slurs. The post had since been taken down but copies were made and shared on X.
 
 [https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song](https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song)
 

@@ -64,7 +64,7 @@ Project 2025 calls **school meals and programs for more children as “entitleme
 
 [http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds](http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds)
 
-2025-10-31 Just hours before SNAP benefits were set to expire, Trump hosted a lavish Great Gatsby Halloween party at the White House. This was AFTER Trump donated $40B in taxpayer money to bail out Argentina. This was just BEFORE Trump defied judge orders to release contingency funds set aside to continue SNAP benefits. There are contingency benefits set aside for emergencies (like government shutdowns).  Meanwhile, States had to step in to try to make up the difference, and food pantries were absolutely overrun.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 

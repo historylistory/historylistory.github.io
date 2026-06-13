@@ -214,7 +214,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/](https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/)
 
-2025-10-29 Katie Miller had a meltdown on the Piers Morgan show, made several meritless accusations of antisemitism, and threatened to take away citizenship from her critics. She also attacked Piers Morgan, claimed if Mamdani wins then New York will fall, and inadvertently brought up 9/11 (for context, 9/11 and terrorism is frequently brought up on X posts to troll Mamdani and his supporters). 
+2025-10-29 Katie Miller threatened critics and accused others of antisemitism during one of her meltdowns on Piers Morgan.
 
 {% include youtubePlayer.html id="S5MuRatp4ms" %}
 

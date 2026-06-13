@@ -70,7 +70,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins weighed in on SNAP benefits in an X post, spinning rhetoric of SNAP fraud, attacking blue states, and calling Trump the “new sheriff in town”.
+2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
@@ -161,7 +161,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 October
 
-2025-10-14 Border patrol (ICE) posted a video about immigration arrests to the tune of a Michael Jackson song featuring antisemitic slurs. The post had since been taken down but copies were made and shared on X.
+2025-10-14 ICE posted an immigration-arrest video set to music containing antisemitic slurs. The post had since been taken down but copies were made and shared on X.
 
 [https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song](https://www.axios.com/2025/10/15/border-patrol-antisemitic-slur-michael-jackson-song)
 
@@ -184,7 +184,7 @@ permalink: /categories/behavioral-issues/soulless/
 [https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel](https://www.aljazeera.com/features/2025/10/25/they-killed-his-childhood-west-bank-family-mourn-child-killed-israel)
 
 
-2025-10-27 ICE agents used Halo (game) images in their recruitment tactics. One article reported that the administration traded Halo memes with the GameStop account.
+2025-10-27 ICE used Halo imagery and memes for recruitment campaigns.
 
 [https://mashable.com/article/ice-use-halo-for-social-media-recruitment](https://mashable.com/article/ice-use-halo-for-social-media-recruitment)
 
@@ -194,7 +194,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://x.com/gamestop/status/1982654845166428607](https://x.com/gamestop/status/1982654845166428607)
 
-2025-10-27 DHS posted a meme on X captioned “DESTROY THE FLOOD” join.ice.gov.
+2025-10-27 DHS posted “DESTROY THE FLOOD” recruitment messaging on X.
 
 [https://x.com/DHSgov/status/1982819431894901043](https://x.com/DHSgov/status/1982819431894901043)
 

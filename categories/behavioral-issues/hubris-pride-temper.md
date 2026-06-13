@@ -50,11 +50,11 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 {% include youtubePlayer.html id="jo5Kn_UFHOY" %}
 
-2025-10-29 Katie Miller had a meltdown on the Piers Morgan show, made several meritless accusations of antisemitism, and threatened to take away citizenship from her critics. She also attacked Piers Morgan, claimed if Mamdani wins then New York will fall, and inadvertently brought up 9/11 (for context, 9/11 and terrorism is frequently brought up on X posts to troll Mamdani and his supporters). 
+2025-10-29 Katie Miller threatened critics and accused others of antisemitism during one of her meltdowns on Piers Morgan.
 
 {% include youtubePlayer.html id="S5MuRatp4ms" %}
 
-2025-10-31 Nancy Mace reportedly had a meltdown at Charleston International Airport and berated TSA officers. Some news outlets have provided the official report on their websites.
+2025-10-31 Nancy Mace reportedly berated TSA staff during an airport incident.
 
 [https://www.nbcnews.com/politics/congress/police-report-nancy-mace-cursed-berated-officers-airport-altercation-rcna241222](https://www.nbcnews.com/politics/congress/police-report-nancy-mace-cursed-berated-officers-airport-altercation-rcna241222)
 
