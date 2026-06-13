@@ -134,7 +134,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://www.npr.org/2025/11/15/nx-s1-5609888/aircraft-carrier-caribbean-venezuela-military-action](https://www.npr.org/2025/11/15/nx-s1-5609888/aircraft-carrier-caribbean-venezuela-military-action)
 
-2025-11-29 Trump declared the Venezuelan airspace should be closed via Truth Social, even though he does not have the authority to close another country’s airspace.
+2025-11-29 Trump declared Venezuelan airspace should be closed even though he does not have the authority to close another country’s airspace.
 
 [https://www.bbc.com/news/articles/c741mpdyw9no](https://www.bbc.com/news/articles/c741mpdyw9no)
 
@@ -144,7 +144,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115633041089714842](https://truthsocial.com/@realDonaldTrump/posts/115633041089714842)
 
-2025-11-30 Pete Hegseth posted a meme on social media depicting a children’s cartoon character Franklin the Turtle firing missiles at boats and wrote above the caption “For your Christmas wish list…”
+2025-11-30 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat, captioned, “For your Christmas wish list”. 
 
 [https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes](https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes)
 
@@ -198,7 +198,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 {% include youtubePlayer.html id="ZYYlg_bLnlw" %}
 
-2025-12-10 The U.S. seized a Venezuelan oil tanker amidst allegations of piracy. DHS posted a content video of the seizure to the tune of “Momma Said Knock You Out”.
+2025-12-10 DHS released a video of a Venezuelan oil tanker seizure to “Momma Said Knock You Out” by LL Cool J.
 
 [https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast](https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast)
 

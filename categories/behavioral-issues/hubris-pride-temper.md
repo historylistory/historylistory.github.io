@@ -64,13 +64,13 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2025 November
 
-2025-11-04 Nancy Mace released a video of herself explaining her airport tantrum. In the video she said, “if you’re not man enough to take my feedback – my constructive feedback for you not doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airport”.
+2025-11-04 Nancy Mace defended her airport confrontation in a video, “if you’re not man enough to take my feedback – my constructive feedback for you not doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airport”.
 
 [https://www.instagram.com/reel/DQo1Fd3DhcN/](https://www.instagram.com/reel/DQo1Fd3DhcN/)
 
 [https://www.instagram.com/reel/DQt1jhLE2qF/](https://www.instagram.com/reel/DQt1jhLE2qF/)
 
-2025-11-05 Nancy Mace posted a threat on social media that she would sue Charleston Airport for defamation. For context, this is in reference to when she was dropped off at the airport and nobody was there to greet her. According to some news outlets, part of the mix up was that she was allegedly late to the pickup point and she showed up in a different vehicle than originally planned.
+2025-11-05 Nancy Mace threatened to sue Charleston Airport for defamation.
 
 [https://thehill.com/homenews/house/5591640-congresswoman-mace-defends-airport-behavior/](https://thehill.com/homenews/house/5591640-congresswoman-mace-defends-airport-behavior/)
 
@@ -78,7 +78,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.live5news.com/2025/11/05/rep-mace-announces-plans-sue-charleston-airport-others-defamation/](https://www.live5news.com/2025/11/05/rep-mace-announces-plans-sue-charleston-airport-others-defamation/)
 
-2025-11-29 Trump declared the Venezuelan airspace should be closed via Truth Social, even though he does not have the authority to close another country’s airspace.
+2025-11-29 Trump declared Venezuelan airspace should be closed even though he does not have the authority to close another country’s airspace.
 
 [https://www.bbc.com/news/articles/c741mpdyw9no](https://www.bbc.com/news/articles/c741mpdyw9no)
 
@@ -88,7 +88,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115633041089714842](https://truthsocial.com/@realDonaldTrump/posts/115633041089714842)
 
-2025-11-29 While on the Abby Phillips show, an interview with Stephen Miller’s wife Katie Miller ended up in a shouting match when the host called Nick Fuentes an anti-Semite. Katie Miller corrected the host by saying, “A Hitler admirer. Nick Fuentes is actually a Hitler admirer”, and the interview descended from there.
+2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
 [https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html](https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html)
 

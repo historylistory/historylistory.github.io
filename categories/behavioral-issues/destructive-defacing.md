@@ -68,7 +68,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2025 November
 
-2025-11-16 Preservationist groups sued Trump for his plans to paint over the Eisenhower Executive Office in Washington DC. 
+2025-11-16 Preservation groups sued Trump over plans to repaint the Eisenhower Executive Office.
 
 [https://www.cnn.com/2025/11/16/politics/trump-sued-over-plans-to-paint-eisenhower-building-in-washington](https://www.cnn.com/2025/11/16/politics/trump-sued-over-plans-to-paint-eisenhower-building-in-washington)
 

@@ -236,7 +236,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies](https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies)
 
-2025-11-28 Trump announced plans to revoke all executive orders Biden signed with an autopen.
+2025-11-28 Trump announced plans to revoke all Biden autopen executive orders.
 
 [https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373](https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373)
 
@@ -250,7 +250,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 December
 
-2025-12-01 Trump made hundreds of posts on Truth Social including reposts and fanning conspiracy theories. The amount of posts made on this date made Trump look even more unstable than he already had.
+2025-12-01 Trump posted hundreds of Truth Social messages and conspiracy reposts in a single day.
 
 [https://time.com/7338077/trump-truth-social-posts-addiction/](https://time.com/7338077/trump-truth-social-posts-addiction/)
 
@@ -258,7 +258,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://people.com/donald-trump-late-night-truth-social-spree-11860296](https://people.com/donald-trump-late-night-truth-social-spree-11860296)
 
-2025-12-04 The Pentagon Inspector General released a report stating Hegseth endangered the lives of American servicemembers when he shared classified details of Yemen strikes on the unauthorized commercial app Signal Chat.
+2025-12-04 The Pentagon Inspector General released a report stating Hegseth endangered servicemembers through Signal leaks.
 
 [https://www.cbsnews.com/news/hegseths-signal-chat-pentagon-inspector-general-report/](https://www.cbsnews.com/news/hegseths-signal-chat-pentagon-inspector-general-report/)
 

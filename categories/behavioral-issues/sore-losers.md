@@ -48,7 +48,7 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2025 November
 
-2025-11-07 After Trump failed to win the Nobel Prize, FIFA announced they were creating a “peace prize” to award at the World Cup draw in D.C.
+2025-11-07 FIFA announced a new “peace prize” after Trump again missed the Nobel Prize.
 
 [https://apnews.com/article/fifa-peace-prize-infantino-trump-c339695d2cca0f8acd92ff0264ff5ea9](https://apnews.com/article/fifa-peace-prize-infantino-trump-c339695d2cca0f8acd92ff0264ff5ea9)
 

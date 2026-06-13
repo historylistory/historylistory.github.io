@@ -54,7 +54,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
 
-2025-12-07 Check out Alex Karp’s jittery interview.
+2025-12-07 Alex Karp gave a widely discussed jittery interview.
 
 [https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
 

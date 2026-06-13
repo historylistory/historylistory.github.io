@@ -211,7 +211,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 [https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
 
 
-2025-11-30 Pete Hegseth posted a meme on social media depicting a children’s cartoon character Franklin the Turtle firing missiles at boats and wrote above the caption “For your Christmas wish list…”
+2025-11-30 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat, captioned, “For your Christmas wish list”. 
 
 [https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes](https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes)
 

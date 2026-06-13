@@ -318,7 +318,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 November
 
-2025-11-20 Karoline Leavitt had Getty images scrub a photo of her because it was too ‘unflattering’. 
+2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
 
 [https://newrepublic.com/post/208387/white-house-blocks-photo-karoline-leavitt-turkey-neck](https://newrepublic.com/post/208387/white-house-blocks-photo-karoline-leavitt-turkey-neck)
 
@@ -334,7 +334,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 December
 
-2025-12-07 Check out Alex Karp’s jittery interview.
+2025-12-07 Alex Karp gave a widely discussed jittery interview.
 
 [https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
 
@@ -344,7 +344,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://futurism.com/future-society/palantir-joke-ceo-cocaine](https://futurism.com/future-society/palantir-joke-ceo-cocaine)
 
-2025-12-10 The U.S. seized a Venezuelan oil tanker amidst allegations of piracy. DHS posted a content video of the seizure to the hip hop tune of “Momma Said Knock You Out” by LL Cool J.
+2025-12-10 DHS released a video of a Venezuelan oil tanker seizure to “Momma Said Knock You Out” by LL Cool J.
 
 [https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast](https://www.theguardian.com/us-news/2025/dec/10/us-forces-reportedly-seize-oil-tanker-off-venezuela-coast)
 

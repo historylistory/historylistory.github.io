@@ -56,7 +56,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 ### 2025 December
 
-2025-12-07 Check out Alex Karp’s jittery interview.
+2025-12-07 Alex Karp gave a widely discussed jittery interview.
 
 [https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
 

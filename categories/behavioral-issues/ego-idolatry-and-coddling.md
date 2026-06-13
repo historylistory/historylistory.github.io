@@ -164,7 +164,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 December
 
-2025-12-03 The Trump administration renamed the United States Institute of Peace after Trump to “reflect the greatest dealmaker in our nation’s history”. For context, the administration dismantled this nonprofit organization in March during DOGE.
+2025-12-03 The administration renamed the U.S. Institute of Peace after Trump months after DOGE dismantled it. 
 
 [https://www.npr.org/2025/12/04/g-s1-100576/trump-institute-of-peace-name](https://www.npr.org/2025/12/04/g-s1-100576/trump-institute-of-peace-name)
 

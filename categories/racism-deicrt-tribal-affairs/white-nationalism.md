@@ -200,7 +200,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://abcnews.go.com/Politics/coast-guard-pushes-back-reports-hate-symbol-policy/story?id=127747063](https://abcnews.go.com/Politics/coast-guard-pushes-back-reports-hate-symbol-policy/story?id=127747063)
 
-2025-11-29 While on the Abby Phillips show, an interview with Stephen Miller’s wife Katie Miller ended up in a shouting match when the host called Nick Fuentes an anti-Semite. Katie Miller made her distinction by saying, “A Hitler admirer. Nick Fuentes is actually a Hitler admirer”, and the interview descended from there.
+2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
 [https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html](https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html)
 
