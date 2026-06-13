@@ -155,7 +155,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 September
 
-2025-09-18 Kristi Noem released a highlight reel of an ICE raid set to Nirvana's "Smells Like Teen Spirit".
+2025-09-18 Kristi Noem released an ICE raid montage set to Nirvana’s “Smells Like Teen Spirit”. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/kristi-noem-ice-raid-nirvana-smells-like-teen-spirit-b2829413.html](https://www.the-independent.com/news/world/americas/us-politics/kristi-noem-ice-raid-nirvana-smells-like-teen-spirit-b2829413.html)
 

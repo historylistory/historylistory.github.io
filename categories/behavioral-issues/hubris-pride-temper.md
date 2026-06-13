@@ -32,7 +32,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2025 September
 
-2025-09-08 During a MAGA-only dinner party Scott Bessent threatened to punch Bill Pulte for "trash talking".
+2025-09-08 Scott Bessent reportedly threatened Bill Pulte during a MAGA dinner.
 
 [https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956](https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956)
 

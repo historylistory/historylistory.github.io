@@ -107,6 +107,13 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.youtube.com/watch?v=bJnVvF2B2to](https://www.youtube.com/watch?v=bJnVvF2B2to)
 
+### 2025 September
+
+
+2025-09-08 Scott Bessent reportedly threatened Bill Pulte during a MAGA dinner.
+
+[https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956](https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956)
+
 ### 2025 October
 
 2025-10-29 Susan Collins broke with Trump on the same tariff emergency powers vote.

@@ -58,7 +58,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/](https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/)
 
-2025-09-10 Kash Patel prematurely sent out a post on X telling the public a suspect had been caught. He wrote, “The subject for the horrific shooting today that took the life of Charlie Kirk is now in custody. Thank you to the local and state authorities in Utah for your partnership with @fbi. We will provide updates when able”.
+2025-09-10 Kash Patel prematurely announced a suspect was in custody after the Charlie Kirk shooting.
 
 [https://www.theguardian.com/us-news/2025/dec/15/kash-patel-brown-shooting-suspect](https://www.theguardian.com/us-news/2025/dec/15/kash-patel-brown-shooting-suspect)
 

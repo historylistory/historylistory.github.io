@@ -218,13 +218,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/GovPritzker/status/1964367057052701152](https://x.com/GovPritzker/status/1964367057052701152)
 
-2025-09-18 Kristi Noem released a highlight reel of an ICE raid set to Nirvana's "Smells Like Teen Spirit".
+2025-09-18 Kristi Noem released an ICE raid montage set to Nirvana’s “Smells Like Teen Spirit”. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/kristi-noem-ice-raid-nirvana-smells-like-teen-spirit-b2829413.html](https://www.the-independent.com/news/world/americas/us-politics/kristi-noem-ice-raid-nirvana-smells-like-teen-spirit-b2829413.html)
 
  
 
-2025-09-23 Trump publicly crybabied to the UN about broken escalators and prompters. Later that day Press Secretary Karoline Leavitt had a tantrum on Fox news, called the escalator incident sabotage and demanded investigations and firings.
+2025-09-23 Trump complained to the UN about escalators and teleprompters. In a tantrum on Fox Leavitt accused staff sabotage and demanded investigations. 
 
 {% include youtubePlayer.html id="2g1wRwwfqqM" %}
 

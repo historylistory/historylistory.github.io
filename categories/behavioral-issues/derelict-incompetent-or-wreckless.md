@@ -172,19 +172,23 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694](https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694)
 
-2025-09-10 Kash Patel prematurely sent out a post on X telling the public a suspect had been caught. He wrote, “The subject for the horrific shooting today that took the life of Charlie Kirk is now in custody. Thank you to the local and state authorities in Utah for your partnership with @fbi. We will provide updates when able”.
+2025-09-09 When asked about the Kirk assassination, Trump instead responded with remodeling updates to his ballroom. 
+
+[https://www.youtube.com/shorts/I4uPNMysG48](https://www.youtube.com/shorts/I4uPNMysG48)
+
+2025-09-10 Kash Patel prematurely announced a suspect was in custody after the Charlie Kirk shooting.
 
 [https://www.theguardian.com/us-news/2025/dec/15/kash-patel-brown-shooting-suspect](https://www.theguardian.com/us-news/2025/dec/15/kash-patel-brown-shooting-suspect)
 
 [https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824](https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824)
 
-2025-09-11 (context) Trump assigned a former NFL player to the ambassador of the Bahamas. The video of Herschel Walker stumbling through foreign policy questions from Ted Cruz about the Bahamas can be found on YouTube. On February 19th of the following year, during a press conference Trump couldn’t remember where he assigned Walker, stating, “…and now he’s going to be the ambassador of…come on, name the country, Herschel…”.
+2025-09-11 Trump appointed NFL player Herschel Walker ambassador to the Bahamas. On February 19th of the following year, during a press conference Trump couldn’t remember where he assigned Walker, stating, “…and now he’s going to be the ambassador of…come on, name the country, Herschel…”.
 
 {% include youtubePlayer.html id="08n2IItLPgE" %}
 
 [https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders](https://newrepublic.com/post/206779/donald-trump-forgets-names-titles-world-leaders)
 
-2025-09-17 During a Judiciary Committee Hearing following the Kirk shooting, Congresswoman Jasmine Crocket grilled Patel over his mishandling of the investigation.
+2025-09-17 Jasmine Crockett grilled Kash Patel over his handling of the Kirk investigation.
 
 {% include youtubePlayer.html id="ruzO8pTcW54" %}
 

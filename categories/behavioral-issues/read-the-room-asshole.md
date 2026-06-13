@@ -40,7 +40,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2025 September
 
-2025-09-09 When asked about the Kirk assassination, Trump responded with remodeling updates on the ballroom.
+2025-09-09 When asked about the Kirk assassination, Trump instead responded with remodeling updates to his ballroom. 
 
 [https://www.youtube.com/shorts/I4uPNMysG48](https://www.youtube.com/shorts/I4uPNMysG48)
 

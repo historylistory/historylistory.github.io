@@ -41,7 +41,7 @@ This is certainly not a full list - just a few samples. When it comes to the Tru
 
 ### 2025
 
-2025-09-23 Trump claimed multiple times that he has ended 7-to-10 wars.
+2025-09-23 Trump repeatedly claimed he ended 7–10 wars.
 
 {% include youtubePlayer.html id="xAE9__z9bTM" %}
 
