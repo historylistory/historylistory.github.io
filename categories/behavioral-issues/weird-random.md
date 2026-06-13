@@ -141,7 +141,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/](https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/)
 
-2026-03-28 During a Benny Johnson podcast JD Vance said he believed UFO’s and aliens were ‘demons’. 
+2026-03-28 JD Vance said he believed UFOs and aliens were demons.
 
 [https://x.com/bennyjohnson/status/2037611400223179189](https://x.com/bennyjohnson/status/2037611400223179189)
 
@@ -153,7 +153,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://thehill.com/homenews/administration/5806206-vance-obsessed-ufo-mystery/](https://thehill.com/homenews/administration/5806206-vance-obsessed-ufo-mystery/)
 
-2026-03-28 A US Army Apache helicopter did a suspended flyby of Kid Rock’s mansion.
+2026-03-28 A U.S. Army Apache helicopter flew over Kid Rock’s mansion.
 
 [https://www.cnbc.com/2026/03/31/kid-rock-army-helicopter-suspended.html](https://www.cnbc.com/2026/03/31/kid-rock-army-helicopter-suspended.html)
 
@@ -164,7 +164,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters](https://www.cnn.com/2026/03/30/politics/kid-rock-army-apache-helicopters)
 
 
-2026-03-30 The press learned the massive ballroom project also includes a massive military complex/bunker below.
+2026-03-30 Reports revealed Trump’s ballroom project included a military bunker complex.
 
 [https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/](https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/)
 
@@ -187,7 +187,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 ### 2026 April
 
-2026-04-01 Trump appeared as a “silent observer” for the Supreme Court hearing on his Executive Order to end birthright citizenship and the 14th Amendment.
+2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
 
 [https://www.bbc.com/news/videos/ce8l27p3jr8o](https://www.bbc.com/news/videos/ce8l27p3jr8o)
 

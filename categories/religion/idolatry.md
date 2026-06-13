@@ -67,7 +67,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 [https://truthsocial.com/@realDonaldTrump/posts/116200371638821370](https://truthsocial.com/@realDonaldTrump/posts/116200371638821370)
 
-2026-03-31 Trump shared images of a towering 50-story glass skyscraper he wants for his presidential library. It has a golden escalator and the lobby will feature the Saudi jet he was gifted, a theater featuring a gold statue of himself, his “walk of fame”, and other things.
+2026-03-31 Trump proposed a massive gold-themed presidential library featuring his heckling “walk of fame”, the gifted Saudi jetliner, and a gold statue of himself. 
 
 [https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4](https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4)
 
@@ -81,7 +81,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 ### 2026 April
 
-2026-04-01 During the White House Easter luncheon, Trump’s spiritual adviser Paula White likened Trump to Jesus.
+2026-04-01 Trump’s spiritual adviser Paula White compared Trump to Jesus during a White House Easter event.
 
 [https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/](https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/)
 
@@ -101,7 +101,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 [https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s](https://www.youtube.com/watch?v=xkTSObD6VxU&list=WL&index=1&t=267s)
 
-2026-04-01 Trump’s pastor Franklin Graham weaponized the book of Esther during a Presidential prayer at the White House, “Father, you tell us in the book of Esther that the Persians, the Iranians, were wanting to kill every Jew, woman, child, and do it all in one day”. He went on to politicize faith, calling Iranians the “wicked regime”, accused Iran of wanting to kill all Jews, compared Trump to Queen Esther, and claimed that Trump was “raised up for such a time as this”. This was during the war in Iran started by the U.S. and Israel, and during the same Easter prayer breakfast when Paula White compared Trump to Jesus. Fact-check: the villain in the book of Esther was not the Persians. Giving politics a biblical narrative to gain power and control is probably a sin. 
+2026-04-01 Franklin Graham framed the Iran conflict in biblical terms and likened Trump to Queen Esther.
 
 [https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3](https://www.youtube.com/watch?v=an9D8G1BtjY&list=WL&index=3)
 

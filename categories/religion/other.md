@@ -90,7 +90,7 @@ permalink: /categories/religion/other/
 
 ### 2026 April
 
-2026-04-01 During the White House Easter luncheon, Trump’s spiritual adviser Paula White likened Trump to Jesus.
+2026-04-01 Trump’s spiritual adviser Paula White compared Trump to Jesus during a White House Easter event.
 
 [https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/](https://baptistnews.com/article/at-white-house-trump-lauded-as-suffering-king-like-jesus/)
 

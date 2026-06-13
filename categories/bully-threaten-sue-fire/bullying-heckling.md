@@ -272,7 +272,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2026 April
 
-2026-04-01 Trump appeared as a “silent observer” for the Supreme Court hearing on his Executive Order to end birthright citizenship and the 14th Amendment.
+2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
 
 [https://www.bbc.com/news/videos/ce8l27p3jr8o](https://www.bbc.com/news/videos/ce8l27p3jr8o)
 

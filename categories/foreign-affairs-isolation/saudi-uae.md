@@ -94,7 +94,7 @@ permalink: /categories/foreign-affairs-isolation/saudi-uae/
 
 [https://www.youtube.com/watch?v=vEuuPpq_AMQ](https://www.youtube.com/watch?v=vEuuPpq_AMQ)
 
-2026-03-31 Trump shared images of a towering 50-story glass skyscraper he wants for his presidential library. It has a golden escalator and the lobby will feature the Saudi jet he was gifted, a theater featuring a gold statue of himself, his “walk of fame”, and other things.
+2026-03-31 Trump proposed a massive gold-themed presidential library featuring his heckling “walk of fame”, the gifted Saudi jetliner, and a gold statue of himself. 
 
 [https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4](https://www.youtube.com/watch?v=GHtNpXBOj6k&list=WL&index=4)
 

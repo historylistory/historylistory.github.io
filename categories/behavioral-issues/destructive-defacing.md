@@ -127,7 +127,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 
 
-2026-03-30 The press learned the massive ballroom project also includes a massive military complex/bunker below.
+2026-03-30 Reports revealed Trump’s ballroom project included a military bunker complex.
 
 [https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/](https://www.usatoday.com/story/news/politics/2026/03/30/trump-white-house-ballroom-military-shed-construction/89383496007/)
 

@@ -154,7 +154,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
 
-2026-03-28 Trump frequented his golf course in West Palm while the war in Iran was going on.
+2026-03-28 Trump frequently golfed during the Iran war.
 
 [https://www.huffpost.com/entry/the-country-is-at-war-trump-is-at-the-golf-course_n_69cac235e4b010178ee645a4](https://www.huffpost.com/entry/the-country-is-at-war-trump-is-at-the-golf-course_n_69cac235e4b010178ee645a4)
 
@@ -170,7 +170,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/](https://thehill.com/policy/defense/5807115-donald-trump-military-complex-white-house-ballroom/)
 
-2026-03-30 When asked about the war in Iran, Trump veered off topic to discuss his ballroom and share pictures.
+2026-03-30 Trump responded to Iran-war questions by discussing ballroom designs.
 
 [https://www.youtube.com/watch?v=N299fC18CMs](https://www.youtube.com/watch?v=N299fC18CMs)
 
