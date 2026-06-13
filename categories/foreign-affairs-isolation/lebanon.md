@@ -61,7 +61,7 @@ permalink: /categories/foreign-affairs-isolation/lebanon/
 [https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat](https://www.scrippsnews.com/us-news/iran-war/strait-of-hormuz-reopens-but-us-remains-ready-for-combat)
 
 
-2026-04-21 Amnesty International released their annual Global Human Rights report. In that report, they described the leaders of Israel, Russia and the United States as “voracious predators” intent on economic and political domination, citing the war in Iran, relentless killing in Lebanon, and the genocide in Gaza. It also cited the growing resistance of States in South Africa as they join to protest the genocide case against Israel in the International Court of Justice.
+2026-04-21 Amnesty International labeled Israel, Russia, and the U.S. “voracious predators” in its annual human-rights report.
 
 [https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
 

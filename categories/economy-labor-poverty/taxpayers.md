@@ -267,7 +267,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 [https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)
 
-2026-04-27 Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
 [https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
 

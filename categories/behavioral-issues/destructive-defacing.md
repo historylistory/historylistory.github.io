@@ -158,7 +158,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom](https://www.theguardian.com/us-news/2026/apr/18/trump-administration-white-house-ballroom)
 
-2026-04-26 The Trump administration threatened the National Trust for Historic Preservation by giving them an April 27 2026 9am deadline to drop their lawsuit halting construction of Trump’s $400M ballroom.
+2026-04-26 The Trump administration threatened the preservation group National Trust for Historic Preservation to drop lawsuits against the White House ballroom project.
 
 [https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit](https://www.scmp.com/news/world/united-states-canada/article/3351503/justice-department-cites-shooting-press-preservationists-drop-trump-ballroom-suit)
 
@@ -166,7 +166,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96](https://apnews.com/article/todd-blanche-white-house-ballroom-trump-1d063b208677631cb964c6c8ff64bd96)
 
-2026-04-26 Trump claimed that the White House Correspondent Dinner shooting was more reason to build a ballroom, claiming in a post that “This event would never have happened with the Militarily Top Secret Ballroom currently under construction at the White House. It cannot be built fast enough!”.
+2026-04-26 Trump claimed the White House Correspondents’ Dinner shooting justified faster ballroom construction.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180](https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180)
 
@@ -176,7 +176,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.bbc.com/news/articles/c2d8dg57rzdo](https://www.bbc.com/news/articles/c2d8dg57rzdo)
 
-2026-04-27 Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
 [https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
 

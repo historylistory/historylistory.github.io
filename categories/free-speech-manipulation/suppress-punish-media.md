@@ -327,7 +327,7 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
 
-2026-04-21 Kash Patel filed his $250M defamation lawsuit against The Atlantic for reporting on his erratic behavior and unexplained absences. For example, they reported that Patel’s security detail struggled to wake him on multiple occasions last year and in at least one instance requested breaching equipment normally used by SWAT teams to enter buildings.
+2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
 
 [https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
 

@@ -177,7 +177,7 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
-2026-04-19 (context because they are trying to establish one religion - this is exclusionary) The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 
 [https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
 

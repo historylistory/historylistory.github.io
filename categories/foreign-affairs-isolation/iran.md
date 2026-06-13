@@ -1520,7 +1520,7 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 
 
-2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+2026-04-23 Trump urged FIFA to replace Iran in the World Cup with Italy.
 
 [https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
 
@@ -1542,7 +1542,7 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831](https://www.nbcnews.com/world/iran/live-blog/live-updates-trump-iran-hormuz-blockade-ceasefire-talks-lebanon-israel-rcna341831)
 
-2026-04-23 US supplies of long-range missiles dwindled. Trump doubled down and told reporters the U.S. had twice as many missiles than when he started his term.
+2026-04-23 Trump claimed U.S. missile supplies were stronger despite reports of shortages.
 
 [https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile](https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile)
 
@@ -1551,7 +1551,7 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html](https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.html)
 
 
-2026-04-26 Trump cancelled his special envoy’s trip to Pakistan for peace talks with Iran.
+2026-04-26 Trump canceled peace-talk travel involving Pakistan and Iran.
 
 [https://www.bbc.com/news/live/cd7j1g94d1lt](https://www.bbc.com/news/live/cd7j1g94d1lt)
 
@@ -1573,7 +1573,7 @@ SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kush
 
 PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/news/articles/c4gxgv8j7zlo)
 
-2026-04-27 Four Democratic senators launched an investigation into the bombing in Kuwait that killed six American servicemembers and left more than 20 injured. 
+2026-04-27 Four Democratic senators investigated the Kuwait bombing that killed six U.S. servicemembers and left more than 20 injured. 
 
 [https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
 

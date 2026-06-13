@@ -123,7 +123,7 @@ SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-tr
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
 
-2026-04-19 (context because they are trying to establish one religion - this is exclusionary) The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 
 [https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
 

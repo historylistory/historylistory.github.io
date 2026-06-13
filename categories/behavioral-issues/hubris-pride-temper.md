@@ -221,13 +221,13 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
 
-2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+2026-04-23 Trump urged FIFA to replace Iran in the World Cup with Italy.
 
 [https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
 
 [https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
 
-2026-04-26 Trump cancelled his special envoy’s trip to Pakistan for peace talks with Iran.
+2026-04-26 Trump canceled peace-talk travel involving Pakistan and Iran.
 
 [https://www.bbc.com/news/live/cd7j1g94d1lt](https://www.bbc.com/news/live/cd7j1g94d1lt)
 

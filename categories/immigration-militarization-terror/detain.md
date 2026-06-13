@@ -155,7 +155,7 @@ permalink: /categories/immigration-militarization-terror/detain/
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
 
-2026-04-22 Marco Rubio lied and told the press the two women detained with last names Soleimani were related to late General Qassem Soleimani. Now the Trump administration refuses to release them. 
+2026-04-22 Marco Rubio falsely claimed detained women named Soleimani were related to Qassem Soleimani.
 
 [https://www.dropsitenews.com/p/iranian-women-ice-detention-not-related-qasem-soleimani-rubio-loomer](https://www.dropsitenews.com/p/iranian-women-ice-detention-not-related-qasem-soleimani-rubio-loomer)
 

@@ -436,7 +436,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel](https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel)
 
-2026-04-20 US Labor Secretary Lori Chavez Dreamer resigned amidst a series of reports that she abused her position. For example, allegations that she used public funds for personal travel, bringing subordinates to a strip club, drinking on the job, and having an affair with her bodyguard. Also, her husband was reportedly banned from the Labor department building for allegedly sexually assaulting two staff members.
+2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
 [https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/](https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/)
 
@@ -458,7 +458,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
 
-2026-04-27 (context because private donors for public buildings) Lindsey Graham proposed and pushed for taxpayers to fund Trump’s $400M ballroom. Remember, Trump promised in the beginning while he bulldozed the East Wing that his billionaire friends were funding it. Side note, having private donors fund a government-used building is also a conflict of interest.
+2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
 [https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)
 

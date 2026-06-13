@@ -630,7 +630,7 @@ what women who are paid to do things are called”.
 
 PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
 
-2026-04-23 Trump told FIFA to replace Iran at the World Cup with Italy. FIFA did not comment officially but highlighted a statement by FIFA president Gianni Infantino, “The Iranian team is coming, for sure”. 
+2026-04-23 Trump urged FIFA to replace Iran in the World Cup with Italy.
 
 [https://www.bbc.com/sport/football/articles/cy813gy08v2o](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
 

@@ -522,7 +522,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
 
-2026-04-20 US Labor Secretary Lori Chavez Dreamer resigned amidst a series of reports that she abused her position. For example, allegations that she used public funds for personal travel, bringing subordinates to a strip club, drinking on the job, and having an affair with her bodyguard. Also, her husband was reportedly banned from the Labor department building for allegedly sexually assaulting two staff members.
+2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
 [https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/](https://time.com/article/2026/04/20/labor-secretary-lori-chavez-deremer-out-trump-administration/)
 
@@ -534,7 +534,7 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt](https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt)
 
-2026-04-21 Kash Patel filed his $250M defamation lawsuit against The Atlantic for reporting on his erratic behavior and unexplained absences. For example, they reported that Patel’s security detail struggled to wake him on multiple occasions last year and in at least one instance requested breaching equipment normally used by SWAT teams to enter buildings.
+2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
 
 [https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
 
@@ -550,7 +550,7 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 [https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
 
-2026-04-27 Four Democratic senators launched an investigation into the bombing in Kuwait that killed six American servicemembers and left more than 20 injured. 
+2026-04-27 Four Democratic senators investigated the Kuwait bombing that killed six U.S. servicemembers and left more than 20 injured. 
 
 [https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/](https://www.cbsnews.com/news/democratic-senators-launch-investigation-kuwait-strike-killed-u-s-troops/)
 
@@ -560,7 +560,7 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 [https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)
 
-2026-04-23 US supplies of long-range missiles dwindled. Trump doubled down and told reporters the U.S. had twice as many missiles than when he started his term.
+2026-04-23 Trump claimed U.S. missile supplies were stronger despite reports of shortages.
 
 [https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile](https://www.cnn.com/2026/04/21/politics/us-military-missile-stockpile)
 

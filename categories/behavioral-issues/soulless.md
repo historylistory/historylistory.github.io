@@ -569,7 +569,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west](https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west)
 
-2026-04-21 Amnesty International released their annual Global Human Rights report. In that report, they described the leaders of Israel, Russia and the United States as “voracious predators” intent on economic and political domination, citing the war in Iran, relentless killing in Lebanon, and the genocide in Gaza. It also cited the growing resistance of States in South Africa as they join to protest the genocide case against Israel in the International Court of Justice.
+2026-04-21 Amnesty International labeled Israel, Russia, and the U.S. “voracious predators” in its annual human-rights report.
 
 [https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
 
@@ -587,7 +587,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
 
-2026-04-24 The DOJ ramped up their push for more capital punishment in States, including more lethal injections and firing squads, and removing the right to clemency and pardons for death row inmates. The Vatican admonished the push, and Pope Leo said it is inadmissible and attacks human dignity.
+2026-04-24 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo.
 
 [https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment](https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment)
 

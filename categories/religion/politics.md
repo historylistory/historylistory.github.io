@@ -250,7 +250,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-i
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
 
-2026-04-19 The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 
 [https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
 

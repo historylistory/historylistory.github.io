@@ -280,7 +280,7 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
 
 
-2026-04-19 The Trump administration announced it will be reading the Bible to Americans, from Genesis-to-Revelations over an 84-hour public presentation. 
+2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 
 [https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s](https://www.youtube.com/watch?v=yp6bb8SC_Cs&list=WL&index=1&t=56s)
 
@@ -294,7 +294,7 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 [https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday](https://www.foxnews.com/politics/trump-set-read-scripture-oval-office-america-reads-bible-event-starting-sunday)
 
-2026-04-26 Trump claimed that the White House Correspondent Dinner shooting was more reason to build a ballroom, claiming in a post that “This event would never have happened with the Militarily Top Secret Ballroom currently under construction at the White House. It cannot be built fast enough!”.
+2026-04-26 Trump claimed the White House Correspondents’ Dinner shooting justified faster ballroom construction.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180](https://www.nbcnews.com/politics/donald-trump/trump-correspondents-dinner-shooting-white-house-ballroom-rcna342180)
 

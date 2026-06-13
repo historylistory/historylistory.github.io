@@ -214,7 +214,7 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
 
-2026-04-24 The DOJ ramped up their push for more capital punishment in States, including more lethal injections and firing squads, and removing the right to clemency and pardons for death row inmates. The Vatican admonished the push, and Pope Leo said it is inadmissible and attacks human dignity.
+2026-04-24 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo.
 
 [https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment](https://www.npr.org/2026/04/24/nx-s1-5798990/doj-firing-squads-executions-trump-capital-punishment)
 
