@@ -96,7 +96,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2026 January
 
-2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
+2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 [https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
 

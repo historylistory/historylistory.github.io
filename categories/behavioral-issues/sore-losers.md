@@ -58,7 +58,7 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2025 December
 
-2025-12-30 Amid Trump’s repeated whining that he hasn’t received the Nobel Peace Prize, Israeli Prime Minister Netanyahu awarded Trump the Israel Prize in the category of “special contribution to the Jewish people”.
+2025-12-30 Netanyahu awarded Trump the “Israel Prize.”
 
 [https://www.timesofisrael.com/trump-to-be-awarded-israel-prize-next-year-the-countrys-top-honor/](https://www.timesofisrael.com/trump-to-be-awarded-israel-prize-next-year-the-countrys-top-honor/)
 
@@ -66,6 +66,6 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2026 January
 
-2026-01-15 In an effort to quiet Trump’s ongoing whining about not receiving the Nobel Peace Prize, Machado gave her Nobel prize to Trump.
+2026-01-15 Machado gave Trump her Nobel Prize.
 
 [https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk](https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk)

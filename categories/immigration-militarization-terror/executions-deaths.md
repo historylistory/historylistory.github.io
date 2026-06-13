@@ -72,7 +72,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 [https://www.bbc.com/news/articles/cvgnvqrxl0xo](https://www.bbc.com/news/articles/cvgnvqrxl0xo)
 
-2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
+2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 [https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
 
@@ -94,7 +94,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.bbc.com/news/articles/c20zjyxep99o](https://www.bbc.com/news/articles/c20zjyxep99o)
 
-2026-01-23 Only one hour after agents killed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
+2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
 [https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
 
@@ -142,7 +142,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 
-2026-01-28 After the public execution of Pretti, both Kristi Noem and Stephen Miller pointed fingers at each other, each one stating that they were following the others’ orders.
+2026-01-28 Kristi Noem and Stephen Miller blamed each other after Alex Pretti’s execution.
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 
@@ -162,7 +162,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/](https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/)
 
-2026-02-03 During an interview with the Daily Mail JD Vance was asked if he planned to apologize for amplifying claims that Alex Pretti was an assassin, to which Vance replied, “For what?”.
+2026-02-03 JD Vance refused to apologize for amplifying claims about Alex Pretti as an assassin. 
 
 [https://www.usatoday.com/story/news/politics/2026/02/04/jd-vance-alex-pretti-assassin-terrorist-miller-noem/88516567007/](https://www.usatoday.com/story/news/politics/2026/02/04/jd-vance-alex-pretti-assassin-terrorist-miller-noem/88516567007/)
 

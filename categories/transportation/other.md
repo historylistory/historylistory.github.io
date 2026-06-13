@@ -53,7 +53,7 @@ permalink: /categories/transportation/other/
 
 ### 2026 February
 
-2026-02-11 The Pentagon shut down El Paso Airport without telling anyone or giving a reason as to why. They initially reported the airport would be shut down for 10 days, then later changed it to 6 hours.
+2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
 
 [https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/](https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/)
 

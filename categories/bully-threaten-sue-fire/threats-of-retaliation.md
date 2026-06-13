@@ -385,7 +385,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 January
 
-2026-01-12 After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
+2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 
 [https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1](https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1)
 
@@ -417,7 +417,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/](https://oversight.house.gov/release/hearing-wrap-up-minnesota-governor-walz-and-attorney-general-ellison-lied-about-knowledge-of-fraud-and-silenced-whistleblowers/)
 
-2026-01-19 Trump sent a message to the Norwegian Prime Minister Jonas Gahr Store demanding the Nobel Prize, blamed Norway for not giving him the prize, then insisted in the same message he needed “Complete and Total Control of Greenland”. He also added in the message, “I no longer feel an obligation to think purely of Peace”.
+2026-01-19 Trump demanded the Nobel Prize in a message to the Norwegian Prime Minister Jonas Gahr Store while insisting on “complete and total control of Greenland.” He added, “I no longer feel an obligation to think purely of Peace”.
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
 

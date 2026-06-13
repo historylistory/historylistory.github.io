@@ -16,7 +16,7 @@ permalink: /categories/climate-change/drill-baby-drill/
 
 ### 2026 February
 
-2026-02-03 The Trump Administration’s Interior Secretary Doug Burgum introduced a PR campaign to place an innocent façade on Trump’s “drill-baby-drill” campaign by using the cartoon mascot “Coalie”.
+2026-02-03 Interior Secretary Doug Burgum introduced “Coalie” as a child-friendly mascot for Trump’s drilling campaign.
 
 [https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/](https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/)
 

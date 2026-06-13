@@ -274,11 +274,11 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 January
 
-2026-01-19 Trump sent a message to the Norwegian Prime Minister Jonas Gahr Store demanding the Nobel Prize, blamed Norway for not giving him the prize, then insisted in the same message he needed “Complete and Total Control of Greenland”. He also added in the message, “I no longer feel an obligation to think purely of Peace”.
+2026-01-19 Trump demanded the Nobel Prize in a message to the Norwegian Prime Minister Jonas Gahr Store while insisting on “complete and total control of Greenland.” He added, “I no longer feel an obligation to think purely of Peace”.
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
 
-2026-01-28 After the public execution of Pretti, both Kristi Noem and Stephen Miller pointed fingers at each other, each one stating that they were following the others’ orders.
+2026-01-28 Kristi Noem and Stephen Miller blamed each other after Alex Pretti’s execution.
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 
@@ -286,7 +286,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 February
 
-2026-02-11 The Pentagon shut down El Paso Airport without telling anyone or giving a reason as to why. They initially reported the airport would be shut down for 10 days, then later changed it to 6 hours.
+2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
 
 [https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/](https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/)
 

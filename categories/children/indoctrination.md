@@ -72,7 +72,7 @@ permalink: /categories/children/indoctrination/
 
 ### 2026 February
 
-2026-02-03 The Trump Administration’s Interior Secretary Doug Burgum introduced a PR campaign for coal mining to appeal to kids by using the cartoon mascot “Coalie”. Burgum posted another cartoon image of himself with Coalie, headlined “Mine, Baby, Mine!”.
+2026-02-03 Interior Secretary Doug Burgum introduced “Coalie” as a child-friendly mascot for Trump’s drilling campaign.
 
 [https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/](https://www.motherjones.com/politics/2026/02/trump-administration-interior-doug-burgum-mascot-coalie-ridicule/)
 

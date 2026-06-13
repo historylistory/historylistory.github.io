@@ -352,13 +352,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/DHSgov/status/1998909254854746523?s=20](https://x.com/DHSgov/status/1998909254854746523?s=20)
 
-2025-12-17 Kash Patel attended a Katie Miller podcast to talk about his girlfriend when he was supposed to be investigating the Brown University shooting and overseeing the manhunt for the killer.
+2025-12-17 Kash Patel discussed his girlfriend on a Katie Miller podcast while he was supposed to be investigating the Brown University shooting and overseeing the manhunt for the killer.
 
 [https://www.the-independent.com/news/world/americas/us-politics/kash-patel-girlfriend-katie-miller-podcast-backlash-b2885675.html#:~:text=FBI%20Director%20Kash%20Patel's%20chummy%20appearance%20alongside,Miller%20to%20scramble%20into%20damage%20control%20mode](https://www.the-independent.com/news/world/americas/us-politics/kash-patel-girlfriend-katie-miller-podcast-backlash-b2885675.html).
 
 [https://newrepublic.com/post/204486/kash-patel-katie-miller-podcast-brown-shooting](https://newrepublic.com/post/204486/kash-patel-katie-miller-podcast-brown-shooting)
 
-2025-12-17 Trump had the White House install a partisan “Presidential Walk of Fame” featuring cynical, harassing, condemning, insulting and cringey plaques calling President Biden “Sleepy Joe” and President Obama divisive, among other things.
+2025-12-17 Trump installed a partisan “Presidential Walk of Fame” mocking former presidents.
 
 [https://www.cnn.com/2025/12/17/politics/presidential-walk-of-fame-plaques-trump](https://www.cnn.com/2025/12/17/politics/presidential-walk-of-fame-plaques-trump)
 
@@ -372,17 +372,17 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
 
-2026-01-14 During his visit to a Ford plant, Trump flipped off an autoworker and mouthed for him to fuck off.
+2026-01-14 Trump flipped off an autoworker during a Ford plant visit.
 
 [https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip](https://www.cnn.com/2026/01/13/politics/ford-plant-trump-middle-finger-flip)
 
 [https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/](https://www.clickondetroit.com/news/local/2026/01/14/what-uaw-said-about-ford-worker-being-flipped-off-by-president-trump-in-detroit/)
 
-2026-01-15 During a White House press briefing Karoline Leavitt berated and humiliated a journalist for asking about comments made by Trump to cancel the 2026 mid-term elections. She stated, “…only someone like you would take that so seriously and pose it as a question in that way”. When the journalist asked if ICE agents were doing everything correctly after the killing of Nicole Good, Karoline spouted, “Oh, okay. So you’re a biased reporter with a left-wing opinion. Yeah, because you’re a left-wing hack. You’re not a reporter. You’re posing in this room as a journalist. And it’s so clear by the premise of your question. And you and the people in the media who have such biases but fake like you’re a journalist – you shouldn’t even be sitting in that seat. But you’re pretending like you’re a journalist, but you’re a left-wing activist”.
+2026-01-15 Karoline Leavitt berated reporters as “left-wing hacks” during a White House briefing, “Oh, okay. So you’re a biased reporter with a left-wing opinion. Yeah, because you’re a left-wing hack. You’re not a reporter. You’re posing in this room as a journalist. And it’s so clear by the premise of your question. And you and the people in the media who have such biases but fake like you’re a journalist – you shouldn’t even be sitting in that seat. But you’re pretending like you’re a journalist, but you’re a left-wing activist”.
 
 {% include youtubePlayer.html id="qaMIDqrcM44" %}
 
-2026-01-21 During his speech in Davos Trump kept repeatedly calling Greenland Iceland. The speech was recorded and replayed everywhere across the globe. Press Secretary Karoline Leavitt came to Trump’s defense, asserting blatant lies online to Libby Dean “*no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here*”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “***They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it***”. Also at the World Economic Forum, Trump stated, “**but sometimes you need a dictator**”.
+2026-01-21 Trump repeatedly confused Greenland with Iceland at Davos. Leavitt insisted he did not, saying, “no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it”. Also at the World Economic Forum, Trump stated, “but sometimes you need a dictator”.
 
 [https://www.usatoday.com/story/news/politics/2026/01/21/trump-iceland-greenland-speech-davos-switzerland/88283786007/](https://www.usatoday.com/story/news/politics/2026/01/21/trump-iceland-greenland-speech-davos-switzerland/88283786007/)
 
@@ -394,7 +394,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 February
 
-2026-02-10 Andy Ogles issued a request for a formal request into the NFL for the Superbowl halftime show (because of Bad Bunny). 
+2026-02-10 Andy Ogles requested an investigation into the Super Bowl halftime show.
 
 [https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show](https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show)
 

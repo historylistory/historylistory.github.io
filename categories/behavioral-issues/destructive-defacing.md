@@ -80,7 +80,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2025 December
 
-2025-12-24 The White House threatened to bypass the DC preservation staff and the General Services Admission to demolition the Wilbur J Cohen building and its historic New Deals mural. According to one article, the White House added a long list of government properties to a newly enacted “accelerated disposal” list.
+2025-12-24 The White House threatened to bypass DC preservation rules and the General Services Admission to demolish historic federal property. The White House threatened to bypass the preservation staff to demolition the Wilbur J Cohen building and its historic New Deals mural. According to one article, the White House added a long list of government properties to a newly enacted “accelerated disposal” list.
 
 [https://www.archpaper.com/2025/12/threat-demolition-escalates-cohen-building/](https://www.archpaper.com/2025/12/threat-demolition-escalates-cohen-building/)
 
@@ -93,7 +93,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2026 February
 
-2026-02-02 Trump announced the Kennedy center would be shut down for two years for “renovations”. Renovations would include marble, furniture, gold inlay and gold trim. Trump said the renovations would not come from taxpayer money at all, stating quote, "zero taxpayer". Meanwhile, a Gallup survey showed that millions of Americans were skipping meals in order to pay for their healthcare.  The Gallup poll said, “In a nationally and state-representative survey of nearly 20,000 US adults conducted from June through August 2025, roughly one-third of respondents – the equivalent of more than 82 million Americans – said they have made at least one trade-off with daily living expenses to afford healthcare. Americans are also postponing retirement.
+2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
 [https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s)
 

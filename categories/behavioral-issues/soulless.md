@@ -225,7 +225,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2025 December
 
-2025-12-15 (**for context, I didn’t know exactly where to categorize this detail, so I’ve added it both here and in my conspiracy/misinformation section**). In a calloused social media post, Trump pushed his “Trump Derangement Syndrome” narrative, this time attacking the murder of well-known director Rob Reiner and his wife in their home.
+2025-12-15 Trump used “Trump Derangement Syndrome” rhetoric while posting about a murder case involving Rob Reiner.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115724141568860081](https://truthsocial.com/@realDonaldTrump/posts/115724141568860081)
 
@@ -261,7 +261,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 [https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
 
 
-2026-01-12 After Nicole Goode was killed, Karoline Leavitt said, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.  
+2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 [https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
 
@@ -289,7 +289,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 ### 2026 February
 
-2026-02-03 During an interview with the Daily Mail JD Vance was asked if he planned to apologize for amplifying claims that Alex Pretti was an assassin, to which Vance replied, “For what?”.
+2026-02-03 JD Vance refused to apologize for amplifying claims about Alex Pretti as an assassin. 
 
 [https://www.usatoday.com/story/news/politics/2026/02/04/jd-vance-alex-pretti-assassin-terrorist-miller-noem/88516567007/](https://www.usatoday.com/story/news/politics/2026/02/04/jd-vance-alex-pretti-assassin-terrorist-miller-noem/88516567007/)
 

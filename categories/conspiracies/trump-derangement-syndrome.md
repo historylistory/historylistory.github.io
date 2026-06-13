@@ -29,7 +29,7 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 
 ### 2025 December
 
-2025-12-15 In a calloused social media post, Trump pushed his “Trump Derangement Syndrome” narrative, this time attacking the murder of well-known director Rob Reiner and his wife in their home.
+2025-12-15 Trump used “Trump Derangement Syndrome” rhetoric while posting about a murder case involving Rob Reiner.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115724141568860081](https://truthsocial.com/@realDonaldTrump/posts/115724141568860081)
 

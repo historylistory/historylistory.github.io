@@ -176,7 +176,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://x.com/secrubio/status/1996368261827666104?s=46&t=-DGlDYI6esU-4We1z9gHiQ](https://x.com/secrubio/status/1996368261827666104?s=46&t=-DGlDYI6esU-4We1z9gHiQ)
 
-2025-12-18 The Trump administration changed the name of the John F. Kennedy Memorial Center for the Performing Arts to ***The Donald J. Trump and*** John F. Kennedy Memorial Center for the Performing Arts by unanimous vote from the members Trump himself put on the Kennedy center board. FYI, Trump announced the center would close in February 2026.
+2025-12-18 The Kennedy Center was renamed to include Trump’s name and had himself named the head of the board. Then he announced the center would close in February 2026. 
 
 [https://www.cnn.com/2025/12/30/politics/kennedy-center-cancelations-trump-name](https://www.cnn.com/2025/12/30/politics/kennedy-center-cancelations-trump-name)
 
@@ -184,13 +184,13 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://abcnews.go.com/US/trump-kennedy-center-plans-sue-jazz-musician-canceled/story?id=128761195](https://abcnews.go.com/US/trump-kennedy-center-plans-sue-jazz-musician-canceled/story?id=128761195)
 
-2025-12-22 Trump announced Trump-class battleships, including USS Defiant. 
+2025-12-22 Trump announced “Trump-class” battleships (i.e. USS Defiant). 
 
 [https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/](https://www.navy.mil/Press-Office/Press-Releases/display-pressreleases/Article/4366856/president-trump-announces-new-battleship/)
 
 ### 2026 February
 
-2026-02-02 Trump announced the Kennedy center would be shut down for two years for “renovations”. Renovations would include marble, furniture, gold inlay and gold trim. Trump said the renovations would not come from taxpayer money at all, stating quote, "zero taxpayer". Meanwhile, a Gallup survey showed that millions of Americans were skipping meals in order to pay for their healthcare.  The Gallup poll said, “In a nationally and state-representative survey of nearly 20,000 US adults conducted from June through August 2025, roughly one-third of respondents – the equivalent of more than 82 million Americans – said they have made at least one trade-off with daily living expenses to afford healthcare. Americans are also postponing retirement.
+2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
 [https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s)
 
@@ -202,7 +202,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions](https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions)
 
-2026-02-05 Trump announced plans to rename Penn Station and Dulles Airport after himself in exchange for releasing federal funds for reconstruction.
+2026-02-05 Trump proposed renaming Penn Station and Dulles Airport after himself in exchange for releasing federal funds for reconstruction.
 
 [https://www.cnn.com/2026/02/05/politics/schumer-trump-ny-funding-rename](https://www.cnn.com/2026/02/05/politics/schumer-trump-ny-funding-rename)
 

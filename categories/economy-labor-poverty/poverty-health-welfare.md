@@ -339,7 +339,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2026 February
 
-2026-02-02 Trump announced the Kennedy center would be shut down for two years for “renovations”. Renovations would include marble, furniture, gold inlay and gold trim. Trump said the renovations would not come from taxpayer money at all, stating quote, "zero taxpayer". Meanwhile, a Gallup survey showed that millions of Americans were skipping meals in order to pay for their healthcare.  The Gallup poll said, “In a nationally and state-representative survey of nearly 20,000 US adults conducted from June through August 2025, roughly one-third of respondents – the equivalent of more than 82 million Americans – said they have made at least one trade-off with daily living expenses to afford healthcare. Americans are also postponing retirement.
+2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
 [https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=Vi0AWU60RxE&list=WL&index=1&t=69s)
 

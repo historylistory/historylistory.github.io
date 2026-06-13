@@ -228,7 +228,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://thehill.com/homenews/administration/5689426-venezuela-oil-sale-trump/](https://thehill.com/homenews/administration/5689426-venezuela-oil-sale-trump/)
 
-2026-01-15 In an effort to quiet Trump’s ongoing whining about not receiving the Nobel Peace Prize, Machado gave her Nobel prize to Trump.
+2026-01-15 Machado gave Trump her Nobel Prize.
 
 [https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk](https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk)
 

@@ -235,7 +235,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/](https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/)
 
-2025-12-17 Trump had the White House install a partisan “Presidential Walk of Fame” featuring cynical, harassing, condemning, insulting and cringey plaques calling President Biden “Sleepy Joe” and President Obama divisive, among other things.
+2025-12-17 Trump installed a partisan “Presidential Walk of Fame” mocking former presidents.
 
 [https://www.cnn.com/2025/12/17/politics/presidential-walk-of-fame-plaques-trump](https://www.cnn.com/2025/12/17/politics/presidential-walk-of-fame-plaques-trump)
 

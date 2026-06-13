@@ -104,7 +104,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2026 January
 
-2026-01-12 After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
+2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 
 [https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1](https://www.youtube.com/watch?v=UdYqrbZt6FM&list=WL&index=1)
 
