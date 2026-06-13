@@ -81,7 +81,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
 
-2026-02-21 House Speaker Mike Johnson denied a request to allow Reverend Jesse Jackson to lie in honor at the Capitol. 
+2026-02-21 Mike Johnson denied requests to let Reverend Jesse Jackson lie in honor at the Capitol.
 
 [https://www.nbcnews.com/politics/politics-news/speaker-mike-johnson-denies-request-rev-jesse-jackson-lie-honor-capito-rcna259978](https://www.nbcnews.com/politics/politics-news/speaker-mike-johnson-denies-request-rev-jesse-jackson-lie-honor-capito-rcna259978)
 

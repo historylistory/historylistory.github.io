@@ -119,7 +119,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2026 February
 
-2026-02-19 Trump had a banner of himself hung over the Department of Justice.
+2026-02-19 Trump hung another banner of himself, this time over the Department of Justice.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071](https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071)
 

@@ -8,7 +8,7 @@ permalink: /categories/greed/for-profit-imprisonment/
 
 ### the Geo Group
 
-2026-02-12 The Geo Group is a publicly traded, Florida-based C corporation that invests in private prisons and mental health facilities and has been making profit off ICE detention centers.
+2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 
 [https://www.geogroup.com/ICE](https://www.geogroup.com/ICE)
 

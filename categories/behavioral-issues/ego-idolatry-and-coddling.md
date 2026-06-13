@@ -212,7 +212,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.nbcnews.com/politics/donald-trump/trump-asked-dulles-penn-station-named-exchange-gateway-money-released-rcna257708](https://www.nbcnews.com/politics/donald-trump/trump-asked-dulles-penn-station-named-exchange-gateway-money-released-rcna257708)
 
-2026-02-19 Trump had a banner of himself hung over the Department of Justice.
+2026-02-19 Trump hung another banner of himself, this time over the Department of Justice.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071](https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071)
 

@@ -105,7 +105,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions](https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions)
 
-2026-02-25 Trump planned to turn the East Potomac into a golf course.
+2026-02-25 Trump proposed turning the East Potomac into a golf course.
 
 [https://www.golfdigest.com/story/president-trump-national-links-trust-washington-dc-langston-east-potomac-rock-creek-2026](https://www.golfdigest.com/story/president-trump-national-links-trust-washington-dc-langston-east-potomac-rock-creek-2026)
 

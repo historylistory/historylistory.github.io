@@ -399,7 +399,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show](https://ogles.house.gov/media/press-releases/icymi-ogles-requests-congressional-probe-nfl-nbc-over-vulgar-halftime-show)
 
 
-2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
+2026-02-17 DHS repeated partisan shutdown messaging on official websites, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 
 [https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
 
@@ -409,7 +409,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/HHSGov/status/2023876258162241796](https://x.com/HHSGov/status/2023876258162241796)
 
-2026-02-22 Kash Patel barged in on the US Olympic hockey team locker room and started chugging beer.
+2026-02-22 Kash Patel entered the U.S. Olympic hockey locker room chugging beer.
 
 [https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/](https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/)
 

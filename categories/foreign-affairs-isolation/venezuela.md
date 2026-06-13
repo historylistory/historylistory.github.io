@@ -238,7 +238,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 ### 2026 February
 
-2026-02-24 During the State of the Union, Trump quipped about killing Venezuelans in boat strikes, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
+2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
 

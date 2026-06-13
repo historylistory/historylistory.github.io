@@ -317,7 +317,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://apnews.com/article/immigration-enforcement-drawdown-minnesota-homan-963adf341325d7f6eb5673e1c00d3c2a](https://apnews.com/article/immigration-enforcement-drawdown-minnesota-homan-963adf341325d7f6eb5673e1c00d3c2a)
 
-2026-02-17 According to news articles, Kristi Noem diverted resources away from a search and rescue mission with the Coast Guard to find a missing service member so she could send them to enforce immigration. 
+2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.
 
 [https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904](https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904)
 

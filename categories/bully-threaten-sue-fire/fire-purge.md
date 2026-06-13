@@ -263,7 +263,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 ### 2026 February
 
-2026-02-13 Corey Lewandowski and Kristi Noem fired a Coast Guard pilot after she left her blanket on the plane and the pilot forgot to return it to her.
+2026-02-13 Corey Lewandowski and Kristi Noem reportedly fired a Coast Guard pilot over a forgotten blanket.
 
 [https://people.com/coast-guard-pilot-fired-after-kristi-noem-blanket-left-behind-report-11906222](https://people.com/coast-guard-pilot-fired-after-kristi-noem-blanket-left-behind-report-11906222)
 

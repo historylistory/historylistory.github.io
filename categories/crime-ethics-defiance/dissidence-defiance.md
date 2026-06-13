@@ -257,7 +257,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab)
 
-2026-02-17 Just as the White House violated the Hatch Act in October 2025 during the first shutdown, the official Department of Homeland Security website headlined, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
+2026-02-17 DHS repeated partisan shutdown messaging on official websites, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 
 [https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
 

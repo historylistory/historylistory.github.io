@@ -297,7 +297,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://x.com/StephenM/status/2015133481261474030](https://x.com/StephenM/status/2015133481261474030)
 
-2026-02-12 The Geo Group is a publicly traded, Florida-based C corporation that invests in private prisons and mental health facilities and has been making profit off ICE detention centers.
+2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 
 [https://www.geogroup.com/ICE](https://www.geogroup.com/ICE)
 
@@ -311,11 +311,11 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf](https://www.warren.senate.gov/imo/media/doc/letter_from_sen_warren_repraskinlawmakerstogeogrouponinvolvementindetentionwarehousesystem.pdf)
 
-2026-02-17 According to news articles, Kristi Noem diverted resources away from a search and rescue mission with the Coast Guard to find a missing service member so she could send them to enforce immigration. 
+2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.
 
 [https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904](https://www.nbcnews.com/politics/immigration/noems-use-coast-guard-resources-strains-relationship-military-branch-s-rcna258904)
 
-2026-02-21 House Speaker Mike Johnson denied a request to allow Reverend Jesse Jackson to lie in honor at the Capitol. 
+2026-02-21 Mike Johnson denied requests to let Reverend Jesse Jackson lie in honor at the Capitol.
 
 [https://www.nbcnews.com/politics/politics-news/speaker-mike-johnson-denies-request-rev-jesse-jackson-lie-honor-capito-rcna259978](https://www.nbcnews.com/politics/politics-news/speaker-mike-johnson-denies-request-rev-jesse-jackson-lie-honor-capito-rcna259978)
 
@@ -323,7 +323,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://spectrumlocalnews.com/us/snplus/news/2026/02/21/jesse-jackson-request-lie-in-capitol-denied-precedent](https://spectrumlocalnews.com/us/snplus/news/2026/02/21/jesse-jackson-request-lie-in-capitol-denied-precedent)
 
-2026-02-24 During the State of the Union, Trump quipped about killing Venezuelans in boat strikes, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
+2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
 

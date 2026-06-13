@@ -314,7 +314,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/](https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/)
 
-2026-02-27 For the second incident in February 2026, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas, proving there is an ongoing breakdown in communication between agencies.
+2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
 
 [https://www.bloomberg.com/news/articles/2026-02-27/pentagon-laser-shoots-down-customs-border-patrol-drone-in-texas](https://www.bloomberg.com/news/articles/2026-02-27/pentagon-laser-shoots-down-customs-border-patrol-drone-in-texas)
 
