@@ -329,7 +329,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 ### 2026 March
 
-2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 
 [https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
 
@@ -355,7 +355,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 {% include youtubePlayer.html id="qepYRy2BTAg" %}
 
-2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
+2026-03-09 The White House launched meme-heavy propaganda campaigns celebrating the Iran war, splicing real war images with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. 
 
 [https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925](https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925)
 
@@ -385,13 +385,13 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
-2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
+2026-03-09 Lindsey Graham said the Iran war would make the U.S. “a ton of money.” 
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 
 [https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran](https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran)
 
-2026-03-09 On the Washington Watch with Tony Perkins, Texas District 27 Congressman Michael Cloud said, *“I’ve been in a number of these hearings, and you often see Matthew 25 thrown about – never in context. Uh, sometimes it seems to be the only – I would say – scripture, but it’s not even a full scripture that, the only half scripture that the left would seem to know. Uh, and they use it to justify all kinds of spending…uh, in Corinthians – it talks about that charity is something that’s given of a free will and not by compulsion. Uh, and taxes certainly by compulsion. And so, you know, we believe in, ah, generosity. Certainly we should be giving, taking care of our neighbor. Uh, that should be extension of how – who – we are, but we’re almost $40TR in debt. Uh, and so, we’ve got to prioritize. And the federal government has a specific constitutional – uh – duty and priority. Uh, and, and, scripture talks about the role of what a federal government is supposed to be doing or a government’s supposed to be doing. It’s a different role than the family. It’s a different role than the church, uh…and, and the community. And so, you know, it’s important that we kind of put all these things in context as we begin to weigh scripture, especially in the context of government policy…”*.
+2026-03-09 Congressman Michael Cloud argued charity should not be government-compelled through taxes. 
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
 

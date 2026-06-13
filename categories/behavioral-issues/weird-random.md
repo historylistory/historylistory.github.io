@@ -69,7 +69,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 ### 2026 March
 
-2026-03-09 Trump bought his cabinet members Florsheim Oxfords, guessing the sizes. Photos show some of the cabinet members swimming in the shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.
+2026-03-09 Trump bought cabinet members oversized Florsheim shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.
 
 [https://thehill.com/blogs/in-the-know/5783084-trump-shoes-cabinet-brian-kilmeade/](https://thehill.com/blogs/in-the-know/5783084-trump-shoes-cabinet-brian-kilmeade/)
 

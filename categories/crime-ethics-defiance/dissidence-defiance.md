@@ -284,7 +284,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 March
 
-2026-03-02 During a briefing, Pete Hegseth vowed there would be no “stupid” Rules of Engagement concerning the war in Iran.
+2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 

@@ -501,7 +501,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116182551337254643](https://truthsocial.com/@realDonaldTrump/posts/116182551337254643)
 
-2026-03-08 Trump threatened via Truth Social to withhold his signature on all bills until Congress passed the SAVE act.
+2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116193527873859174](https://truthsocial.com/@realDonaldTrump/posts/116193527873859174)
 

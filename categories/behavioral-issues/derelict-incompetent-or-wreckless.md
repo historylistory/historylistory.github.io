@@ -320,7 +320,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.reuters.com/business/aerospace-defense/faa-closes-airspace-fort-hancock-texas-after-reported-use-anti-drone-laser-2026-02-27/](https://www.reuters.com/business/aerospace-defense/faa-closes-airspace-fort-hancock-texas-after-reported-use-anti-drone-laser-2026-02-27/)
 
-2026-02-27 During a discussion on Piers Morgan, Lauren Boebert couldn’t answer what inflation was.
+2026-02-27 During an interview with Piers Morgan, Lauren Boebert couldn’t answer what inflation was.
 
 [https://www.yahoo.com/news/articles/lauren-boebert-stumbles-piers-morgan-183517013.html](https://www.yahoo.com/news/articles/lauren-boebert-stumbles-piers-morgan-183517013.html)
 
@@ -329,7 +329,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 March
 
-2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They only told them to find their own way out.
+2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They told them to find their own way out.
 
 [https://www.usnews.com/news/u-s-news-decision-points/articles/2026-03-05/u-s-tells-citizens-in-the-middle-east-to-leave-but-how](https://www.usnews.com/news/u-s-news-decision-points/articles/2026-03-05/u-s-tells-citizens-in-the-middle-east-to-leave-but-how)
 
@@ -339,13 +339,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/](https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/)
 
-2026-03-02 During a briefing, Pete Hegseth vowed there would be no “stupid” Rules of Engagement concerning the war in Iran.
+2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
 
-2026-03-05 Trump finally fired incompetent and reckless Kristi Noem, stating he did not know she had spent $250M on ad campaigns during her reign of ICE terror. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
 
 [https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a](https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a)
 
@@ -353,7 +353,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.nytimes.com/2026/03/05/us/politics/kristi-noem-markwayne-mullin-trump.html](https://www.nytimes.com/2026/03/05/us/politics/kristi-noem-markwayne-mullin-trump.html)
 
-2026-03-06 Trump stated on Fox  that ships were safe to go through the Strait of Hormuz while Iran laid out mines. He stated to Brian Kilmeade, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
+2026-03-06 Trump minimized dangers in the Strait of Hormuz before tanker attacks occurred. He said to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
 
 [https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/](https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/)
 
@@ -365,7 +365,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html](https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html)
 
-2026-03-08 Trump threatened via Truth Social to withhold his signature on all bills until Congress passed the SAVE act.
+2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116193527873859174](https://truthsocial.com/@realDonaldTrump/posts/116193527873859174)
 

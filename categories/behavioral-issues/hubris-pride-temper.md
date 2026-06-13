@@ -128,7 +128,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2026 March
 
-2026-03-08 During an interview on 60 Minutes, Pete Hegseth answered the question “Will there be boots on the ground in Iran”. He smirked and said, “I wouldn’t tell you that if we did.” The interviewer said the only reason he asked was because earlier in the week Hegseth said there would not be boots on the ground and he wanted to know if that was still the answer., Pete Hegseth responded, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
+2026-03-08 Hegseth refused to rule out ground troops in Iran during a 60 Minutes interview. The interviewer asked, “Will there be boots on the ground in Iran”. Hegseth replied, “I wouldn’t tell you that if we did”, and, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
 
 {% include youtubePlayer.html id="bDPk2jtlXfU" %}
 

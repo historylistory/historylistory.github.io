@@ -150,7 +150,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2026 March
 
-2026-03-05 Trump finally fired incompetent and reckless Kristi Noem, stating he did not know ***she had spent $250M in taxpayer money on ad campaigns*** during her reign of ICE terror. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
 
 [https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a](https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a)
 

@@ -42,7 +42,7 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 
 ### 2026 March
 
-2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
+2026-03-09 Lindsey Graham said the Iran war would make the U.S. “a ton of money.” 
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 

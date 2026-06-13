@@ -464,7 +464,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096](https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096)
 
-2026-03-02 During a briefing, Pete Hegseth vowed there would be no “stupid” Rules of Engagement concerning the war in Iran.
+2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 
@@ -571,7 +571,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://truthsocial.com/@realDonaldTrump/posts/116182551337254643](https://truthsocial.com/@realDonaldTrump/posts/116182551337254643)
 
-2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 
 [https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
 
@@ -609,7 +609,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.cbsnews.com/news/trump-not-happy-iran-new-supreme-leader-mojtaba-khamenei/](https://www.cbsnews.com/news/trump-not-happy-iran-new-supreme-leader-mojtaba-khamenei/)
 
-2026-03-08 During an interview on 60 Minutes, Pete Hegseth answered the question “Will there be boots on the ground in Iran”. He smirked and said, “I wouldn’t tell you that if we did.” The interviewer said the only reason he asked was because earlier in the week Hegseth said there would not be boots on the ground and he wanted to know if that was still the answer., Pete Hegseth responded, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
+2026-03-08 Hegseth refused to rule out ground troops in Iran during a 60 Minutes interview. The interviewer asked, “Will there be boots on the ground in Iran”. Hegseth replied, “I wouldn’t tell you that if we did”, and, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
 
 {% include youtubePlayer.html id="bDPk2jtlXfU" %}
 
@@ -627,13 +627,13 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.newscientist.com/article/2518718-why-is-black-rain-falling-on-iran-and-how-dangerous-is-it/](https://www.newscientist.com/article/2518718-why-is-black-rain-falling-on-iran-and-how-dangerous-is-it/)
 
-2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
+2026-03-09 Lindsey Graham said the Iran war would make the U.S. “a ton of money.” 
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 
 [https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran](https://www.aljazeera.com/news/2026/3/9/we-are-going-make-a-tonne-of-money-us-senator-graham-on-us-war-on-iran)
 
-2026-03-09 The White House launched a meme-based propaganda campaign about the war in Iran. The White House spliced real Iran bombing footage with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. As though the war in Iran was just a game.
+2026-03-09 The White House launched meme-heavy propaganda campaigns celebrating the Iran war, splicing real war images with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. 
 
 [https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925](https://abcnews.com/Technology/wireStory/white-house-war-promo-videos-marry-action-movies-130917925)
 

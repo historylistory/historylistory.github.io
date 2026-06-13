@@ -42,7 +42,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765](https://www.nbcnews.com/video/marine-veteran-has-arm-broken-during-protest-against-war-in-iran-258740805765)
 
-2026-03-06 Trump stated on Fox  that ships were safe to go through the Strait of Hormuz while Iran laid out mines. He stated to Brian Kilmeade, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
+2026-03-06 Trump minimized dangers in the Strait of Hormuz before tanker attacks occurred. He said to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
 
 [https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/](https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/)
 
@@ -54,7 +54,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html](https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html)
 
-2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 
 [https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
 
@@ -80,7 +80,7 @@ permalink: /categories/military-veterans/war/
 
 {% include youtubePlayer.html id="qepYRy2BTAg" %}
 
-2026-03-09 Senator Lindsey Graham told Fox news that the war on Iran would make the US a “ton of money”.
+2026-03-09 Lindsey Graham said the Iran war would make the U.S. “a ton of money.” 
 
 [https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350](https://people.com/lindsey-graham-brags-make-ton-of-money-iran-war-11922350)
 

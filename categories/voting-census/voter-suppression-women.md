@@ -54,7 +54,7 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 
 ### 2026
 
-2026-03-08 Trump threatened via Truth Social to withhold his signature on all bills until Congress passed the SAVE act.
+2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116193527873859174](https://truthsocial.com/@realDonaldTrump/posts/116193527873859174)
 

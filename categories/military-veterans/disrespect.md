@@ -66,7 +66,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 ### 2026 March
 
-2026-03-07 Trump wore his campaign merch to a dignified transfer of the first six fallen soldiers who died in Kuwait after the US bombed Iran. Trump then used that picture in a fundraising campaign. A fundraising email from a Trump-linked PAC reads, ***“This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”.*** Then it offers a link to donate. 
+2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 
 [https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
 

@@ -59,7 +59,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 ### 2026 March
 
-2026-03-09 Trump reposted a YouTube video “Kim Clement prophesying about Donald Trump, 2007”.  The video features Kim Clement saying, “This that shall take place shall be the most unusual thing, a transfiguration, a going into the marketplace, if you wish, into the news media – where Time Magazine will have no choice but to say what I want them to say, Newsweek, what I want to say, The View, what I want to say! Trump shall become a trumpet, says the Lord. Trump shall become a trumpet. I will raise up the Trump to become a trumpet and Bill Gates to open up the gate of a financial realm for the church, says the Lord.” The recording was from April 4, 2007 and recorded in Redding, California and goes on to refer to Trump as the gatekeeper. Another video is appended to the first one from an event on February 10, 2007 in Scottsdale, Arizona. 
+2026-03-09 Trump reposted a prophecy video describing him as divinely chosen. See video “Kim Clement prophesying about Donald Trump, 2007”.  
 
 [https://www.mediaite.com/media/news/i-will-raise-up-the-trump-trump-promotes-wild-2007-prophesy/](https://www.mediaite.com/media/news/i-will-raise-up-the-trump-trump-promotes-wild-2007-prophesy/)
 
