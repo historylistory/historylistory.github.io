@@ -636,7 +636,7 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
 
-2026-04-29 Trump posted a picture of himself on social media holding an assault rifle.
+2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 
@@ -652,7 +652,7 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 ### 2026 May
 
-2026-05-06 Kash Patel’s personalized bourbon stash.
+2026-05-06 Kash Patel reportedly maintained a personalized bourbon stash.
 
 [https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/](https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/)
 
@@ -662,7 +662,7 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/](https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/)
 
-2026-05-09 MAGA issued formal complaints on Bad Bunny for his halftime show. 
+2026-05-09 MAGA supporters filed complaints against Bad Bunny’s halftime show.
 
 [https://www.yahoo.com/entertainment/music/articles/let-us-savor-saltiest-fcc-000105438.html](https://www.yahoo.com/entertainment/music/articles/let-us-savor-saltiest-fcc-000105438.html)
 
@@ -670,7 +670,7 @@ PAY WALL [https://www.latimes.com/entertainment-arts/music/story/2026-05-09/bad-
 
 UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf](https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf)
 
-2026-05-12 Trump posted, “Dumacrats love sewage”. This included an AI generated image of Biden, Obama and Pelosi swimming in a sewage pool as part of the Reflection Pool.
+2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 
 [https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/](https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/)
 

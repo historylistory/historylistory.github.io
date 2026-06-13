@@ -59,7 +59,7 @@ ACCOUNT WALL [https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.
 
 ### 2026 May
 
-2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
+2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 
@@ -69,7 +69,7 @@ ACCOUNT WALL [https://www.nytimes.com/2026/04/14/nyregion/hochul-pied-terre-tax.
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
-2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
+2026-05-06 Republicans proposed spending $1B in taxpayer funds on ballroom “security features.”
 
 [https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)
 

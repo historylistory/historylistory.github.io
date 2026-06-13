@@ -101,7 +101,7 @@ PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/ne
 
 [https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit](https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit)
 
-2026-04-28 During a televised conference Trump attempted to involve the Artemis II crew with criticizing NATO. Their response was total silence.
+2026-04-28 Trump unsuccessfully tried to get the Artemis II crew to criticize NATO during a televised event.
 
 [https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato](https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato)
 

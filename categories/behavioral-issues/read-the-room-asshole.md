@@ -186,7 +186,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 
-2026-04-28 During a televised conference Trump attempted to involve the Artemis II crew with criticizing NATO. Their response was total silence.
+2026-04-28 Trump unsuccessfully tried to get the Artemis II crew to criticize NATO during a televised event.
 
 [https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato](https://newrepublic.com/post/209665/donald-trump-artemis-ii-astronauts-nato)
 
@@ -198,7 +198,7 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 
 ### 2026 May
 
-2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
+2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 
@@ -208,7 +208,7 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
-2026-05-05 Trump droned on about nuclear weapons during a Youth Sports & Fitness event.
+2026-05-05 Trump rambled about nuclear weapons during a Youth Sports & Fitness event.
 
 TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube.com/watch?v=M9YqAMyfwGM)
 
@@ -242,21 +242,20 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 
 [https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/](https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/)
 
-2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
-
+2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
 
-2026-05-14 Trump’s puppet JD Vance denied that Trump said, “I don’t think about American’s financial situations…”.
-
 [https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
 
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
+
 
 2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
 

@@ -287,7 +287,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 [https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business](https://www.npr.org/2026/02/24/nx-s1-5723862/trump-tariffs-refunds-small-business)
 
-2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
+2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 
@@ -297,7 +297,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
-2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
+2026-05-06 Republicans proposed spending $1B in taxpayer funds on ballroom “security features.”
 
 [https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)
 
@@ -307,7 +307,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
-2026-05-11 Taxpayers will expect to pay $13.1M to cover Trump’s reflection pool project.
+2026-05-11 Taxpayers faced a projected $13.1M bill for Trump’s reflection-pool project.
 
 [https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
 
@@ -316,15 +316,12 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8](https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8)
 
 
-2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
-
+2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
-
-2026-05-14 Trump’s puppet JD Vance denied that Trump said, “I don’t think about American’s financial situations…”.
 
 [https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
 

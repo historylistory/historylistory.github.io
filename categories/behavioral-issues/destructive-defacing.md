@@ -188,7 +188,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2026 May
 
-2026-05-05 As of May 2026 the White House had dumped roughly 37,000 cubic yards of destroyed East Wing debris on a local municipal golf course.
+2026-05-05 The White House dumped 37,000 cubic yards of East Wing debris on a municipal golf course.
 
 [https://www.youtube.com/watch?v=t3994nVhHSo](https://www.youtube.com/watch?v=t3994nVhHSo)
 
@@ -199,7 +199,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://apnews.com/article/trump-east-wing-debris-golf-course-a78abeefed782423d70bd03a44d0b740](https://apnews.com/article/trump-east-wing-debris-golf-course-a78abeefed782423d70bd03a44d0b740)
 
 
-2026-05-06 Now the GOP want taxpayers to pay $1B for the “security features” of Trump’s ballroom.
+2026-05-06 Republicans proposed spending $1B in taxpayer funds on ballroom “security features.”
 
 [https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637](https://www.nbcnews.com/politics/white-house/republicans-propose-1-billion-taxpayer-dollars-secure-trump-ballroom-rcna343637)
 
@@ -209,7 +209,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
-2026-05-11 Taxpayers will expect to pay $13.1M to cover Trump’s reflection pool project.
+2026-05-11 Taxpayers faced a projected $13.1M bill for Trump’s reflection-pool project.
 
 [https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
 
@@ -227,7 +227,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/](https://thehill.com/homenews/5874959-reflecting-pool-trump-contractor/)
 
-2026-05-12 Trump posted, “Dumacrats love sewage”. This included an AI generated image of Biden, Obama and Pelosi swimming in a sewage pool as part of the Reflection Pool.
+2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 
 [https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/](https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/)
 

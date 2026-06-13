@@ -97,7 +97,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 April
 
-2025-04-19 The Trump administration proposed a rule to change the interpretation of the Endangered Species Act so harming habitats of endangered species would no longer equally mean harm is done to the species itself.
+2026-04-29 The Trump administration weakened the Endangered Species Act to expand drilling and mining.
 
 [https://www.npr.org/2025/04/19/nx-s1-5366814-e1/destroying-endangered-species-habitat-wouldnt-count-as-harm-under-proposed-rule](https://www.npr.org/2025/04/19/nx-s1-5366814-e1/destroying-endangered-species-habitat-wouldnt-count-as-harm-under-proposed-rule)
 

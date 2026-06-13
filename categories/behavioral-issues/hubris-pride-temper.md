@@ -237,7 +237,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/](https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kushner-and-witkoffs-trip-to-pakistan-for-iran-peace-talks/)
 
-2026-04-29 Trump posted a picture of himself on social media holding an assault rifle.
+2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 

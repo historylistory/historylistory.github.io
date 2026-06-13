@@ -576,7 +576,7 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 ### 2026 May
 
-2026-05-06 Kash Patel’s personalized bourbon stash.
+2026-05-06 Kash Patel reportedly maintained a personalized bourbon stash.
 
 [https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/](https://www.theatlantic.com/politics/2026/05/kash-patel-fbi-bourbon/687066/)
 
@@ -586,7 +586,7 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 [https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/](https://thehill.com/homenews/house/5868551-fbi-director-bourbon-democrats/)
 
-2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
+2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
 

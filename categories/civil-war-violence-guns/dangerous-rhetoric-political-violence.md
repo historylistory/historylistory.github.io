@@ -390,7 +390,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner](https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner)
 
-2026-04-29 Trump posted a picture of himself on social media holding an assault rifle.
+2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 

@@ -327,7 +327,7 @@ MAY 4 [https://apnews.com/article/carlos-ivan-mendoza-hernandez-ice-shooting-cal
 
 [https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin](https://www.foxnews.com/politics/acting-ice-director-todd-lyons-submits-resignation-letter-dhs-secretary-markwayne-mullin)
 
-2026-04-29 The ICE agent (Jonathan Ross) who executed Nicole Good was put back on duty in another state without any repercussions for what he did.
+2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
 
 [https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
 

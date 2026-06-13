@@ -601,7 +601,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/news/articles/cg73l2d079ko)
 
-2026-04-29 The ICE agent (Jonathan Ross) who executed Nicole Good was put back on duty in another state without any repercussions for what he did.
+2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
 
 [https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
 
@@ -622,7 +622,7 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 ### 2026 May
 
 
-2026-05-04 During the construction of Trump’s border wall in the Sonoran desert, crews plowed over a Native American archaeological site Tohono O’odham.
+2026-05-04 Border-wall crews destroyed a Native American archaeological site in the Sonoran Desert.
 
 [https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall](https://www.democracynow.org/2026/5/4/headlines/1_000_year_old_archaeological_site_damaged_by_construction_of_trumps_border_wall)
 
@@ -646,19 +646,18 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 
 [https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)
 
-2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
-
+2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
 
-2026-05-13 Israeli fire killed a 16-year-old Palestinian child Yusef Ali Kaabnah near the town of Jiljilya. 
+[https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
 
-[https://x.com/MiddleEastEye/status/2054676281531175217](https://x.com/MiddleEastEye/status/2054676281531175217)
+[https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
-[https://www.instagram.com/reels/DYTFVXTkWyi/](https://www.instagram.com/reels/DYTFVXTkWyi/)
+[https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
 2026-05-12 The UN Children’s Fund UNICEF reported that Israel has killed 70 Palestinian children in the occupied West Bank since 2025, amounting to 1 child killed per week. UNICEF spokesperson James Elder reported March 2026 was the highest number of attacks in the past 20 years, including children shot, stabbed, beaten and pepper sprayed. About 78 years ago was Nakba, another genocide.
 
@@ -679,15 +678,8 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php](https://www.greenwichtime.com/news/world/article/palestinian-man-shot-dead-while-climbing-west-22257064.php)
 
-2026-05-14 Trump’s puppet JD Vance denied that Trump said, “I don’t think about American’s financial situations…”.
 
-[https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
-
-[https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
-
-[https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
-
-2026-05-22 Trump forfeited his son’s wedding, writing in a post, “While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Family, his soon to be wife, Bettina, circumstances pertaining to Government, and my love for the United States of America, do not allow me to do so…”. For context, Trump frequently vacationed and visited his resorts during his presidency. 
+2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
 
 [https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9](https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9)
 

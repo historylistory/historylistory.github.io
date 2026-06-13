@@ -113,7 +113,7 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
+2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 [https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/](https://www.reuters.com/business/media-telecom/stars-arrive-met-gala-protesters-target-jeff-bezos-2026-05-04/)
 

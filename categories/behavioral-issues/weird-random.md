@@ -306,7 +306,7 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 ### 2026 May
 
-2026-05-22 Trump forfeited his son’s wedding, writing in a post, “While I very much wanted to be with my son, Don Jr., and the newest member of the Trump Family, his soon to be wife, Bettina, circumstances pertaining to Government, and my love for the United States of America, do not allow me to do so…”. For context, Trump frequently vacationed and visited his resorts during his presidency. 
+2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
 
 [https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9](https://www.youtube.com/watch?v=U_VcOYrCqhQ&list=WL&index=9)
 

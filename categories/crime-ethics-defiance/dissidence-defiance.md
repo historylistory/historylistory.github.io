@@ -421,7 +421,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media](https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media)
 
 
-2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
+2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
 

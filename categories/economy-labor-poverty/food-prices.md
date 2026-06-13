@@ -145,21 +145,19 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
 
-2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
-
+2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
 
-2026-05-14 Trump’s puppet JD Vance denied that Trump said, “I don’t think about American’s financial situations…”.
-
 [https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
 
 [https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
+
 
 ### 2026 June
 

@@ -341,7 +341,7 @@ FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1
 
 FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
 
-2026-04-29 Trump posted a picture of himself on social media holding an assault rifle.
+2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 
@@ -355,7 +355,7 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 [https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084](https://www.mirror.co.uk/news/world-news/donald-trump-gun-picture-iran-37085084)
 
-2026-04-29 Trump branded U.S. passports with his image.
+2026-04-29 Trump added his image to U.S. passports.
 
 [https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday](https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday)
 
@@ -367,7 +367,7 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-10 A 22-foot golden statue of Donald Trump was erected at the Trump National Doral Miami. Pastor Mark Burns wrote on social media, “….Let me be clear: this is not a golden calf…”.
+2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote on social media, “….Let me be clear: this is not a golden calf…”.
 
 [https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2](https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2)
 
@@ -377,7 +377,7 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 
 [https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/](https://www.thedailybeast.com/obsessed/colbert-spots-sneaky-insult-hidden-on-trumps-golden-statue/)
 
-2026-05-17 During the religious rededication ceremony at the National Mall, podcaster Eric Mataxis said, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”. 
+2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
 
 [https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057](https://people.com/maga-prayer-rally-speaker-says-god-chose-trump-to-build-ballroom-11978057)
 

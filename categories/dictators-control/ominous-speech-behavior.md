@@ -169,7 +169,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
 
-2026-04-29 Trump branded U.S. passports with his image.
+2026-04-29 Trump added his image to U.S. passports.
 
 [https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday](https://www.npr.org/2026/04/29/g-s1-119146/us-to-issue-passports-with-trumps-picture-for-americas-250th-birthday)
 

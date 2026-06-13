@@ -254,7 +254,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-05-05 The Associated Press won a Pulitzer Prize for reporting on U.S. companies enabling surveillance and detention in China.
 
-2026-05-05 Protestors at the Met Gala criticized Jeff Bezos and Amazon labor conditions.They placed bottles of fake urine in the halls signifying Amazon’s choice to not allow employees to take bathroom breaks (and having to pee in bottles), as well as signs such as, “If you can buy the Met Gala, you can pay more tax”.
+2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 2026-05-10 Malware infecting robot dogs raised national-security concerns.
 

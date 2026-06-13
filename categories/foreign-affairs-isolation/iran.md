@@ -1579,7 +1579,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
 
-2026-04-29 (context, this was reportedly directed at Iran) Trump posted a picture of himself on social media holding an assault rifle.
+2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 
@@ -1701,13 +1701,18 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 
 [https://www.bbc.com/news/live/c152zyj0599t](https://www.bbc.com/news/live/c152zyj0599t)
 
-2026-05-12 When reporters asked him about the war in Iran, Trump replied, “I don’t think about Americans’ financial situation – I don’t think about anybody”.
-
+2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
 
 [https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news](https://edition.cnn.com/2026/05/12/world/live-news/trump-iran-war-news)
+
+[https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
+
+[https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
+
+[https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
 2026-05-12 The Pentagon considered renaming Operation Epic Fury, Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
 
@@ -1717,7 +1722,7 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 
 [https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media](https://unn.ua/en/news/us-considering-renaming-war-with-iran-to-operation-sledgehammer-media)
 
-2026-05-13 The Senate voted down a war powers resolution for the 7th time. 
+2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 
 [https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/](https://time.com/article/2026/05/13/iran-war-vote-senate-murkowski-closest-vote-yet/)
 
@@ -1727,13 +1732,6 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 
-2026-05-14 Trump’s puppet JD Vance denied that Trump said, “I don’t think about American’s financial situations…”.
-
-[https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832](https://www.nbcnews.com/video/shorts/vance-trump-answer-on-americans-finances-a-misrepresentation-263267909832)
-
-[https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans](https://newrepublic.com/post/210395/jd-vance-donald-trump-never-said-care-even-little-bit-americans)
-
-[https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
 2026-05-14 The House failed to advance an Iran war powers resolution tied 212 to 212.
 

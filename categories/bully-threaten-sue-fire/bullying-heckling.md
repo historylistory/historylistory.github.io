@@ -347,7 +347,7 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 
 [https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
 
-2026-05-12 Trump posted, “Dumacrats love sewage”. This included an AI generated image of Biden, Obama and Pelosi swimming in a sewage pool as part of the Reflection Pool.
+2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 
 [https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/](https://www.rollingstone.com/politics/politics-news/trump-melts-down-reflecting-pool-reports-1235561061/)
 
