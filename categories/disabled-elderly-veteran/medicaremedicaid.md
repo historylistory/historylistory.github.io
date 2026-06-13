@@ -24,7 +24,7 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 
 [https://www.facebook.com/watch/?v=1036832908023449](https://www.facebook.com/watch/?v=1036832908023449)
 
-2025-05-31 After public criticism for her calloused remarks on Medicaid cuts, Iowa Senator Joni Ernst made a sarcastic video while trolling through a graveyard, adding, "I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I'm really really glad that I didn't have to bring up the subject of the tooth fairy as well..." and then ended it with, "...for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ".
+2025-05-31 Joni Ernst mocked critics of Medicaid cuts in a sarcastic graveyard video. In the video she said, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
 [https://www.youtube.com/shorts/gqdwSLKE554](https://www.youtube.com/shorts/gqdwSLKE554)
 

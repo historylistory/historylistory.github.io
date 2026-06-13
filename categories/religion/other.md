@@ -14,7 +14,7 @@ permalink: /categories/religion/other/
 
 ### 2025 April
 
-2025-04-21 The day Pope Francis died, MJT tweeted, “Today there were major shifts in global leaderships. Evil is being defeated by the hand of God”.
+2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
 
 [https://borgenproject.org/pope-francis-view-on-poverty/](https://borgenproject.org/pope-francis-view-on-poverty/)
 

@@ -54,7 +54,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 [https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
 
-2025-03-11 Pete Hegseth used an unapproved unauthorized Signal chat platform to discuss classified plans of military strikes in Yemen. He also invited officials who were not supposed to be part of the communications **including his wife**. Two months after **Signalgate**, Mike Walz resigned. On December 4th of the same year, the Pentagon Inspector General released a report stating Hegseth endangered the lives of American servicemembers when he shared classified details of Yemen strikes on the unauthorized commercial app Signal Chat.
+2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 
 [https://www.cbsnews.com/news/jeffrey-goldberg-the-atlantic-trump-officials-group-chat-signal/](https://www.cbsnews.com/news/jeffrey-goldberg-the-atlantic-trump-officials-group-chat-signal/)
 

@@ -108,7 +108,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
 
-2025-03-11 Pete Hegseth used an unapproved unauthorized Signal chat platform to discuss classified plans of military strikes in Yemen. He also invited officials who were not supposed to be part of the communications **including his wife**. Two months after **Signalgate**, Mike Walz resigned. On December 4th of the same year, the Pentagon Inspector General released a report stating Hegseth endangered the lives of American servicemembers when he shared classified details of Yemen strikes on the unauthorized commercial app Signal Chat.
+2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 
 [https://www.cbsnews.com/news/jeffrey-goldberg-the-atlantic-trump-officials-group-chat-signal/](https://www.cbsnews.com/news/jeffrey-goldberg-the-atlantic-trump-officials-group-chat-signal/)
 
@@ -130,7 +130,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.bbc.com/news/articles/cx2ej74pxdro](https://www.bbc.com/news/articles/cx2ej74pxdro)
 
-2025-03-18 Several living individuals' personal information was doxed during the release of the JFK files.
+2025-03-18 Personal information was exposed during the JFK files release.
 
 [https://www.usatoday.com/story/news/politics/2025/03/20/jfk-files-social-security-trump/82567111007/](https://www.usatoday.com/story/news/politics/2025/03/20/jfk-files-social-security-trump/82567111007/)
 
@@ -140,13 +140,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 May
 
-2025-05-20 During a hearing Kristi Noem fumbled with the definition of Habeas Corpus and misinterpreted the type of approval needed to activate the suspension clause.
+2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 [https://www.facebook.com/watch/?v=1948380052635180](https://www.facebook.com/watch/?v=1948380052635180)
 
 ### 2025 June
 
-2025-06-03 Newly appointed head of FEMA David Richardson said during a meeting he was not aware of the upcoming hurricane season.
+2025-06-03 FEMA head David Richardson admitted he was unaware hurricane season was approaching.
 
 [https://www.reuters.com/world/us/fema-staff-confused-after-head-said-he-was-unaware-us-hurricane-season-sources-2025-06-02/](https://www.reuters.com/world/us/fema-staff-confused-after-head-said-he-was-unaware-us-hurricane-season-sources-2025-06-02/)
 

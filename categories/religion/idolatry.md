@@ -45,7 +45,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 ### 2025 May
 
-2025-05-02 Trump posted an AI generated photo on social media of himself depicted as the Pope.
+2025-05-02 Trump posted an AI-generated image of himself as the Pope.
 
 [https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/](https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/)
 
@@ -53,7 +53,7 @@ Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114441543826801216](https://truthsocial.com/@realDonaldTrump/posts/114441543826801216)
 
-2025-05-28 Trump posted an image on social media of himself, with the caption "He's on a mission from God & nothing can stop what is coming".
+2025-05-28 Trump posted “He’s on a mission from God & nothing can stop what is coming.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/114588777076099501](https://truthsocial.com/@realDonaldTrump/posts/114588777076099501)
 

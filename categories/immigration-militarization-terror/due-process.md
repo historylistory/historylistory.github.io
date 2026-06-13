@@ -35,7 +35,7 @@ permalink: /categories/immigration-militarization-terror/due-process/
 
 [https://www.facebook.com/watch/?v=1369851931132185](https://www.facebook.com/watch/?v=1369851931132185)
 
-2025-05-20 During a hearing Kristi Noem fumbled with the definition of Habeas Corpus and misinterpreted the type of approval needed to activate the suspension clause.
+2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 [https://www.facebook.com/watch/?v=1948380052635180](https://www.facebook.com/watch/?v=1948380052635180)
 

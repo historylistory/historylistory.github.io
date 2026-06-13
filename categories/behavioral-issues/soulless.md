@@ -112,7 +112,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
 
-2025-03-29 House Foreign Affairs Committee Majority posted an AI video celebrating the collapse of USAID, featuring JD Vance, Elon Musk, Trump, and someone’s dog carrying a coffin and dancing. Context: In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
+2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
 [https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid](https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid)
 
@@ -122,7 +122,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 April
 
-2025-04-21 The day Pope Francis died, MJT tweeted, “Today there were major shifts in global leaderships. Evil is being defeated by the hand of God”.
+2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
 
 [https://borgenproject.org/pope-francis-view-on-poverty/](https://borgenproject.org/pope-francis-view-on-poverty/)
 
@@ -143,7 +143,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 May
 
-2025-05-31 After public criticism for her calloused remarks on Medicaid cuts, Iowa Senator Joni Ernst made a sarcastic video while trolling through a graveyard, adding, "I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I'm really really glad that I didn't have to bring up the subject of the tooth fairy as well..." and then ended it with, "...for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ".
+2025-05-31 Joni Ernst mocked critics of Medicaid cuts in a sarcastic graveyard video. In the video she said, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
 [https://www.youtube.com/shorts/gqdwSLKE554](https://www.youtube.com/shorts/gqdwSLKE554)
 

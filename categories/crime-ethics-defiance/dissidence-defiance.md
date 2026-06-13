@@ -141,7 +141,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 {% include youtubePlayer.html id="6KfUXpmtprc" %}
 
-2025-05-20 During a hearing Kristi Noem fumbled with the definition of Habeas Corpus and misinterpreted the type of approval needed to activate the suspension clause.
+2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 [https://www.facebook.com/watch/?v=1948380052635180](https://www.facebook.com/watch/?v=1948380052635180)
 

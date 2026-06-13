@@ -165,7 +165,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 May
 
-2025-05-07 During a hearing to discuss trans women in sports, Marjorie Taylor Greene banged her gavel 50 times and spoke over Stansbury to drown out discussion.
+2025-05-07 Marjorie Taylor Greene repeatedly banged her gavel during a trans-athlete hearing.
 
 [https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/](https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/)
 

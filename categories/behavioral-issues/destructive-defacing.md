@@ -14,7 +14,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2025 June
 
-2025-06-09 Trump plowed over the White House Rose Garden.
+2025-06-09 Trump paved over the White House Rose Garden.
 
 [https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/](https://www.realtor.com/news/trends/donald-trump-white-house-rose-garden-paved-constroversy/)
 

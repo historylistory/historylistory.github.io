@@ -93,7 +93,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 May
 
-2025-05-02 Trump posted an AI generated photo on social media of himself depicted as the Pope.
+2025-05-02 Trump posted an AI-generated image of himself as the Pope.
 
 [https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/](https://www.cbsnews.com/news/trump-ai-generated-photo-pope-vatican/)
 
@@ -101,15 +101,15 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114441543826801216](https://truthsocial.com/@realDonaldTrump/posts/114441543826801216)
 
-2025-05-04 The White House released an AI-generated image of Donald Trump as a Sith lord with a red saber in honor of May the 4th via Instagram. They wrote “Happy May the 4th to all, including the Radical Left Lunatics who are fighting so hard to bring Sith Lords, Murderers, Drug Lords, Dangerous Prisoners, & well known MS-13 Gang Members, back into our Galaxy. You’re not the Rebellion – you’re the Empire”.
+2025-05-04 The White House shared an AI image of Trump as a Sith Lord for May the 4th.
 
 [https://www.instagram.com/p/DJPQ72FxNkC/?hl=en](https://www.instagram.com/p/DJPQ72FxNkC/?hl=en)
 
-2025-05-28 Trump posted an image on social media of himself, with the caption "He's on a mission from God & nothing can stop what is coming".
+2025-05-28 Trump posted “He’s on a mission from God & nothing can stop what is coming.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/114588777076099501](https://truthsocial.com/@realDonaldTrump/posts/114588777076099501)
 
-2025-05-29 Representative Greg Steube introduced "The Make Autorail Great Again Act". This is just one example of the Trump base trying to get in good graces with dictator Trump.
+2025-05-29 Rep. Greg Steube introduced the “Make Autorail Great Again Act.”
 
 [https://steube.house.gov/press-releases/rep-steube-introduces-make-autorail-great-again-act-to-rebrand-dc-metrorail-as-wmaga-and-trump-train/](https://steube.house.gov/press-releases/rep-steube-introduces-make-autorail-great-again-act-to-rebrand-dc-metrorail-as-wmaga-and-trump-train/)
 

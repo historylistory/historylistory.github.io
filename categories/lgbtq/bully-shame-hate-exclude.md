@@ -97,6 +97,12 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes](https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes)
 
+### 2025 May
+
+2025-05-07 Marjorie Taylor Greene repeatedly banged her gavel during a trans-athlete hearing.
+
+[https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/](https://thehill.com/homenews/house/5288680-greene-bangs-gavel-almost-50-times-to-quiet-democrat-in-house-hearing/)
+
 ### 2025 July
 
 2025-07-01 (although uncertain of date - video was derived from YouTube as commentary) Video of Charlie Kirk getting schooled by a Cambridge student about same-sex marriage.

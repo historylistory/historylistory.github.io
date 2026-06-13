@@ -56,7 +56,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 ### 2025 March
 
-2025-03-29 House Foreign Affairs Committee Majority posted an AI video celebrating the collapse of USAID, featuring JD Vance, Elon Musk, Trump, and someone’s dog carrying a coffin and dancing.
+2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
 [https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid](https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid)
 
