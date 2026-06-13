@@ -105,7 +105,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/tedcruz/status/1833174142591365185](https://x.com/tedcruz/status/1833174142591365185)
 
-2024-09-10 The Arizona Republican Party promoted and sponsored several billboards in the Phoenix area based on the Chick-fil-A commercial, but captioned “Eat Less Kittens – Vote Republican”.
+2024-09-10 Arizona Republicans promoted “Eat Less Kittens – Vote Republican” billboards.
 
 [https://www.snopes.com/news/2024/09/10/haitian-immigrants-eat-less-kittens-billboards/](https://www.snopes.com/news/2024/09/10/haitian-immigrants-eat-less-kittens-billboards/)
 
@@ -113,7 +113,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.axios.com/local/phoenix/2024/09/10/arizona-republican-party-haitians-pet-eating-rumor-billboards](https://www.axios.com/local/phoenix/2024/09/10/arizona-republican-party-haitians-pet-eating-rumor-billboards)
 
-2024-09-19 Project Veritas’ founder James O’Keefe wrote about Laura Loomer in the forward of her own book ‘Loomered’, “She isn’t wired like other people. It’s as if her brain doesn’t process information like the rest of us. She appears to be functionally immune to fear, to shame, and to embarrassment”. He kept her on at Project Veritas to continue operations for them.
+2024-09-19 James O’Keefe described Laura Loomer as fearless and shameless in the foreword to her book. He wrote, “She isn’t wired like other people. It’s as if her brain doesn’t process information like the rest of us. She appears to be functionally immune to fear, to shame, and to embarrassment”. He kept her on at Project Veritas to continue operations for them.
 
 [https://www.vanityfair.com/style/story/laura-loomer-dog-food#:~:text=Her%20former%20boss%20James%20O'Keefe%2C%20the%20ousted%20CEO%20of%20Project&text=as%20%E2%80%9C%5Bnot%5D%20wired%20like%20other%20people.%E2%80%9D%20It's%20as%20if%2C%20he%20writes%2C%20she%20is%20in](https://www.vanityfair.com/style/story/laura-loomer-dog-food)
 
@@ -125,7 +125,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2024 October
 
-2024-10-23 Tucker Carlson gave his weird "daddy's home" spanking speech at the RNC.
+2024-10-23 Tucker Carlson delivered an embarrassing “daddy’s home” speech at the RNC and referenced spankings. 
 
 [https://www.c-span.org/clip/campaign-2024/tucker-carlson-remarks-at-turning-point-action-rally-in-duluth-georgia/5138318](https://www.c-span.org/clip/campaign-2024/tucker-carlson-remarks-at-turning-point-action-rally-in-duluth-georgia/5138318)
 

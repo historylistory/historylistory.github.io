@@ -170,7 +170,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139](https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139)
 
-2024-09-10 Trump accused Haitian immigrants in Ohio of eating pets during the 2024 debate, and ABC news had to fact-check him.
+2024-09-10 Trump falsely accused Haitian immigrants of eating pets during a debate and denied involvement with Project 2025.
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 

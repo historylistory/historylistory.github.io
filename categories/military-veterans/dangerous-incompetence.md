@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2024
 
-2024-11-25 In Pete Hegseth’s book The War on Warriors, he argues that the US should disregard the Geneva Convention constraints and abide by our “own rules”.
+2024-11-25 Pete Hegseth argued in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules”.’
 
 [https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances#:~:text='We%20will%20rip%20your%20arms,cares%20what%20other%20countries%20think?%E2%80%9D](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances)
 

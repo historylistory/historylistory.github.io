@@ -16,7 +16,7 @@ permalink: /categories/j6/other/
 
 ### 2024
 
-2024-12-02 After the J6 insurrection, Karoline Leavitt posted on social media praising Mike Pence and condemning J6. However, once she ran for Congress she deleted her posts.
+2024-12-02 Karoline Leavitt deleted old posts condemning January 6 after later running for Congress.
 
 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 

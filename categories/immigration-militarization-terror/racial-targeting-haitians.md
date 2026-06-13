@@ -35,7 +35,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
 
-2024-09-10 Trump accused Haitian immigrants in Ohio of eating pets during the 2024 debate, and ABC news had to fact-check him.
+2024-09-10 Trump falsely accused Haitian immigrants of eating pets during a debate and denied involvement with Project 2025.
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 

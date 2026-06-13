@@ -20,7 +20,7 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2024
 
-2024-09-10 Trump claimed the Harris debate was "rigged" and threatened ABC after their moderator fact-checked Trump’s claim that migrants were eating pets. Prior to the debate, Trump went on Fox News Town Hall with Sean Hannity and preemptively accused ABC of not being fair by saying "They're very nasty, and I think a lot of people are going to be watching to see how nasty and unfair they are".
+2024-09-10 Trump called the Harris debate “rigged” and attacked ABC for factchecking him.
 
 [https://www.cnbc.com/2024/09/11/trump-harris-debate-rigged-abc-should-lose-license.html](https://www.cnbc.com/2024/09/11/trump-harris-debate-rigged-abc-should-lose-license.html)
 

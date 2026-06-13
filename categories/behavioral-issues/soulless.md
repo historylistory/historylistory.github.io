@@ -42,7 +42,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2024 August
 
-2024-08-05 Footage surfaced about RFK confessing to leaving a dead bear in Central Park because he thought it would be "amusing".
+2024-08-05 RFK Jr. admitted leaving a dead bear in Central Park for amusement.
 
 {% include youtubePlayer.html id="cSd7hKGfCZU" %}
 
