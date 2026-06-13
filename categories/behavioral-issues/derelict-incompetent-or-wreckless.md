@@ -198,11 +198,11 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 {% include youtubePlayer.html id="ORg7VfCYmzM" %}
 
-2025-10-07 In response to the shutdown, Republican Representative Mariannette Miller-Meeks of Iowa stated she would hold town halls “when hell freezes over” and stated, “I don’t have to hold a town hall so you can come and yell at me”.
+2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)
 
-2025-10-10 In response to the government shutdown, Mike Johnson canceled house votes, **including the swearing in of Adelita Grijalva**. Her vote would be the one to get the Epstein files released. Meanwhile, Republican leaders decided not to show up to work.
+2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 

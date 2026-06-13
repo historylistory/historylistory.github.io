@@ -236,7 +236,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2025 September
 
-2025-09-29 Trump posted an AI video of House Minority Leader Hakeem Jeffries in a sombrero, adding AI-generated vocal slop over Chuck Schumer. The video was set to Mariachi music in the background.
+2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115290424560405640](https://truthsocial.com/@realDonaldTrump/posts/115290424560405640)
 

@@ -161,7 +161,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 October
 
-2025-10-09 (context/divisive) In protest over Bad Bunny set to headline the Super Bowl halftime, the Trump administration announced it would be setting up its **own** Charlie Kirk Turning Point USA “All American Halftime Show”.
+2025-10-09 After the snowflake MAGA base melted down about Bad Bunny at the Super Bowl, The Trump administration proposed a rival “All American Halftime Show.”
 
 [https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150](https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150)
 

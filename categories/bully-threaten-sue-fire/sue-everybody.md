@@ -118,7 +118,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html](https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html)
 
-2025-09-29 Trump tweeted out celebration for the YouTube settlement, adding "Repost if ALL banned conservatives should be paid!".
+2025-09-29 Trump celebrated a YouTube settlement benefiting banned conservatives, adding “Repost if ALL banned conservatives should be paid!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115291190758865206](https://truthsocial.com/@realDonaldTrump/posts/115291190758865206)
 

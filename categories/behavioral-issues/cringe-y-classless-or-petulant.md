@@ -240,15 +240,15 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/](https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/)
 
-2025-09-29 Trump posted an AI video of House Minority Leader Hakeem Jeffries in a sombrero, adding AI-generated vocal slop over Chuck Schumer. The video was set to Mariachi music in the background.
+2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115290424560405640](https://truthsocial.com/@realDonaldTrump/posts/115290424560405640)
 
-2025-09-29 Trump tweeted out celebration for the YouTube settlement, adding "Repost if ALL banned conservatives should be paid!".
+2025-09-29 Trump celebrated a YouTube settlement benefiting banned conservatives, adding “Repost if ALL banned conservatives should be paid!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115291190758865206](https://truthsocial.com/@realDonaldTrump/posts/115291190758865206)
 
-2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
+2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
 
 {% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
@@ -258,26 +258,26 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 October
 
-2025-10-01 The White House began a series of childish digs during the shutdown, adding horrendous messages to all government sites blaming Dems for the shutdown. By October 14, Kristi Noem released a new video for TSA employees, also blaming Democrats for the shutdown. The Trump administration used federal resources for political coercion which is a violation of the Hatch Act. The White House website pages all were headed by “Democrats Have Shut Down the Government”. The U.S. Department of Housing and Urban Development was headed in bright red captioning, “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”. And source headlines read, “These 13 Airports Won’t Air DHS Video Blaming Democrats for Shutdown”.
+2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 [https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/](https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/)
 
-2025-10-01 After it was announced Bad Bunny would be the Super Bowl halftime show, Benny Johnson asked senior advisor Corey Lewandowski via his podcast if ICE agents would be present at the event. Kristi Noem confirmed this later, on a separate podcast on October 4th.
+2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
 
 [https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/](https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/)
 
 [https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/](https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/)
 
-2025-10-03 Kash Patel had his own coin minted.
+2025-10-03 Kash Patel minted his own coin.
 
 [https://www.theatlantic.com/ideas/archive/2025/10/kash-patel-military-memento-internet/684456/](https://www.theatlantic.com/ideas/archive/2025/10/kash-patel-military-memento-internet/684456/)
 
 
 
 
-2025-10-09 In protest over Bad Bunny set to headline the Super Bowl halftime, the Trump administration announced it would be setting up its **own** Charlie Kirk Turning Point USA “All American Halftime Show”.
+2025-10-09 After the snowflake MAGA base melted down about Bad Bunny at the Super Bowl, The Trump administration proposed a rival “All American Halftime Show.”
 
 [https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150](https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150)
 

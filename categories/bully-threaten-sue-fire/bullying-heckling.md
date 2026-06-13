@@ -202,13 +202,13 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115261110149678466](https://truthsocial.com/@realDonaldTrump/posts/115261110149678466)
 
-2025-09-29 Trump posted an AI video of House Minority Leader Hakeem Jeffries in a sombrero, adding AI-generated vocal slop over Chuck Schumer. The video was set to Mariachi music in the background.
+2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115290424560405640](https://truthsocial.com/@realDonaldTrump/posts/115290424560405640)
 
 ### 2025 October
 
-2025-10-10 In response to the government shutdown, Mike Johnson canceled house votes, **including the swearing in of Adelita Grijalva**. Her vote would be the one to get the Epstein files released. Meanwhile, Republican leaders decided not to show up to work.
+2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 

@@ -24,7 +24,7 @@ permalink: /categories/military-veterans/rebranding/
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/](https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/)
 
-2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
+2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
 
 {% include youtubePlayer.html id="zjMJK_oGkuo" %}
 

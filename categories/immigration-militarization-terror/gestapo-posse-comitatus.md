@@ -205,7 +205,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 2025-10-01 By October 2025, every single city where the military had been deployed has been **governed ONLY by Democratic mayors**.
 
-2025-10-01 After it was announced Bad Bunny would be the Super Bowl halftime show, Benny Johnson asked senior advisor Corey Lewandowski via his podcast if ICE agents would be present at the event. Kristi Noem confirmed this later, on a separate podcast on October 4th.
+2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
 
 [https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/](https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/)
 

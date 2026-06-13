@@ -202,6 +202,14 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://share.google/images/voJOxef0hFptrw83u](https://share.google/images/voJOxef0hFptrw83u)
 
+### 2025 October
+
+2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+
+[https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
+
+[https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/](https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/)
+
 ### 2025 November
 
 2025-11-11 During a press conference Karoline Leavitt asserted that recent Epstein emails were a “manufactured hoax” by Democrats, that the emails only prove nothing other than the fact that President Trump “did nothing wrong”, and that the meeting Trump had with Lauren Boebert of Colorado only shows transparency, but she would not detail that conversation.

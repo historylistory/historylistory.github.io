@@ -14,7 +14,7 @@ permalink: /categories/civil-war-violence-guns/politicizing-to-meet-agendas/
 
 ### 2025 October
 
-2025-10-01 The White House began a series of childish digs during the shutdown, adding horrendous messages to all government sites blaming Dems for the shutdown. By October 14, Kristi Noem released a new video for TSA employees, also blaming Democrats for the shutdown. Many argue the Trump administration is using federal resources for political coercion which would be a violation of the Hatch Act.
+2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 [https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
 

@@ -36,7 +36,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956](https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956)
 
-2025-09-30 Pete Hegseth summoned every military leader in the world to Quantico to discuss military appearance, promote his book, patronize anyone still supporting DEI, and tout the MAGA “FAFO” adage.
+2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
 
 {% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
@@ -46,7 +46,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2025 October
 
-2025-10-07 (more hubris than petulance) Pam Bondi sat before the Senate Judiciary committee and deflected every single question with prepared counterattacks and snarky hubris.
+2025-10-07 Pam Bondi deflected Senate questions with combative rhetoric.
 
 {% include youtubePlayer.html id="jo5Kn_UFHOY" %}
 

@@ -171,7 +171,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 October
 
-2025-10-01 The White House began a series of childish digs during the shutdown, adding horrendous messages to all government sites blaming Dems for the shutdown. By October 14, Kristi Noem released a new video for TSA employees, also blaming Democrats for the shutdown. The Trump administration used federal resources for political coercion which is a violation of the Hatch Act. The White House website pages all were headed by “Democrats Have Shut Down the Government”. The U.S. Department of Housing and Urban Development was headed in bright red captioning, “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”. And source headlines read, “These 13 Airports Won’t Air DHS Video Blaming Democrats for Shutdown”.
+2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 [https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
 
