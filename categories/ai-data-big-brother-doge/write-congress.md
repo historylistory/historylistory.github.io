@@ -1,13 +1,13 @@
 ---
 layout: subcategory
-title: ZZZ 
+title: WRITE CONGRESS 
 category_slug: ai-data-big-brother-doge
-subcategory_slug: zzz
-permalink: /categories/ai-data-big-brother-doge/zzz/
+subcategory_slug: write-congress
+permalink: /categories/ai-data-big-brother-doge/write-congress/
 ---
 
 
-### WRITE CONGRESS AND YOUR SENATORS
+### IF THIS TOPIC MATTERS TO YOU
 
 If this topic matters to you, write your Senator or write Congress. Send them an email.  
 
@@ -15,7 +15,7 @@ COPY AND PASTE ALL THE INFORMATION BELOW.
 
 You can start it however you'd like.
 
-### LETTER EXAMPLE
+### SAMPLE LETTER
 
 Dear Sir or Madam,
 
