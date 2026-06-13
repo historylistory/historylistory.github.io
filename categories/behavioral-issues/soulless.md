@@ -8,7 +8,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 1998
 
-1998-01-01 Trump supporter and mega-donor Peter Thiel wrote, “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape **in all forms is a crime**.
+1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
 
 [https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book](https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book)
 
@@ -18,7 +18,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2018 June
 
-2018-06-21 During her visit to the New Hope Children’s Shelter in McAllen, TX for migrant children, Melania Trump wore a jacket with the embroidered message, “I really don’t care, do you?”.
+2018-06-21 Melania Trump wore an “I really don’t care, do u?” jacket while visiting migrant children at the New Hope Children’s Shelter in McAllen, TX. 
 
 [https://www.bbc.com/news/world-us-canada-45853364](https://www.bbc.com/news/world-us-canada-45853364)
 

@@ -8,7 +8,7 @@ permalink: /categories/education/anti-learning-anti-growth/
 
 ### Context
 
-2009-01-01 Linda McMahon's educational experience involves sitting on the Connecticut Board of Education for one year, and she holds a degree in French.
+2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
 
 [https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history](https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history)
 

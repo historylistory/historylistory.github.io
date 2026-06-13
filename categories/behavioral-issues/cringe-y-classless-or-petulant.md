@@ -19,7 +19,7 @@ THE ATLANTIC’S TAKE: [https://www.theatlantic.com/politics/archive/2018/02/bar
 
 ### 2019
 
-2019-05-06 Laura Loomer had a Facebook ban meltdown on InfoWars with Alex Jones, crying and screaming about the ban and claiming it stopped her from making a living.
+2019-05-06 Laura Loomer cried and screamed on InfoWars over her Facebook ban.
 
 [https://www.wired.com/story/facebook-bans-alex-jones-extremists/](https://www.wired.com/story/facebook-bans-alex-jones-extremists/)
 

@@ -8,7 +8,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2016
 
-2016-02-16 After the Pope condemned Trump for "building walls…not bridges", Trump ranted the Pope would "wish and pray" that he (Trump) becomes president.
+2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
 {% include youtubePlayer.html id="36qhTfCWdiw" %}
 

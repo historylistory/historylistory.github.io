@@ -72,7 +72,7 @@ permalink: /categories/greed/mega-donors-pay-to-play/
 
 ### 1998
 
-1998-01-01 Trump supporter and mega-donor Peter Thiel wrote, “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”.
+1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
 
 [https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book](https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book)
 

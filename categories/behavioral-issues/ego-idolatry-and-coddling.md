@@ -14,7 +14,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2016
 
-2016-01-23 During a rally in Iowa Trump said he could shoot someone and not lose votes, stating, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
+2016-01-23 Trump said he could “shoot somebody” on Fifth Avenue and not lose voters, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
 [https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters](https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters)
 

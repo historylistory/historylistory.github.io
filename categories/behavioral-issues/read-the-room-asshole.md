@@ -8,7 +8,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2001
 
-2001-09-11 Same day as the September 11 attack, Trump mentioned his building at 40 Wall St. will now be the tallest.
+2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
 
 [https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544](https://www.politico.com/video/2016/09/donald-trump-says-his-building-is-tallest-in-lower-manhattan-after-fall-of-twin-towers-9-11-060544)
 
