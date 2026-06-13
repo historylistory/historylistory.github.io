@@ -26,7 +26,7 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 ### 2021
 
-2021-09 During an event at Teneo Retreat (presented by the Venverloh Family Foundation) JD Vance stated, *“I got myself into a little hot water last week, uh, because I made what – what seemed to me a plainly obvious observation that Alex Jones, the InfoWars guy, is a better source of information than Rachel Maddow, the MSNBC gal. Now, some people said ‘Well, JD, you’re just trolling’. Well, yeah, of course I was just trolling. But that doesn’t mean what I said is in any way untrue…the most important truths often come from people who are crazy 60% of the time, but they’re right 40% of the time…I’m very close friends with Peter Thiel. I think Peter Thiel is one of the most important sources of nonconventional truth in our society. Peter Thiel believes some things that are considered crazy by opinion makers. We have to get away from this weird tension we feel in our chest when somebody says this person believes something crazy therefore you must denounce them”.* 
+2021-09-01 JD Vance praised Alex Jones and Peter Thiel as unconventional truth-tellers during a Teneo Retreat event presented by the Venverloh Family Foundation. 
 
 [https://www.propublica.org/article/jd-vance-alex-jones-leonard-leo-teneo-maddow-video](https://www.propublica.org/article/jd-vance-alex-jones-leonard-leo-teneo-maddow-video)
 

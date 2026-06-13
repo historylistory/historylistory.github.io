@@ -27,7 +27,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 ### 2021
 
-2021-01-01 The current FBI director under the Trump administration was formerly a podcaster named Kash "Money" Patel and his podcast "Kash's Corner" is still on Spotify. The platform touts “whistleblowing”, uncovering “conspiracies” and unfounded claims of scandals. 
+2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”
 
 [https://open.spotify.com/show/2lWqshCmJul1EAADnNmPWk](https://open.spotify.com/show/2lWqshCmJul1EAADnNmPWk)
 
@@ -35,7 +35,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://www.sec.gov/Archives/edgar/data/1849635/000114036124030406/ny20026576x34_s1a.htm](https://www.sec.gov/Archives/edgar/data/1849635/000114036124030406/ny20026576x34_s1a.htm)
 
-2021-02-18 Media outlets reported that Ted Cruz vacationed in Cancun during the Texas winter storm power outage. During an interview he expressed remorse, stating that he just wanted to be a dad for his girls. However, he did the same thing again in July 2025 when he took his family to Greece while central Texas flooded.
+2021-02-18 Ted Cruz vacationed in Cancun during the Texas power crisis, later repeating a similar trip during Texas flooding in 2025.
 
 [https://www.texastribune.org/2021/02/18/ted-cruz-cancun-power-outage/](https://www.texastribune.org/2021/02/18/ted-cruz-cancun-power-outage/)
 

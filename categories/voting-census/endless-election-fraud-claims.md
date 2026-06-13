@@ -56,11 +56,15 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 ### 2020 November
 
-2020-11-07 As news outlets reported a Biden victory, Trump tweeted out "I WON THIS ELECTION, BY A LOT!" and stated, "this election is far from over".
+2020-11-07 2020-11-07 Trump repeatedly pushed baseless election-fraud claims after losing the election. Trump posted "I WON THIS ELECTION, BY A LOT!" and stated, "this election is far from over".
 
 [https://x.com/realDonaldTrump/status/1325099845045071873?lang=en](https://x.com/realDonaldTrump/status/1325099845045071873?lang=en)
 
 [https://www.nbcnews.com/politics/2020-election/trump-says-election-far-over-he-vows-fight-results-n1246934](https://www.nbcnews.com/politics/2020-election/trump-says-election-far-over-he-vows-fight-results-n1246934)
+
+[https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts](https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts)
+
+[https://abcnews.go.com/Politics/trump-longstanding-history-calling-elections-rigged-doesn’t-results/story?id=74126926](https://abcnews.go.com/Politics/trump-longstanding-history-calling-elections-rigged-doesnt-results/story?id=74126926)
 
 2020-11-07 Trump made threats to prosecute over the Biden victory.
 

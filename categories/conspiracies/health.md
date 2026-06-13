@@ -22,6 +22,14 @@ permalink: /categories/conspiracies/health/
 
 [https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/](https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/)
 
+2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”
+
+[https://open.spotify.com/show/2lWqshCmJul1EAADnNmPWk](https://open.spotify.com/show/2lWqshCmJul1EAADnNmPWk)
+
+[https://www.ap.org/news-highlights/spotlights/2024/kash-patel-is-pushing-conspiracies-and-his-brand-hes-poised-to-help-lead-a-trump-administration/](https://www.ap.org/news-highlights/spotlights/2024/kash-patel-is-pushing-conspiracies-and-his-brand-hes-poised-to-help-lead-a-trump-administration/)
+
+[https://www.sec.gov/Archives/edgar/data/1849635/000114036124030406/ny20026576x34_s1a.htm](https://www.sec.gov/Archives/edgar/data/1849635/000114036124030406/ny20026576x34_s1a.htm)
+
 ### 2024 February
 
 2024-02-27 Kash Patel posted an anti-vax promo for dietary supplements on Truth Social captioned "The only mRNA vaccine detoxification system" along with a purchase link.

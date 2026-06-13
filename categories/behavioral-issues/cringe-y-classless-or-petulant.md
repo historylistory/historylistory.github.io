@@ -27,13 +27,13 @@ THE ATLANTIC’S TAKE: [https://www.theatlantic.com/politics/archive/2018/02/bar
 
 ### 2021
 
-2021-11-01 Check out Doug Wilson’s creepy flamethrower videos on his website.
+2021-11-01 Doug Wilson flamethrower videos.
 
 [https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
 
 ### 2022
 
-2022-07-28 Matt Gaetz at Turning Point Action, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
+2022-07-28 Matt Gaetz mocked abortion-rights supporters at Turning Point Action, saying, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
 
 [https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change](https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change)
 

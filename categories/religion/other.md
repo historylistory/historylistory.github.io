@@ -8,7 +8,7 @@ permalink: /categories/religion/other/
 
 ### 2021 
 
-2021-11-01 Check out Doug Wilson’s creepy flamethrower videos on his website.
+2021-11-01 Doug Wilson flamethrower videos.
 
 [https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
 

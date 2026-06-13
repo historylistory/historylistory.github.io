@@ -149,7 +149,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 [https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn](https://www.npr.org/2022/06/24/1102305878/supreme-court-abortion-roe-v-wade-decision-overturn)
 
-2022-07-28 Matt Gaetz at Turning Point Action, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
+2022-07-28 Matt Gaetz mocked abortion-rights supporters at Turning Point Action, saying, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
 
 [https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change](https://www.npr.org/2022/07/28/1114300388/matt-gaetz-olivia-julianna-abortion-gen-z-for-change)
 

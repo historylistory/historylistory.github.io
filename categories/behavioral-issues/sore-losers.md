@@ -8,7 +8,11 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2020
 
-2020-11-07 In true fashion of a sore-loser, Trump would go on and on ad-nauseum about baseless election fraud claims, making threats to prosecute Biden.
+2020-11-07 Trump repeatedly pushed baseless election-fraud claims after losing the election. Trump posted "I WON THIS ELECTION, BY A LOT!" and stated, "this election is far from over".
+
+[https://x.com/realDonaldTrump/status/1325099845045071873?lang=en](https://x.com/realDonaldTrump/status/1325099845045071873?lang=en)
+
+[https://www.nbcnews.com/politics/2020-election/trump-says-election-far-over-he-vows-fight-results-n1246934](https://www.nbcnews.com/politics/2020-election/trump-says-election-far-over-he-vows-fight-results-n1246934)
 
 [https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts](https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts)
 
