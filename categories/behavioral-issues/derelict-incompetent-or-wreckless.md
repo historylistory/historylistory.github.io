@@ -469,7 +469,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 April
 
-2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides. 
+2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides.
 
 [https://www.youtube.com/watch?v=g5u7wrYxLUg&list=WL&index=5](https://www.youtube.com/watch?v=g5u7wrYxLUg&list=WL&index=5)
 
@@ -481,7 +481,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/](https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/)
 
-2026-04-07 Trump and Hegseth declared victory over Iran with a 10-point deal that didn’t make sense. The Strait of Hormuz was open before the U.S. and Israel initiated attacks on Iran, Iran gets to keep any uranium they already had, and it totally disrupted the negotiations already in place by Obama. 
+2026-04-07 Trump and Hegseth declared victory over Iran with a so-called 10-point deal. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/116365796713313030](https://truthsocial.com/@realDonaldTrump/posts/116365796713313030)
 
@@ -512,7 +512,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
 
-2026-04-17 Multiple top officials described Kash Patel as erratic, intoxicated on the job, unexplainably absent from work, and paranoid. One official told The Atlantic that he was glad Patel focused on bullshit for the sake of law but felt that means the FBI doesn’t have a functioning director. Kash Patel has threatened to sue The Atlantic.
+2026-04-17 Officials described Kash Patel as erratic, paranoid, frequently absent, and allegedly intoxicated on the job. Patel threatened legal action against The Atlantic.
 
 [https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
 

@@ -1189,7 +1189,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 April
 
-2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
 
 [https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
 
@@ -1236,7 +1236,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
 
 
-2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. 
 
 [https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
 
@@ -1292,7 +1292,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
 
-2026-04-07 Trump and Hegseth declared victory over Iran with a 10-point deal that didn’t make sense. The Strait of Hormuz was open before the U.S. and Israel initiated attacks on Iran, Iran gets to keep any uranium they already had, and it totally disrupted the negotiations already in place by Obama. 
+2026-04-07 Trump and Hegseth declared victory over Iran with a so-called 10-point deal. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/116365796713313030](https://truthsocial.com/@realDonaldTrump/posts/116365796713313030)
 

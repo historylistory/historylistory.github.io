@@ -77,7 +77,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 [https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted](https://www.newyorker.com/newsletter/the-daily/can-sam-altman-be-trusted)
 
-2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
+2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 
@@ -89,7 +89,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
 
-2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
+2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 

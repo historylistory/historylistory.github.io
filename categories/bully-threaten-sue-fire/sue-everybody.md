@@ -209,7 +209,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
 
-2026-04-17 Multiple top officials described Kash Patel as erratic, intoxicated on the job, unexplainably absent from work, and paranoid. One official told The Atlantic that he was glad Patel focused on bullshit for the sake of law but felt that means the FBI doesn’t have a functioning director. Kash Patel has threatened to sue The Atlantic.
+2026-04-17 Officials described Kash Patel as erratic, paranoid, frequently absent, and allegedly intoxicated on the job. Patel threatened legal action against The Atlantic.
 
 [https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
 

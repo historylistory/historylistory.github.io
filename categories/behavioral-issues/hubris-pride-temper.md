@@ -184,7 +184,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 ### 2026 April
 
-2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. 
 
 [https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
 
@@ -209,7 +209,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
 
 
-2026-04-09 The DOJ announced that Pam Bondi will not be attending the April 14 deposition for which she was subpoenaed to testify about the Epstein files, stating that because she is no longer sitting as Attorney General she is excused. 
+2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
 
 [https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
 

@@ -365,7 +365,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
-2026-04-09 The DOJ announced that Pam Bondi will not be attending the April 14 deposition for which she was subpoenaed to testify about the Epstein files, stating that because she is no longer sitting as Attorney General she is excused. 
+2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
 
 [https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
 

@@ -210,7 +210,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 [https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release](https://www.euronews.com/next/2026/04/08/why-anthropics-most-powerful-ai-model-mythos-preview-is-too-dangerous-for-public-release)
 
-2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
+2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 

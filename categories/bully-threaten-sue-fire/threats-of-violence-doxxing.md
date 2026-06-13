@@ -218,7 +218,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 ### 2026 April
 
-2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. 
 
 [https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
 

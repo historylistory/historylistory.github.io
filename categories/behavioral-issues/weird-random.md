@@ -227,7 +227,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/](https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval-office-stunt-backfires/)
 
-2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, ***“I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. ***
+2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, “I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. 
 
 [https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book](https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book)
 
@@ -239,7 +239,7 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 
 
 
-2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
+2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
 [https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims](https://www.businesswire.com/news/home/20260415376479/en/Top-VCs-Back-Aron-DSouza-to-Launch-Objection-An-AI-Judge-for-Investigating-Media-Claims)
 
@@ -265,7 +265,7 @@ FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1
 
 FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
 
-2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
+2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 

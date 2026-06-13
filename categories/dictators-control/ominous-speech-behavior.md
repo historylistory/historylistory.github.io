@@ -155,7 +155,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
-2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
+2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 

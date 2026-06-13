@@ -236,13 +236,13 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-04-08 The White House requested personal medical records for federal workers, retirees, and families.
 
-2026-04-16 Peter Thiel and tech investors funded Objection, an AI tribunal “judge” system for evaluating media claims.
+2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
 2026-04-16 AllBirds pivoted from footwear into AI GPUs and announced a rebrand to “NewBird AI.”
 
 2026-04-17 Wired reported Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
 
-2026-04-18 Palantir posted a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons. In that manifesto they also said that some cultures were “inferior” to others and that “postwar neutering” of Germany and Japan must be undone.
+2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
 
 2026-04-27 Elon Musk sued Sam Altman over OpenAI.
 

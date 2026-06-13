@@ -149,7 +149,7 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 ### 2026 April
 
-2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
 
 [https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
 
@@ -158,7 +158,7 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video](https://www.theguardian.com/world/video/2026/apr/03/footage-shows-iranian-bridge-destroyed-by-strikes-video)
 
 
-2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. Several leaders responded with backlash, condemning the unhinged post. 
+2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. 
 
 [https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s](https://www.youtube.com/watch?v=X6GRMdn8ZD4&list=WL&index=3&t=59s)
 

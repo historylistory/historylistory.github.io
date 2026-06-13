@@ -342,12 +342,11 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)
 
-2026-04-07 Roger Stone v Laura Loomer embarrassing discord over the war in Iran.
+2026-04-07 Roger Stone and Laura Loomer publicly feuded over the Iran war.
 
-~~~
-~~~ Stone wrote: “BREAKING: @LauraLoomer reportedly despondent over her failure to goad President Trump into WWIII, killing millions”
+STONE: “BREAKING: @LauraLoomer reportedly despondent over her failure to goad President Trump into WWIII, killing millions”
 
-~~~ Loomer wrote: “Stop spewing IRGC talking points Roger. 
+LOOMER: “Stop spewing IRGC talking points Roger. 
 You disrespect President Trump when you repeat the lies that 
 he is getting us into WW3 that are masterminded by your friend 
 Tulsi Gabbard (whose 2028 campaign for President you’re running
@@ -355,7 +354,7 @@ around telling everyone you’re running), and the lies spread
 by your buddies Tucker Carlson and Alex Jones who want the 25th
 Amendment to be used against Trump.”
 
-~~~ Stone wrote: “Laura, you’re delusional and slipping into
+STONE: “Laura, you’re delusional and slipping into
 insanity. I’ve known Donald Trump for 50 years – you’ve known him
 for 50 minutes. He was revolted when you spread the rumor that you
 were having sex with him”…and further wrote, “I may now be forced to
@@ -367,7 +366,6 @@ practice of law by the bar in all relevant jurisdictions…stop
 calling yourself an ‘independent’ investigative journalist because
 you’re PAID to post your bullshit on social media – and we both know
 what women who are paid to do things are called”.
-~~~
 
 [https://x.com/LauraLoomer/status/2041664958912430501](https://x.com/LauraLoomer/status/2041664958912430501)
 
