@@ -199,7 +199,8 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 August
 
-2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:
+2025-08-06 Tim Cook presented Trump with a gold-themed plaque during Apple investment announcements. Numerous CEOs exhibited sycophancy during this term. The term “apple polisher” is an informal, often derogatory term for a sycophant or a "suck-up."
+
 {% include youtubePlayer.html id="5qxWKVIflyo" %}
 
 {% include youtubePlayer.html id="kSAGUjY2HIs" %}

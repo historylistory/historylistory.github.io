@@ -154,7 +154,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 July
 
-2025-07-10 Kristi Noem wouldn’t authorize the deployment of FEMA search and rescue teams for Texas floods until well over 72 hours after the flooding.
+2025-07-10 Kristi Noem allegedly delayed FEMA rescue authorization after Texas flooding by 72 hours. 
 
 [https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2025/07/23/fema-search-rescue-chief-resigns-texas-floods](https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2025/07/23/fema-search-rescue-chief-resigns-texas-floods)
 

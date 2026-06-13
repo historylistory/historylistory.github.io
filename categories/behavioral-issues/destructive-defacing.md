@@ -34,7 +34,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2025 August
 
-2025-08-07 For his birthday, Vance pressured the Army Corps of Engineers to release river water for his kayaking trip at taxpayer expense amidst budget cuts.
+2025-08-07 JD Vance allegedly pressured the Army Corps of Engineers to release river water for kayaking on his birthday. 
 
 [https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951](https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951)
 

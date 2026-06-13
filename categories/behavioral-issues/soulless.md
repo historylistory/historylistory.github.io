@@ -54,7 +54,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 July
 
-2025-07-14 Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
+2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
 [https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532/](https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532/)
 
@@ -149,7 +149,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 June
 
-2025-06-30 Laura Loomer posted on X, "Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now".
+2025-06-30 Laura Loomer joked that alligators would get “65 million meals” from migrants. She wrote on X, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 

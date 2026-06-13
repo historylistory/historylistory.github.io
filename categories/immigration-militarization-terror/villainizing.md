@@ -109,7 +109,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 June
 
-2025-06-30 Laura Loomer posted on X, "Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now".
+2025-06-30 Laura Loomer joked that alligators would get “65 million meals” from migrants. She wrote on X, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 

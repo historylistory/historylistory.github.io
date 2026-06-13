@@ -117,17 +117,18 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 June
 
-2025-06-14 Trump ordered a military parade for the Army and his birthday, though some felt it was simply a show of force.
+2025-06-14 Trump’s embarrassing birthday parade.
 
 [https://www.military.com/daily-news/2025/06/16/army-parade-was-marked-quiet-crowds-trump-linked-sponsors-soldiers-kept-politics-bay.html](https://www.military.com/daily-news/2025/06/16/army-parade-was-marked-quiet-crowds-trump-linked-sponsors-soldiers-kept-politics-bay.html)
 
-2025-06-16 In another example of leaders trying to stroke Trump’s ego, the president of the European Council handed Trump a signed jersey and told him it's because Trump was "playing for peace".
+2025-06-16 European Council leadership coddled Trump, gifting him a signed jersey, praising him for “playing for peace.”
 
 [https://www.tiktok.com/@cbsnews/video/7516913750734081293](https://www.tiktok.com/@cbsnews/video/7516913750734081293)
 
 ### 2025 August
 
-2025-08-06 Mega-donor and Apple (-polisher) CEO Tim Cook presented a gold-based plaque to Trump while announcing a $100B investment into the US with a 4-year plan for $600B. A compilation of how mega-donors repeatedly and shamefully grovel can be found at this link:
+2025-08-06 Tim Cook presented Trump with a gold-themed plaque during Apple investment announcements. Numerous CEOs exhibited sycophancy during this term. The term “apple polisher” is an informal, often derogatory term for a sycophant or a "suck-up."
+
 {% include youtubePlayer.html id="5qxWKVIflyo" %}
 
 {% include youtubePlayer.html id="kSAGUjY2HIs" %}

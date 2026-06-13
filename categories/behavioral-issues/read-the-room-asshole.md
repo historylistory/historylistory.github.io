@@ -28,13 +28,13 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2025 July
 
-2025-07-01 Trump floated the idea of a UFC fight on the White House South lawn and confirmed later in October they will be having it in June 2026.
+2025-07-01 Trump floated holding a UFC event on the White House lawn and confirmed later in October they will be having it in June 2026.
 
 {% include youtubePlayer.html id="Q3QsIAjBTx8" %}
 
 ### 2025 August
 
-2025-08-07 For his birthday, Vance pressured the Army Corps of Engineers to release river water for his kayaking trip at taxpayer expense amidst budget cuts.
+2025-08-07 JD Vance allegedly pressured the Army Corps of Engineers to release river water for kayaking on his birthday. 
 
 [https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951](https://apnews.com/article/vp-vance-boating-ohio-river-level-raised-de4c773cfffd6cac0b82e96787fea951)
 

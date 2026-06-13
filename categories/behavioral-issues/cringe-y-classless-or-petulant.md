@@ -171,7 +171,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 June
 
-2025-06-24 During a DOGE Committee hearing, Marjorie Taylor Greene went into a fit of repeatedly banging her gavel at Stansbury and repeating “You are not recognized”.
+2025-06-24 MTG repeatedly shouted “You are not recognized” during a DOGE hearing.
 
 {% include youtubePlayer.html id="ii8l4IUZcVA" %}
 
@@ -179,13 +179,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.advocate.com/politics/melanie-stansbury-triggers-greene-meltdown](https://www.advocate.com/politics/melanie-stansbury-triggers-greene-meltdown)
 
-2025-06-24 In response to a news reporter question about conflict between Iran and Israel, Trump shouted “They don’t know what the **fuck** they’re doing”.
+2025-06-24 Trump shouted “They don’t know what the fuck they’re doing” about Iran and Israel.
 
 [https://www.nbcnews.com/politics/white-house/trump-lashes-israel-iran-dont-know-f-re-rcna214712](https://www.nbcnews.com/politics/white-house/trump-lashes-israel-iran-dont-know-f-re-rcna214712)
 
 ### 2025 August
 
-2025-08-01 Viewers speculated that Jeanine Pirro was publicly intoxicated on more than one occasion.
+2025-08-01 Viewers speculated Jeanine Pirro appeared to be intoxicated publicly.
 
 {% include youtubePlayer.html id="MRAdaArgkzw" %}
  (timestamp 3:28)

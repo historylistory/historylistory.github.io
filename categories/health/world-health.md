@@ -20,7 +20,7 @@ permalink: /categories/health/world-health/
 
 ### 2025 July
 
-2025-07-14 Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
+2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
 [https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532/](https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532/)
 
