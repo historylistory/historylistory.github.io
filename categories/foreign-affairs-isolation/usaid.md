@@ -36,7 +36,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 [https://www.whitehouse.gov/articles/2025/02/at-usaid-waste-and-abuse-runs-deep/#:~:text=Abuse%20Runs%20Deep-,The%20White%20House,next%2Dto%2Dno%20oversight](https://www.whitehouse.gov/articles/2025/02/at-usaid-waste-and-abuse-runs-deep/).
 
-2025-02-03 Elon Musk posted on social media, “We spent the weekend feeding USAID into the wood chipper. Could gone to some great parties. Did that instead.” He was responding to a post by Mike Benz, “it ain’t dead yet, but already, and for the very first time, a hole has been put in the Terror Titanic x.com/Nero/status/18…”
+2025-02-03 Elon Musk joked online about feeding USAID “into the wood chipper.”
 
 [https://x.com/elonmusk/status/1886307316804263979](https://x.com/elonmusk/status/1886307316804263979)
 
@@ -50,7 +50,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 [https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid#:~:text=On%20the%20latest%20Last,any%20of%20those%20thoughts%20true.%E2%80%9D](https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid)
 
-2025-02-18 Right-wing podcaster Benny Johnson took a trip to DC to celebrate and take a selfie in front of the shut-down USAID headquarters.
+2025-02-18 Right-wing podcaster Benny Johnson celebrated outside the shuttered USAID headquarters.
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}
 

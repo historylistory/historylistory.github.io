@@ -36,7 +36,7 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2025 February
 
-2025-02-04 Trump repeatedly stated he should receive the Nobel Peace Prize.
+2025-02-04 Trump repeatedly said he deserved the Nobel Peace Prize.
 
 [https://www.usatoday.com/story/news/politics/2025/09/07/trump-nobel-peace-prize-ukraine-gaza/85980330007/](https://www.usatoday.com/story/news/politics/2025/09/07/trump-nobel-peace-prize-ukraine-gaza/85980330007/)
 

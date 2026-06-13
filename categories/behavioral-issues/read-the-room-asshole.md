@@ -16,7 +16,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2025 January
 
-2025-01-20 During the mourning period for Jimmy Carter, Mike Johnson ordered flags to be raised temporarily at the request of Trump.
+2025-01-20 Mike Johnson temporarily raised flags during Jimmy Carter’s mourning period at Trump’s request.
 
 [https://truthsocial.com/@realDonaldTrump/posts/113765847370756395](https://truthsocial.com/@realDonaldTrump/posts/113765847370756395)
 

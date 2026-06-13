@@ -90,7 +90,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 March
 
-2025-03-01 Pete Hegseth initiated the dismantling of the Civilian Mitigation and Response Action Plan, which was designed to build a blueprint for avoiding civilian war casualties. The agency had the important task of maintaining a “no-strike” list so we wouldn’t bomb places like schools, hospitals, apartment buildings, et cetera. Hegseth even pitched the idea of changing the name to Center for Precision Warfare so the mission wouldn’t sound so “woke”, but the Trump administration inevitably scrapped it just before they started a war in Iran and bombed a school for girls, killing nearly 200 children in the first day of the war.
+2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
 
 [https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
 

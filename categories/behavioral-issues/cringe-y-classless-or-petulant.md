@@ -135,13 +135,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 February
 
-2025-02-20 At the CPAC conference Elon Musk waved around a chainsaw gifted to him by the Argentina president in an embarrassing “Chainsaw of Democracy” spectacle. More like chainsaw **to** Democracy.
+2025-02-20 Elon Musk waved a chainsaw onstage at CPAC.
 
 {% include youtubePlayer.html id="nkMVb0RNptA" %}
 
 [https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858](https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858)
 
-2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
+2025-02-28 Trump and Vance berated Zelenskyy at the White House over gratitude and attire and accused him of “campaigning for the opposition”. 
 
 {% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 

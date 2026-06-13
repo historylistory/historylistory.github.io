@@ -93,11 +93,11 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 February
 
-2025-02-14 The White House posted a poem on X for Valentines Day: Roses are red - violets are blue - come here illegally - and we'll deport you.
+2025-02-14 The White House posted a Valentine’s Day deportation poem on X, “Roses are red, violets are blue. Come here illegally and we’ll deport you”.
 
 [https://x.com/WhiteHouse/status/1890441976417264027](https://x.com/WhiteHouse/status/1890441976417264027)
 
-2025-02-18 The White House released a video called "ASMR: Illegal alien deportation flight".
+2025-02-18 The White House released “ASMR: Illegal alien deportation flight.”
 
 [https://x.com/WhiteHouse/status/1891922058415603980?lang=en](https://x.com/WhiteHouse/status/1891922058415603980?lang=en)
 

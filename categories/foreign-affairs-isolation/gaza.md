@@ -94,7 +94,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.whitehouse.gov/presidential-actions/2025/02/withdrawing-the-united-states-from-and-ending-funding-to-certain-united-nations-organizations-and-reviewing-united-states-support-to-all-international-organizations/](https://www.whitehouse.gov/presidential-actions/2025/02/withdrawing-the-united-states-from-and-ending-funding-to-certain-united-nations-organizations-and-reviewing-united-states-support-to-all-international-organizations/)
 
-2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
+2025-02-26 Trump posted an AI-generated Gaza resort video featuring himself as a golden idol.
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 

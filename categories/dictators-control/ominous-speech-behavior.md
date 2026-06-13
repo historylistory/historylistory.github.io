@@ -69,7 +69,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2025 February
 
-2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
+2025-02-26 Trump posted an AI-generated Gaza resort video featuring himself as a golden idol.
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 

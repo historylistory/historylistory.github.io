@@ -76,25 +76,25 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 February
 
-2025-02-03 Elon Musk posted on social media, “We spent the weekend feeding USAID into the wood chipper. Could gone to some great parties. Did that instead.” He was responding to a post by Mike Benz, “it ain’t dead yet, but already, and for the very first time, a hole has been put in the Terror Titanic x.com/Nero/status/18…”
+2025-02-03 Elon Musk joked online about feeding USAID “into the wood chipper.”
 
 [https://x.com/elonmusk/status/1886307316804263979](https://x.com/elonmusk/status/1886307316804263979)
 
-2025-02-14 The White House posted a poem on X for Valentines Day: Roses are red - violets are blue - come here illegally - and we'll deport you.
+2025-02-14 The White House posted a Valentine’s Day deportation poem on X, “Roses are red, violets are blue. Come here illegally and we’ll deport you”.
 
 [https://x.com/WhiteHouse/status/1890441976417264027](https://x.com/WhiteHouse/status/1890441976417264027)
 
-2025-02-18 The White House released a video called "ASMR: Illegal alien deportation flight".
+2025-02-18 The White House released “ASMR: Illegal alien deportation flight.”
 
 [https://x.com/WhiteHouse/status/1891922058415603980?lang=en](https://x.com/WhiteHouse/status/1891922058415603980?lang=en)
 
-2025-02-18 Right-wing podcaster Benny Johnson took a trip to DC to celebrate and take a selfie in front of the shut-down USAID headquarters.
+2025-02-18 Right-wing podcaster Benny Johnson celebrated outside the shuttered USAID headquarters.
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}
 
 ### 2025 March
 
-2025-03-01 Pete Hegseth initiated the dismantling of the Civilian Mitigation and Response Action Plan, which was designed to build a blueprint for avoiding civilian war casualties. The agency had the important task of maintaining a “no-strike” list so we wouldn’t bomb places like schools, hospitals, apartment buildings, et cetera. Hegseth even pitched the idea of changing the name to Center for Precision Warfare so the mission wouldn’t sound so “woke”, but the Trump administration inevitably scrapped it just before they started a war in Iran and bombed a school for girls, killing nearly 200 children in the first day of the war.
+2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
 
 [https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
 

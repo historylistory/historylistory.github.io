@@ -52,12 +52,12 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 January
 
-2025-01-23 Bill HR691 was introduced to change the Washington Dulles International Airport in Virginia to “Donald J. Trump International Airport”.
+2025-01-23 Bill HR691 was introduced to rename Dulles Airport after Trump.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/691](https://www.congress.gov/bill/119th-congress/house-bill/691)
 
 
-2025-01-25 A Florida Congresswoman filed legislation to have Trump's face carved into Mount Rushmore.
+2025-01-25 A Florida lawmaker proposed Bill HR792 carving Trump into Mount Rushmore.
 
 [https://floridaphoenix.com/briefs/anna-paulina-luna-files-legislation-to-put-carve-trumps-face-on-mount-rushmore/](https://floridaphoenix.com/briefs/anna-paulina-luna-files-legislation-to-put-carve-trumps-face-on-mount-rushmore/)
 
@@ -72,21 +72,21 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2025 February
 
-2025-02-15 Bill HR1395 was introduced to make Trump’s birthday an official federal holiday.
+2025-02-15 Legislation Bill HR1395 proposed making Trump’s birthday a federal holiday.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/1395](https://www.congress.gov/bill/119th-congress/house-bill/1395)
 
-2025-02-19 the White House posted an AI generated Time Magazine cover featuring Trump wearing a crown, captured “Long Live the King”.
+2025-02-19 The White House posted an AI-generated image of Trump wearing a crown captioned “Long Live the King.”
 
 [https://x.com/WhiteHouse/status/1892295984928993698](https://x.com/WhiteHouse/status/1892295984928993698)
 
-2025-02-26 Trump posted an AI-generated video of Gaza as a beach resort, featuring several disturbing images including himself as a golden idol and Elon Musk vacationing in the war-torn land.
+2025-02-26 Trump posted an AI-generated Gaza resort video featuring himself as a golden idol.
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
 {% include youtubePlayer.html id="PslOp883rfI" %}
 
-2025-02-27 Bill HR1761 was introduced to create a $250 bill with Trumps face on it.
+2025-02-27 Bill HR1761 proposed placing Trump on a $250 bill.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/1761](https://www.congress.gov/bill/119th-congress/house-bill/1761)
 

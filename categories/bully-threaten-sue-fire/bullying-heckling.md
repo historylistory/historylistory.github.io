@@ -94,7 +94,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 February
 
-2025-02-28 The Trump administration heckled Vladimir Zelenskyy during a visit to the White House, descending into childish taunting over what Zelenskyy was wearing and asking him "**Have you said thank you once**". Vance continued to torture Zelenskyy, accusing him of “**campaigning for the opposition**” in October which didn’t happen. An article with MSNBC pointed out that Zelenskyy did say thank you, numerous times including both during a joint meeting of Congress in 2022 and online, citing at least 6 very large, very heartfelt public thank you letters.
+2025-02-28 Trump and Vance berated Zelenskyy at the White House over gratitude and attire and accused him of “campaigning for the opposition”. 
 
 {% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 
