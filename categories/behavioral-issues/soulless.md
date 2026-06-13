@@ -64,7 +64,7 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 August
 
-2025-08-07 Kristi Noem was upset because creators of South Park made fun of her appearance, but she took no issue with the satire material referencing her history of killing dogs or unfeeling immigration policy.
+2025-08-07 Kristi Noem was more concerned about South Park mocking her appearance than referencing her history of killing dogs. 
 
 [https://www.theguardian.com/us-news/2025/aug/08/homeland-security-kristi-noem-south-park](https://www.theguardian.com/us-news/2025/aug/08/homeland-security-kristi-noem-south-park)
 

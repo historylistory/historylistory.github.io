@@ -190,29 +190,29 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 {% include youtubePlayer.html id="MRAdaArgkzw" %}
  (timestamp 3:28)
 
-2025-08-10 Trump posted an AI generated video of himself dancing within the Cracker Barrel logo. Amidst the conservative uproar over a logo change, Jesse Watters of Fox News put it best when he commented that “Cracker Barrel should take a page out of Fox News’ book at **give the people what they’re used to**”.
+2025-08-10 Trump posted an AI-generated Cracker Barrel dance video. Jesse Watters of Fox News put it best when he commented that “Cracker Barrel should take a page out of Fox News’ book at give the people what they’re used to”.
 
 [https://www.bbc.com/news/articles/ce835lry896o](https://www.bbc.com/news/articles/ce835lry896o)
 
 [https://www.yahoo.com/news/articles/jesse-watters-says-cracker-barrel-235332340.html](https://www.yahoo.com/news/articles/jesse-watters-says-cracker-barrel-235332340.html)
 
-2025-08-13 In response to the man who threw a sandwich at ICE agents, Jeanine Pirro posted an unprofessional video about it, ending the video with “stick your subway sandwich somewhere else” and a smug grin.
+2025-08-13 Jeanine Pirro posted a smug rant about a man throwing a sandwich at ICE agents with, “stick your subway sandwich somewhere else”. 
 
 [https://www.facebook.com/watch/?v=744623078329534](https://www.facebook.com/watch/?v=744623078329534)
 
 [https://www.npr.org/2025/11/06/nx-s1-5600772/trump-justice-federal-surge-subway-sandwich](https://www.npr.org/2025/11/06/nx-s1-5600772/trump-justice-federal-surge-subway-sandwich)
 
-2025-08-26 Andy Ogles reposted on X from the right-wing satire Babylon Bee featuring a cannon with a man wearing a sombrero loaded into the barrel.
+2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 [https://x.com/RepOgles](https://x.com/RepOgles)
 
 ### 2025 September
 
-2025-09-05 Trump signed an executive order rebranding the DOD as the Department of War because it "sounded tough".
+2025-09-05 Trump signed an order renaming the Department of Defense the “Department of War.”
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/](https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/)
 
-2025-09-06 Trump released an AI image on social media of himself with the caption "Chipocalypse now" to troll the Chicago mayor with civil war.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115158096026629509](https://truthsocial.com/@realDonaldTrump/posts/115158096026629509)
 

@@ -137,7 +137,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.youtube.com/shorts/0O9QhwIkj5w](https://www.youtube.com/shorts/0O9QhwIkj5w)
 
-2025-08-13 In July, House Republicans proposed to rename the Kennedy Center after Melania Trump. By August 13 2025, Trump said he'd been asked to be head of the Kennedy center. By December 2025, Trump joked that the center should be renamed after himself. In reference to changes made to the center, one article wrote, “…a series of changes…most notably ousting its board of trustees and replacing them with GOP supporters who voted him (Trump) in as chairman of the board”.
+2025-08-13 Trump allies proposed renaming the Kennedy Center after Melania or Trump himself.
 
 [https://symphony.org/house-republicans-propose-renaming-kennedy-center-opera-house-for-melania-trump/](https://symphony.org/house-republicans-propose-renaming-kennedy-center-opera-house-for-melania-trump/)
 

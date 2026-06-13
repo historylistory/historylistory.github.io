@@ -20,7 +20,7 @@ permalink: /categories/military-veterans/rebranding/
 
 ### 2025 September
 
-2025-09-05 Trump signed an executive order rebranding the DOD as the Department of War because it "sounded tough".
+2025-09-05 Trump signed an order renaming the Department of Defense the “Department of War.”
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/](https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/)
 

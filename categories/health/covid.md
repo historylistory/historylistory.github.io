@@ -146,7 +146,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 ### 2025 September
 
-2025-09-04 During a senate committee hearing, RFK declared he did not have COVID statistics, did not know how many people died from COVID, nor how many were saved by vaccines.
+2025-09-04 RFK admitted he did not know major COVID statistics during a Senate hearing.
 
 [https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694](https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694)
 

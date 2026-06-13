@@ -184,7 +184,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.aol.com/entertainment/ted-cruz-unleashes-racist-bigot-212544909.html](https://www.aol.com/entertainment/ted-cruz-unleashes-racist-bigot-212544909.html)
 
-2025-09-06 Trump released an AI image on social media of himself with the caption "Chipocalypse now" to troll the Chicago mayor with civil war.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115158096026629509](https://truthsocial.com/@realDonaldTrump/posts/115158096026629509)
 

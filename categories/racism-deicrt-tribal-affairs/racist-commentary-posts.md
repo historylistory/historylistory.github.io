@@ -230,7 +230,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2025 August
 
-2025-08-26 Andy Ogles reposted on X from the right-wing satire Babylon Bee featuring a cannon with a man wearing a sombrero loaded into the barrel.
+2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 [https://x.com/RepOgles](https://x.com/RepOgles)
 

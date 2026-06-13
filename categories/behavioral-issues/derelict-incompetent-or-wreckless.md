@@ -162,13 +162,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 August
 
-2025-08-11 Lawrence Taylor stated he wasn’t sure why he was tapped for Council on Sports Fitness & Nutrition.
+2025-08-11 Lawrence Taylor admitted uncertainty about his sports council appointment.
 
 [https://atlantadailyworld.com/2025/08/11/lawrence-taylor-doesnt-know-why-he-was-tapped-for-trump-fitness-council/](https://atlantadailyworld.com/2025/08/11/lawrence-taylor-doesnt-know-why-he-was-tapped-for-trump-fitness-council/)
 
 ### 2025 September
 
-2025-09-04 During a senate committee hearing, RFK declared he did not have COVID statistics, did not know how many people died from COVID, nor how many were saved by vaccines.
+2025-09-04 RFK admitted he did not know major COVID statistics during a Senate hearing.
 
 [https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694](https://www.nbcnews.com/video/shorts/rfk-jr-says-he-doesn-t-know-covid-death-data-246709829694)
 
