@@ -131,7 +131,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 [https://www.irishstar.com/culture/entertainment/david-muir-donald-trump-iran-36827739](https://www.irishstar.com/culture/entertainment/david-muir-donald-trump-iran-36827739)
 
-2026-03-26 The Treasury announced it would be putting Trump’s signature on the dollar bill. 
+2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
 
 [https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389](https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389)
 

@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/teleportation/
 
 ### 2026 March
 
-2026-03-20 News articles reported that George Phillips – a top FEMA official appointed by Trump – made two claims during an interview. He claimed his truck levitated and moved 40 miles with him in it, and he claimed that he “teleported” himself to a Waffle House. He also spread unsubstantiated claims of mass voter fraud in 2016.
+2026-03-20 FEMA official George Phillips claimed supernatural experiences of truck levitation and teleportation and promoted voter-fraud conspiracies.
 
 [https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile](https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile)
 

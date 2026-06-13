@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/japan/
 
 ### 2026 March
 
-2026-03-19 During a visit from the Japanese Prime Minister, Trump quipped, “Who knows better about surprises than Japan”, receiving backlash for making fun of Pearl Harbor.
+2026-03-19 Trump joked about Pearl Harbor during a visit from Japan’s Prime Minister. He said, “Who knows better about surprises than Japan?”
 
 [https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan](https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan)
 

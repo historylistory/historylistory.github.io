@@ -246,7 +246,7 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 ### 2026 March
 
-2026-03-20 For the nation’s 250th birthday the Trump administration announced plans to display a statue of a prominent slave owner. 
+2026-03-20 The Trump administration planned to display a statue of a slave owner for America’s 250th anniversary.
 
 [https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/](https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/)
 

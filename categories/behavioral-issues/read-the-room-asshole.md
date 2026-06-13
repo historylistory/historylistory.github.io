@@ -130,7 +130,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 {% include youtubePlayer.html id="qepYRy2BTAg" %}
 
-2026-03-16 The White House federal arts commission proposed ripping out the White House columns. 
+2026-03-16 The White House arts commission proposed removing White House columns.
 
 [https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/](https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/)
 
@@ -142,7 +142,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump](https://finance-commerce.com/2026/03/white-house-columns-corinthian-proposal-trump)
 
-2026-03-19 During a visit from the Japanese Prime Minister, Trump quipped, “Who knows better about surprises than Japan”, receiving backlash for making fun of Pearl Harbor.
+2026-03-19 Trump joked about Pearl Harbor during a visit from Japan’s Prime Minister. He said, “Who knows better about surprises than Japan?”
 
 [https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan](https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan)
 

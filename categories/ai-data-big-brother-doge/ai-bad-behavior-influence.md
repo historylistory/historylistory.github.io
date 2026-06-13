@@ -174,7 +174,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 March
 
-2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
+2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 

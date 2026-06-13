@@ -30,7 +30,7 @@ permalink: /categories/education/ai/
 
 ### 2026 March
 
-2026-03-26 Melania Trump presented a humanoid robot to a White House AI summit. Melania Trump pitched her robot as “humanoid educators” that could replace teachers. 
+2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
 [https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)
 

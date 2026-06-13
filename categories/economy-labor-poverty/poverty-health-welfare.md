@@ -372,7 +372,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 {% include youtubePlayer.html id="iMI-jsOUDQk" %}
 
-2026-03-10 News agencies reported that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
+2026-03-10 Reports alleged Hegseth spent lavishly on luxury items while SNAP aid was withheld: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. 
 
 [https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab](https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab)
 
@@ -384,13 +384,13 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/](https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/)
 
-2026-03-11 On the YouTube channel Sutherland Institute Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
+2026-03-11 Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
 
 [https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD](https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD)
 
 [https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1](https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1)
 
-2026-03-16 During a Newsmax interview with Carl Higbie ‘Frontline’ Trump-ally Michael Savage called poverty the “homeless industrial complex” and said, “It’s a racket bigger than the crack business in the State of California. Of course it’s not for the homeless. Donors who own these dilapidated hotels sell them to the State at inflated prices, then their wives or girlfriends or daughters decorate them at inflated prices, and the homeless bums don’t even wanna go in there on top of it all because they don’t have the freedom to destroy the society that they have in the streets. It’s crazy, I’ve been long-saying they shouldn’t have the freedom to live in the streets. Take the freedom away from them! Put them in **internment camps 100 miles away from cities** and give them the care that they need”. Carl Hibie chuckled, “homeless internment camps is definitely going to get noticed on the internet, so…”.
+2026-03-16 Michael Savage proposed homeless internment camps during a Newsmax interview. 
 
 [https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s](https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s)
 

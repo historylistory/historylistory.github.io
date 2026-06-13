@@ -408,13 +408,13 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 [https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3](https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3)
 
 
-2026-03-11 On the YouTube channel Sutherland Institute Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
+2026-03-11 Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
 
 [https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD](https://www.msn.com/en-us/news/politics/gop-senator-s-real-world-remark-about-people-in-poverty-draws-backlash/ar-AA1YpafD)
 
 [https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1](https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1)
 
-2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
+2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
 [https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
 
@@ -432,7 +432,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.instagram.com/reel/DV_Z7BhkTnU/](https://www.instagram.com/reel/DV_Z7BhkTnU/)
 
-2026-03-16 Trump revealed private medical information that Florida Representative Neal Dunn had a terminal diagnosis, and blurted out during a meeting, “He would be dead by June”. After Trump said that, speaker Mike Johnson responded, “Okay, that wasn’t public, but yeah…” and a low murmur came over the audience.  
+2026-03-16 Trump publicly revealed Florida Representative Neal Dunn’s terminal diagnosis.
 
 [https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson](https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson)
 
@@ -446,23 +446,23 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 {% include youtubePlayer.html id="AmukYDYYm44" %}
 
-2026-03-16 During a Newsmax interview with Carl Higbie ‘Frontline’ Trump-ally Michael Savage called poverty the “homeless industrial complex” and said, “It’s a racket bigger than the crack business in the State of California. Of course it’s not for the homeless. Donors who own these dilapidated hotels sell them to the State at inflated prices, then their wives or girlfriends or daughters decorate them at inflated prices, and the homeless bums don’t even wanna go in there on top of it all because they don’t have the freedom to destroy the society that they have in the streets. It’s crazy, I’ve been long-saying they shouldn’t have the freedom to live in the streets. Take the freedom away from them! Put them in **internment camps 100 miles away from cities** and give them the care that they need”. Carl Hibie chuckled, “homeless internment camps is definitely going to get noticed on the internet, so…”.
+2026-03-16 Michael Savage proposed homeless internment camps during a Newsmax interview. 
 
 [https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s](https://www.youtube.com/watch?v=T3kp_9N3Jsk&list=WL&index=3&t=10s)
 
 [https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums](https://www.mediamatters.org/newsmax/newsmax-host-michael-savage-proposes-internment-camps-homeless-bums)
 
-2026-03-17 Pete Hegseth’s pastor Brooks Potteiger under Doug Wilson – prayed for James Talarico’s death during a podcast. He said, *”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”* 
+2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
 
-The interviewer interjected, *”We want him crucified…with Christ..”* 
+Potteiger: ”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”
 
-Potteiger continued, *”That’s exactly right!”*
+Host: ”We want him crucified…with Christ..”
 
-The interviewer, *”I want him to be I think Saul of Tarsus, Talarico of Tarsus. That’s what I want. Who would say I was holding the garments while they stoned Steven, and now I’m the – yeah – that’s, that’s what we want”*.
+Potteiger: "That’s exactly right!”
 
-Potteiger continued, *”…Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”*
+Host: ”I want him to be I think Saul of Tarsus, Talarico of Tarsus. That’s what I want. Who would say I was holding the garments while they stoned Steven, and now I’m the – yeah – that’s, that’s what we want.”
 
-The question is, was this interpretation of scripture, or was it intentional? What was also noted by some listeners (not verified): At the beginning of the podcast, the host said, **“The man of Washington”** and Brooks replied, **“Not yet – soon”.**   
+Potteiger: "Yes. We want death and new life, right? Um, and if it would not be within God’s will to do so, stop him by any means necessary, oh God.”
 
 [https://www.youtube.com/watch?v=FJvb1g0BGb8&list=WL&index=2](https://www.youtube.com/watch?v=FJvb1g0BGb8&list=WL&index=2)
 
@@ -470,7 +470,7 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
 
-2026-03-20 For the nation’s 250th birthday the Trump administration announced plans to display a statue of a prominent slave owner. 
+2026-03-20 The Trump administration planned to display a statue of a slave owner for America’s 250th anniversary.
 
 [https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/](https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/)
 
@@ -484,7 +484,7 @@ The question is, was this interpretation of scripture, or was it intentional? Wh
 
 [https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s](https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s)
 
-2026-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
 

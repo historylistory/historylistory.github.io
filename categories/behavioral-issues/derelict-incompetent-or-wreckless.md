@@ -403,7 +403,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
 
-2026-03-16 Leaked DOGE videos allegedly showed employees using ChatGPT to identify agencies and grants to indiscriminately cut, especially those mentioning DEI.
+2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
 
 [https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
 
@@ -431,7 +431,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
 
-2026-03-24 House Democrat leaders chose not to force a vote on an Iran war powers resolution until after a 2-week recess in mid-April. Demand Progress Senior Policy Advisor Cavan Kharrazian stated, “This is a moment for anti-war leadership, not hesitation. The House should be on the record now, especially when reporting suggests the votes are there to pass a war powers resolution”. Ryan Grim wrote on social media, “Gregory Meeks is now suggesting he might back away from a War Powers vote just as (and honestly because) it now may have the votes to pass. Dems secretly want this war to continue bc it hurts Trump”. 
+2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 

@@ -113,7 +113,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2026 March
 
-2026-03-16 The White House federal arts commission proposed ripping out the White House columns. 
+2026-03-16 The White House arts commission proposed removing White House columns.
 
 [https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/](https://www.washingtonpost.com/politics/2026/03/15/white-house-columns-ionic-corinthian/)
 

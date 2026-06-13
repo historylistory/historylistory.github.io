@@ -104,7 +104,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 ### 2026 March
 
-2026-03-20 For the nation’s 250th birthday the Trump administration announced plans to display a statue of a prominent slave owner. 
+2026-03-20 The Trump administration planned to display a statue of a slave owner for America’s 250th anniversary.
 
 [https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/](https://thehill.com/homenews/administration/5791797-trump-administration-caesar-rodney-statue-america-250/)
 

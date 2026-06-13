@@ -214,11 +214,11 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-03-14 Trump brokered TikTok’s sale to Larry Ellison, The Trump administration allegedly gained a $10B transactional payout, which is 70% of the company’s $14B worth.
 
-2026-03-16 Leaked DOGE videos allegedly showed employees using ChatGPT to identify agencies and grants to indiscriminately cut, especially those mentioning DEI.
+2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
 
 2026-03-17 Senator Slotkin introduced the AI Guardrails Act addressing autonomous weapons, surveillance, and nuclear defense.
 
-2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
+2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
 
 2026-03-24 Only a few months after its launch, OpenAI shut down the Sora video app and a deal with Disney for $1B was cancelled. Some articles reported problematic content and harmful deepfakes, others reported copyright issues; and some articles indicated it was because the company was operating at a greater loss than expected.
 

@@ -197,7 +197,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
 
-2026-03-27 Rob Schneider wrote on X calling to reinstate the military draft.
+2026-03-27 Rob Schneider called for reinstating the military draft.
 
 [https://x.com/RobSchneider/status/2037596986715852893](https://x.com/RobSchneider/status/2037596986715852893)
 

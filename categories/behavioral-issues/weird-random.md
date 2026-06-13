@@ -79,7 +79,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.theguardian.com/us-news/2026/mar/10/trump-florsheim-shoes](https://www.theguardian.com/us-news/2026/mar/10/trump-florsheim-shoes)
 
-2026-03-12 Kash Patel announced he would have FBI agents trained by UFC fighters.
+2026-03-12 Kash Patel said FBI agents would train with UFC fighters.
 
 [https://www.youtube.com/watch?v=xIZUORyUVdM&list=WL&index=1](https://www.youtube.com/watch?v=xIZUORyUVdM&list=WL&index=1)
 
@@ -93,7 +93,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html](https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html)
 
-2026-03-20 News articles reported that George Phillips – a top FEMA official appointed by Trump – made two claims during an interview. He claimed his truck levitated and moved 40 miles with him in it, and he claimed that he “teleported” himself to a Waffle House. He also spread unsubstantiated claims of mass voter fraud in 2016.
+2026-03-20 FEMA official George Phillips claimed supernatural experiences of truck levitation and teleportation and promoted voter-fraud conspiracies.
 
 [https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile](https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile)
 
@@ -103,7 +103,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html](https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html)
 
-2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
+2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 
@@ -118,7 +118,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html](https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html)
 
 
-2026-03-26 Melania Trump presented a humanoid robot to a White House AI summit. Melania Trump pitched her robot as “humanoid educators” that could replace teachers. 
+2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
 [https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit](https://www.foxnews.com/politics/melania-trump-welcomes-humanoid-robot-white-house-historic-ai-summit)
 
@@ -127,7 +127,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2](https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2)
 
 
-2026-03-27 Rob Schneider wrote on X calling to reinstate the military draft.
+2026-03-27 Rob Schneider called for reinstating the military draft.
 
 [https://x.com/RobSchneider/status/2037596986715852893](https://x.com/RobSchneider/status/2037596986715852893)
 

@@ -471,7 +471,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://x.com/WhiteHouse/status/2029953667600646655](https://x.com/WhiteHouse/status/2029953667600646655)
 
-2026-03-11 The Pentagon banned press reporters from taking photos inside the press briefing room after they published ‘unflattering’ photos of Pete Hegseth.
+2026-03-11 The Pentagon banned reporters from taking “unflattering” photos of Hegseth.
 
 [https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html](https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html)
 
@@ -479,7 +479,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/](https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/)
 
-2026-03-16 Trump revealed private medical information that Florida Representative Neal Dunn had a terminal diagnosis, and blurted out during a meeting, “He would be dead by June”. After Trump said that, speaker Mike Johnson responded, “Okay, that wasn’t public, but yeah…” and a low murmur came over the audience.  
+2026-03-16 Trump publicly revealed Florida Representative Neal Dunn’s terminal diagnosis.
 
 [https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson](https://www.axios.com/2026/03/16/trump-neal-dunn-terminal-diagnosis-mike-johnson)
 
@@ -499,7 +499,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html](https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html)
 
-2026-03-19 During a visit from the Japanese Prime Minister, Trump quipped, “Who knows better about surprises than Japan”, receiving backlash for making fun of Pearl Harbor.
+2026-03-19 Trump joked about Pearl Harbor during a visit from Japan’s Prime Minister. He said, “Who knows better about surprises than Japan?”
 
 [https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan](https://www.pbs.org/newshour/world/watch-why-didnt-you-tell-me-about-pearl-harbor-trump-says-when-japanese-reporter-asks-why-allies-didnt-know-about-iran-plan)
 
@@ -516,7 +516,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.fastcompany.com/91511269/kash-patel-nike-sneakers](https://www.fastcompany.com/91511269/kash-patel-nike-sneakers)
 
 
-2026-03-21 Former FBI director Robert Mueller died at age 81. Trump posted on social media, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
 
@@ -540,7 +540,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller](https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller)
 
-2026-03-26 During a CPAC convention far-right podcaster Benny Johnson told the CPAC crowd to “out-breed” the Libs.  Some of the quotes include, ***“Having children and starting a family is the culture war right there”***, and ***“Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”***. Among a multitude of other things left to unpack there, **acting as though women are designed to be breeding stock for political agendas**. 
+2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. 
 
 [https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
 

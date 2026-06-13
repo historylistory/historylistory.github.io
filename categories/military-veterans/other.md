@@ -94,7 +94,7 @@ permalink: /categories/military-veterans/other/
 
 [https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html](https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html)
 
-2026-03-20 GOP members were fooled by an AI-generated MAGA influencer named “Jessica Foster” sporting a crop-top military uniform and bare feet.
+2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 

@@ -253,7 +253,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2026 March
 
-2026-03-11 The Pentagon banned press reporters from taking photos inside the press briefing room after they published ‘unflattering’ photos of Pete Hegseth.
+2026-03-11 The Pentagon banned reporters from taking “unflattering” photos of Hegseth.
 
 [https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html](https://www.the-independent.com/news/world/americas/us-politics/pentagon-press-photographers-hegseth-photo-b2936569.html)
 

@@ -226,7 +226,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116200371638821370](https://truthsocial.com/@realDonaldTrump/posts/116200371638821370)
 
-2026-03-22 Trump ordered a hand-picked 3” commemorative Trump coin from the Commission of Fine Arts.
+2026-03-22 Trump ordered a commemorative Trump coin.
 
 [https://www.foxbusiness.com/politics/gold-trump-coin-moves-forward-after-treasury-invokes-rare-authority](https://www.foxbusiness.com/politics/gold-trump-coin-moves-forward-after-treasury-invokes-rare-authority)
 
@@ -236,7 +236,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430](https://apnews.com/article/trump-gold-coin-250th-anniversary-8be387e70ae561c62e27552bf47fb430)
 
-2026-03-25 Speaker Mike Johnson announced the White House made up a special award to present to Trump called the “America First” prize. 
+2026-03-25 Mike Johnson announced a special “America First” award for Trump.
 
 [https://www.usatoday.com/story/news/politics/2026/03/26/trump-given-america-first-award-republican-party/89330333007/](https://www.usatoday.com/story/news/politics/2026/03/26/trump-given-america-first-award-republican-party/89330333007/)
 
@@ -248,7 +248,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.youtube.com/watch?v=v5PVnCR5GOE&list=WL&index=3](https://www.youtube.com/watch?v=v5PVnCR5GOE&list=WL&index=3)
 
-2026-03-26 The Treasury announced it would be putting Trump’s signature on the dollar bill. 
+2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
 
 [https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389](https://www.nbcnews.com/politics/donald-trump/signature-appear-paper-currency-dollar-bills-first-sitting-president-rcna265389)
 

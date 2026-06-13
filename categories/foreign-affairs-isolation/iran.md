@@ -831,7 +831,7 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 [https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/](https://www.timesofisrael.com/russia-sharing-satellite-imagery-and-drone-technology-with-iran-report/)
 
-2026-03-15  After bombing Karg Island, sources reported Trump had said he’d order more strikes “just for fun”.  One news outlets quoted Trump has having said during a phone interview with NBC, “…we may hit it a few more times just for fun”. 
+2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
 [https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
 
@@ -1051,7 +1051,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/](https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/)
 
-2026-03-24 House Democrat leaders chose not to force a vote on an Iran war powers resolution until after a 2-week recess in mid-April. Demand Progress Senior Policy Advisor Cavan Kharrazian stated, “This is a moment for anti-war leadership, not hesitation. The House should be on the record now, especially when reporting suggests the votes are there to pass a war powers resolution”. Ryan Grim wrote on social media, “Gregory Meeks is now suggesting he might back away from a War Powers vote just as (and honestly because) it now may have the votes to pass. Dems secretly want this war to continue bc it hurts Trump”. 
+2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 

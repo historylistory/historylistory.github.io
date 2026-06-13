@@ -388,7 +388,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454](https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454)
 
 
-2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, ***“…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.*** Dozens of million-dollar bets were being made on the prediction market platform PolyMarket about Iran. 
+2026-03-26 Reports raised insider-trading concerns tied to PolyMarket and Trump associates, including a $1.5B in S&P 500 futures sold minutes before Trump announced a 5-day pause on U.S. strikes in Iran.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 

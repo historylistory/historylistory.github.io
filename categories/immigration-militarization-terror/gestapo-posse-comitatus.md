@@ -357,7 +357,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
 
-2026-03-21 Trump threatened to send ICE agents to airports starting Monday March 23rd if Democrats didn’t agree to fund DHS ICE agents. Trump wrote on Truth Social, “…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+2026-03-21 Trump threatened to deploy ICE agents to airports during the shutdown, even posting ““…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
 
