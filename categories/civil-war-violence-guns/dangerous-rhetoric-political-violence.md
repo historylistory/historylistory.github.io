@@ -118,7 +118,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2021
 
-2021-01-04 In a comment directed at officials who were not willing to overturn the 2020 election results, Nick Fuentes said on his podcast, "What can you and I do to a State legislator – besides kill them? We should not do that. I'm not advising that, but I mean, what else can you do, right?".
+2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results. 
 
 A private account on X has posted the video, but due to the account being private their link will not be shared here.
 

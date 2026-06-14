@@ -8,7 +8,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2020
 
-2020-05-27 Trump tweeted out that social media silenced Republicans. In that same tweet, Trump threatened to "strongly regulate or close them down" .
+2020-05-27 Trump claimed social media platforms were silencing Republicans and threatened to "strongly regulate or close them down." He wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
 
 [https://abcnews.go.com/Politics/trump-threatens-close-social-media-platforms-twitter-fact/story?id=70899912](https://abcnews.go.com/Politics/trump-threatens-close-social-media-platforms-twitter-fact/story?id=70899912)
 

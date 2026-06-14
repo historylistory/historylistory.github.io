@@ -30,7 +30,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed](https://thewire.in/world/donald-trump-campaign-sues-new-york-times-over-russia-op-ed)
 
-2020-11-16 Trump sued the Wisconsin TV Station over a political advertisement created by a liberal super PAC.
+2020-11-16 Trump sued a Wisconsin television station over a political advertisement funded by a liberal super PAC. 
 
 [https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/](https://firstamendmentwatch.org/trump-settles-defamation-lawsuit-against-wisconsin-tv-station/)
 
@@ -42,7 +42,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://freespeechproject.georgetown.edu/tracker-entries/trump-sues-facebook-twitter-google-for-censorship-launches-his-own-social-media-platform/](https://freespeechproject.georgetown.edu/tracker-entries/trump-sues-facebook-twitter-google-for-censorship-launches-his-own-social-media-platform/)
 
-2021-09-21 Trump sued his niece and The New York Times for releasing his tax documents.
+2021-09-21 Trump sued his niece and The New York Times over disclosure of his tax records.
 
 [https://www.nbcnews.com/now/video/trump-files-100-million-lawsuit-against-niece-new-york-times-121747013736](https://www.nbcnews.com/now/video/trump-files-100-million-lawsuit-against-niece-new-york-times-121747013736)
 
@@ -62,7 +62,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.cnbc.com/2023/01/30/trump-sues-bob-woodward-simon-schuster-paramount-for-50-million.html](https://www.cnbc.com/2023/01/30/trump-sues-bob-woodward-simon-schuster-paramount-for-50-million.html)
 
-2023-04-12 Trump sued Michael Cohen over alleged attorney-client relationship violations but then later dropped the charges around October. FYI Michael Cohen testified before a Manhattan Grand Jury in the Trump hush-money trial.
+2023-04-12 Trump sued Michael Cohen for alleged attorney-client violations, later dropping the case around October. Cohen later testified before a Manhattan grand jury in the hush-money case. 
 
 [https://www.reuters.com/world/us/michael-cohen-calls-trumps-500-mln-suit-against-him-pure-retaliation-2023-05-09/](https://www.reuters.com/world/us/michael-cohen-calls-trumps-500-mln-suit-against-him-pure-retaliation-2023-05-09/)
 

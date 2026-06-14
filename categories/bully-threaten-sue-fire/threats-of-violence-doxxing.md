@@ -18,19 +18,19 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2021
 
-2021-01-04 In a comment directed at officials who were not willing to overturn the 2020 election results, Nick Fuentes said on his podcast, "What can you and I do to a State legislator – besides kill them? We should not do that. I'm not advising that, but I mean, what else can you do, right?".
+2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results. 
 
 **A private account on X has posted the video, but due to the account being private their link will not be shared here.**
 
 ### 2023
 
-2023-12-12 Wandrea “Shaye” Moss was a Georgia election worker who was brutally targeted by Rudi Giuliani and other Republicans in the Trump campaign in a smear campaign of voter fraud allegations. She received multiple threats to her and her child’s lives, to include fear of being hanged outside her home.
+2023-12-12 Georgia election worker Wandrea "Shaye" Moss reported receiving threats against herself and her child after being targeted by voter-fraud allegations promoted by Rudy Giuliani and other Trump allies, including threats of being hanged.
 
 [https://www.pbs.org/newshour/politics/who-is-wandrea-arshaye-moss-and-why-is-she-testifying-before-the-jan-6-committee](https://www.pbs.org/newshour/politics/who-is-wandrea-arshaye-moss-and-why-is-she-testifying-before-the-jan-6-committee)
 
 [https://www.cnn.com/2023/12/12/politics/moss-freeman-giuliani-testimony](https://www.cnn.com/2023/12/12/politics/moss-freeman-giuliani-testimony)
 
-2023-12-13 Ruby Freeman, a Georgia election worker, testified to receiving violent and racist threats against her after Rudy Giuliani and other Republicans spread false claims about her. She stated she received threats of hanging, received a flood of threats through her online boutique, and even had to flee her home for her own safety.
+2023-12-13 Ruby Freeman, a Georgia election worker, testified to receiving violent and racist threats against her after Rudy Giuliani and other Republicans spread false claims about her. She stated she received threats of hanging and even had to flee her home for her own safety.
 
 [https://www.pbs.org/newshour/politics/georgia-election-worker-tearfully-describes-fleeing-her-home-after-giulianis-false-claims-of-fraud](https://www.pbs.org/newshour/politics/georgia-election-worker-tearfully-describes-fleeing-her-home-after-giulianis-false-claims-of-fraud)
 
