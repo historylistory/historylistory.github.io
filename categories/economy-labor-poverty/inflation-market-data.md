@@ -140,7 +140,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 April
 
-2025-04-17 Trump posted on social media calling Jerome Powell "too late" on lowering interest rates and that his "termination cannot come fast enough".
+2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell's "termination cannot come fast enough." 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114352766082542122](https://truthsocial.com/@realDonaldTrump/posts/114352766082542122)
 

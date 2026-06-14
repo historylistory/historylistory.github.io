@@ -24,7 +24,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 March
 
-2025-03-27 Trump withdrew Elise Stefanik's UN ambassador nomination. Trump posted in Truth Social that it was "essential that we maintain EVERY Republican Seat in Congress".
+2025-03-27 Trump withdrew Elise Stefanik's nomination for U.N. ambassador, citing the need to preserve Republican congressional seats
 
 [https://truthsocial.com/@realDonaldTrump/posts/114235745233828789](https://truthsocial.com/@realDonaldTrump/posts/114235745233828789)
 
@@ -32,11 +32,11 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 April
 
-2025-04-01 Kathleen Sgamma withdrew her nomination as lead of the Bureau of Land Management after a watchdog group published a 2021 memo in which she criticized Trump's actions related to the January 6 Capitol riot.
+2025-04-01 Kathleen Sgamma withdrew from consideration to lead the Bureau of Land Management after criticism resurfaced from a 2021 memo about January 6.
 
 [https://www.cpr.org/2025/04/10/sgamma-withdraws-bureau-of-land-management-nomination/](https://www.cpr.org/2025/04/10/sgamma-withdraws-bureau-of-land-management-nomination/)
 
-2025-04-17 Trump posted on social media calling Jerome Powell "too late" on lowering interest rates and that his "termination cannot come fast enough".
+2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell's "termination cannot come fast enough." 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114352766082542122](https://truthsocial.com/@realDonaldTrump/posts/114352766082542122)
 
@@ -44,7 +44,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 May
 
-2025-05-08 Trump fired acting administrator Cameron Hamilton from FEMA one day after testifying to Congress that he did not support efforts to dismantle the agency.
+2025-05-08 Trump fired FEMA Acting Administrator Cameron Hamilton one day after he testified against dismantling the agency.
 
 [https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907](https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907)
 

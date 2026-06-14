@@ -64,13 +64,13 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 April
 
-2025-04-01 **Due to death threats**, two Yale professors decided to leave the United States and move to Canada for the safety of their families and selves.
+2025-04-01 Two Yale professors left the United States for Canada after receiving death threats. 
 
 [https://www.pbs.org/newshour/show/professor-explains-why-hes-leaving-yale-for-toronto-as-colleges-react-to-trumps-threats](https://www.pbs.org/newshour/show/professor-explains-why-hes-leaving-yale-for-toronto-as-colleges-react-to-trumps-threats)
 
 ### 2025 May
 
-2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”.
+2025-05-26 Following court rulings against administration policies (tariffs and ending the 14th Amendment), judges received death threats, bomb threats, swatting attempts, and doxxing campaigns. Judges were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”.
 
 {% include youtubePlayer.html id="OiUU1JLoT2E" %}
 

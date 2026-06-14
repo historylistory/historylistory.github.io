@@ -118,7 +118,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 April
 
-2025-04-17 Trump posted on social media calling Jerome Powell "too late" on lowering interest rates and that his "termination cannot come fast enough".
+2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell's "termination cannot come fast enough." 
 
 [https://econclubchi.org/event/hon-jerome-h-powell/](https://econclubchi.org/event/hon-jerome-h-powell/)
 
@@ -138,7 +138,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.theguardian.com/music/2025/may/16/donald-trump-attacks-bruce-springsteen](https://www.theguardian.com/music/2025/may/16/donald-trump-attacks-bruce-springsteen)
 
-2025-05-21 Trump continued the feud with Bruce Springsteen, sending out an AI-altered picture of himself hitting The Boss with a golf ball .
+2025-05-21 Trump escalated his dispute with Bruce Springsteen by posting an AI-generated image depicting himself hitting Springsteen with a golf ball. 
 
 [https://www.nbcnews.com/pop-culture/music/trump-springsteen-golf-ball-video-rcna208242](https://www.nbcnews.com/pop-culture/music/trump-springsteen-golf-ball-video-rcna208242)
 

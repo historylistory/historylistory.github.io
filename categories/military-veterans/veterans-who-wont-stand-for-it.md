@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/veterans-who-wont-stand-for-it/
 
 ### 2025 June
 
-2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams.
+2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
 
 [https://www.reuters.com/legal/government/doj-lawyer-who-quit-over-adams-case-joins-law-firm-hueston-hennigan-2025-06-02/](https://www.reuters.com/legal/government/doj-lawyer-who-quit-over-adams-case-joins-law-firm-hueston-hennigan-2025-06-02/)
 

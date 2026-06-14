@@ -220,7 +220,7 @@ Remember: rage bait sells. 
 
 [https://www.justice.gov/opa/pr/nevada-resident-arrested-and-charged-connection-violent-tesla-arson-las-vegas](https://www.justice.gov/opa/pr/nevada-resident-arrested-and-charged-connection-violent-tesla-arson-las-vegas)
 
-2025-03-31 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
+2025-05-26 Following court rulings against administration policies (tariffs and ending the 14th Amendment), judges received death threats, bomb threats, swatting attempts, and doxxing campaigns. Judges were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”.
 
 {% include youtubePlayer.html id="OiUU1JLoT2E" %}
 
