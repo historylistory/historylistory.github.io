@@ -16,7 +16,11 @@ You can start it however you'd like.
 
 ### SAMPLE LETTER
 
-pending text
+Dear Sir or Madam,
+
+I find several aspects of the current administration's conduct and governing approach concerning. For example, I am troubled by the communication strategy described by Steve Bannon in 2018 as "flooding the zone," which I believe can make it more difficult for the public to engage thoughtfully with important issues. I am also concerned by what I perceive as an excessive focus on loyalty to President Trump, increasing political polarization, a lack of restraint and humility in leadership, and decisions that I believe prioritize partisan interests over the broader public good.
+
+These concerns represent only a few examples of the issues that have led me to this conclusion. Below are several additional examples that further illustrate my concerns.
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
