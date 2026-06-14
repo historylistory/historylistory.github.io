@@ -201,7 +201,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.cnn.com/2025/09/10/politics/fired-fbi-officials-sue-kash-patel](https://www.cnn.com/2025/09/10/politics/fired-fbi-officials-sue-kash-patel)
 
-2025-09-15 Federal Prosecutor Maurene Comey sued the Trump administration for her sudden termination in July while she worked on the Epstein case. She stated her firing was for political reasons.
+2025-09-15 Former federal prosecutor Maurene Comey sued the administration, alleging she was fired for political reasons. 
 
 [https://apnews.com/article/justice-department-maurene-comey-trump-23fb32ac0e4402873862d3ca6d31d18e](https://apnews.com/article/justice-department-maurene-comey-trump-23fb32ac0e4402873862d3ca6d31d18e)
 

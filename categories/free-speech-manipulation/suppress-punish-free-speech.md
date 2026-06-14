@@ -33,7 +33,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/](https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/)
 
-2025-09-13 American Airlines pilots were grounded and removed from service just for talking negatively about the Charlie Kirk shooting.
+2025-09-13 American Airlines pilots were grounded fired for talking negatively about Charlie Kirk. 
 
 [https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41](https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41)
 
@@ -47,7 +47,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.politico.com/news/2025/09/15/kirk-social-media-gop-trump-tiktok-meta-x-censorship-00564655](https://www.politico.com/news/2025/09/15/kirk-social-media-gop-trump-tiktok-meta-x-censorship-00564655)
 
-2025-09-15 In retaliation, conservatives worked to ensure that anyone who offended the Charlie Kirk base by not sufficiently mourning was fired. By this date the media already cited employee firings from Office Depot, American Airlines, MSNBC, multiple teachers, NASDAQ, Perkins Coe, members of the secret service, Microsoft, and the Washington Post. Meanwhile, Republicans who had previously celebrated the assault of Nancy Pelosi’s husband, death of the Minnesota senators, killing of George Floyd, or suggested an entire population of homeless people be “euthanized” remain employed to this day.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 
@@ -71,7 +71,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html](https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html)
 
-2025-09-15 JD Vance hosted the Charlie Kirk podcast and urged listeners to call out anyone expressing joy or not adequately mourning. He added, "**hell, call their employers**".
+2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk. 
 
 [https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html](https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html)
 

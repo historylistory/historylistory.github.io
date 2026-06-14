@@ -117,7 +117,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death](https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death)
 
-2025-09-17 Trump posted on Truth Social that he wanted Jimmy Fallon and Seth Meyers fired, ending his tweet with “Do it, NBC”.
+2025-09-17 Trump demanded that NBC fire Jimmy Fallon and Seth Meyers, ending his post with "Do it, NBC."
 
 [https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)
 
@@ -147,7 +147,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/](https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/)
 
-2025-09-19 Trump heckled David Letterman via Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
+2025-09-19 Trump heckled David Letterman on Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115233841743981161](https://truthsocial.com/@realDonaldTrump/posts/115233841743981161)
 

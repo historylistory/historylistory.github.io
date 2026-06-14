@@ -110,7 +110,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 September
 
-2025-09-15 JD Vance hosted the Charlie Kirk podcast and urged listeners to call out anyone expressing joy or not adequately mourning. He added, "**hell, call their employers**".
+2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk. 
 
 [https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html](https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html)
 
@@ -120,7 +120,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics](https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics)
 
-2025-09-15 Derrick Van Orden reposted a doxing campaign from @MilitaryCooI that publicly doxed a U.S. Navy servicemember's personal information only because the servicemember said he had no sorrow for Kirk's death. These doxing campaigns jeopardize not only the targeted person’s employment but also their and their families’ safety. Van Orden wrote “This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is ---- of the US Navy he is stationed on the USS ---- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”
+2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting accusations of doxxing.
 
 [https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/](https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/)
 

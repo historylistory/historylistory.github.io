@@ -194,7 +194,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115168758828419703](https://truthsocial.com/@realDonaldTrump/posts/115168758828419703)
 
-2025-09-19 Trump heckled David Letterman via Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
+2025-09-19 Trump heckled David Letterman on Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115233841743981161](https://truthsocial.com/@realDonaldTrump/posts/115233841743981161)
 

@@ -110,7 +110,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2025 September
 
-2025-09-16 Trump sued The New York Times for libel over the Epstein letter and simultaneously accused them of endorsing Kamala Harris.
+2025-09-16 Trump sued The New York Times for libel over reporting on an Epstein-related letter and accused the paper of supporting Kamala Harris. 
 
 [https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk](https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk)
 

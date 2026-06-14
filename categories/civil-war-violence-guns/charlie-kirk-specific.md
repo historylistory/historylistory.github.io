@@ -236,7 +236,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.yahoo.com/news/articles/far-podcaster-pleads-followers-not-164435196.html](https://www.yahoo.com/news/articles/far-podcaster-pleads-followers-not-164435196.html)
 
-2025-09-13 American Airlines pilots were grounded and removed from service just for talking negatively about the Charlie Kirk shooting.
+2025-09-13 American Airlines pilots were grounded fired for talking negatively about Charlie Kirk. 
 
 [https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41](https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41)
 
@@ -272,7 +272,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.nbcnews.com/politics/justice-department/attorney-general-pam-bondi-backlash-right-hate-speech-rcna231713](https://www.nbcnews.com/politics/justice-department/attorney-general-pam-bondi-backlash-right-hate-speech-rcna231713)
 
-2025-09-15 JD Vance hosted the Charlie Kirk podcast and urged listeners to call out anyone who expressed joy or did not adequately mourn Kirk. He added "hell, call their employers", encouraging his listeners to dox anyone they didn’t agree with.
+2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk. 
 
 [https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html](https://www.news18.com/world/hell-call-their-employer-vance-backs-doxing-of-people-celebrating-charlie-kirks-death-ws-kl-9576754.html)
 
@@ -282,13 +282,13 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics](https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics)
 
-2025-09-15 Derrick Van Orden reposted a doxing campaign from @MilitaryCooI that publicly doxed a U.S. Navy servicemember's personal information only because the servicemember said he had no sorrow for Kirk's death. These doxing campaigns jeopardize not only the targeted person’s employment but also their and their families’ safety. Van Orden wrote “This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is ---- of the US Navy he is stationed on the USS ---- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”
+2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting accusations of doxxing.
 
 [https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/](https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/)
 
 [https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination](https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination)
 
-2025-09-15 In retaliation, conservatives worked to ensure that anyone who offended the Charlie Kirk base by not sufficiently mourning was fired. By this date the media already cited employee firings from Office Depot, American Airlines, MSNBC, multiple teachers, NASDAQ, Perkins Coe, members of the secret service, Microsoft, and the Washington Post. Meanwhile, Republicans who had previously celebrated the assault of Nancy Pelosi’s husband, death of the Minnesota senators, killing of George Floyd, or suggested an entire population of homeless people be “euthanized” remain employed to this day.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 

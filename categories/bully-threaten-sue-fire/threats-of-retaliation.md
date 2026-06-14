@@ -200,11 +200,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://x.com/SecDuffy/status/1966943501444415920](https://x.com/SecDuffy/status/1966943501444415920)
 
-2025-09-15 After Governor Kathryn Hochul endorsed Mamdani, Trump threatened to hold back federal funding from New York if Mamdani was elected.
+2025-09-15 Trump threatened to withhold federal funding from New York if Zohran Mamdani were elected after receiving Governor Kathy Hochul's endorsement.
 
 [https://newrepublic.com/post/200449/donald-trump-kathy-hochul-endorsement-zohran-mamdani](https://newrepublic.com/post/200449/donald-trump-kathy-hochul-endorsement-zohran-mamdani)
 
-2025-09-15 In retaliation, conservatives worked to ensure that anyone who offended the Charlie Kirk base by not sufficiently mourning was fired. By this date the media already cited employee firings from Office Depot, American Airlines, MSNBC, multiple teachers, NASDAQ, Perkins Coe, members of the secret service, Microsoft, and the Washington Post. Meanwhile, Republicans who had previously celebrated the assault of Nancy Pelosi’s husband, death of the Minnesota senators, killing of George Floyd, or suggested an entire population of homeless people be “euthanized” remain employed to this day.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 
@@ -228,7 +228,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html](https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html)
 
-2025-09-17 Trump posted on Truth Social that he wanted Jimmy Fallon and Seth Meyers fired, ending his tweet with “Do it, NBC”.
+2025-09-17 Trump demanded that NBC fire Jimmy Fallon and Seth Meyers, ending his post with "Do it, NBC."
 
 [https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)
 
