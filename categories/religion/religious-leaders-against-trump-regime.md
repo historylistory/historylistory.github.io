@@ -160,7 +160,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/](https://www.mediaite.com/media/tv/military-archbishop-to-condemn-iran-war-in-easter-sunday-interview-not-sponsored-by-the-lord/)
 
-2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+2026-04-08 Pentagon official Elbridge Colby threatened Pope Leo XIV, saying,  “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
 
 [https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
 
@@ -176,7 +176,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
 
-2026-04-13 Trump and Pope Leo XIV got into it over the war in Iran. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leao said, “I have no fear of the Trump administration”. 
+2026-04-13 Trump admonished Pope Leo XIV for not supporting war. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leo said, “I have no fear of the Trump administration”.
 
 [https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s](https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s)
 
@@ -196,16 +196,7 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 
 PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/](https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/)
 
-2026-04-15 ARTICLE: Catholic Bishops Deliver Brutal Slap-Down to Convert Vance (The Daily Beast 04/15). Top Catholic advisers to the Pope backed him up after Vance said the Pope should “be careful talking about theology”. 
-
-[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
-
-SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
-
-PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
-
-2026-04-15 Mike Johnson argued that Pope Leo should not have condemned the war, stating, “There’s something called the Just War Doctrine…”. The Poper corrected Johnson by explaining the doctrine is only in self-defense once ALL PEACE EFFORTS HAVE FAILED, and then later wrote on social media, **“Woe to those who manipulate religion and the very name of God for their own military economic, and political gain, dragging that which is sacred into darkness and filth”** and warned that the world is currently “ravaged by a handful of tyrants”. 
-
+2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
@@ -213,6 +204,17 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
+
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
 2026-04-24 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo.
 

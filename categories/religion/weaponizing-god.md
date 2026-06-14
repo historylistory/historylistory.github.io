@@ -119,16 +119,7 @@ SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-tr
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
 
-2026-04-15 ARTICLE: Catholic Bishops Deliver Brutal Slap-Down to Convert Vance (The Daily Beast 04/15). Top Catholic advisers to the Pope backed him up after Vance said the Pope should “be careful talking about theology”. 
-
-[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
-
-SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
-
-PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
-
-2026-04-15 Mike Johnson argued that Pope Leo should not have condemned the war, stating, “There’s something called the Just War Doctrine…”. The Poper corrected Johnson by explaining the doctrine is only in self-defense once ALL PEACE EFFORTS HAVE FAILED, and then later wrote on social media, **“Woe to those who manipulate religion and the very name of God for their own military economic, and political gain, dragging that which is sacred into darkness and filth”** and warned that the world is currently “ravaged by a handful of tyrants”. 
-
+2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
@@ -136,6 +127,17 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
+
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
 2026-04-16 During a briefing at the Pentagon Pete Hegseth attacked the media and compared them to the biblical Jewish group that opposed Jesus. He stated, “Our press are just like these Pharisees — not all of you, not all of you, but the legacy Trump-hating press. Your politically motivated animus for President Trump nearly completely blinds you from the brilliance of our American warriors,” he said. Hegseth added: “The Pharisees scrutinized every good act in order to find a violation, only looking for the negative. The hardened hearts of our press are calibrated only to impugn. I would ask you to open your eyes to the goodness, the historic success of our troops, the courage of this president…the relentlessly negative coverage you cannot resist peddling, despite the historic and important success of this effort and the success of our troops. Sometimes it’s hard to figure out what side some of you are actually on.”.
 

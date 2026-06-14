@@ -197,7 +197,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2026 April
 
-2026-04-13 A judge dismissed Trump’s lawsuit against the Wall Street Journal which targeted the outlet’s reporting that he contributed a letter to Epstein for his birthday. 
+2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal concerning reporting on an alleged Epstein birthday letter. 
 
 [https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html](https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html)
 

@@ -272,7 +272,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 ### 2026 April
 
-2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+2026-04-08 Pentagon official Elbridge Colby threatened Pope Leo XIV, saying,  “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
 
 [https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
 

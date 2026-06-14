@@ -196,6 +196,8 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
+
+
 2026-04-07 Ro Khanna and Martha MacCallum got into an exchange over Trump’s war crime threat to exterminate the Iranian civilization. 
 
 [https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
@@ -205,6 +207,20 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 [https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/](https://www.rawstory.com/lawmaker-clashes-with-fox-news-host-who-claims-iranians-support-trump-s-genocidal-threat/)
 
 [https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7](https://www.youtube.com/watch?v=2DTG7IEbHjM&list=WL&index=7)
+
+2026-04-07 Trump threatened that "a whole civilization will die tonight" unless Iran reopened the Strait of Hormuz. 
+
+[https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059](https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059)
+
+[https://www.bbc.com/news/articles/cwyk7xgkzvzo](https://www.bbc.com/news/articles/cwyk7xgkzvzo)
+
+[https://www.bbc.com/news/videos/c0krp3mpxg5o](https://www.bbc.com/news/videos/c0krp3mpxg5o)
+
+[https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached](https://www.pbs.org/newshour/world/trump-warns-a-whole-civilization-will-die-tonight-if-a-deal-with-iran-isnt-reached)
+
+[https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/](https://www.amnesty.org/en/latest/news/2026/04/iran-president-trumps-apocalyptic-threats-of-large-scale-civilian-devastation-demand-urgent-global-action-to-prevent-atrocity-crimes/)
+
+[https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
 
 2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
 

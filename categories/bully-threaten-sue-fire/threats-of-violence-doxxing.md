@@ -243,7 +243,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
 
 
-2026-04-07 Trump made a threat to Iran that “a while civilization will die tonight” unless Iran agrees to open the Strait of Hormuz.
+2026-04-07 Trump threatened that "a whole civilization will die tonight" unless Iran reopened the Strait of Hormuz. 
 
 [https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059](https://www.nbcnews.com/politics/white-house/trump-threat-whole-civilization-will-die-iran-war-deadline-hormuz-rcna267059)
 

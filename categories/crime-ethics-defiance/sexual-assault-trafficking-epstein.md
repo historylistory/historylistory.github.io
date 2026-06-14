@@ -400,7 +400,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)
 
-2026-04-13 A judge dismissed Trump’s lawsuit against the Wall Street Journal which targeted the outlet’s reporting that he contributed a letter to Epstein for his birthday. 
+2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal concerning reporting on an alleged Epstein birthday letter. 
 
 [https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html](https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html)
 

@@ -288,7 +288,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
 
-2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+2026-04-08 Pentagon official Elbridge Colby threatened Pope Leo XIV, saying,  “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
 
 [https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
 
@@ -305,7 +305,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
 
 
-2026-04-13 Trump and Pope Leo XIV got into it over the war in Iran. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leao said, “I have no fear of the Trump administration”. 
+2026-04-13 Trump admonished Pope Leo XIV for not supporting war. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leo said, “I have no fear of the Trump administration”.
 
 [https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s](https://www.youtube.com/watch?v=oTyOEgTKC2k&list=WL&index=1&t=228s)
 

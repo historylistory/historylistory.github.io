@@ -135,7 +135,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 ### 2026 April
 
-2026-04-08 The Pentagon made threats to the new Pope after the Pope criticized Trump. Secretary of Defense for Policy Elbridge Colby said (according to quotes in articles) “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
+2026-04-08 Pentagon official Elbridge Colby threatened Pope Leo XIV, saying,  “The United States has the military power to do whatever it wants in the world. The Catholic Church had better take its side”.
 
 [https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s](https://www.youtube.com/watch?v=4qZkia_-POE&list=WL&index=6&t=27s)
 
@@ -152,7 +152,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
 
 
-2026-04-08 Former Fort Bragg employee Courtney Williams was arrested on 1917 espionage charges after allegedly leaking classified information to a journalist from Politico. This was after she shared information about sexual and race-based harassment at Fort Bragg and the story was published by Seth Harp “The Fort Bragg Cartel”. 
+2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg. 
 
 [https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee](https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee)
 

@@ -50,8 +50,7 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 
 ### 2026 April
 
-2026-04-15 Mike Johnson argued that Pope Leo should not have condemned the war, stating, “There’s something called the Just War Doctrine…”. The Poper corrected Johnson by explaining the doctrine is only in self-defense once ALL PEACE EFFORTS HAVE FAILED, and then later wrote on social media, **“Woe to those who manipulate religion and the very name of God for their own military economic, and political gain, dragging that which is sacred into darkness and filth”** and warned that the world is currently “ravaged by a handful of tyrants”. 
-
+2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
@@ -59,14 +58,17 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
 
-2026-04-17 The worlds 100 top oil and gas companies banked $30M per hour during the first month of the Israeli-Iran war. 
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
 
-[https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers](https://www.theguardian.com/environment/2026/apr/15/big-oil-huge-war-windfall-consumers)
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
-[https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no](https://www.adamsmith.org/blog/unearned-profit-is-an-interesting-idea-no)
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
 
-[https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
 ### 2026 May
 

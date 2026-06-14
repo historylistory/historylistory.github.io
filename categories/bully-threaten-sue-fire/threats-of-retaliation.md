@@ -638,7 +638,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 April
 
-2026-04-08 Former Fort Bragg employee Courtney Williams was arrested on 1917 espionage charges after allegedly leaking classified information to a journalist from Politico. This was after she shared information about sexual and race-based harassment at Fort Bragg and the story was published by Seth Harp “The Fort Bragg Cartel”. 
+2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg. 
 
 [https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee](https://www.theguardian.com/us-news/2026/apr/08/fbi-arrests-ex-military-employee)
 

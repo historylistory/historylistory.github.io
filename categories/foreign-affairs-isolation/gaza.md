@@ -311,8 +311,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
 
-2026-04-15 Mike Johnson argued that Pope Leo should not have condemned the war, stating, “There’s something called the Just War Doctrine…”. The Poper corrected Johnson by explaining the doctrine is only in self-defense once ALL PEACE EFFORTS HAVE FAILED, and then later wrote on social media, **“Woe to those who manipulate religion and the very name of God for their own military economic, and political gain, dragging that which is sacred into darkness and filth”** and warned that the world is currently “ravaged by a handful of tyrants”. 
-
+2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
@@ -320,6 +319,18 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
+
+[https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
+
+SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)
+
+PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
+
 
 2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
 
