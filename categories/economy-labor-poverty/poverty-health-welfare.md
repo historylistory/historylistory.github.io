@@ -245,7 +245,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
 
-2025-11-04 Trump posted on social media that he would not release ANY part of the SNAP funding until the “Radical Left Democrats open up government”, thereby weaponizing hunger of 40 million Americans in a retaliatory move against Democrats.
+2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 

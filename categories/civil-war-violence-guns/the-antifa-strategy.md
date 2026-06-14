@@ -74,17 +74,17 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 {% include youtubePlayer.html id="nDjjFYsCAUE" %}
 
-2025-10-10 On Fox News Mike Johnson slammed Democrats for the upcoming No Kings protest, calling it a “Hate America rally”.
+2025-10-10 Mike Johnson again criticized the No Kings protest, calling it a "Hate America rally”. 
 
 [https://x.com/FoxNews/status/1976631367858258002](https://x.com/FoxNews/status/1976631367858258002)
 
-2025-10-25 As news spread of a 29-year-old Portlander Chandler Patey allowed protesters to wash pepper spray out of their eyes in his apartment, the Trump administration labeled Patey as Antifa and right-wing journalists labeled his home as an “Antifa safehouse”.
+2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 
 [https://www.oregonlive.com/portland/2026/02/antifa-safehouse-leader-at-portland-ice-protests-singled-out-in-federal-records-report-says.html](https://www.oregonlive.com/portland/2026/02/antifa-safehouse-leader-at-portland-ice-protests-singled-out-in-federal-records-report-says.html)
 
 ### 2025 December
 
-2025-12-04 The DOJ under Pam Bondi issued a sweeping domestic terrorism directive. to counter a so-called “Antifa” organization the administration repeatedly failed to prove exists.  In my opinion, the directive uses ambiguous language subject to the Trump administration’s own interpretations, gives them permission to go after political opponents, pushes the narrative that anyone who doesn’t agree with Trump’s agenda is a violent domestic terrorist, threatens First Amendment rights, gives way to spy on people, stokes fear in innocent people, and is part of the Trump agenda to silence anyone who doesn’t agree with his dictatorship.
+2025-12-04 The Justice Department issued a broad domestic-terrorism directive focused on alleged Antifa-related activity. Remember: this administration accused Alexi Pretti of terrorism, and they shot him in the back 10 times. 
 
 [https://www.lawfaremedia.org/article/the-bondi-memo-s-quiet-rewriting-of-domestic-terrorism-rules](https://www.lawfaremedia.org/article/the-bondi-memo-s-quiet-rewriting-of-domestic-terrorism-rules)
 

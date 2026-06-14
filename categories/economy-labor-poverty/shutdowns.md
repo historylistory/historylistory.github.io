@@ -43,23 +43,23 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 
-2025-10-09 During a White House press conference, Trump responded to a reporter question about backpay after the shutdown. He responded, “**I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way**”.
+2025-10-09 Trump suggested some federal employees affected by the shutdown might not deserve back pay. He said, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
 {% include youtubePlayer.html id="k0nZfIO2B2U" %}
 
-2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 
 [https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/](https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/)
 
-2025-10-10 In a retaliatory move to the government shutdown, the Trump administration began firing thousands of employees, **withholding backpay**, and cutting funds. CNN reported that the administration **fired 4000 workers**.
+2025-10-10 In a retaliatory move to the government shutdown, the Trump administration fired 4000 federal workers, withheld backpay, and cut funds. Meanwhile they’re asking for ballroom funds, suing the IRS, building a J6 slush fund and paying Argentina?
 
 [https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay](https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay)
 
 {% include youtubePlayer.html id="rybrDZjirrk" %}
 
-2025-10-14 In response to the shutdown, RFK fired over 1000 CDC doctors and scientists.
+2025-10-14 RFK Jr. fired more than 1,000 CDC doctors and scientists during the shutdown
 
 [https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035](https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035)
 
@@ -109,7 +109,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
 
-2025-11-04 Trump posted on social media that he would not release ANY part of the SNAP funding until the “Radical Left Democrats open up government”. 
+2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 

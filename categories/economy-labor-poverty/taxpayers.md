@@ -128,7 +128,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
 
-2025-10-22 Trump demanded to go forward with his lawsuit against the DOJ, ***forcing taxpayers to pay up the $230M lawsuit***.
+2025-10-22 Trump pushed forward a $230 million lawsuit against the Department of Justice
 
 [https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained](https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained)
 

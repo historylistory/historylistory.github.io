@@ -230,7 +230,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 ### 2025 November
 
-2025-11-03 News outlets reported that Kash Patel lashed out after they uncovered his use of a government jet to visit his 26-year-old girlfriend. Right after the story was uncovered, Patel fired 27-year veteran for the FBI critical incident response group Steven Palmer. For context, one of the tasks of the critical incident response group is to oversee the fleet of jets.
+2025-11-03 Reports alleged Kash Patel fired FBI veteran Steven Palmer shortly after scrutiny over Patel's use of a government jet to visit is girlfriend. 
 
 [https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html](https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html)
 
@@ -248,7 +248,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.nbcnews.com/politics/justice-department/judge-dismisses-cases-james-comey-letitia-james-finding-prosecutor-was-rcna244775](https://www.nbcnews.com/politics/justice-department/judge-dismisses-cases-james-comey-letitia-james-finding-prosecutor-was-rcna244775)
 
-2025-11-19 David Maltinsky, a 16-year FBI veteran, filed a lawsuit for being fired in October 2025. He was fired for displaying a Pride flag.
+2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
 
 [https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
 

@@ -8,7 +8,7 @@ permalink: /categories/lgbtq/punishment-retaliation/
 
 ### 2025 November
 
-2025-11-19 David Maltinsky, a 16-year FBI veteran, filed a lawsuit for being fired in October 2025. He was fired for displaying a Pride flag.
+2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
 
 [https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
 

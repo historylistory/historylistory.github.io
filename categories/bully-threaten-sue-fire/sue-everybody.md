@@ -122,13 +122,13 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2025 October
 
-2025-10-17 Trump refiled a $15B defamation lawsuit against The New York Times for $15B.
+2025-10-17 Trump refiled a $15 billion defamation lawsuit against The New York Times
 
 [https://www.nbcnews.com/news/us-news/trump-refiles-15b-defamation-lawsuit-new-york-rcna238170](https://www.nbcnews.com/news/us-news/trump-refiles-15b-defamation-lawsuit-new-york-rcna238170)
 
 [https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html](https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html)
 
-2025-10-22 Trump demanded to go forward with his lawsuit against the DOJ, forcing taxpayers to pay up the $230M lawsuit.
+2025-10-22 Trump pushed forward a $230 million lawsuit against the Department of Justice
 
 [https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained](https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained)
 
@@ -136,7 +136,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2025 November
 
-2025-11-09 Trump threatened to sue the BBC for $1B over an edit of his January 6th remarks, accusing the BBC of giving the wrong impression that Trump called for violence. Both Director General Tim Davie and news CEO Deborah Turness quit, which Trump posted on social media about later.
+2025-11-09 Trump threatened to sue the BBC for $1 billion over alleged edits to coverage of his January 6 remarks. 
 
 {% include youtubePlayer.html id="UX_dX61arPY" %}
 
@@ -144,7 +144,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2025 December
 
-2025-12-12 Trump’s DOJ sued 18 states to force States to hand over voter registration data.
+2025-12-12 The Justice Department sued 18 States, seeking voter-registration records. 
 
 [https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
 

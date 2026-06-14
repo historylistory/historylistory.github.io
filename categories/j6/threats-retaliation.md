@@ -20,9 +20,8 @@ permalink: /categories/j6/threats-retaliation/
 
 {% include youtubePlayer.html id="pUlhwr_1BFw" %}
 
- 
 
-2025-11-09 Trump threatened to sue the BBC for $1B over an edit of his January 6th remarks, accusing the BBC of giving the wrong impression that Trump called for violence. Both Director General Tim Davie and news CEO Deborah Turness quit, which Trump posted on social media about later.
+2025-11-09 Trump threatened to sue the BBC for $1 billion over alleged edits to coverage of his January 6 remarks. 
 
 {% include youtubePlayer.html id="UX_dX61arPY" %}
 

@@ -204,7 +204,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2025 October
 
-2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 

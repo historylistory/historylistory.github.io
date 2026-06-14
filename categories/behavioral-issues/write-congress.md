@@ -243,7 +243,7 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-09 After the snowflake MAGA base melted down about Bad Bunny at the Super Bowl, The Trump administration proposed a rival “All American Halftime Show.”
 
-2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
 2025-10-14 ICE posted an immigration-arrest video set to music containing antisemitic slurs. The post had since been taken down but copies were made and shared on X.
 
@@ -265,7 +265,7 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-27 DHS posted “DESTROY THE FLOOD” recruitment messaging on X.
 
-2025-10-29 Katie Miller threatened critics and accused others of antisemitism during one of her meltdowns on Piers Morgan.
+2025-10-29 Katie Miller accused critics of antisemitism, threatened citizenship consequences for opponents, attacked Piers Morgan, and claimed that a Mamdani victory would harm New York. 
 
 2025-10-31 Trump repeatedly posted about a marble White House bathroom renovation during a hunger crisis.
 

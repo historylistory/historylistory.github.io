@@ -50,7 +50,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 {% include youtubePlayer.html id="jo5Kn_UFHOY" %}
 
-2025-10-29 Katie Miller threatened critics and accused others of antisemitism during one of her meltdowns on Piers Morgan.
+2025-10-29 Katie Miller accused critics of antisemitism, threatened citizenship consequences for opponents, attacked Piers Morgan, and claimed that a Mamdani victory would harm New York. 
 
 {% include youtubePlayer.html id="S5MuRatp4ms" %}
 

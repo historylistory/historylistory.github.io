@@ -22,7 +22,7 @@ permalink: /categories/military-veterans/veterans-who-wont-stand-for-it/
 
 ### 2025 November
 
-2025-11-20 In a social media post Trump called for the execution of Democratic leaders for what he called “seditious behavior” after veteran military leaders and intelligence officers posted a video telling service members their rights to turn down illegal orders. Prior to those posts, RFD3 replied to the Washington Examiner calling the video “a seditious conspiracy”.
+2025-11-20 Trump called for the execution of Democratic leaders over what he described as "seditious behavior" following a video discussing military personnel's obligations regarding unlawful orders
 
 [https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/](https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/)
 

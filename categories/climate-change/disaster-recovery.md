@@ -56,7 +56,7 @@ permalink: /categories/climate-change/disaster-recovery/
 
 ### 2025 October
 
-2025-10-18 Multiple sources suggest FEMA had been politicized. The DHS website suggested that the Biden administration withheld aid from Red States, while other sources in 2026 gave examples of the Trump administration not fully reimbursing Blue States; both sides of the aisle claiming discrimination. 
+2025-10-18 Reports from both parties alleged politically motivated FEMA funding decisions under multiple administrations
 
 [https://www.instagram.com/reel/DWJU2ScjArU/](https://www.instagram.com/reel/DWJU2ScjArU/)
 

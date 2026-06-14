@@ -282,21 +282,21 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 
-2025-10-09 During a White House press conference, Trump responded to a reporter question about backpay after the shutdown. He responded, “**I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way**”.
+2025-10-09 Trump suggested some federal employees affected by the shutdown might not deserve back pay. He said, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
 {% include youtubePlayer.html id="k0nZfIO2B2U" %}
 
-2025-10-10 In a retaliatory move to the government shutdown, the Trump administration began firing thousands of employees, **withholding backpay**, and cutting funds. CNN reported that the administration **fired 4000 workers**.
+2025-10-10 In a retaliatory move to the government shutdown, the Trump administration fired 4000 federal workers, withheld backpay, and cut funds. Meanwhile they’re asking for ballroom funds, suing the IRS, building a J6 slush fund and paying Argentina?
 
 [https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay](https://democrats-budget.house.gov/resources/fact-sheet/trump-moves-illegally-fire-employees-and-withhold-backpay)
 
 {% include youtubePlayer.html id="rybrDZjirrk" %}
 
-2025-10-14 In response to the shutdown, RFK fired over 1000 CDC doctors and scientists.
+2025-10-14 RFK Jr. fired more than 1,000 CDC doctors and scientists during the shutdown
 
 [https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035](https://www.msnbc.com/msnbc/news/cdc-rfk-jr-shutdown-layoffs-goal-rcna237035)
 
-2025-10-18 Multiple sources suggest FEMA had been politicized. The DHS website suggested that the Biden administration withheld aid from Red States, while other sources in 2026 gave examples of the Trump administration not fully reimbursing Blue States; both sides of the aisle claiming discrimination. 
+2025-10-18 Reports from both parties alleged politically motivated FEMA funding decisions under multiple administrations
 
 [https://www.instagram.com/reel/DWJU2ScjArU/](https://www.instagram.com/reel/DWJU2ScjArU/)
 
@@ -316,11 +316,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/](https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/)
 
-2025-10-19 After the Columbian president accused Trump of killing innocent people during US boat strikes, Trump threatened to end aid.
+2025-10-19 After Colombia's president criticized U.S. military actions, Trump threatened to cut aid to Colombia. 
 
 [https://www.bbc.com/news/articles/cn8xg1jve73o](https://www.bbc.com/news/articles/cn8xg1jve73o)
 
-2025-10-29 Kat Abughazaleh was indicted. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
+2025-10-29 Kat Abughazaleh was indicted and described the charges as an attempt to criminalize protest. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
 
@@ -330,7 +330,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/](https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/)
 
-2025-10-30 Trump posted a threat on social media to use a nuclear option to reopen the government.
+2025-10-30 Trump threatened to use a "nuclear option" to reopen the government. 
 
 [https://www.pbs.org/newshour/politics/trump-pushes-senate-gop-on-filibuster-nuclear-option-to-end-the-government-shutdown](https://www.pbs.org/newshour/politics/trump-pushes-senate-gop-on-filibuster-nuclear-option-to-end-the-government-shutdown)
 
@@ -338,14 +338,14 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 November
 
-2025-11-04 Trump posted on social media that he would not release ANY part of the SNAP funding until the “Radical Left Democrats open up government”, thereby weaponizing hunger of 40 million Americans in a retaliatory move against Democrats.
+2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 
 ### 2025 December
 
 
-2025-12-10 According to Reuters, the Trump administration demanded that the International Criminal Court amend its founding documents – the Rome Statute – to ensure that Trump and his senior officials would not be investigated or prosecuted for any war crimes, and threatened sanctions if the ICC didn’t comply.
+2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
 
 [https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/)
 
@@ -353,7 +353,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/](https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/)
 
-2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. For context ONLY, the definition for extortion is “the practice of obtaining something, especially money, through force or threats”.
+2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
 
 [https://x.com/Heritage_Action/status/1999141506473509071](https://x.com/Heritage_Action/status/1999141506473509071)
 
@@ -361,7 +361,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://indianacapitalchronicle.com/2025/12/12/backlash-intensifies-after-indiana-senate-kills-trumps-mid-decade-congressional-redistricting-push/](https://indianacapitalchronicle.com/2025/12/12/backlash-intensifies-after-indiana-senate-kills-trumps-mid-decade-congressional-redistricting-push/)
 
-2025-12-25 Trump posted over 100 times during Christmas, including posts calling to remove licenses from any news station that negatively reported about his presidency.
+2025-12-25 Trump made more than 100 Christmas Day posts, including calls to revoke broadcast licenses from critical news outlets. 
 
 [https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/](https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/)
 

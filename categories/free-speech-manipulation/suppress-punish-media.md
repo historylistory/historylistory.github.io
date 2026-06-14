@@ -197,7 +197,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 {% include youtubePlayer.html id="0MDLruLgsQI" %}
 
-2025-12-25 Trump posted over 100 times during Christmas, including posts calling to remove licenses from any news station that negatively reported about his presidency.
+2025-12-25 Trump made more than 100 Christmas Day posts, including calls to revoke broadcast licenses from critical news outlets. 
 
 [https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/](https://www.motherjones.com/politics/2025/12/trump-spent-christmas-posting-over-a-hundred-times-on-truth-social/)
 

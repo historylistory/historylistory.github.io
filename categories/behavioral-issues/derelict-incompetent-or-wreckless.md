@@ -202,7 +202,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)
 
-2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 

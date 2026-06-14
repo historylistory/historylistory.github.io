@@ -44,13 +44,13 @@ permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
 
 ### 2025 November
 
-2025-11-27 Trump included “…the seriously retarded governor of Minnesota, Tim Walz, does nothing…” in his Thanksgiving message on Truth Social.
+2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
 
 [https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
 
 ### 2025 December
 
-2025-12-04 Tim Walz reported that people were driving past his home shouting the “R” word. For context, there have been two widely reported incidents concerning the Walz family. Back in August 2024 several conservative commentators posted about and harassed his disabled son Gus Walz for tearing up at the DNC over his father’s nomination. In November 2025 Trump included “…the seriously retarded governor of Minnesota, Tim Walz, does nothing…” in his Thanksgiving message on Truth Social.
+2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
 
 [https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/#:~:text=Tim%20Walz%20says%20people%20are,while%20driving%20by%20his%20house](https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/)
 

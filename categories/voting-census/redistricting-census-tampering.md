@@ -126,7 +126,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 [https://www.lawyerscommittee.org/supreme-court-grants-stay-in-texas-redistricting-case/](https://www.lawyerscommittee.org/supreme-court-grants-stay-in-texas-redistricting-case/)
 
-2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. For context ONLY, the definition for extortion is “the practice of obtaining something, especially money, through force or threats”.
+2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
 
 [https://x.com/Heritage_Action/status/1999141506473509071](https://x.com/Heritage_Action/status/1999141506473509071)
 

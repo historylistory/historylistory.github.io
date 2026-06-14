@@ -208,25 +208,25 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 October
 
-2025-10-10 Mike Johnson canceled House votes during the shutdown, delaying Epstein file efforts. This was when they intentionally delayed swearing in Adelita Grijalva and the GOP decided not to show up to work. 
+2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
 [https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown](https://www.fox5dc.com/news/republican-house-speaker-mike-johnson-cancels-votes-next-week-amid-government-shutdown)
 
 [https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/](https://federalnewsnetwork.com/government-shutdown/2025/10/speaker-johnson-keeps-the-house-away-as-he-fights-to-end-the-government-shutdown/)
 
-2025-10-29 Katie Miller threatened critics and accused others of antisemitism during one of her meltdowns on Piers Morgan.
+2025-10-29 Katie Miller accused critics of antisemitism, threatened citizenship consequences for opponents, attacked Piers Morgan, and claimed that a Mamdani victory would harm New York. 
 
 {% include youtubePlayer.html id="S5MuRatp4ms" %}
 
 ### 2025 November
 
-2025-11-27 Trump included “…the seriously retarded governor of Minnesota, Tim Walz, does nothing…” in his Thanksgiving message on Truth Social.
+2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
 
 [https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
 
 ### 2025 December
 
-2025-12-04 Tim Walz reported that people were driving past his home shouting the “R” word. For context, there have been two widely reported incidents concerning the Walz family. Back in August 2024 several conservative commentators posted about and harassed his disabled son Gus Walz for tearing up at the DNC over his father’s nomination. In November 2025 Trump included “…the seriously retarded governor of Minnesota, Tim Walz, does nothing…” in his Thanksgiving message on Truth Social.
+2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
 
 [https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/#:~:text=Tim%20Walz%20says%20people%20are,while%20driving%20by%20his%20house](https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/)
 

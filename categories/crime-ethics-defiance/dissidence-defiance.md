@@ -225,7 +225,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464](https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464)
 
-2025-12-10 According to Reuters, the Trump administration demanded that the International Criminal Court amend its founding documents – the Rome Statute – to ensure that Trump and his senior officials would not be investigated or prosecuted for any war crimes, and threatened sanctions if the ICC didn’t comply.
+2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
 
 [https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/)
 

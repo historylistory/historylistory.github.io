@@ -22,7 +22,7 @@ permalink: /categories/voting-census/federalization-voter-information/
 
 ### 2025 December
 
-2025-12-12 Trump’s DOJ had sued 18 states to force states to hand over voter registration data.
+2025-12-12 The Justice Department sued 18 States, seeking voter-registration records. 
 
 [https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
 

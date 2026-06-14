@@ -128,7 +128,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 October
 
-2025-10-14 **After receiving death threats** for a book he wrote 8 years ago about fascism; Professor Mark Bray had to relocate his family to Spain for their safety. When he and his family reached the airport, **somebody called ahead to cancel their flight**, leaving him and his family detained and questioned at the airport by authorities for questioning before they finally allowed him to resume travel. For context, he is a professor who specializes in the topic of fascism.
+2025-10-14 Professor Mark Bray relocated his family to Spain after receiving death threats related to his writings on fascism. He also reported travel disruptions and questioning at an airport before departure.
 
 [https://www.theguardian.com/us-news/2025/oct/09/anti-fascism-mark-bray-rutgers-university](https://www.theguardian.com/us-news/2025/oct/09/anti-fascism-mark-bray-rutgers-university)
 
@@ -146,7 +146,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump](https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump)
 
-2025-12-23 Trump posted about Stephen Colbert and even suggested in the post that Colbert be euthanized.
+2025-12-23 Trump posted attacks on Stephen Colbert and suggested he should be euthanized. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115772841536331132](https://truthsocial.com/@realDonaldTrump/posts/115772841536331132)
 
