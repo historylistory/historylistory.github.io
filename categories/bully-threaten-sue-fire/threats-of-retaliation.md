@@ -656,7 +656,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
 
-2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 
+2026-04-20 Kash Patel told Fox that arrests connected to the 2020 election would be forthcoming. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/](https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/)
 
@@ -664,7 +664,7 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 
 [https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)
 
-2026-04-24 An internal Pentagon email outlined plans to punish NATO allies for not supporting the U.S. and Israel’s war in Iran.
+2026-04-24 Internal Pentagon documents reportedly outlined plans to pressure NATO allies that did not support the Iran war effort. 
 
 [https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)
 

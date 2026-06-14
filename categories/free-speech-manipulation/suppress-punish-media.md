@@ -319,7 +319,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
 
-2026-04-16 During a briefing at the Pentagon Pete Hegseth attacked the media and compared them to the biblical Jewish group that opposed Jesus. He stated, “Our press are just like these Pharisees — not all of you, not all of you, but the legacy Trump-hating press. Your politically motivated animus for President Trump nearly completely blinds you from the brilliance of our American warriors,” he said. Hegseth added: “The Pharisees scrutinized every good act in order to find a violation, only looking for the negative. The hardened hearts of our press are calibrated only to impugn. I would ask you to open your eyes to the goodness, the historic success of our troops, the courage of this president…the relentlessly negative coverage you cannot resist peddling, despite the historic and important success of this effort and the success of our troops. Sometimes it’s hard to figure out what side some of you are actually on.”.
+2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
@@ -327,13 +327,22 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
 
-2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
+2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
+
+[https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
+
+[https://time.com/article/2026/04/18/what-to-know-about-allegations-of-drinking-by-f-b-i-director-kash-patel/](https://time.com/article/2026/04/18/what-to-know-about-allegations-of-drinking-by-f-b-i-director-kash-patel/)
+
+[https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/](https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/)
+
+SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
 
 [https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
 
 [https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
 
-[https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic) 
+[https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic)
+
 
 2026-04-26 Trump childishly lashed out at news anchor Norah O’Donnell (60 Minutes) for reading portions of the gunman’s manifesto from the Correspondence Dinner shooting.
 

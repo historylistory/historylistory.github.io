@@ -1517,7 +1517,7 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 
 
-2026-04-22 Hegseth fired Secretary of the Navy John Phelan.
+2026-04-22 Pete Hegseth fired Navy Secretary John Phelan. 
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan](https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan)
 

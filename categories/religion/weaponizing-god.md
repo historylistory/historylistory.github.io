@@ -139,7 +139,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
-2026-04-16 During a briefing at the Pentagon Pete Hegseth attacked the media and compared them to the biblical Jewish group that opposed Jesus. He stated, “Our press are just like these Pharisees — not all of you, not all of you, but the legacy Trump-hating press. Your politically motivated animus for President Trump nearly completely blinds you from the brilliance of our American warriors,” he said. Hegseth added: “The Pharisees scrutinized every good act in order to find a violation, only looking for the negative. The hardened hearts of our press are calibrated only to impugn. I would ask you to open your eyes to the goodness, the historic success of our troops, the courage of this president…the relentlessly negative coverage you cannot resist peddling, despite the historic and important success of this effort and the success of our troops. Sometimes it’s hard to figure out what side some of you are actually on.”.
+2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 

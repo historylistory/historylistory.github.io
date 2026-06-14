@@ -45,3 +45,11 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html](https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html)
 
 [https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
+
+2026-04-24 Internal Pentagon documents reportedly outlined plans to pressure NATO allies that did not support the Iran war effort. 
+
+[https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)
+
+[https://www.jpost.com/international/article-894058](https://www.jpost.com/international/article-894058)
+
+[https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies](https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies)

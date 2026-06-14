@@ -510,13 +510,13 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
-2026-04-16 During a briefing at the Pentagon Pete Hegseth attacked the media and compared them to the biblical Jewish group that opposed Jesus. He stated, “Our press are just like these Pharisees — not all of you, not all of you, but the legacy Trump-hating press. Your politically motivated animus for President Trump nearly completely blinds you from the brilliance of our American warriors,” he said. Hegseth added: “The Pharisees scrutinized every good act in order to find a violation, only looking for the negative. The hardened hearts of our press are calibrated only to impugn. I would ask you to open your eyes to the goodness, the historic success of our troops, the courage of this president…the relentlessly negative coverage you cannot resist peddling, despite the historic and important success of this effort and the success of our troops. Sometimes it’s hard to figure out what side some of you are actually on.”.
+2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
 
 2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”. This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including “Satan had raised up Barack Hussein Gay Raised By Transgenders Obama” and “Any time the devil makes a move, Yahweh, God makes an even bigger move”.
 
 2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
-2026-04-17 Officials described Kash Patel as erratic, paranoid, frequently absent, and allegedly intoxicated on the job. Patel threatened legal action against The Atlantic.
+2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 
 2026-04-18 Courts allowed Trump’s $400M White House ballroom construction to continue.
 
@@ -525,8 +525,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 
 2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
-
-2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
 
 2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
 

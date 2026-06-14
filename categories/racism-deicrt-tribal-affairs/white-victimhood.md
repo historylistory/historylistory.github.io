@@ -85,7 +85,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 ### 2026 April
 
-2026-04-22 Todd Blanche and the DOJ indicted the Southern Poverty Law Center on federal charges for allegedly “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
+2026-04-22 The Justice Department indicted the Southern Poverty Law Center on allegations of “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
 
 [https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/](https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/)
 

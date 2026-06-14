@@ -89,7 +89,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
-2026-04-24 An internal Pentagon email outlined plans to punish NATO allies for not supporting the U.S. and Israel’s war in Iran.
+2026-04-24 Internal Pentagon documents reportedly outlined plans to pressure NATO allies that did not support the Iran war effort. 
 
 [https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)
 

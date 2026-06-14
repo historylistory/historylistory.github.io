@@ -178,7 +178,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/](https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/)
 
-2026-04-22 Trump’s struggling media company Truth Social fired CEO Devin Nunes after stock dropped 67%. After firing Devin Nunes, Trump Media & Technology Group (parent company of Truth Social) pivoted to crypto and prediction markets.
+2026-04-22 Trump Media fired Truth Social CEO Devin Nunes after stock dropped 67%, and TMTG pivoted to crypto and prediction markets. 
 
 [https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social](https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social)
 

@@ -249,7 +249,7 @@ OTHER SHADY BUSINESS
 ### 2026 April
 
 
-2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 
+2026-04-20 Kash Patel told Fox that arrests connected to the 2020 election would be forthcoming. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/](https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/)
 

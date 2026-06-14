@@ -83,7 +83,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
 
-2026-04-20 FBI director Kash Patel told Fox “news” that arrests over the 2020 elections were coming soon. 
+2026-04-20 Kash Patel told Fox that arrests connected to the 2020 election would be forthcoming. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/](https://www.usatoday.com/story/news/politics/elections/2026/04/20/fbi-chief-patel-says-2020-election-fraud-arrests-coming-soon/89707799007/)
 

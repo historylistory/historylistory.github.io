@@ -131,7 +131,7 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 
 [https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam](https://democrats-energycommerce.house.gov/media/press-releases/pallone-trumprx-scam)
 
-2026-04-22 Trump’s struggling media company Truth Social fired CEO Devin Nunes after stock dropped 67%. After firing Devin Nunes, Trump Media & Technology Group (parent company of Truth Social) pivoted to crypto and prediction markets.
+2026-04-22 Trump Media fired Truth Social CEO Devin Nunes after stock dropped 67%, and TMTG pivoted to crypto and prediction markets. 
 
 [https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social](https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social)
 

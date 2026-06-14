@@ -193,7 +193,7 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 ### 2026 April
 
 
-2026-04-21 Cuba confirmed it recently hosted American diplomats on the island for talks about lifting oil sanctions. This comes after Trump said he planned to turn attention to Cuba after the war in Iran, stating, “We may stop by Cuba after we finish with this”. 
+2026-04-21 Cuba confirmed talks with U.S. diplomats regarding oil sanctions after Trump claimed, “We may stop by Cuba after we finish with this” (meaning the war in Iran).
 
 [https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016](https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016)
 

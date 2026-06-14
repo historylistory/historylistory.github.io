@@ -59,7 +59,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
 
 
-2026-04-22 Todd Blanche and the DOJ indicted the Southern Poverty Law Center on federal charges for allegedly “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
+2026-04-22 The Justice Department indicted the Southern Poverty Law Center on allegations of “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
 
 [https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/](https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/)
 

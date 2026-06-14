@@ -207,7 +207,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
 
-2026-04-17 Officials described Kash Patel as erratic, paranoid, frequently absent, and allegedly intoxicated on the job. Patel threatened legal action against The Atlantic.
+2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 
 [https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
 
@@ -217,15 +217,14 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
 
-2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
-
 [https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
 
 [https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
 
 [https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic)
 
-2026-04-22 Todd Blanche and the DOJ indicted the Southern Poverty Law Center on federal charges for allegedly “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
+
+2026-04-22 The Justice Department indicted the Southern Poverty Law Center on allegations of “manufacturing the extremism it purports to oppose by paying sources to stoke racial hatred”.
 
 [https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/](https://alabamareflector.com/2026/04/23/legal-experts-skeptical-of-dojs-criminal-case-against-southern-poverty-law-center/)
 

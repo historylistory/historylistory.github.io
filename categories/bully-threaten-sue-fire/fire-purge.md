@@ -298,7 +298,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 
 
-2026-04-22 Hegseth fired Secretary of the Navy John Phelan.
+2026-04-22 Pete Hegseth fired Navy Secretary John Phelan. 
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan](https://www.ms.now/rachel-maddow-show/maddowblog/hegseth-navy-secretary-john-phelan)
 
@@ -308,7 +308,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/](https://www.reuters.com/world/us-navy-secretary-phelan-fired-by-pentagon-source-says-2026-04-22/)
 
-2026-04-22 Trump’s struggling media company Truth Social fired CEO Devin Nunes after stock dropped 67%. After firing Devin Nunes, Trump Media & Technology Group (parent company of Truth Social) pivoted to crypto and prediction markets.
+2026-04-22 Trump Media fired Truth Social CEO Devin Nunes after stock dropped 67%, and TMTG pivoted to crypto and prediction markets. 
 
 [https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social](https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social)
 

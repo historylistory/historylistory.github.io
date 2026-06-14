@@ -269,7 +269,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html](https://www.cnbc.com/2026/04/16/ice-agent-assault-charge-minnesota-minneapolis.html)
 
-2026-04-21 Cuba confirmed it recently hosted American diplomats on the island for talks about lifting oil sanctions. This comes after Trump said he planned to turn attention to Cuba after the war in Iran, stating, “We may stop by Cuba after we finish with this”. 
+2026-04-21 Cuba confirmed talks with U.S. diplomats regarding oil sanctions after Trump claimed, “We may stop by Cuba after we finish with this” (meaning the war in Iran).
 
 [https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016](https://www.democracynow.org/2026/4/21/headlines/cuba_confirms_meeting_with_senior_us_officials_for_the_first_time_since_2016)
 

@@ -512,7 +512,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.trtworld.com/article/67984187584e](https://www.trtworld.com/article/67984187584e)
 
-2026-04-17 Officials described Kash Patel as erratic, paranoid, frequently absent, and allegedly intoxicated on the job. Patel threatened legal action against The Atlantic.
+2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 
 [https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s](https://www.youtube.com/watch?v=QpOD12q81cY&list=WL&index=9&t=157s)
 
@@ -521,6 +521,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/](https://www.thedailybeast.com/keystone-kash-patels-endless-wild-booze-binges-spilled-by-top-officials/)
 
 SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
+
+[https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
+
+[https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
+
+[https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic)
+
 
 2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
@@ -533,14 +540,6 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 [https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537](https://www.nbcnews.com/politics/trump-administration/labor-secretarys-top-two-aides-resign-investigation-alleged-department-rcna261537)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt](https://www.ms.now/rachel-maddow-show/maddowblog/chavez-deremer-faces-back-to-back-scandals-putting-her-future-at-labor-dept-in-doubt)
-
-2026-04-21 Kash Patel filed a $250M defamation lawsuit against The Atlantic over reports of erratic behavior and unexplained absences.
-
-[https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking](https://www.aljazeera.com/news/2026/4/20/fbi-director-kash-patel-sues-atlantic-for-false-reporting-on-drinking)
-
-[https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
-
-[https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic](https://www.axios.com/2026/04/20/kash-patel-lawsuit-the-atlantic)
 
 2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
 
