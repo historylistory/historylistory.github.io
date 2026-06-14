@@ -18,7 +18,7 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 ### 2025
 
-2025-01-07 Trump threatened to seize control of Greenland, stating he would be **willing to use military force** and would take Greenland "**one way or the other**". Later in the month he sent Charlie Kirk and Donald Trump Jr. to promote his cause and reiterated the threats in May.
+2025-01-07 Trump said he was willing to use military force to acquire Greenland and vowed to obtain it "one way or the other." He later enlisted Charlie Kirk and Donald Trump Jr. to promote the effort and reiterated the threat in May.
 
 [https://www.cnbc.com/2025/03/04/trump-says-the-us-will-take-greenland-one-way-or-the-other.html](https://www.cnbc.com/2025/03/04/trump-says-the-us-will-take-greenland-one-way-or-the-other.html)
 

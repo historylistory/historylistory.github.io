@@ -130,7 +130,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2025-02-27 Bill HR1761 proposed placing Trump on a $250 bill.
 
-2025-02-28 Trump and Vance berated Zelenskyy at the White House over gratitude and attire and accused him of “campaigning for the opposition”. 
+2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
 2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action 
 Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 

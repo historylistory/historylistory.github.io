@@ -78,7 +78,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2024 August
 
-2024-08-22 During the DNC, Tim Walz’s 17-year-old son went viral for his tearful sentiment over his father. The next day, several conservative commentators received backlash for their posts mocking Gus Walz who suffers from several diagnosed mental illnesses.
+2024-08-22 After Tim Walz's son Gus became emotional during the Democratic National Convention, several conservative commentators were criticized for mocking him despite his documented mental health conditions
 
 [https://www.theguardian.com/us-news/article/2024/aug/24/democratic-convention-tim-walz-son-emotions-criticized-backlash](https://www.theguardian.com/us-news/article/2024/aug/24/democratic-convention-tim-walz-son-emotions-criticized-backlash)
 
@@ -86,7 +86,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.pbs.org/newshour/politics/sudden-attention-for-tim-walzs-son-brings-focus-to-challenges-of-people-with-learning-disabilities](https://www.pbs.org/newshour/politics/sudden-attention-for-tim-walzs-son-brings-focus-to-challenges-of-people-with-learning-disabilities)
 
-2024-08-23 Trump posted various AI generated memes on social media of Kamala Harris as a Communist along with messages that she will take us into a nuclear war and will never be respected.
+2024-08-23 Trump shared AI-generated memes portraying Kamala Harris as a communist and claimed she would lead the country into nuclear conflict. 
 
 [https://timesofindia.indiatimes.com/world/us/code-red-in-us-comrade-kamala-v-traitor-trump/articleshow/112746487.cms](https://timesofindia.indiatimes.com/world/us/code-red-in-us-comrade-kamala-v-traitor-trump/articleshow/112746487.cms)
 
@@ -94,7 +94,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 February
 
-2025-02-28 Trump and Vance berated Zelenskyy at the White House over gratitude and attire and accused him of “campaigning for the opposition”. 
+2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
 {% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 

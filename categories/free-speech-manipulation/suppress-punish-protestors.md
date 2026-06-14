@@ -125,7 +125,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673](https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673)
 
-2025-03-25 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior. Rumeysa Ozturk was detained by ICE for six weeks after writing an op-ed at her university. Courts ruled the detention illegal and she was released.  The Trump administration’s DHS accused her of supporting Hamas without any evidence. 
+2025-03-25 The administration revoked Tufts doctoral student Rumeysa Ozturk's visa after she co-authored a pro-Palestinian article. She was detained by ICE for six weeks before a court ordered her release. 
 
 [https://www.youtube.com/watch?v=T98wJrupDMA](https://www.youtube.com/watch?v=T98wJrupDMA)
 

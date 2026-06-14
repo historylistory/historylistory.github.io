@@ -44,7 +44,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2024 December
 
-2024-12-22 Both in a social media post and during a rally in Phoenix, Trump threatened to seize control of the Panama Canal by force. He reiterated the threat in February 2025 warning of a “powerful” U.S. action.
+2024-12-22 Trump threatened to seize the Panama Canal by force in social media posts and at a Phoenix rally, repeating the threat in February 2025.
 
 {% include youtubePlayer.html id="focpbht5MAI" %}
 
@@ -52,11 +52,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 January
 
-2025-01-07 Trump threatened to seize control of Greenland, stating he would be **willing to use military force** and would take Greenland "**one way or the other**". Later in the month he sent Charlie Kirk and Donald Trump Jr. to promote his cause and reiterated the threats in May.
+2025-01-07 Trump said he was willing to use military force to acquire Greenland and vowed to obtain it "one way or the other." He later enlisted Charlie Kirk and Donald Trump Jr. to promote the effort and reiterated the threat in May.
 
 [https://www.cnbc.com/2025/03/04/trump-says-the-us-will-take-greenland-one-way-or-the-other.html](https://www.cnbc.com/2025/03/04/trump-says-the-us-will-take-greenland-one-way-or-the-other.html)
 
-2025-01-07 Trump threatened to use "**economic force**" to annex Canada. Canadian officials reportedly began taking his threats more seriously at this point, moving past the initial belief that the comments were satirical.
+2025-01-07 Trump threatened to use "economic force" to annex Canada, prompting Canadian officials to take the comments more seriously
 
 [https://truthsocial.com/@realDonaldTrump/posts/113789874318969723](https://truthsocial.com/@realDonaldTrump/posts/113789874318969723)
 
@@ -68,7 +68,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 February
 
-2025-02-03 Judges delayed the White House's attempt to both freeze $3T (trillion) in federal spending and uncover the identities of FBI agents who worked on the J6 insurrection investigation.
+2025-02-03 Courts delayed White House efforts to freeze roughly $3 trillion in federal spending and identify FBI personnel involved in the January 6 investigations
 
 [https://www.pbs.org/newshour/politics/second-judge-temporarily-blocks-federal-funding-freeze-efforts-by-trump-administration](https://www.pbs.org/newshour/politics/second-judge-temporarily-blocks-federal-funding-freeze-efforts-by-trump-administration)
 
@@ -88,17 +88,17 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.axios.com/2025/03/04/trump-college-protests-israel-gaza-funding](https://www.axios.com/2025/03/04/trump-college-protests-israel-gaza-funding)
 
-2025-03-07 Trump signed an executive order to change student loan forgiveness, adding the language, "…**end taxpayer-funded student loan forgiveness for anti-American activists**", leaving it open to the Trump administration's interpretations and agendas.
+2025-03-07 Trump signed an executive order to change student loan forgiveness, adding the language, “…end taxpayer-funded student loan forgiveness for anti-American activists”, leaving it open to the Trump administration’s interpretations and agendas.
 
 [https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/](https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/)
 
-2025-03-21 After the Trump administration leveraged funding to Columbia University they agreed to the demands of the administration in exchange for funding restoration. Ultimately it didn't matter, because Trump froze their funds again 3 months later. Andrew Nixon stated, "There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely".
+2025-03-21 Columbia University agreed to administration demands in exchange for restoring funding, but funding was later frozen again. Three months later Andrew Nixon stated, "There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely".
 
 [https://www.theguardian.com/us-news/2025/mar/21/columbia-university-funding-trump-demands](https://www.theguardian.com/us-news/2025/mar/21/columbia-university-funding-trump-demands)
 
 [https://www.science.org/content/article/updated-trump-administration-unfreezes-then-refreezes-nih-funding-columbia-university](https://www.science.org/content/article/updated-trump-administration-unfreezes-then-refreezes-nih-funding-columbia-university)
 
-2025-03-25 The Trump administration revoked a Tuft student's doctoral visa because she co-authored a pro-Palestinian newspaper article the year prior. Rumeysa Ozturk was detained by ICE for six weeks after writing an op-ed at her university. Courts ruled the detention illegal and she was released.  The Trump administration’s DHS accused her of supporting Hamas without any evidence. 
+2025-03-25 The administration revoked Tufts doctoral student Rumeysa Ozturk's visa after she co-authored a pro-Palestinian article. She was detained by ICE for six weeks before a court ordered her release. 
 
 [https://www.youtube.com/watch?v=T98wJrupDMA](https://www.youtube.com/watch?v=T98wJrupDMA)
 

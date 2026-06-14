@@ -8,7 +8,7 @@ permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
 
 ### 2024
 
-2024-08-22 During the DNC, Tim Walz’s 17-year-old son went viral for his tearful sentiment over his father. The next day, several conservative commentators received backlash for their posts mocking Gus Walz who suffers from several diagnosed mental illnesses.
+2024-08-22 After Tim Walz's son Gus became emotional during the Democratic National Convention, several conservative commentators were criticized for mocking him despite his documented mental health conditions
 
 [https://www.theguardian.com/us-news/article/2024/aug/24/democratic-convention-tim-walz-son-emotions-criticized-backlash](https://www.theguardian.com/us-news/article/2024/aug/24/democratic-convention-tim-walz-son-emotions-criticized-backlash)
 

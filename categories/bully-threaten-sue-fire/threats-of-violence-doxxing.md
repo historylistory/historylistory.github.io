@@ -38,13 +38,13 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2024 March
 
-2024-03-28 Trump shared a photo on social media of a truck mural featuring Biden bound and gagged. In a statement, Michael Tyler said, "Trump is regularly inciting political violence and it's time people take him seriously".
+2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
 [https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied](https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied)
 
 ### 2024 April
 
-2024-04-18 During the Trump hush money trial, Fox host Jesse Watters publicly doxed jurors by listing their city of residence, birthplace, occupation, followed news outlets, marital status, number of kids, race, gender and any indication if they supported DEI. This followed a few days after a judge had to admonish Trump for **juror intimidation**.
+2024-04-18 During Trump's hush-money trial, Fox host Jesse Watters disclosed extensive personal details about jurors, including residence, occupation, family status, race, gender, and views on DEI.
 
 [https://www.theguardian.com/us-news/2024/apr/16/trump-new-york-hush-money-criminal-trial](https://www.theguardian.com/us-news/2024/apr/16/trump-new-york-hush-money-criminal-trial)
 

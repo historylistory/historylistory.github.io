@@ -168,7 +168,7 @@ Remember: rage bait sells. 
 
 ### 2024 March
 
-2024-03-28 Trump shared a photo on social media of a truck mural featuring Biden bound and gagged. In a statement, Michael Tyler said, "Trump is regularly inciting political violence and it's time people take him seriously".
+2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
 [https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied](https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied)
 

@@ -141,7 +141,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858](https://e3.365dm.com/25/02/1600x900/skynews-elon-musk-us_6835305.jpg?20250221075858)
 
-2025-02-28 Trump and Vance berated Zelenskyy at the White House over gratitude and attire and accused him of “campaigning for the opposition”. 
+2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
 {% include youtubePlayer.html id="b8gmxT8qj8Y" %}
 

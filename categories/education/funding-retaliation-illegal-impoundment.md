@@ -44,7 +44,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.cnn.com/2025/11/18/politics/education-department-trump-administration-changes](https://www.cnn.com/2025/11/18/politics/education-department-trump-administration-changes)
 
-2025-03-21 After the Trump administration leveraged funding to Columbia University they agreed to the demands of the administration in exchange for funding restoration. Ultimately it didn't matter, because Trump froze their funds again 3 months later. Andrew Nixon stated, "There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely".
+2025-03-21 Columbia University agreed to administration demands in exchange for restoring funding, but funding was later frozen again. Three months later Andrew Nixon stated, "There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely".
 
 [https://www.theguardian.com/us-news/2025/mar/21/columbia-university-funding-trump-demands](https://www.theguardian.com/us-news/2025/mar/21/columbia-university-funding-trump-demands)
 
