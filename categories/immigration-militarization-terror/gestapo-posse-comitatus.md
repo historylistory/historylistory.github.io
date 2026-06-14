@@ -177,13 +177,13 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/](https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/)
 
-2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa. Trump tweeted on social media that Portland was "war ravaged" and that he planned to authorize "**full force**". Secretary Lori Chavez-DeRemer reposted. City leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
+2025-09-27 Trump alleged that Portland ICE facilities were under siege by the so-called Antifa group and he authorized a "full force" response. Local officials disputed the characterization and described the protests as peaceful, while city leaders held a press conference to warn the public not to "take the bait".
 
 [https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/](https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/)
 
 {% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
-2025-09-29 Multiple news outlets outed Fox News for **using viral riot footage from 2020** to sensationalize a small peaceful protest in Portland.
+2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 [https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests](https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests)
 

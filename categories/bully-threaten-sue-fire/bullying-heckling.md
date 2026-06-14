@@ -198,7 +198,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115233841743981161](https://truthsocial.com/@realDonaldTrump/posts/115233841743981161)
 
-2025-09-24 Trump sent out another message via Truth Social that Kamala Harris is "dumb as a rock".
+2025-09-24 Trump again called Kamala Harris "dumb as a rock.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/115261110149678466](https://truthsocial.com/@realDonaldTrump/posts/115261110149678466)
 

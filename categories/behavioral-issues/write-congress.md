@@ -224,7 +224,7 @@ couldn’t remember where he assigned Walker, stating, “…and now he’s goin
 
 2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
-2025-09-29 Trump celebrated a YouTube settlement benefiting banned conservatives, adding “Repost if ALL banned conservatives should be paid!”.
+2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
 
 2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
 

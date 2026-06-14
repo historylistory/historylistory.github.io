@@ -22,6 +22,15 @@ permalink: /categories/j6/other/
 
 SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election](https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january-6-2020-election)
 
+### 2025
+
+2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
+
+[https://truthsocial.com/@realDonaldTrump/posts/115291190758865206](https://truthsocial.com/@realDonaldTrump/posts/115291190758865206)
+
+[https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html](https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html)
+
+
 
 ### 2026 March
 

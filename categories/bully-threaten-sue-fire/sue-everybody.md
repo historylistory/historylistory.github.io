@@ -114,11 +114,9 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk](https://www.cnn.com/2025/09/16/media/trump-lawsuit-new-york-times-hnk)
 
-2025-09-29 YouTube agreed to pay Trump $24.5M to settle a lawsuit involving suspension of Trump's account following the J6 insurrection.
+2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
 
 [https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html](https://www.cnbc.com/2025/09/29/youtube-to-pay-trump-24point5-million-to-settle-lawsuit-over-suspension.html)
-
-2025-09-29 Trump celebrated a YouTube settlement benefiting banned conservatives, adding “Repost if ALL banned conservatives should be paid!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115291190758865206](https://truthsocial.com/@realDonaldTrump/posts/115291190758865206)
 

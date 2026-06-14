@@ -126,11 +126,11 @@ permalink: /categories/free-speech-manipulation/purge/
 
 [https://www.npr.org/sections/shots-health-news/2025/09/17/nx-s1-5544143/cdc-director-susan-monarez-testimony-rfk](https://www.npr.org/sections/shots-health-news/2025/09/17/nx-s1-5544143/cdc-director-susan-monarez-testimony-rfk)
 
-2025-09-19 Erik Seibert resigned after Trump pressured him to bring criminal charges against Letitia James. Trump planned to replace Seibert with Lindsey Halligan from his **personal legal team**. Lindsey Halligan is also in charge of removing "improper ideology" from Smithsonian museums. A news outlet reported that Halligan’s arrival to the position was rushed.
+2025-09-19 Federal prosecutor Erik Seibert resigned after pressure to pursue criminal charges against Letitia James. 
 
 [https://www.nytimes.com/2025/09/22/us/politics/trump-lindsey-halligan-james-comey.html](https://www.nytimes.com/2025/09/22/us/politics/trump-lindsey-halligan-james-comey.html)
 
-2025-09-26 Former FBI director James Comey was indicted on two charges after Trump publicly pressured Bondi into prosecuting him and two other adversaries.
+2025-09-26 Former FBI Director James Comey was indicted after Trump publicly called for prosecutions of political rivals
 
 [https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581](https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581)
 

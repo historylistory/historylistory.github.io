@@ -169,7 +169,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 2025-09-23 After much backlash, the Jimmy Kimmel show was returned to television. 
 
-2025-09-23 In response to Jimmy Kimmel returning to TV, Trump posted, "I can't believe ABC Fake News gave Jimmy Kimmel his job back…I think we're going to test ABC out on this….Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative".
+2025-09-23 Trump threatened ABC after Jimmy Kimmel returned to television, referencing a previous $16 million settlement. Trump posted, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115256938634035559](https://truthsocial.com/@realDonaldTrump/posts/115256938634035559)
 

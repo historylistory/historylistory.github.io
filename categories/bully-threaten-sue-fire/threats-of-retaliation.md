@@ -250,11 +250,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115237675581682288](https://truthsocial.com/@realDonaldTrump/posts/115237675581682288)
 
-2025-09-23 In response to Jimmy Kimmel returning to TV, Trump posted, "I can't believe ABC Fake News gave Jimmy Kimmel his job back…I think we're going to test ABC out on this….Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative".
+2025-09-23 Trump threatened ABC after Jimmy Kimmel returned to television, referencing a previous $16 million settlement. Trump posted, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115256938634035559](https://truthsocial.com/@realDonaldTrump/posts/115256938634035559)
 
-2025-09-26 Former FBI director James Comey was indicted on two charges after Trump publicly pressured Bondi into prosecuting him and two other adversaries.
+2025-09-26 Former FBI Director James Comey was indicted after Trump publicly called for prosecutions of political rivals
 
 [https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581](https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581)
 

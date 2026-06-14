@@ -48,7 +48,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 September
 
-2025-09-23 During a press conference, Karoline Leavitt announced the White House planned to designate “Antifa” as a domestic terrorist organization. In a press release dated September 22, 2025, the White House listed 32 examples of violence, interchanging “antifa” with “leftists” and “transgender”. The White House did not provide any substantial evidence these examples were carried out by any specific  group, nor any merit that antifa is aligned with a sexual orientation or political party. It appears the press release aims to frame left-leaning parties as terrorists, as the policy starts out “President Donald J. Trump is right: the violence problem is on the Left”.
+2025-09-23 Karoline Leavitt announced plans to designate "Antifa" a domestic terrorist organization, citing a White House report linking various incidents of violence to left-wing activism. The September 22 2025 press release begins “President Donald J. Trump is right: the violence problem is on the Left”.
 
 [https://www.whitehouse.gov/articles/2025/09/president-trump-isnt-backing-down-from-crushing-radical-left-violence/](https://www.whitehouse.gov/articles/2025/09/president-trump-isnt-backing-down-from-crushing-radical-left-violence/)
 
@@ -56,13 +56,13 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 {% include youtubePlayer.html id="3gRwXbeRizQ" %}
 
-2025-09-25 Trump signed a National Security Presidential Memorandum (**NSPM-7**) labelling beliefs like anti-Christian as terrorism indicators. The language leaves precedence to label anyone who doesn’t align with one specific religion a terrorist.
+2025-09-25 Trump signed NSPM-7, which included references to anti-Christian beliefs among terrorism indicators. 
 
 [https://www.kenklippenstein.com/p/trumps-nspm-7-labels-common-beliefs](https://www.kenklippenstein.com/p/trumps-nspm-7-labels-common-beliefs)
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/countering-domestic-terrorism-and-organized-political-violence/](https://www.whitehouse.gov/presidential-actions/2025/09/countering-domestic-terrorism-and-organized-political-violence/)
 
-2025-09-25 (context) Casey Goonan, who set off a series of Molotov cocktails during a protest on Gaza was sentenced to 20 years in prison and labeled a domestic terrorist. For context, the White House passed a very vague memorandum NSPM-7 which allows them to label any outliers or non-Trump supporters as domestic terrorists. By contrast, Trump pardoned J6er David Dempsey who pepper sprayed and beat multiple officers during the J6 riot.
+2025-09-25 Casey Goonan, who set off a series of Molotov cocktails during a protest on Gaza was sentenced to 20 years in prison and labeled a domestic terrorist. For context, the White House passed a very vague memorandum NSPM-7 which allows them to label any outliers or non-Trump supporters as domestic terrorists. By contrast, Trump pardoned J6er David Dempsey who pepper sprayed and beat multiple officers during the J6 riot.
 
 [https://dailynorthwestern.com/tag/casey-goonan/](https://dailynorthwestern.com/tag/casey-goonan/)
 
@@ -70,7 +70,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/](https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/)
 
-2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa. Trump tweeted on social media that Portland was "war ravaged" and that he planned to authorize "**full force**". Secretary Lori Chavez-DeRemer reposted. City leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker. After Trump alleged Portland ICE facilities were under siege by Antifa, city leaders held a press conference to warn the public not to "take the bait". News footage showed a peaceful protest, including a man outside an ICE facility with a bubble maker.
+2025-09-27 Trump alleged that Portland ICE facilities were under siege by the so-called Antifa group and he authorized a "full force" response. Local officials disputed the characterization and described the protests as peaceful, while city leaders held a press conference to warn the public not to "take the bait".
 
 [https://truthsocial.com/@realDonaldTrump/posts/115276694936263266](https://truthsocial.com/@realDonaldTrump/posts/115276694936263266)
 
@@ -78,7 +78,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 {% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
-2025-09-29 Multiple news outlets outed Fox News for **using viral riot footage from 2020** to sensationalize a small peaceful protest in Portland.
+2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 [https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests](https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests)
 
