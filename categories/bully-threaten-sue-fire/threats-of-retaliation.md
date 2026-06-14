@@ -320,6 +320,20 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.bbc.com/news/articles/cn8xg1jve73o](https://www.bbc.com/news/articles/cn8xg1jve73o)
 
+2025-10-27 Trump appointed Michael Selig as chair of the Commodity Futures Trading Commission. Selig threatened states that challenged prediction markets, saying, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
+
 2025-10-29 Kat Abughazaleh was indicted and described the charges as an attempt to criminalize protest. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
@@ -397,17 +411,17 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
 
-2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
+2026-01-13 Trump linked immigration enforcement in Minnesota to election outcomes and accused the state of election manipulation
 
 [https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
 
-2026-01-16 Trump threatened countries with tariffs if they didn’t back the US controlling Greenland.
+2026-01-16 Trump threatened tariffs against countries unwilling to support U.S. control of Greenland
 
 [https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan](https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan)
 
 [https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html](https://www.military.com/daily-news/2026/01/16/trump-says-he-may-punish-countries-tariffs-if-they-dont-back-us-controlling-greenland.html)
 
-2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
+2026-01-16 The Justice Department accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy related to immigration enforcement
 
 [https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
 
@@ -433,7 +447,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
 
-2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in an effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
+2026-01-21 The FCC again threatened ABC's broadcast license over programming involving Jimmy Kimmel and Stephen Colbert. 
 
 [https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/](https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/)
 
@@ -443,7 +457,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf](https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf)
 
-2026-01-22 Just as predicted by Jack Smith himself, Trump posted threats about Smith via Truth Social. For context, Jack Smith was the prosecutor in the case against Trump for election tampering and concealing classified documents at Mar-a-Lago. While the case had indisputable evidence to convict Trump, the case was suspiciously thrown out.
+2026-01-22 Trump attacked former special counsel Jack Smith on Truth Social. Jack Smith was the prosecutor in the case against Trump for election tampering and concealing classified documents at Mar-a-Lago.
 
 [https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228](https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228)
 
@@ -456,20 +470,6 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085](https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085)
 
 ### 2026 February
-
-2026-02-17 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
-
-[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
-
-[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
-
-[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
-
-[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
-
-[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
-
-[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
 2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
 

@@ -81,6 +81,21 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/](https://19thnews.org/2025/08/wnba-dildos-meme-coin-misogyny/)
 
+### 2025 October
+2025-10-27 Trump appointed Michael Selig as chair of the Commodity Futures Trading Commission. Selig threatened states that challenged prediction markets, saying, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
+
 ### 2025 December
 
 2025-12-02 CNN partnered with Kalshi prediction market. CNN gained access to Kalshi’s data through an API and features a Kalshi ticker. 
@@ -98,20 +113,6 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/](https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/)
 
 [https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12](https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12)
-
-2025-12-22 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
-
-[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
-
-[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
-
-[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
-
-[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
-
-[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
-
-[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
 
 ### 2026 January
@@ -138,21 +139,6 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://finance.yahoo.com/news/polymarket-increases-media-exposure-dow-184700185.html](https://finance.yahoo.com/news/polymarket-increases-media-exposure-dow-184700185.html)
 
-### 2026 February
-
-2026-02-17 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
-
-[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
-
-[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
-
-[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
-
-[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
-
-[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
-
-[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
 ### 2026 March
 

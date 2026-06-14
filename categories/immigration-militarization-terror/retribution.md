@@ -16,7 +16,7 @@ permalink: /categories/immigration-militarization-terror/retribution/
 
 ### 2026 January
 
-2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
+2026-01-13 Trump linked immigration enforcement in Minnesota to election outcomes and accused the state of election manipulation
 
 [https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
 

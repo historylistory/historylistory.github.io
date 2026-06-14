@@ -101,7 +101,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 ### 2026 January
 
-2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
+2026-01-16 The Justice Department accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy related to immigration enforcement
 
 [https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
 

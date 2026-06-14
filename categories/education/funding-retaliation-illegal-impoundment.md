@@ -138,6 +138,17 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 ### 2026 February
 
+2026-02-02 Trump threatened to sue Harvard University for $1 billion. 
+
+[https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683](https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683)
+
+[https://www.bbc.com/news/articles/crkryely657o](https://www.bbc.com/news/articles/crkryely657o)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221](https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116004776659519984](https://truthsocial.com/@realDonaldTrump/posts/116004776659519984)
+
+
 2026-02-27 Pete Hegseth laid out a contingency plan that the US armed forces would continue to support Scouting America only if they complied with Executive Order 14173 and end DEI including the welcoming of trans kids, offering the Citizenship in Society merit badge, among other things. Hegseth wrote in X, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
 
 [https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon](https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon)

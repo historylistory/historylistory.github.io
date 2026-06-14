@@ -221,7 +221,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 {% include youtubePlayer.html id="hZtNjijS5bo" %}
 
-2026-01-21 In a public notice, he FCC threatened to pull ABC’s license again in effort to silence both  Jimmy Kimmel and Stephen Colbert from making political commentary that doesn’t align with the Trump agenda.
+2026-01-21 The FCC again threatened ABC's broadcast license over programming involving Jimmy Kimmel and Stephen Colbert. 
 
 [https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/](https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/)
 

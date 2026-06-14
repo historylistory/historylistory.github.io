@@ -153,11 +153,11 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2026 January
 
-2026-01-13 In an X post, Trump tied his immigration crackdown in Minnesota to losing the elections, and Trump accused Minnesota of swinging elections.
+2026-01-13 Trump linked immigration enforcement in Minnesota to election outcomes and accused the state of election manipulation
 
 [https://truthsocial.com/@realDonaldTrump/posts/115889954671261109](https://truthsocial.com/@realDonaldTrump/posts/115889954671261109)
 
-2026-01-16 The DOJ under Trump accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy to impede immigration agents. 
+2026-01-16 The Justice Department accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy related to immigration enforcement
 
 [https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/](https://www.democracydocket.com/news-alerts/doj-opens-criminal-probe-targeting-minnesota/)
 
@@ -170,7 +170,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2026 February
 
-2026-02-02 ICE arrested former Army Ranger and American veteran Ian Austin during a peaceful protest and federally charged him with terrorism.
+2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 
 
 TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s](https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&index=1&t=261s)
 

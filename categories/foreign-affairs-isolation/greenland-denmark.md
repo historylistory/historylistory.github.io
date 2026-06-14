@@ -48,7 +48,7 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 [https://www.youtube.com/watch?v=fcrcDYE__RA&list=WL&index=1](https://www.youtube.com/watch?v=fcrcDYE__RA&list=WL&index=1)
 
-2026-01-16 Trump threatened countries with tariffs if they didn’t back the US controlling Greenland.
+2026-01-16 Trump threatened tariffs against countries unwilling to support U.S. control of Greenland
 
 [https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan](https://www.aljazeera.com/news/2026/1/16/trump-may-tariff-countries-that-dont-go-along-with-his-greenland-plan)
 

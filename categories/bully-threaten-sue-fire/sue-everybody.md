@@ -134,6 +134,20 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid](https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid)
 
+2025-10-27 Trump appointed Michael Selig as chair of the Commodity Futures Trading Commission. Selig threatened states that challenged prediction markets, saying, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”.
+
+[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
+
+[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
+
+[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
+
+[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
+
+[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
+
+[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
+
 ### 2025 November
 
 2025-11-09 Trump threatened to sue the BBC for $1 billion over alleged edits to coverage of his January 6 remarks. 
@@ -162,7 +176,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
 
-2026-01-29 Trump sued the IRS and Treasury for $10B for leaked tax information.
+2026-01-29 Trump sued the IRS and Treasury Department for $10 billion for sharing Trump’s tax information (funds from the lawsuit would be taxpayer money). 
 
 [https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)
 
@@ -170,7 +184,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2026 February
 
-2026-02-02 Trump threatened to sue Harvard for $1B.
+2026-02-02 Trump threatened to sue Harvard University for $1 billion. 
 
 [https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683](https://www.politico.com/news/2026/02/03/trump-escalates-harvard-feud-with-1-billion-demand-00761683)
 
@@ -179,20 +193,6 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 [https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221](https://www.nbcnews.com/politics/trump-administration/trump-harvard-1-billion-antisemitism-diversity-transgender-probes-rcna257221)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116004776659519984](https://truthsocial.com/@realDonaldTrump/posts/116004776659519984)
-
-2026-02-17 Trump appointed Michael Selig as the CFTC (Commodity Futures Trading Commission) chair. While one of the CFTC’s tasks is to regulate prediction markets, the chair is an avid supporter of both Trump and prediction markets. He even threatened States for suing prediction markets by posting a video. In that video he said, “To those who seek to challenge our authority in this space let me be clear – we will see you in court”. That video was posted in February 2026.
-
-[https://www.cftc.gov/PressRoom/PressReleases/9164-25](https://www.cftc.gov/PressRoom/PressReleases/9164-25)
-
-[https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239](https://www.politico.com/news/2026/04/12/michael-selig-prediction-markets-00865239)
-
-[https://x.com/ChairmanSelig/status/2023744656647786604](https://x.com/ChairmanSelig/status/2023744656647786604)
-
-[https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html](https://finance.yahoo.com/news/see-court-cftc-chair-defends-150757162.html)
-
-[https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352](https://www.nbcnews.com/business/business-news/cftc-selig-prediction-markets-nevada-rcna259352)
-
-[https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
 
 ### 2026 April

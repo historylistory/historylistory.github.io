@@ -354,7 +354,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 
-2026-02-13 Corey Lewandowski and Kristi Noem reportedly fired a Coast Guard pilot over a forgotten blanket.
+2026-02-13 Corey Lewandowski and Kristi Noem reportedly tried to fire a Coast Guard pilot after an incident involving a forgotten blanket
 
 2026-02-17 DHS repeated partisan shutdown messaging on official websites, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 

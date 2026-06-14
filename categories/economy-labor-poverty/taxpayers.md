@@ -142,11 +142,12 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535](https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535)
 
-2026-01-29 Trump ***sued the IRS and Treasury for $10B*** for leaked tax information.
+2026-01-29 Trump sued the IRS and Treasury Department for $10 billion for sharing Trump’s tax information (funds from the lawsuit would be taxpayer money). 
 
 [https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)
 
 [https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html](https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html)
+
 
 ### 2026 March
 
