@@ -42,7 +42,7 @@ permalink: /categories/conspiracies/obama/
 
 ### 2025 July: Obama is guilty of treason
 
-2025-07-22 During a White House press conference, Trump accused Obama of treason. Trump stated, "they tried to rig the election, and they got caught" and “Whether it's right or wrong, it's time to go after people. Obama's been caught directly".
+2025-07-22 Trump accused Barack Obama of treason and election-rigging during a White House press conference, claiming, “they tried to rig the election, and they got caught” and “…whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
 
 [https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis](https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis)
 

@@ -20,7 +20,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 ### 2025 July
 
-2025-07-01 Trump fired the entire Commission of Fine Arts in 2025 and sworn in his hand-picked appointees who align with his endeavors to deconstruct historical monuments. 
+2025-07-01 Trump dismissed the entire Commission of Fine Arts and appointed replacements aligned with his priorities. 
 
 [https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/](https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/)
 

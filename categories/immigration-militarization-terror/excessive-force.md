@@ -42,7 +42,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2025 June
 
-2025-06-13 Senator Alex Padilla was forcibly removed and physically assaulted during a press conference when he attempted to ask Kristi Noem a question about immigration enforcement. In the video, you can see he was both cooperative and not disruptive.
+2025-06-13 Senator Alex Padilla was forcibly removed from a press conference while attempting to question Homeland Security Secretary Kristi Noem. 
 
 [https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference](https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference)
 

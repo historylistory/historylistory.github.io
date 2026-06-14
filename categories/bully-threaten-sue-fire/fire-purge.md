@@ -134,7 +134,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 ### 2025 July
 
-2025-07-01 Trump fired the entire Commission of Fine Arts in 2025 and sworn in his hand-picked appointees who align with his endeavors to deconstruct historical monuments. 
+2025-07-01 Trump dismissed the entire Commission of Fine Arts and appointed replacements aligned with his priorities. 
 
 [https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/](https://www.nbcwashington.com/news/national-international/trump-appoints-commission-of-fine-arts-members/4043945/)
 
@@ -158,7 +158,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 ### 2025 August
 
-2025-08-01 Trump fired Bureau of Labor Statistics chief Erika McEntarfer because he didn't like the job market report. He replaced her with William Wiatrowski, then nominated Heritage Foundation economist EJ Antoni.
+2025-08-01 Trump fired Bureau of Labor Statistics Commissioner Erika McEntarfer following an unfavorable jobs report. He named William Wiatrowski as replacement and later nominated Heritage Foundation economist E.J. Antoni. 
 
 [https://www.epi.org/policywatch/firing-bls-commissioner-erika-mcentarfer/](https://www.epi.org/policywatch/firing-bls-commissioner-erika-mcentarfer/)
 

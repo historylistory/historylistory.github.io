@@ -84,7 +84,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 June
 
-2025-06-13 Senator Alex Padilla was forcibly removed and physically assaulted during a press conference when he attempted to ask Kristi Noem a question about immigration enforcement. In the video, you can see he was both cooperative and not disruptive.
+2025-06-13 Senator Alex Padilla was forcibly removed from a press conference while attempting to question Homeland Security Secretary Kristi Noem. 
 
 [https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference](https://www.npr.org/2025/06/17/g-s1-73157/alex-padilla-kristi-noem-los-angeles-immigration-protests-press-conference)
 
@@ -92,11 +92,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 July
 
-2025-07-10 According to AI, a DHS official testified to using Canary Mission to build a dossier on pro-Palestinian activities. The platform has been criticized for **doxxing** and **intimidation**.
+2025-07-10 Testimony reportedly indicated DHS used Canary Mission data to compile dossiers on pro-Palestinian activists. This platform has been criticized for doxxing and intimidation.
 
 [https://www.thecrimson.com/article/2025/7/10/aaup-trial-dhs-canary-mission/](https://www.thecrimson.com/article/2025/7/10/aaup-trial-dhs-canary-mission/)
 
-2025-07-20 Trump posted an AI generated video on social media of Obama being arrested. The video caption read "No One Is Above The Law!".
+2025-07-20 Trump posted an AI-generated video depicting Barack Obama being arrested.
 
 [https://truthsocial.com/@realDonaldTrump/posts/114887992924632896](https://truthsocial.com/@realDonaldTrump/posts/114887992924632896)
 

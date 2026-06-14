@@ -104,7 +104,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/](https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/)
 
-2025-07-29 Trump sued the Wall Street Journal for $10B for defamation.
+2025-07-29 Trump sued The Wall Street Journal for $10 billion for defamation over reporting on the Epstein files.. 
 
 [https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit](https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit)
 

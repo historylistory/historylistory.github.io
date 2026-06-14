@@ -144,7 +144,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 June
 
-2025-06-25 Trump sent out several trolling tweets attacking the media and Democrats to reinforce his MAGA base and keep them riled.
+2025-06-25 Trump posted multiple attacks on media outlets and Democrats on social media to reinforce his MAGA base and keep them riled.
 
 [https://truthsocial.com/@realDonaldTrump/posts/114764221948518343](https://truthsocial.com/@realDonaldTrump/posts/114764221948518343)
 
@@ -152,7 +152,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114745592965123786](https://truthsocial.com/@realDonaldTrump/posts/114745592965123786)
 
-2025-06-25 Nancy Mace sent out a post on X insinuating that Mamdani was somehow tied to September 11th. She wrote, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
+2025-06-25 Nancy Mace linked Zohran Mamdani to September 11 in a social media post, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
 
 [https://x.com/NancyMace/status/1937864426410869062](https://x.com/NancyMace/status/1937864426410869062)
 
@@ -168,7 +168,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 July
 
-2025-07-22 During a White House press conference, Trump accused Obama of treason, claiming "they tried to rig the election, and they got caught" and "…whether it's right or wrong, it's time to go after people. Obama's been caught directly".
+2025-07-22 Trump accused Barack Obama of treason and election-rigging during a White House press conference, claiming, “they tried to rig the election, and they got caught” and “…whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
 
 [https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis](https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis)
 

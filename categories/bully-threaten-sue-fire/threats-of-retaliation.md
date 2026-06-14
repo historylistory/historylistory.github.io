@@ -132,7 +132,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114840552173805537](https://truthsocial.com/@realDonaldTrump/posts/114840552173805537)
 
-2025-07-18 Trump posted on Truth Social that he was excited about the firing of Stephen Colbert, and he heard that Jimmy Kimmel was next. In the same tweet Trump promoted Greg Gutfeld.
+2025-07-18 Trump celebrated Stephen Colbert's dismissal and suggested Jimmy Kimmel could be next. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114874422468516376](https://truthsocial.com/@realDonaldTrump/posts/114874422468516376)
 
@@ -146,15 +146,15 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.avclub.com/donald-trump-jimmy-fallon-jimmy-kimmel-fired-next-prediction](https://www.avclub.com/donald-trump-jimmy-fallon-jimmy-kimmel-fired-next-prediction)
 
-2025-07-25 Trump wrote on social media that Oprah should be prosecuted for unfounded claims of paid celebrity endorsement.
+2025-07-25 Trump called for Oprah Winfrey to be prosecuted over claims related to celebrity endorsements.
 
 [https://www.imdb.com/news/ni65401281/](https://www.imdb.com/news/ni65401281/)
 
-2025-07-27 Trump wrote on social media that Beyonce should be prosecuted for endorsing Kamala Harris.
+2025-07-27 Trump called for Beyoncé to be prosecuted over her endorsement of Kamala Harris. 
 
 [https://www.usatoday.com/story/entertainment/celebrities/2025/07/27/donald-trump-beyonce-kamala-harris-endorsement/85399668007/](https://www.usatoday.com/story/entertainment/celebrities/2025/07/27/donald-trump-beyonce-kamala-harris-endorsement/85399668007/)
 
-2025-07-30 Trump signed an executive order implementing an additional 40% tariff on Brazilian products. Several online sources suggested it was a retaliatory measure in response to Bolsonaro’s arrest.
+2025-07-30 Trump imposed an additional 40% tariff on Brazilian imports after the arrest of Jair Bolsonaro. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/07/addressing-threats-to-the-us/](https://www.whitehouse.gov/presidential-actions/2025/07/addressing-threats-to-the-us/)
 
@@ -166,7 +166,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 August
 
-2025-08-05 Trump posted on Truth Social, claiming Washington D.C. was “out of control” and made threats to take federal control of the city after DOGE staffer “Big Balls” Coristine was jumped. 
+2025-08-05 Trump claimed Washington, D.C. was "out of control" and suggested federal intervention after an assault involving DOGE staffer Edward "Big Balls" Coristine. 
 
 [https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
 

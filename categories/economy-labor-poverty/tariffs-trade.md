@@ -61,7 +61,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2025 July
 
-2025-07-30 Trump signed an executive order implementing an additional 40% tariff on Brazilian products. Several online sources suggested it was a retaliatory measure in response to Bolsonaro’s arrest.
+2025-07-30 Trump imposed an additional 40% tariff on Brazilian imports after the arrest of Jair Bolsonaro. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/07/addressing-threats-to-the-us/](https://www.whitehouse.gov/presidential-actions/2025/07/addressing-threats-to-the-us/)
 

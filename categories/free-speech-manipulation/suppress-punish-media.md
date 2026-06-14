@@ -89,7 +89,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.npr.org/2025/07/18/g-s1-78150/unprecedented-rescission-bill-defunds-public-media](https://www.npr.org/2025/07/18/g-s1-78150/unprecedented-rescission-bill-defunds-public-media)
 
-2025-07-18 Trump posted on Truth Social that he was excited about the firing of Stephen Colbert, and he heard that Jimmy Kimmel was next. In the same tweet Trump promoted Greg Gutfeld.
+2025-07-18 Trump celebrated Stephen Colbert's dismissal and suggested Jimmy Kimmel could be next. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114874422468516376](https://truthsocial.com/@realDonaldTrump/posts/114874422468516376)
 

@@ -257,7 +257,7 @@ Remember: rage bait sells. 
 
 ### 2025 July
 
-2025-07-20 Trump posted an AI generated video on social media of Obama being arrested. The video caption read "No One Is Above The Law!".
+2025-07-20 Trump posted an AI-generated video depicting Barack Obama being arrested.
 
 [https://truthsocial.com/@realDonaldTrump/posts/114887992924632896](https://truthsocial.com/@realDonaldTrump/posts/114887992924632896)
 

@@ -78,7 +78,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 August
 
-2025-08-01 Trump fired Bureau of Labor Statistics chief Erika McEntarfer because he didn't like the job market report. He replaced her with William Wiatrowski, then nominated Heritage Foundation economist EJ Antoni.
+2025-08-01 Trump fired Bureau of Labor Statistics Commissioner Erika McEntarfer following an unfavorable jobs report. He named William Wiatrowski as replacement and later nominated Heritage Foundation economist E.J. Antoni. 
 
 [https://www.epi.org/policywatch/firing-bls-commissioner-erika-mcentarfer/](https://www.epi.org/policywatch/firing-bls-commissioner-erika-mcentarfer/)
 
