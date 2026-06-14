@@ -39,7 +39,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)
 
-2025-10-09 In response to the government shutdown, the **FAA terminated $6.7M in infrastructure grants to the Indianapolis International Airport**, stating it did not align with the administration’s priorities.
+2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities. 
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 

@@ -66,11 +66,11 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 October
 
-2025-10-08 Trump claimed during a press conference that one characteristic of “Antifa” was, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
+2025-10-08 Trump claimed that professionally made protest signs were evidence that Antifa protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
 
 {% include youtubePlayer.html id="nDjjFYsCAUE" %}
 
-2025-10-08 During an interview with Newsmax, Senator Roger Marshall claimed that the No Kings protest of October 18th would be a “paid-for protest” by “professional protesters”, stating, “This is where the agitators show up…we’ll have to get the National Guard out. Hopefully it will be peaceful, but I doubt it”. Mike Johnson fanned the flames, calling it the “Hate America Rally”.
+2025-10-08 Senator Roger Marshall claimed the upcoming No Kings protest would be organized by paid agitators and suggested National Guard deployment might be necessary. Speaker Mike Johnson called it a "Hate America Rally.”
 
 {% include youtubePlayer.html id="nDjjFYsCAUE" %}
 

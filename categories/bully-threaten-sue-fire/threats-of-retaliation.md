@@ -258,7 +258,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581](https://www.nbcnews.com/politics/justice-department/justice-department-charges-james-comey-lying-congress-rcna233581)
 
-2025-09-29 Trump posted another threat to New York Governor Hochul via social media to pull funding from New York if Mamdani was elected.
+2025-09-29 Trump again threatened to withhold funding from New York if Zohran Mamdani were elected
 
 [https://truthsocial.com/@realDonaldTrump/posts/115287641147640374](https://truthsocial.com/@realDonaldTrump/posts/115287641147640374)
 
@@ -274,11 +274,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
 
-2025-10-08 Florida State Representative Kevin Steele filed a bill that **threatens state funding to public universities and colleges if they don’t name some of their roads after Charlie Kirk**.
+2025-10-08 Florida Representative Kevin Steele proposed legislation threatening state funding for public colleges unless roads were named after Charlie Kirk. 
 
 [https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/](https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/)
 
-2025-10-09 In response to the government shutdown, the **FAA terminated $6.7M in infrastructure grants to the Indianapolis International Airport**, stating it did not align with the administration’s priorities.
+2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities. 
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 

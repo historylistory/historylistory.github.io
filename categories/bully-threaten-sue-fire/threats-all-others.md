@@ -22,7 +22,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 ### 2025
 
-2025-10-02 Trump posted  an AI generated “reaper” video on Truth Social.
+2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115307915499158903](https://truthsocial.com/@realDonaldTrump/posts/115307915499158903)
 

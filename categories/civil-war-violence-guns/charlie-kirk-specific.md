@@ -362,7 +362,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 October
 
-2025-10-08 Florida State Representative Kevin Steele filed a bill that threatens state funding to public universities and colleges if they don’t name some of their roads after Charlie Kirk.
+2025-10-08 Florida Representative Kevin Steele proposed legislation threatening state funding for public colleges unless roads were named after Charlie Kirk. 
 
 [https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/](https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/)
 

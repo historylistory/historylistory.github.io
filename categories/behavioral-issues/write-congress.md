@@ -233,6 +233,8 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
 
+2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
+
 2025-10-03 Kash Patel minted his own coin.
 
 2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.

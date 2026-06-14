@@ -44,6 +44,11 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 ### 2025 October
 
+2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
+
+[https://truthsocial.com/@realDonaldTrump/posts/115307915499158903](https://truthsocial.com/@realDonaldTrump/posts/115307915499158903)
+
+
 2025-10-14 Eric Trump claimed Donald Trump was “saving God” and religion during a Benny Johnson podcast interview.
 
 [https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god](https://premierchristian.news/us/news/article/eric-trump-backlash-dad-saving-god)
