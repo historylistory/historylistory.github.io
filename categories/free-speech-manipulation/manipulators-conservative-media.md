@@ -42,7 +42,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 2018
 
-2018-02-16 (context) After Lebron James and Kevin Durant publicly expressed their views about the state of the U.S. under Trump's leadership Laura Ingraham of Fox News personally attacked Lebron James, telling him he had no business in the political arena and that he should "shut up and dribble". 
+2018-02-16 After LeBron James and Kevin Durant criticized conditions under Trump's leadership, Fox News host Laura Ingraham told James to "shut up and dribble." 
 
 [https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop](https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop)
 

@@ -8,31 +8,31 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2016
 
-2016-07-06 Trump posted a picture on social media of Hillary Clinton in front of a background full of cash and a Star of David with the words "Most Corrupt Candidate Ever". 
+2016-07-06 Trump posted an image on social media showing Hillary Clinton in front of cash and a Star of David with the caption, “Most Corrupt Candidate Ever.”
 
 [https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161](https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161)
 
 ### 2018
 
-2018-02-16 (context) After Lebron James and Kevin Durant publicly expressed their views about the state of the U.S. under Trump's leadership Laura Ingraham of Fox News personally attacked Lebron James, telling him he had no business in the political arena and that he should "shut up and dribble". 
+2018-02-16 After LeBron James and Kevin Durant criticized conditions under Trump's leadership, Fox News host Laura Ingraham told James to "shut up and dribble." 
 
 [https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop](https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop)
 
-2018-02-18 Trump sent out a post about Oprah Winfrey.
+2018-02-18 Trump posted criticism of Oprah Winfrey. 
 
 [https://abcnews.go.com/GMA/Culture/oprah-winfrey-responds-donald-trumps-tweet-calling-biased/story?id=53274397](https://abcnews.go.com/GMA/Culture/oprah-winfrey-responds-donald-trumps-tweet-calling-biased/story?id=53274397)
 
-2018-10-06 Trump heckled ABC reporters.
+2018-10-06 Trump publicly sparred with ABC reporters. 
 
 {% include youtubePlayer.html id="BwOpjEvWm3s" %}
 
-2018-11-07 Trump heckled ABC reporters.
+2018-11-07 Trump again clashed with ABC reporters. 
 
 {% include youtubePlayer.html id="sClHZtZrL00" %}
 
 ### 2019
 
-2019-02-01 Republicans launched a smear campaign against Pete Buttigieg as an anti-gay campaign.
+2019-02-01 Republicans launched an anti-gay smear campaign against Pete Buttigieg.
 
 [https://kfoxtv.com/news/nation-world/student-says-trump-backers-recruited-him-for-buttigieg-smear](https://kfoxtv.com/news/nation-world/student-says-trump-backers-recruited-him-for-buttigieg-smear)
 
@@ -44,15 +44,15 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2020
 
-2020-03-20 Trump heckled NBC reporters.
+2020-03-20 Trump clashed with NBC reporters.
 
 {% include youtubePlayer.html id="Qw0T9RK0GrA" %}
 
-2020-03-29 Trump heckled PBS reporters.
+2020-03-29 Trump clashed with PBS reporters.
 
 {% include youtubePlayer.html id="1uWT_L58MGc" %}
 
-2020-04-22 Trump heckled CNN reporters.
+2020-04-22 Trump clashed with CNN reporters.
 
 {% include youtubePlayer.html id="UM08ca2IUR4" %}
 

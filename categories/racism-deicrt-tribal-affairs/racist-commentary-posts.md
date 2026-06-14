@@ -64,7 +64,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2016
 
-2016-07-06 Trump posted a picture on social media of Hillary Clinton in front of a background full of cash and a Star of David with the words "Most Corrupt Candidate Ever".  
+2016-07-06 Trump posted an image on social media showing Hillary Clinton in front of cash and a Star of David with the caption, “Most Corrupt Candidate Ever.”
 
 [https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161](https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161)
 

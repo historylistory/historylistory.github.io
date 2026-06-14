@@ -8,7 +8,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 ### 2012
 
-2012-01-01 The Trump Organization filed a lawsuit against the Scottish government for approving the European Offshore Wind Deployment Centre, calling it a “monstrous” blight on the coast. The case was lost in 2015, and Trump was ordered to pay the Scottish government’s legal costs.
+2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. 
 
 [https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641)
 

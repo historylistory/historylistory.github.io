@@ -14,7 +14,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 ### 2019
 
-2019-02-01 Republicans launched a smear campaign against Pete Buttigieg in an anti-gay campaign.
+2019-02-01 Republicans launched an anti-gay smear campaign against Pete Buttigieg.
 
 [https://kfoxtv.com/news/nation-world/student-says-trump-backers-recruited-him-for-buttigieg-smear](https://kfoxtv.com/news/nation-world/student-says-trump-backers-recruited-him-for-buttigieg-smear)
 
