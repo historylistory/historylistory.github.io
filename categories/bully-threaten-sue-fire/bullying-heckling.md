@@ -245,7 +245,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2026 March
 
-2026-03-17 Trump said Newsom shouldn’t be president because he has dyslexia. He stated in the Oval Office, ***“…with a low IQ person, you know, ‘cuz Gavin New-Scum has admitted that he has a – that he has learning disabilities. Honestly, I’m all for people with learning disabilities but not for my President, um, I want…I think a President should not have a learning disability, okay? And, I know it’s highly controversial to say such a horrible thing. The President of the United States, Gavin New-Scum admitted that he has learning disabilities, dyslexia….”***
+2026-03-17 Trump said Newsom shouldn’t be president because he has dyslexia. He stated in the Oval Office, “…with a low IQ person, you know, ‘cuz Gavin New-Scum has admitted that he has a – that he has learning disabilities. Honestly, I’m all for people with learning disabilities but not for my President, um, I want…I think a President should not have a learning disability, okay? And, I know it’s highly controversial to say such a horrible thing. The President of the United States, Gavin New-Scum admitted that he has learning disabilities, dyslexia….”
 
 [https://www.cnn.com/2026/03/16/politics/trump-newsom-learning-disability-dyslexia](https://www.cnn.com/2026/03/16/politics/trump-newsom-learning-disability-dyslexia)
 

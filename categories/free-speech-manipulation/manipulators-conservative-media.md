@@ -243,7 +243,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2026 February
 
-2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
+2026-02-22 Trump threatened Netflix with consequences unless it removed board member Susan Rice. 
 
 [https://www.axios.com/2026/02/23/trump-netflix-susan-rice](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
 

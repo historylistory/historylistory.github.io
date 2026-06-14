@@ -245,7 +245,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.usatoday.com/story/entertainment/tv/2026/02/19/the-view-abc-james-talarico/88758329007/](https://www.usatoday.com/story/entertainment/tv/2026/02/19/the-view-abc-james-talarico/88758329007/)
 
-2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
+2026-02-22 Trump threatened Netflix with consequences unless it removed board member Susan Rice. 
 
 [https://www.axios.com/2026/02/23/trump-netflix-susan-rice](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
 
@@ -261,7 +261,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/](https://www.rollingstone.com/politics/politics-news/hegseth-bars-photographers-pentagon-iran-war-1235528726/)
 
-2026-03-14 Pete Hegseth chastised the media for reporting truths about the war in Iran. He ranted about reading a headline “Mideast War Intensifies” and offered his own edit “Iran Increasingly Desperate”. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN. 
+2026-03-14 Defense Secretary Pete Hegseth criticized media coverage of the Iran conflict and accused reporters of misrepresenting events. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
 
 [https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
 
@@ -279,7 +279,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html](https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html)
 
-2026-03-14 FCC’s Brendan Carr also threatened the media for reporting on the war in Iran. He wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
+2026-03-14 FCC’s Brendan Carr threatened the media and wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
 
 [https://x.com/BrendanCarrFCC/status/2032855414233047172](https://x.com/BrendanCarrFCC/status/2032855414233047172)
 

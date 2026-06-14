@@ -28,7 +28,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 ### 2026 March
 
-2026-03-05 Trump indicated Cuba would be next (following Iran), stating it is “going to fall”.
+2026-03-05 Trump suggested Cuba could become a future target of U.S. pressure, saying it was "going to fall.”
 
 [https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071](https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071)
 

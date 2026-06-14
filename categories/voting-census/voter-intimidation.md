@@ -8,7 +8,7 @@ permalink: /categories/voting-census/voter-intimidation/
 
 ### 2026 March
 
-2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+2026-03-23 Steve Bannon described ICE deployments at airports as a potential "test run" for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
 
 [https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
 

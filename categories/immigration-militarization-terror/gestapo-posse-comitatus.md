@@ -357,7 +357,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
 
-2026-03-21 Trump threatened to deploy ICE agents to airports during the shutdown, even posting ““…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
 [https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
 
@@ -369,7 +369,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
-2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+2026-03-23 Steve Bannon described ICE deployments at airports as a potential "test run" for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
 
 [https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
 

@@ -561,7 +561,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 [https://www.youtube.com/watch?v=CeqQ8DBCYmk&list=WL&index=6&t=4s](https://www.youtube.com/watch?v=CeqQ8DBCYmk&list=WL&index=6&t=4s)
 
-2026-03-06 In a social media post, Trump demanded “UNCONDITIONAL SURRENDER” from Iran.
+2026-03-06 Trump demanded Iran's "UNCONDITIONAL SURRENDER" in a social media post
 
 [https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks](https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks)
 
@@ -783,7 +783,7 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 ### 2026 March Week #3
 
-2026-03-14 Pete Hegseth chastised the media for reporting truths about the war in Iran. He ranted about reading a headline “Mideast War Intensifies” and offered his own edit “Iran Increasingly Desperate”. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
+2026-03-14 Defense Secretary Pete Hegseth criticized media coverage of the Iran conflict and accused reporters of misrepresenting events. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
 
 [https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
 
@@ -801,7 +801,7 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 [https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html](https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html)
 
-2026-03-14 FCC’s Brendan Carr also threatened the media for reporting on the war in Iran. He wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
+2026-03-14 FCC’s Brendan Carr threatened the media and wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
 
 [https://x.com/BrendanCarrFCC/status/2032855414233047172](https://x.com/BrendanCarrFCC/status/2032855414233047172)
 

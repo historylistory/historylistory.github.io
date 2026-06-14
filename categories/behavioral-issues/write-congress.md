@@ -438,7 +438,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
-2026-03-21 Trump threatened to deploy ICE agents to airports during the shutdown, even posting ““…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
 2026-03-22 During a Meet the Press interview, Scott Bessent was asked about the post from Trump responding to the death of Robert Mueller by saying he was glad Mueller was dead. The interviewer of Meet the Press asked, “Do you think it’s appropriate for the President of the United States to celebrate the death of an American citizen, someone who’s a bronze star, Purple Heart recipient, who’s served in Vietnam?” Bessent answered, “Kristin, I was with the President in the green room at Davos and there was a video playing of what may have been an illegal raid on his home at Mar-a-Lago – they’re going through his wife’s wardrobe…and I watched the look in his eye, and I think that neither one of us can understand what has been done to the President and to his family”.
 

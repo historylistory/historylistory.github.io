@@ -94,7 +94,7 @@ It is also important to note – for context – that the Heritage Foundation Pr
 
 ### 2026 March
 
-2026-03-21 Trump threatened to deploy ICE agents to airports during the shutdown, even posting ““…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
 [https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
 

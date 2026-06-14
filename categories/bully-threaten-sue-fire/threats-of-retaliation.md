@@ -471,7 +471,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2026 February
 
-2026-02-22 Trump threatened Netflix, telling them to fire board member Susan Rice. He told Netflix they would “pay the consequences” if they didn’t “immediately” fire the former UN ambassador under the Obama administration. This threat came after Netflix tried to acquire Warner Brother Discovery but was outbid by Paramount.
+2026-02-22 Trump threatened Netflix with consequences unless it removed board member Susan Rice. 
 
 [https://www.axios.com/2026/02/23/trump-netflix-susan-rice](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
 
@@ -491,7 +491,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8](https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8)
 
-2026-03-06 In a social media post, Trump demanded “UNCONDITIONAL SURRENDER” from Iran.
+2026-03-06 Trump demanded Iran's "UNCONDITIONAL SURRENDER" in a social media post
 
 [https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks](https://www.aljazeera.com/news/liveblog/2026/3/6/iran-live-trump-says-iran-being-demolished-tehran-keeps-up-gulf-attacks)
 
@@ -513,7 +513,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting](https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting)
 
-2026-03-14 Pete Hegseth chastised the media for reporting truths about the war in Iran. He ranted about reading a headline “Mideast War Intensifies” and offered his own edit “Iran Increasingly Desperate”. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN. 
+2026-03-14 Defense Secretary Pete Hegseth criticized media coverage of the Iran conflict and accused reporters of misrepresenting events. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
 
 [https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage](https://newrepublic.com/article/207760/pete-hegseth-iran-war-patriotic-media-coverage)
 
@@ -531,7 +531,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html](https://www.the-independent.com/news/world/americas/us-politics/fox-news-headline-pete-hegseth-media-b2939663.html)
 
-2026-03-14 FCC’s Brendan Carr also threatened the media for reporting on the war in Iran. He wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
+2026-03-14 FCC’s Brendan Carr threatened the media and wrote on X, “Broadcasters are running hoaxes and news distortions – also known as the fake news – have a chance now to correct course before their license renewals come up. The law is clear. Broadcasters must operate in the public interest, and they will lose their licenses if they do not. And frankly, changing course is in their own business interests since trust in legacy media has now fallen to an all time low of just 9% and are ratings disasters. The American people have subsidized broadcasters to the tune of billions of dollars by providing free access to the nation’s airwaves. It is very important to bring trust back into media, which has earned itself the label of fake news. When a political candidate is able to win a landslide election victory after in the face of hoaxes and distortions, there is something very wrong. It means the public has lost faith and confidence in the media. And we can’t allow that to happen. Time for change!”
 
 [https://x.com/BrendanCarrFCC/status/2032855414233047172](https://x.com/BrendanCarrFCC/status/2032855414233047172)
 
@@ -543,7 +543,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/](https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/)
 
-2026-03-16 Cuba faced an energy crisis and blackouts due to the U.S. blocking energy shipments. Trump said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. Trump also threatened to continue blocking energy shipments in Cuba unless Miguel Diaz Canal stepped down. 
+2026-03-16 Trump said he intended to "take" Cuba and threatened continued energy restrictions unless Cuban leadership changed. He said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. 
 
 [https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447](https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447)
 
@@ -565,7 +565,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.youtube.com/watch?v=mIkrpjKnspw](https://www.youtube.com/watch?v=mIkrpjKnspw)
 {% include youtubePlayer.html id="mIkrpjKnspw" %}
 
-2026-03-21 Trump threatened to deploy ICE agents to airports during the shutdown, even posting ““…ICE agents to the Airports where they will do Security like no one has ever seen before, including the immediate arrest of all illegal Immigrants who have come into our Country, with heavy emphasis on those from Somalia…”. The Washington Post in their article wrote, “Border czar Tom Homan said ICE agents will be at airports to help TSA agents…”.
+2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
 [https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
 
@@ -577,7 +577,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
-2026-03-23 During a War Room podcast, Steve Bannon said having ICE at airports was a “perfect test-run” for the midterms”, meaning, to have ICE agents present at polling places. An article quoted him as saying, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”. 
+2026-03-23 Steve Bannon described ICE deployments at airports as a potential "test run" for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
 
 [https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/](https://www.democracydocket.com/news-alerts/bannon-trump-ice-airport-deployment-test-run-2026-midterm-elections/)
 

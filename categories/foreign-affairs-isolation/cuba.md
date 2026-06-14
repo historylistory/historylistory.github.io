@@ -132,13 +132,13 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 ### 2026 March
 
-2026-03-05 Trump indicated Cuba would be next (following Iran), stating it is “going to fall”.
+2026-03-05 Trump suggested Cuba could become a future target of U.S. pressure, saying it was "going to fall.”
 
 [https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071](https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071)
 
 [https://www.pbs.org/newshour/politics/watch-trump-suggests-u-s-and-cuba-will-soon-make-a-deal-after-rubio-is-finished-with-iran](https://www.pbs.org/newshour/politics/watch-trump-suggests-u-s-and-cuba-will-soon-make-a-deal-after-rubio-is-finished-with-iran)
 
-2026-03-16 Cuba faced an energy crisis and blackouts due to the U.S. blocking energy shipments. Trump said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. Trump also threatened to continue blocking energy shipments in Cuba unless Miguel Diaz Canal stepped down. 
+2026-03-16 Trump said he intended to "take" Cuba and threatened continued energy restrictions unless Cuban leadership changed. He said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. 
 
 [https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447](https://abcnews.com/Politics/trump-sayshellhave-honor-taking-cuba-country-struggles-withenergycrisis/story?id=131141447)
 
