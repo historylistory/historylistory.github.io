@@ -170,7 +170,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
-2026-03-26 Trump posted on social media he planned to sign an emergency Executive Order to get TSA agents paid during the second government shutdown. This came after Democrats made multiple attempts to pass a bill asking for the same thing and Trump initially responded by sending ICE agents to the airports where they did not offer help and instead stood around playing on their phones. Keeping in mind, ICE agents not wearing masks or body cameras was why we had the shutdown in the first place, and the GOP refused to allow those guardrails while they continued to fund agents during the shutdown.
+2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
 
 [https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)
 

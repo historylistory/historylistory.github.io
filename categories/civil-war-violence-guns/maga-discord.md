@@ -251,7 +251,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
 
-2026-03-27 The GOP divides over agricultural issues. District 24 Idaho Senator Glenneda Zuiderveld reported a group of dairies targeted her husband over her immigration policies. Representative Stephanie Mickelson said she was also targeted for her views on protecting farm workers.
+2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions. 
 
 [https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3](https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3)
 
@@ -279,7 +279,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.cbsnews.com/news/trump-tariffs-canada-senate-democrats/](https://www.cbsnews.com/news/trump-tariffs-canada-senate-democrats/)
 
-2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. Republicans like Joni Ernst, Lisa Murkowski, Mike Rounds and Roger Wicker expressed disagreement over the firing and/or lack of trust in Hegseth’s judgment.
+2026-04-02 Pete Hegseth fired Army Chief of Staff General Randy George, drawing criticism from several Republican senators
 
 [https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
 

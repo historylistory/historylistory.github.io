@@ -106,7 +106,7 @@ permalink: /categories/military-veterans/other/
 
 ### 2026 April
 
-2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. Republicans like Joni Ernst, Lisa Murkowski, Mike Rounds and Roger Wicker expressed disagreement over the firing and/or lack of trust in Hegseth’s judgment.
+2026-04-02 Pete Hegseth fired Army Chief of Staff General Randy George, drawing criticism from several Republican senators
 
 [https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
 

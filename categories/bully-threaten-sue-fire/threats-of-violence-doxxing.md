@@ -200,7 +200,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
 
-2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
+2026-03-30 Trump threatened strikes against Iranian desalination facilities, power plants, and oil infrastructure. Bombing civilian power and infrastructure is a war crime. 
 
 [https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
 

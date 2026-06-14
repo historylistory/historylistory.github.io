@@ -94,6 +94,22 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 ### 2025 April
 
+2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
+
+[https://www.bbc.com/news/videos/ce8l27p3jr8o](https://www.bbc.com/news/videos/ce8l27p3jr8o)
+
+[https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/](https://www.scotusblog.com/2026/04/supreme-court-appears-likely-to-side-against-trump-on-birthright-citizenship/)
+
+[https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump](https://www.cnn.com/2026/04/01/politics/live-news/supreme-court-birthright-trump)
+
+[https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing](https://www.axios.com/2026/04/01/trump-supreme-court-birthright-citizenship-hearing)
+
+[https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration](https://www.pbs.org/newshour/show/trumps-supreme-court-attendance-highlights-his-focus-on-immigration)
+
+[https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case](https://www.foxnews.com/politics/trump-makes-historic-scotus-appearance-birthright-citizenship-case)
+
+[https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
+
 2025-04-03 Tufts University confirmed that a second student's visa was terminated without notification.
 
 [https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government](https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government)

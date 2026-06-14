@@ -266,7 +266,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 ### 2026 April
 
-2026-04-02 Hegseth ousted Army Chief of Staff General Randy George. The department did not give a reason. Republicans like Joni Ernst, Lisa Murkowski, Mike Rounds and Roger Wicker expressed disagreement over the firing and/or lack of trust in Hegseth’s judgment.
+2026-04-02 Pete Hegseth fired Army Chief of Staff General Randy George, drawing criticism from several Republican senators
 
 [https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
 
@@ -284,7 +284,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.youtube.com/watch?v=zBAlkIrzUh4](https://www.youtube.com/watch?v=zBAlkIrzUh4)
 
-2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+2026-04-02 Hegseth fired Army Chief of Chaplains Major General William Green. 
 
 [https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
 

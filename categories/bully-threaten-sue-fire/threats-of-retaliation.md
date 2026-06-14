@@ -588,7 +588,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
 
 
-2026-03-26 Trump posted on social media he planned to sign an emergency Executive Order to get TSA agents paid during the second government shutdown. This came after Democrats made multiple attempts to pass a bill asking for the same thing and Trump initially responded by sending ICE agents to the airports where they did not offer help and instead stood around playing on their phones. Keeping in mind, ICE agents not wearing masks or body cameras was why we had the shutdown in the first place, and the GOP refused to allow those guardrails while they continued to fund agents during the shutdown.
+2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
 
 [https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)
 
@@ -611,7 +611,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t](https://www.euronews.com/next/2026/03/27/judge-rejects-trump-administrations-orwellian-branding-of-anthropic-as-national-security-t)
 
 
-2026-03-27 The GOP divides over agricultural issues. District 24 Idaho Senator Glenneda Zuiderveld reported a group of dairies targeted her husband over her immigration policies. Representative Stephanie Mickelson said she was also targeted for her views on protecting farm workers.
+2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions. 
 
 [https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3](https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3)
 
@@ -620,7 +620,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html](https://www.idahostatesman.com/news/politics-government/state-politics/article315355006.html)
 
 
-2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran. **Bombing civilian power and infrastructure is a war crime.** When pressed about this during a press brief, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” at which point the journalist reiterated ‘war crime’ concerns. Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”. 
+2026-03-30 Trump threatened strikes against Iranian desalination facilities, power plants, and oil infrastructure. Bombing civilian power and infrastructure is a war crime. 
 
 [https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
 

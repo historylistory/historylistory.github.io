@@ -152,7 +152,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
 
-2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+2026-04-02 Hegseth fired Army Chief of Chaplains Major General William Green. 
 
 [https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
 

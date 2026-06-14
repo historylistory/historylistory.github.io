@@ -211,7 +211,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.youtube.com/shorts/9lmpBqaiGtI](https://www.youtube.com/shorts/9lmpBqaiGtI)
 
 
-2026-04-02 Along with several other top-ranking officials fired, Pete Hegseth fired Army Chief of Chaplains Major General William Green.
+2026-04-02 Hegseth fired Army Chief of Chaplains Major General William Green. 
 
 [https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/](https://baptistnews.com/article/for-first-time-ever-army-chief-of-chaplains-fired-by-hegseth/)
 

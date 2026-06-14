@@ -23,7 +23,7 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.state.gov/releases/office-of-the-spokesperson/2026/03/the-united-states-to-host-the-shield-of-the-americas-summit](https://www.state.gov/releases/office-of-the-spokesperson/2026/03/the-united-states-to-host-the-shield-of-the-americas-summit)
 
-2026-03-27 The GOP divides over agricultural issues. District 24 Idaho Senator Glenneda Zuiderveld reported a group of dairies targeted her husband over her immigration policies. Representative Stephanie Mickelson said she was also targeted for her views on protecting farm workers.
+2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions. 
 
 [https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3](https://www.youtube.com/watch?v=IbP5n27UWYE&list=WL&index=3)
 

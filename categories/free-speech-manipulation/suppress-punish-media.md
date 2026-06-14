@@ -297,7 +297,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2026 April
 
-2026-04-06 Trump threatened to imprison any journalists who reported the downed-fighter jet search and rescue story.
+2026-04-06 Trump threatened imprisonment against any journalists covering a downed-fighter-jet rescue operation. 
 
 [https://www.nbcnews.com/politics/donald-trump/trump-iran-press-conference-jail-journalist-fighter-jet-pilot-rcna266958](https://www.nbcnews.com/politics/donald-trump/trump-iran-press-conference-jail-journalist-fighter-jet-pilot-rcna266958)
 
