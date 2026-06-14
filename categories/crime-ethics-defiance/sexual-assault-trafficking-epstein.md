@@ -410,7 +410,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
 
-2026-04-28 Prosecutor Maurene Comey was fired by the Trump administration in July 2025. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. Her lawsuit claiming she was wrongfully fired proceeded in April 2026.
+2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after her 2025 dismissal from the Justice Department. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. 
 
 [https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
 
@@ -438,7 +438,7 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note](https://www.theguardian.com/us-news/2026/may/06/jeffrey-epstein-alleged-suicide-note)
 
-2026-05-16 Thomas Massie (who voted to release the Epstein files) was projected to lose in the Kentucky primaries. 
+2026-05-16 Representative Thomas Massie, who supported release of the Epstein files, was projected to lose his Kentucky primary. 
 
 [https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/](https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/)
 
@@ -446,7 +446,7 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410](https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410)
 
-2026-05-19 Trump said Massie was the “worst congressman in the history of our country”. After Massie – who fought to get the Epstein files released – lost in Kentucky to Trump’s pick Ed Gallrein, White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”.  
+2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/](https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/)
 

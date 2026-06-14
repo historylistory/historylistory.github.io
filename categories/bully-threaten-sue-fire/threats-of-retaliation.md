@@ -675,7 +675,7 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/news/articles/cz78x703lrvo)
 
 
-2026-04-27 Trump and Melania separately made social media posts demanding the firing of Jimmy Kimmel. Then the FCC got involved and investigated Kimmel.
+2026-04-27 Trump and Melania Trump made separate social media posts demanding Jimmy Kimmel's dismissal, after which the FCC opened an investigation. 
 
 [https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html](https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html)
 
@@ -689,7 +689,7 @@ PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/ne
 
 [https://truthsocial.com/@realDonaldTrump/posts/116477838570626860](https://truthsocial.com/@realDonaldTrump/posts/116477838570626860)
 
-2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. Remember, this is a Trump retribution campaign, and Comey is on a long list of political enemies, particularly those who have prosecuted Trump on his multiple civil and federal cases. Trump had Comey indicted in 2025 for allegedly “making false statements”. A judge threw out the frivolous case in 2025, so the Trump administration is back at it. 
+2026-04-28 Former FBI Director James Comey was indicted again over a 2025 social-media post after an earlier case had been dismissed. 
 
 [https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
 
@@ -713,7 +713,7 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-14 JD Vance announced Trump would withhold $1.3B in Medicaid reimbursement from California and cited other Democrat-led states like New York and Hawaii. Senator Alex Padilla cited “political retribution”.
+2026-05-14 JD Vance announced the administration would withhold $1.3 billion in Medicaid reimbursements from California and other Democratic-led states like New York and Hawaii. Senator Alex Padilla cited “political retribution”.
 
 [https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2](https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2)
 
@@ -721,7 +721,7 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 
 [https://www.commondreams.org/news/california-home-health](https://www.commondreams.org/news/california-home-health)
 
-2026-05-16 Trump reportedly dropped his $10B lawsuit against the IRS in exchange for a taxpayer-funded $1.7B anti-weaponization fund (slush fund) to compensate allies of Trump who claimed they were targeted under the Biden administration. Recipients could include anyone charged in the J6 insurrection. . 
+2026-05-16 Trump reportedly dropped his $10 billion IRS lawsuit in exchange for creation of a taxpayer-funded $1.7 billion anti-weaponization compensation fund to pay off J6 insurrectionists. 
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
 

@@ -343,7 +343,7 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 
 ### 2026 May
 
-2026-05-07 Marco Rubio visited the Vatican for a private media with Pope Leo after the Trump administration’s repeated attack at the Pope for not supporting war. 
+2026-05-07 Marco Rubio met privately with Pope Leo XIV at the Vatican after months of public disagreements between the administration and the Pope
 
 [https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
 
@@ -353,7 +353,7 @@ SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-man
 
 [https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566](https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566)
 
-2026-05-19 Trump said Massie was the “worst congressman in the history of our country”. After Massie – who fought to get the Epstein files released – lost in Kentucky to Trump’s pick Ed Gallrein, White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”.  
+2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/](https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/)
 

@@ -46,7 +46,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 ### 2026 May
 
-2026-05-16 Bill Cassidy (who voted to convict Trump for J6) lost the primary in Louisiana.
+2026-05-16 Senator Bill Cassidy, who voted to convict Trump after January 6, lost his Louisiana primary. 
 
 [https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump](https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump)
 

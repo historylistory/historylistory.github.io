@@ -66,7 +66,7 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 
 [https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)
 
-2026-05-14 JD Vance announced Trump would withhold $1.3B in Medicaid reimbursement from California and cited other Democrat-led states like New York and Hawaii. Senator Alex Padilla cited “political retribution”.
+2026-05-14 JD Vance announced the administration would withhold $1.3 billion in Medicaid reimbursements from California and other Democratic-led states like New York and Hawaii. Senator Alex Padilla cited “political retribution”.
 
 [https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2](https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2)
 

@@ -407,6 +407,16 @@ what women who are paid to do things are called”.
 
 PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
 
+2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
+
+[https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
+
+[https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b](https://apnews.com/article/trump-surgeon-general-means-saphier-cebadfb452fb577b6cd5254e2e55d86b)
+
+SUB WALL [https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206](https://www.politico.com/news/2026/04/30/casey-means-murkowski-surgeon-general-rfk-maha-00902206)
+
+PAY WALL [https://www.bbc.com/news/articles/cr5p4pp1407o](https://www.bbc.com/news/articles/cr5p4pp1407o)
+
 ### 2026 May
 
 2026-05-01 MAHA leaders opposed Trump’s Surgeon General nominee switch from Casey Means to Nicole Saphier.
@@ -440,6 +450,39 @@ AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makar
 [https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765](https://www.nbcnews.com/health/health-news/dr-marty-makary-fda-commissioner-rcna344765)
 
 SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)
+
+2026-05-16 Senator Bill Cassidy, who voted to convict Trump after January 6, lost his Louisiana primary. 
+
+[https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump](https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump)
+
+[https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump](https://www.cnn.com/2026/05/17/politics/takeaways-louisiana-senate-primary-bill-cassidy-donald-trump)
+
+[https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)
+
+2026-05-16 Representative Thomas Massie, who supported release of the Epstein files, was projected to lose his Kentucky primary. 
+
+[https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/](https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/)
+
+[https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823](https://www.newsweek.com/thomas-massies-chances-of-winning-primary-plunge-on-eve-of-election-day-11961823)
+
+[https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410](https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410)
+
+2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
+
+[https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/](https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/)
+
+[https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary](https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary)
+
+[https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary](https://www.theguardian.com/us-news/2026/may/17/trump-thomas-massie-primary)
+
+[https://x.com/StevenCheung47/status/2056886701591613762](https://x.com/StevenCheung47/status/2056886701591613762)
+
+[https://ca.news.yahoo.com/donald-trump-comms-chief-triggers-071454849.html](https://ca.news.yahoo.com/donald-trump-comms-chief-triggers-071454849.html)
+
+[https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3](https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3)
+
+SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)
+
 
 2026-05-21 In response to Trump’s J6 slush fund, Senate Majority Leader John Thune of South Dakota said, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”. 
 

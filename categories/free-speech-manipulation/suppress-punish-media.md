@@ -352,7 +352,7 @@ SUB WALL [https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-d
 
 SUB WALL [https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it](https://www.politico.com/news/2026/04/26/trump-odonnell-60-minutes-manifesto-00892550?utm_medium=bluesky&utm_source=dlvr.it)
 
-2026-04-27 Trump and Melania separately made social media posts demanding the firing of Jimmy Kimmel. Then the FCC got involved and investigated Kimmel.
+2026-04-27 Trump and Melania Trump made separate social media posts demanding Jimmy Kimmel's dismissal, after which the FCC opened an investigation. 
 
 [https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html](https://www.nytimes.com/2026/04/27/us/politics/trump-jimmy-kimmel-abc-widow-joke.html)
 

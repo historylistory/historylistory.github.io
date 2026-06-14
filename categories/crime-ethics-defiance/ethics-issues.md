@@ -492,7 +492,7 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html](https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html)
 
-2026-05-19 As part of Trump’s IRS settlement, the DOJ agreed to drop any pending tax claims against Trump and his family, barring any investigations. 
+2026-05-19 As part of the IRS settlement, the Justice Department agreed to drop pending tax claims involving Trump and his family.
 
 [https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
 

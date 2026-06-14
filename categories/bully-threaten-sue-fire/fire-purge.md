@@ -328,7 +328,7 @@ SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bit
 
 UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
 
-2026-04-28 Former FBI Director and longtime enemy of Trump James Comey was indicted again, this time over a 2025 social media post where the Trump administration claims there was intent to incite violence. Remember, this is a Trump retribution campaign, and Comey is on a long list of political enemies, particularly those who have prosecuted Trump on his multiple civil and federal cases. Trump had Comey indicted in 2025 for allegedly “making false statements”. A judge threw out the frivolous case in 2025, so the Trump administration is back at it. 
+2026-04-28 Former FBI Director James Comey was indicted again over a 2025 social-media post after an earlier case had been dismissed. 
 
 [https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
 
@@ -338,7 +338,7 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 
 PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)
 
-2026-04-28 Prosecutor Maurene Comey was fired by the Trump administration in July 2025. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. Her lawsuit claiming she was wrongfully fired proceeded in April 2026.
+2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
 
 [https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
 
@@ -368,7 +368,7 @@ SUB WALL [https://www.theatlantic.com/health/2026/04/surgeon-general-casey-means
 
 SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761](https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-general-nicole-saphier-00903761)
 
-2026-05-01 Republican Governor Jeff Landry signed legislation to prevent criminal court clerk Calvin Duncan from taking office. Duncan was released from prison after being exonerated in 2021 for a crime he did not commit but still had to serve a 28-year sentence. He went on to achieve his law degree at age 60. The GOP governor signed legislation to abolish his position before he could take office. Governor Landry also cancelled upcoming primary elections. 
+2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 
 [https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
 
@@ -386,7 +386,7 @@ AUDIO [https://www.npr.org/2026/05/13/nx-s1-5819861/fda-commissioner-marty-makar
 
 SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack](https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house-00916014?utm_medium=email&utm_source=substack)
 
-2026-05-16 Bill Cassidy (who voted to convict Trump for J6) lost the primary in Louisiana.
+2026-05-16 Senator Bill Cassidy, who voted to convict Trump after January 6, lost his Louisiana primary. 
 
 [https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump](https://www.npr.org/2026/05/16/nx-s1-5824533/bill-cassidy-lost-louisiana-primary-letlow-trump)
 
@@ -394,7 +394,7 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 
 [https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)
 
-2026-05-16 Thomas Massie (who voted to release the Epstein files) was projected to lose in the Kentucky primaries. 
+2026-05-16 Representative Thomas Massie, who supported release of the Epstein files, was projected to lose his Kentucky primary. 
 
 [https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/](https://thehill.com/homenews/campaign/5880962-massie-trump-kentucky-primary/)
 
@@ -402,7 +402,7 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 
 [https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410](https://www.politico.com/news/2026/05/17/thomas-massie-kentucky-primary-trump-00925410)
 
-2026-05-19 Trump said Massie was the “worst congressman in the history of our country”. After Massie – who fought to get the Epstein files released – lost in Kentucky to Trump’s pick Ed Gallrein, White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”.  
+2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
 
 [https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/](https://www.usatoday.com/story/news/politics/elections/2026/05/19/trump-maga-gop-purge-thomas-massie-takeaways/90166903007/)
 

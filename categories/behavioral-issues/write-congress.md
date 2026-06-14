@@ -574,6 +574,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-07 An Arizona judge ordered the expedited deportation of the parents of 18-year-old Kimma Gonzalez who has terminal stage-4 colon cancer and had been pleading for months to be reunited with their parents. The parents have been held in ICE custody since mid-April.
 
+2026-05-07 Border czar Tom Homan responded to New York's proposed ban on masked ICE agents by promising expanded immigration enforcement operations in the state. During a border security expo in Arizona he said, “So what’s going to happen to places like New York and these other people that want to pass this ridiculous legislation not to work with us? We’re going to flood the zone. You’re going to see more ICE agents you ever seen before. So congratulations, because when we send these teams out there, we’ll find a bad guy. Most times we do. And when we find a bad guy, he’s with others. Others who may not be a priority target, but they’re in the country illegally. They weren’t people we’re looking for,. But we found them during these operations. Well guess what? They’re coming too”.
+
 2026-05-09 MAGA supporters filed complaints against Bad Bunny’s halftime show.
 
 2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote on social media, “….Let me be clear: this is not a golden calf…”.

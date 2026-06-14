@@ -195,6 +195,6 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 ### 2026 May
 
-2026-05-07 Marco Rubio visited the Vatican for a private media with Pope Leo after the Trump administration’s repeated attack at the Pope for not supporting war. 
+2026-05-07 Marco Rubio met privately with Pope Leo XIV at the Vatican after months of public disagreements between the administration and the Pope
 
 [https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)

@@ -257,7 +257,7 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 ### 2026 May
 
-2026-05-01 Republican Governor Jeff Landry signed legislation to prevent criminal court clerk Calvin Duncan from taking office. Duncan was released from prison after being exonerated in 2021 for a crime he did not commit but still had to serve a 28-year sentence. He went on to achieve his law degree at age 60. The GOP governor signed legislation to abolish his position before he could take office. Governor Landry also cancelled upcoming primary elections. 
+2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 
 [https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree](https://www.theguardian.com/us-news/2026/may/04/louisiana-republicans-eliminate-office-democratic-exoneree)
 

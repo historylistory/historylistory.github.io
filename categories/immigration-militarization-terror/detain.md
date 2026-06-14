@@ -201,3 +201,9 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.commondreams.org/news/dhs-ombudsman-closed](https://www.commondreams.org/news/dhs-ombudsman-closed)
 
 [https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)
+
+2026-05-07 Border czar Tom Homan responded to New York's proposed ban on masked ICE agents by promising expanded immigration enforcement operations in the state. During a border security expo in Arizona he said, “So what’s going to happen to places like New York and these other people that want to pass this ridiculous legislation not to work with us? We’re going to flood the zone. You’re going to see more ICE agents you ever seen before. So congratulations, because when we send these teams out there, we’ll find a bad guy. Most times we do. And when we find a bad guy, he’s with others. Others who may not be a priority target, but they’re in the country illegally. They weren’t people we’re looking for,. But we found them during these operations. Well guess what? They’re coming too”.
+
+[https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/](https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/)
+
+[https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches](https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches)

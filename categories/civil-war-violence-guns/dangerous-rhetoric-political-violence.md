@@ -406,7 +406,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 ### 2026 May
 
-2026-05-01 During a speech to supporters in Florida Trump accused the left of “treason” for saying we aren’t winning in Iran.
+2026-05-01 During a speech in Florida, Trump accused political opponents of treason for saying the United States was not winning in Iran. 
 
 [https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)
 

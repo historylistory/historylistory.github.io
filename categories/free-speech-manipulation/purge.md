@@ -161,7 +161,7 @@ permalink: /categories/free-speech-manipulation/purge/
 [https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag](https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag)
 
 ### 2026 April
-2026-04-30 (for context because Trump likes to backfill important positions with propagandists from Fox media) Trump pulled Casey Means’ nomination for Surgeon General and replaced her with a Fox news contributor.
+2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
 
 [https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
 
