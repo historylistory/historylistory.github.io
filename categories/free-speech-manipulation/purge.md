@@ -44,13 +44,13 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 May
 
-2025-05-08 Trump fired FEMA Acting Administrator Cameron Hamilton one day after he testified against dismantling the agency.
-
+2025-05-08 Cameron Hamilton was fired from FEMA just one day after he told lawmakers the agency should not be dismantled.
 [https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907](https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907)
 
 [https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton](https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton)
 
 {% include youtubePlayer.html id="LV-8b-gpJgg" %}
+
 
 2025-05-08 Trump had Librarian of Congress Carla Hayden fired on the 9th of her 10-year term as part of his DEI initiative. Carla Hayden received her termination by email from a low-level employee.
 
@@ -84,7 +84,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 [https://www.cnn.com/2025/09/16/economy/former-bls-commissioner-mcentarfer-speaks](https://www.cnn.com/2025/09/16/economy/former-bls-commissioner-mcentarfer-speaks)
 
-2025-08-07 Brian Driscoll, Stephen Jensen and Spencer Evans were fired from the FBI by Kash Patel for no known reason.
+2025-08-07 FBI officials Brian Driscoll, Stephen Jensen, and Spencer Evans were dismissed by Kash Patel without a publicly stated reason. 
 
 {% include youtubePlayer.html id="iL32wQL9KQc" %}
 
@@ -96,19 +96,17 @@ permalink: /categories/free-speech-manipulation/purge/
 
 [https://en.wikipedia.org/wiki/Lisa_Cook](https://en.wikipedia.org/wiki/Lisa_Cook)
 
-2025-08-27 RFK fired Susan Monarez from the CDC after she refused to "rubber-stamp unscientific, reckless directives".
+2025-08-27 RFK fired Susan Monarez from the CDC after she refused to “rubber-stamp unscientific, reckless directives”. RFK appointed biotechnology investor Jim O’Neill to head the CDC. According to AI overview, O’Neill is a long-time advocate of deregulation and support for unproven therapies.
 
 [https://www.environmentalprotectionnetwork.org/20250828_cdc-firing_release/](https://www.environmentalprotectionnetwork.org/20250828_cdc-firing_release/)
 
 [https://x.com/HHSGov/status/1960818490614415869](https://x.com/HHSGov/status/1960818490614415869)
 
-2025-08-28 RFK appointed biotechnology **investor** Jim O'Neill to head the CDC. According to AI overview, **O'Neill is a long-time advocate of deregulation** and support for unproven therapies.
-
 [https://www.nbcwashington.com/news/national-international/trump-administration-russia-ukraine-attack-cdc-director-fired-august-28-2025-live-updates/3981207/](https://www.nbcwashington.com/news/national-international/trump-administration-russia-ukraine-attack-cdc-director-fired-august-28-2025-live-updates/3981207/)
 
 ### 2025 September
 
-2025-09-04 During a confirmation hearing, Senator Elizabeth Warren grilled RFK about his rationale for firing Susan Monarez from the CDC. RFK stated Susan Monarez was not "trustworthy".
+2025-09-04 During a Senate hearing, RFK Jr. said Susan Monarez was removed because he considered her untrustworthy.
 
 [https://www.facebook.com/watch/?v=1308517864182421](https://www.facebook.com/watch/?v=1308517864182421)
 

@@ -131,7 +131,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.police1.com/arrests-sentencing/salvation-army-security-guard-arrested-for-impersonating-officer-at-fire-scene](https://www.police1.com/arrests-sentencing/salvation-army-security-guard-arrested-for-impersonating-officer-at-fire-scene)
 
-2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115158096026629509](https://truthsocial.com/@realDonaldTrump/posts/115158096026629509)
 

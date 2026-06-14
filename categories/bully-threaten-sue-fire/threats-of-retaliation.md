@@ -172,7 +172,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114977985620971126](https://truthsocial.com/@realDonaldTrump/posts/114977985620971126)
 
-2025-08-24 **After a verbal dispute** with Governor Wes Moore of Maryland, Trump said he wanted to "**rethink**" **federal funding** for the Francis Scott Key bridge. Following Governor Wes Moore 's invitation to show Trump Baltimore's low crime rates, Trump sent out a message on social media, accusing Moore of fudging his figures.
+2025-08-24 After a dispute with Maryland Governor Wes Moore, Trump suggested reconsidering federal funding for the Francis Scott Key Bridge and later accused Moore of manipulating crime statistics. 
 
 [https://thehill.com/homenews/administration/5467900-trump-criticizes-maryland-governor/](https://thehill.com/homenews/administration/5467900-trump-criticizes-maryland-governor/)
 
@@ -186,7 +186,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.pbs.org/video/trump-threatens-to-pull-funding-from-states-that-eliminated-cash-bail-yrl6id/](https://www.pbs.org/video/trump-threatens-to-pull-funding-from-states-that-eliminated-cash-bail-yrl6id/)
 
-2025-08-25 DHS detained Kilmar Abrego Garcia. They gave him an ultimatum: **plead guilty and we will deport you to Costa Rica. Don’t plead guilty and we will deport you to Uganda**.
+2025-08-25 DHS detained Kilmar Abrego Garcia and reportedly offered the ultimatum deportation to Costa Rica if he pleaded guilty or Uganda if he refused. 
 
 [https://tennesseelookout.com/2025/08/23/government-offered-costa-rica-deal-to-kilmar-abrego-garcia-now-plans-to-send-him-to-uganda/](https://tennesseelookout.com/2025/08/23/government-offered-costa-rica-deal-to-kilmar-abrego-garcia-now-plans-to-send-him-to-uganda/)
 

@@ -212,7 +212,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/](https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/)
 
-2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115158096026629509](https://truthsocial.com/@realDonaldTrump/posts/115158096026629509)
 

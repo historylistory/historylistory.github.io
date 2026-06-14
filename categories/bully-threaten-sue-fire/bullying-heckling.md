@@ -184,13 +184,13 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://www.aol.com/entertainment/ted-cruz-unleashes-racist-bigot-212544909.html](https://www.aol.com/entertainment/ted-cruz-unleashes-racist-bigot-212544909.html)
 
-2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115158096026629509](https://truthsocial.com/@realDonaldTrump/posts/115158096026629509)
 
 [https://x.com/GovPritzker/status/1964367057052701152](https://x.com/GovPritzker/status/1964367057052701152)
 
-2025-09-08 Trump sent out a hateful message on Truth Social about woke and Tom Hanks.
+2025-09-08 Trump posted a message criticizing "woke" culture and Tom Hanks
 
 [https://truthsocial.com/@realDonaldTrump/posts/115168758828419703](https://truthsocial.com/@realDonaldTrump/posts/115168758828419703)
 

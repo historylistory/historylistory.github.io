@@ -201,7 +201,7 @@ Plan. On the first day of the war in Iran, the US launched a Tomahawk missile in
 
 2025-09-05 Trump signed an order renaming the Department of Defense the “Department of War.”
 
-2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme.
+2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
 2025-09-08 Scott Bessent reportedly threatened Bill Pulte during a MAGA dinner.
 

@@ -102,7 +102,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 August
 
-2025-08-25 Jesse Watters stated about Kamala Harris, "**She is going to get paralyzed in the situation room while the generals have their way with her**" and refused to apologize.
+2025-08-25 Jesse Watters stated about Kamala Harris, "She is going to get paralyzed in the situation room while the generals have their way with her" and refused to apologize.
 
 {% include youtubePlayer.html id="dddKNLwzqEc" %}
 

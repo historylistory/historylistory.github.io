@@ -29,13 +29,11 @@ permalink: /categories/health/dismantling-the-cdc/
 
 [https://www.bbc.com/news/articles/cx29rdpg45xo](https://www.bbc.com/news/articles/cx29rdpg45xo)
 
-2025-08-27 RFK fired Susan Monarez from the CDC after she refused to "rubber-stamp unscientific, reckless directives".
+2025-08-27 RFK fired Susan Monarez from the CDC after she refused to “rubber-stamp unscientific, reckless directives”. RFK appointed biotechnology investor Jim O’Neill to head the CDC. According to AI overview, O’Neill is a long-time advocate of deregulation and support for unproven therapies.
 
 [https://www.environmentalprotectionnetwork.org/20250828_cdc-firing_release/](https://www.environmentalprotectionnetwork.org/20250828_cdc-firing_release/)
 
 [https://x.com/HHSGov/status/1960818490614415869](https://x.com/HHSGov/status/1960818490614415869)
-
-2025-08-28 RFK appointed biotechnology **investor** Jim O'Neill to head the CDC. According to AI overview, **O'Neill is a long-time advocate of deregulation** and support for unproven therapies.
 
 [https://www.nbcwashington.com/news/national-international/trump-administration-russia-ukraine-attack-cdc-director-fired-august-28-2025-live-updates/3981207/](https://www.nbcwashington.com/news/national-international/trump-administration-russia-ukraine-attack-cdc-director-fired-august-28-2025-live-updates/3981207/)
 

@@ -20,7 +20,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 {% include youtubePlayer.html id="aoNxKK2IJII" %}
 
-2025-08-25 DHS detained Kilmar Abrego Garcia. They gave him an ultimatum: **plead guilty and we will deport you to Costa Rica. Don’t plead guilty and we will deport you to Uganda**.
+2025-08-25 DHS detained Kilmar Abrego Garcia and reportedly offered the ultimatum deportation to Costa Rica if he pleaded guilty or Uganda if he refused. 
 
 [https://tennesseelookout.com/2025/08/23/government-offered-costa-rica-deal-to-kilmar-abrego-garcia-now-plans-to-send-him-to-uganda/](https://tennesseelookout.com/2025/08/23/government-offered-costa-rica-deal-to-kilmar-abrego-garcia-now-plans-to-send-him-to-uganda/)
 

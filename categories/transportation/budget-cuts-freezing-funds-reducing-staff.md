@@ -67,7 +67,7 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2025 August
 
-2025-08-24 **After a verbal dispute** with Governor Wes Moore of Maryland, Trump said he wanted to "**rethink**" **federal funding** for the Francis Scott Key bridge.
+2025-08-24 After a dispute with Maryland Governor Wes Moore, Trump suggested reconsidering federal funding for the Francis Scott Key Bridge and later accused Moore of manipulating crime statistics. 
 
 [https://thehill.com/homenews/administration/5467900-trump-criticizes-maryland-governor/](https://thehill.com/homenews/administration/5467900-trump-criticizes-maryland-governor/)
 

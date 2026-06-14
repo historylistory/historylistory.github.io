@@ -79,7 +79,7 @@ UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com
 
 ### 2024 August
 
-2024-08-25 Jesse Watters stated about Kamala Harris, "**She is going to get paralyzed in the situation room while the generals have their way with her**" and refused to apologize.
+2025-08-25 Jesse Watters stated about Kamala Harris, "She is going to get paralyzed in the situation room while the generals have their way with her" and refused to apologize.
 
 {% include youtubePlayer.html id="dddKNLwzqEc" %}
 

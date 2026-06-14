@@ -36,21 +36,23 @@ permalink: /categories/climate-change/disaster-recovery/
 
 [https://www.npr.org/2025/05/09/nx-s1-5383188/trumps-gutting-of-americorps-hits-hard-for-both-volunteers-and-communities](https://www.npr.org/2025/05/09/nx-s1-5383188/trumps-gutting-of-americorps-hits-hard-for-both-volunteers-and-communities)
 
+### 2025 May 
+
+2025-05-08 Cameron Hamilton was fired from FEMA just one day after he told lawmakers the agency should not be dismantled.
+[https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907](https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907)
+
+[https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton](https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton)
+
+{% include youtubePlayer.html id="LV-8b-gpJgg" %}
+
+
+
 ### 2025 August
 
 2025-08-27 FEMA members were placed on leave after signing a Katrina Declaration warning of the effects on funding cuts.
 
 [https://www.pbs.org/newshour/show/fema-employees-critical-of-trump-placed-on-leave-amid-crackdown-on-dissent](https://www.pbs.org/newshour/show/fema-employees-critical-of-trump-placed-on-leave-amid-crackdown-on-dissent)** **
 
-### 2025 September
-
-2025-09-08 Cameron Hamilton was fired from FEMA just one day after he told lawmakers the agency should not be dismantled.
-
-[https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907](https://www.politico.com/news/2025/09/08/fired-fema-chief-relationship-trump-officials-00548907)
-
-[https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton](https://democrats-appropriations.house.gov/news/press-releases/delauro-demands-explanation-trumps-firing-fema-administrator-cameron-hamilton)
-
-{% include youtubePlayer.html id="LV-8b-gpJgg" %}
 
 ### 2025 October
 
