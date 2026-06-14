@@ -9,7 +9,12 @@ permalink: /categories/greed/write-congress/
 
 ### IF THIS TOPIC MATTERS TO YOU
 
-pending text
+If this topic matters to you, write your Senator or write Congress. Send them an email.  
+
+COPY AND PASTE ALL THE INFORMATION BELOW. 
+
+You can start it however you'd like.
+
 
 ### SAMPLE LETTER
 
