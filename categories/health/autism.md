@@ -49,7 +49,7 @@ SUB WALL [https://www.nytimes.com/2019/08/13/health/drinking-bleach-autism-cance
 
 ### 2025 September
 
-2025-09-22 During a live press conference, Trump suggested that Tylenol caused autism without citing studies, research, or support for the claim, and leaving question in the minds of pregnant women whether or not it would be safe to take Tylenol.
+2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
 
 [https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
 

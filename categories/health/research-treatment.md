@@ -44,7 +44,7 @@ permalink: /categories/health/research-treatment/
 
 ### 2025 August
 
-2025-08-26 The Trump administration decided to end funding for pediatric brain cancer research after March 2026. Funding to the Pediatric Brain Tumor Consortium is set to run out after March 2026, and news outlets report the U.S. government is halting $4M per year in funding.
+2025-09-15 Funding for the Pediatric Brain Tumor Consortium was scheduled to expire after March 2026, with the Trump administration halting $4 million annually in federal support. 
 
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 

@@ -26,9 +26,7 @@ permalink: /categories/children/education/
 
 ### 2025 September
 
-2025-09-08 Trump paused funding for special education programs including special education teacher training. The U.S. Department of Education said, quote, that this department is "inconsistent with, and no longer effectuates, the best interests of the federal government". 
-
-Organizations were only given one week to submit an appeal.
+2025-09-08 Trump paused funding for special-education programs and teacher-training initiatives, giving affected organizations one week to appeal. The U.S. Department of Education said, quote, that this department is “inconsistent with, and no longer effectuates, the best interests of the federal government”. 
 
 [https://www.edweek.org/teaching-learning/trump-canceled-millions-for-special-education-teacher-training-whats-next/2025/09](https://www.edweek.org/teaching-learning/trump-canceled-millions-for-special-education-teacher-training-whats-next/2025/09)
 
@@ -36,7 +34,7 @@ Organizations were only given one week to submit an appeal.
 
 [https://abcnews.go.com/US/trump-administration-pauses-6b-education-programs-ahead-school/story?id=123403964](https://abcnews.go.com/US/trump-administration-pauses-6b-education-programs-ahead-school/story?id=123403964)
 
-2025-09-16 The Department of Education issued "non-continuation" for nine federally funded projects for middle and high school students, including 9 arts education initiatives, 20 projects centered around American history, and at least two efforts to supply free books to schoolchildren from low-income families. They also cancelled grants for civics, literacy, and college prep.
+2025-09-16 The Department of Education ended funding for nine student-focused projects, including arts education, American history programs, free-book initiatives, civics education, literacy efforts, and college-preparation programs. 
 
 [https://www.edweek.org/policy-politics/trump-admin-cancels-dozens-more-grants-hitting-civics-arts-and-higher-ed/2025/09](https://www.edweek.org/policy-politics/trump-admin-cancels-dozens-more-grants-hitting-civics-arts-and-higher-ed/2025/09)
 

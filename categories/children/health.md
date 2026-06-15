@@ -47,11 +47,11 @@ permalink: /categories/children/health/
 
 ### 2025 September
 
-2025-09-09 RFK unveiled his "Make Our Children Healthy Again" initiative, with a sweeping overhaul to policies based on his version of "gold-standard” pseudoscience".
+2025-09-09 RFK unveiled his “Make Our Children Healthy Again” initiative, with a sweeping overhaul to policies based on his version of “gold-standard” pseudoscience.
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
 
-2025-09-15 Funding to the Pediatric Brain Tumor Consortium was set to run out after March 2026, and news outlets report the U.S. government is halting $4M per year in funding.
+2025-09-15 Funding for the Pediatric Brain Tumor Consortium was scheduled to expire after March 2026, with the Trump administration halting $4 million annually in federal support. 
 
 [https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End](https://aacrjournals.org/cdnews/news/2629/Pediatric-Brain-Tumor-Initiative-to-End)
 
@@ -61,7 +61,7 @@ permalink: /categories/children/health/
 
 [https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/](https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/)
 
-2025-09-22 During a live press conference, Trump suggested that Tylenol caused autism without citing studies, research, or support for the claim. According to one article, Trump stated, quote, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
+2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
 
 [https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
 

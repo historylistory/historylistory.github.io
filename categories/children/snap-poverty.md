@@ -40,13 +40,13 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 September
 
-2025-09-08 As outlined on page 299 of Project 2025, cuts to SNAP benefits began. This included school food programs, energy and internet assistance, and funding to the Nutrition Education and Obesity Prevention Grant Program (SNAP-ED), to name a few.
+2025-09-08 As outlined on page 299 of Project 2025, the administration cut SNAP, school food programs, energy and internet assistance, and funding to the Nutrition Education and Obesity Prevention Grant Program (SNAP-ED).
 
 [https://www.cnbc.com/2025/08/08/trumps-spending-bill-cuts-billions-in-snap-benefits.html](https://www.cnbc.com/2025/08/08/trumps-spending-bill-cuts-billions-in-snap-benefits.html)
 
 [https://www.fns.usda.gov/snap/obbb-implementation](https://www.fns.usda.gov/snap/obbb-implementation)
 
-2025-09-20 The USDA **stopped tracking food insecurity** and issued a press release stating the annual Household Food Security Report would be **terminated**.
+2025-09-20 The USDA stopped tracking food insecurity and terminated the annual Household Food Security Report. 
 
 [https://www.usda.gov/about-usda/news/press-releases/2025/09/20/usda-terminates-redundant-food-insecurity-survey](https://www.usda.gov/about-usda/news/press-releases/2025/09/20/usda-terminates-redundant-food-insecurity-survey)
 

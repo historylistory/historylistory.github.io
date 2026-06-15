@@ -84,7 +84,7 @@ permalink: /categories/education/indoctrination/
 
 ### 2025 September
 
-2025-09-03 Historians expressed alarm after PragerU installed a new AI-generated history exhibit of John Adams using the same phraseology as their conservative commentator Ben Shapiro. The phrase used was "Facts do not care about your feelings".  The concern is to what extent PragerU plans to weave their own commentary in with historical figures. The quote "Facts do not care about your feelings" comes from right-wing influencer and propagandist Ben Shapiro.  Ben Shapiro, who accuses public schools of being "almost designed to be anti-Catholic indoctrination centers". 
+2025-09-03 PragerU installed an AI-generated John Adams exhibit for children featuring the phrase "Facts do not care about your feelings.” 
 
 [https://www.npr.org/2025/09/03/nx-s1-5521261/white-house-ai-founders-museum](https://www.npr.org/2025/09/03/nx-s1-5521261/white-house-ai-founders-museum)
 

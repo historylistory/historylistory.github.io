@@ -63,7 +63,10 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 
 ### 2052 September
 
-2025-09-08 The school-shooting industry is at $4B (billion) annually.
+2025-09-08 Reports estimate the school-security industry is a $4 billion annual market, including drones, metal detectors, trauma kits, and related services. 
+1. Campus Guardian Angel: sells drones 
+2. CEIA USA: sells metal detectors 
+3. SAM Medical: sells trauma kits 
 
 [https://www.npr.org/2025/09/08/nx-s1-5317647/school-shooting-industry](https://www.npr.org/2025/09/08/nx-s1-5317647/school-shooting-industry)
 
@@ -75,7 +78,7 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 
 **SAM Medical:** Trauma kits 
 
-2025-09-10 There was a school shooting at the Evergreen Colorado High School the same day that Charlie Kirk was shot. However, the shooting received very little attention. 
+2025-09-10 A school shooting occurred at Evergreen High School in Colorado on the same day Charlie Kirk was shot, but it received comparatively little media attention
 
 [https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/](https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/)
 

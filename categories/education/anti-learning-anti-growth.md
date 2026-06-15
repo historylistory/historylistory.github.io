@@ -75,7 +75,7 @@ The publication “A Short History of the Department of State” was retired.
 
 ### 2025 September
 
-2025-09-16 The Department of Education issued "non-continuation" for nine federally funded projects for middle and high school students, including 9 arts education initiatives, 20 projects centered around American history, and at least two efforts to supply free books to schoolchildren from low-income families. EDWEEK also reported that they cancelled grants for civics, literacy, and college prep.
+2025-09-16 The Department of Education ended funding for nine student-focused projects, including arts education, American history programs, free-book initiatives, civics education, literacy efforts, and college-preparation programs. 
 
 [https://www.edweek.org/policy-politics/trump-admin-cancels-dozens-more-grants-hitting-civics-arts-and-higher-ed/2025/09](https://www.edweek.org/policy-politics/trump-admin-cancels-dozens-more-grants-hitting-civics-arts-and-higher-ed/2025/09)
 

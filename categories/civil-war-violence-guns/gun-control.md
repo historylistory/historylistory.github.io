@@ -159,7 +159,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/](https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/)
 
-2025-09-10 A suspect who expressed neo-Nazi views shot up Evergreen Colorado High School the same day that Charlie Kirk was shot. However, the shooting received very little coverage after the Republicans heavily prioritized and addressed the Kirk shooting.
+2025-09-10 A school shooting occurred at Evergreen High School in Colorado on the same day Charlie Kirk was shot, but it received comparatively little media attention
 
 [https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/](https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/)
 

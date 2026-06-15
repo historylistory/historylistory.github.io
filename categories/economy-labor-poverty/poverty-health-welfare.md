@@ -127,7 +127,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://homelesslaw.org/trumpdceo/](https://homelesslaw.org/trumpdceo/)
 
-2025-09-08 As outlined on page 299 of Project 2025, cuts to SNAP benefits began. This includes school food programs, energy and internet assistance, and funding to the Nutrition Education and Obesity Prevention Grant Program (SNAP-ED), to name a few.
+2025-09-08 As outlined on page 299 of Project 2025, the administration cut SNAP, school food programs, energy and internet assistance, and funding to the Nutrition Education and Obesity Prevention Grant Program (SNAP-ED).
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 
@@ -157,7 +157,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
  
 
-2025-09-20 The USDA **stopped tracking food insecurity** and issued a press release stating the annual Household Food Security Report would be **terminated**.
+2025-09-20 The USDA stopped tracking food insecurity and terminated the annual Household Food Security Report. 
 
 [https://www.usda.gov/about-usda/news/press-releases/2025/09/20/usda-terminates-redundant-food-insecurity-survey](https://www.usda.gov/about-usda/news/press-releases/2025/09/20/usda-terminates-redundant-food-insecurity-survey)
 

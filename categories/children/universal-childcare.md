@@ -48,12 +48,11 @@ permalink: /categories/children/universal-childcare/
 
 ### 2025 September
 
-2025-09-13 During a hearing, Katie Porter sparred Heritage Foundation's Dr. Burke about universal childcare.  Dr. Burke asserted that universal childcare is investing with "other people’s money".  At one-point, Representative Porter asked Dr. Burke if she had children, to which Dr. Burke said she didn’t want to get her own children involved.
-
+2025-09-13 During a hearing on universal childcare, Representative Katie Porter challenged Heritage Foundation researcher Dr. Burke, who argued that universal childcare is investing with “other people’s money”.  
  
 {% include youtubePlayer.html id="OXwlE1SaFhc" %}
 
-2025-09-14 Democrats in New Mexico put THEIR plan together to get the first universal childcare in THEIR State.
+2025-09-14 New Mexico Democrats stepped up and introduced a plan to establish universal childcare statewide. 
 
 [https://www.governor.state.nm.us/2025/09/08/new-mexico-is-first-state-in-nation-to-offer-universal-child-care/](https://www.governor.state.nm.us/2025/09/08/new-mexico-is-first-state-in-nation-to-offer-universal-child-care/)
 

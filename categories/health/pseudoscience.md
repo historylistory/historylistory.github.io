@@ -20,9 +20,19 @@ permalink: /categories/health/pseudoscience/
 
 ### 2025 September
 
-2025-09-09 RFK unveiled his "Make Our Children Healthy Again" initiative, with a sweeping overhaul to policies based on his version of "gold-standard science". 
+2025-09-09 RFK unveiled his “Make Our Children Healthy Again” initiative, with a sweeping overhaul to policies based on his version of “gold-standard” pseudoscience.
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
+
+2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
+
+[https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
+
+[https://www.fda.gov/media/188843/download](https://www.fda.gov/media/188843/download)
+
+[https://jheor.org/post/3465-trump-claims-no-downside-to-avoiding-tylenol-during-pregnancy-he-s-wrong](https://jheor.org/post/3465-trump-claims-no-downside-to-avoiding-tylenol-during-pregnancy-he-s-wrong)
+
+[https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/](https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/)
 
 ### 2025 November
 
