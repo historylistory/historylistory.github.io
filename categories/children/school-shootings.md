@@ -36,7 +36,7 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 
 ### 2025 August
 
-2025-08-27 After the shooting at a Catholic school in Minneapolis, MSNBC Jen Psaki cited the dire need to address school shootings with more than just prayer.  Republicans responded with uproar, incorrectly claiming it was an attack on their religion. Even Karoline Leavitt reframed Jean Psaki’s comments as an "attack on prayer" during a White House press conference.
+2025-08-27 After a Catholic-school shooting in Minneapolis, Jen Psaki cited the need for actionable policy responses beyond prayer alone. MAGA supporters were in an uproar, and Karoline Leavitt accused her of attacking prayer. 
 
 {% include youtubePlayer.html id="89Kgu8KUfIs" %}
 
@@ -46,13 +46,16 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 
 {% include youtubePlayer.html id="_Z1vyJFdofQ" %}
 
-2025-08-28 During a White House press brief, right-wing influencer Brandon Tatum said the most recent school shooting was not a "gun thing", but a mental health thing. Big Charlie Kirk follower - here’s a picture of him taking the stage at a Turning Point USA conference in 2021 in Orlando.
+2025-08-28 During a White House briefing, right-wing influencer Brandon Tatum claimed school shootings were a mental-health issue and “not a gun thing”.
 
 [https://www.themirror.com/news/us-news/maga-influencers-astonishing-comment-guns-1357810](https://www.themirror.com/news/us-news/maga-influencers-astonishing-comment-guns-1357810)
 
-2025-08-28 - RFK blamed school shootings on antidepressants.
+2025-08-28 RFK Jr. blamed antidepressants for school shootings. RFK told Fox SSRI drugs may contribute to violence.
 
 [https://www.axios.com/2025/08/28/school-shooting-kennedy-antidepressants-claim](https://www.axios.com/2025/08/28/school-shooting-kennedy-antidepressants-claim)
+
+[https://newrepublic.com/post/199726/rfk-jr-finds-twisted-reason-take-away-anti-depression-meds](https://newrepublic.com/post/199726/rfk-jr-finds-twisted-reason-take-away-anti-depression-meds)
+
 
 2025-08-31 Pope Leo called school shootings in America a "pandemic of arms".
 

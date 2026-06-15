@@ -150,7 +150,23 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 August
 
-2025-08-08 News outlets reported how the heavily right-leaning PragerU plans to completely replace PBS in children's education, alter truths and peddle biased content. For context, the CEO stated that teachers have been teaching Marxism.
+2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
+
+1. Who’s behind the anti-ICE riots 
+
+2. How Foreign aid keeps Africa poor 
+
+3. Laughter on Lockdown featuring Roseanne Barr 
+
+4. Their Lives Mattered - a spin off the Black Lives Matter movement 
+
+5. MIA: Masculinity in America 
+
+6. Why do you hate conservatives 
+
+7. And an artificially generated AI version of John Adams who tells children, “Facts do not care about your feelings”. 
+
+8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
 
 [https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
 
@@ -159,6 +175,12 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 [https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed "America First" assessment. Critics argued it promoted partisan ideology.  One article said the test included questions related to 2020 false electoral claims.
+
+[https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test](https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test)
+
+[https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/](https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/)
 
 2025-08-19 Nexstar Media, managed by conservative donor Perry Sook and former Fox News Executive/Trump administration official Bill Shine announced plans to acquire TEGNA for $6.2B.
 

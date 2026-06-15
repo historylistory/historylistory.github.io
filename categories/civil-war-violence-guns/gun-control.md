@@ -129,11 +129,11 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2025 August
 
-2025-08-27 MSNBC Jen Psaki cited the dire need to address school shootings with more than just prayer.  Republicans responded with uproar, incorrectly claiming it was an attack on their religion.
+2025-08-27 After a Catholic-school shooting in Minneapolis, Jen Psaki cited the need for actionable policy responses beyond prayer alone. MAGA supporters were in an uproar, and Karoline Leavitt accused her of attacking prayer. 
 
 {% include youtubePlayer.html id="89Kgu8KUfIs" %}
 
-2025-08-28 During a White House press brief, right-wing influencer Brandon Tatum said the most recent school shooting was not a "gun thing", but a mental health thing. For context, Brandon Tatum is a Charlie Kirk follower who took stage at a Turning Point USA conference in 2021 in Orlando.
+2025-08-28 During a White House briefing, right-wing influencer Brandon Tatum claimed school shootings were a mental-health issue and “not a gun thing”.
 
 [https://www.themirror.com/news/us-news/maga-influencers-astonishing-comment-guns-1357810](https://www.themirror.com/news/us-news/maga-influencers-astonishing-comment-guns-1357810)
 

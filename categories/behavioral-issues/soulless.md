@@ -94,6 +94,10 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.theguardian.com/us-news/2025/aug/08/homeland-security-kristi-noem-south-park](https://www.theguardian.com/us-news/2025/aug/08/homeland-security-kristi-noem-south-park)
 
+2025-08-31 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation. 
+
+[https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala](https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala)
+
 ### 2025 November
 
 2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.

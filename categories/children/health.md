@@ -44,6 +44,7 @@ permalink: /categories/children/health/
 
 [https://www.facebook.com/watch/?v=656096720871687](https://www.facebook.com/watch/?v=656096720871687)
 
+
 ### 2025 September
 
 2025-09-09 RFK unveiled his "Make Our Children Healthy Again" initiative, with a sweeping overhaul to policies based on his version of "gold-standard” pseudoscience".

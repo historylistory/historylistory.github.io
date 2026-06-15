@@ -46,7 +46,7 @@ permalink: /categories/children/immigrants/
 
 [https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
 
-2025-08-31 In the shroud of night, Kristi Noem had ICE agents load a plane up with Guatemalan children for deportation. A judge stepped in to bar the flight from taking off.
+2025-08-31 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation. 
 
 [https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala](https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala)
 
