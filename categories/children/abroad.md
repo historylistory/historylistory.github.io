@@ -161,7 +161,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2026 May
 
-2026-05-12 The UN Children’s Fund UNICEF reported that Israel has killed 70 Palestinian children in the occupied West Bank since 2025, amounting to 1 child killed per week. UNICEF spokesperson James Elder reported March 2026 was the highest number of attacks in the past 20 years, including children shot, stabbed, beaten and pepper sprayed. About 78 years ago was Nakba, another genocide.
+2026-05-12 UNICEF reported that Israeli forces had killed approximately 70 Palestinian children in the West Bank since 2025, averaging about one child per week. 
 
 [https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s](https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s)
 
@@ -201,7 +201,7 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 
 [https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/](https://www.brookings.edu/articles/the-administration-has-detained-400000-immigrants-what-do-we-know-about-their-children/)
 
-2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+2026-05-26 Israeli strikes killed five Palestinians at a refugee camp in central Gaza, including a six-year-old girl. 
 
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 

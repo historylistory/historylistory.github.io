@@ -124,6 +124,19 @@ permalink: /categories/military-veterans/other/
 
 [https://www.youtube.com/watch?v=zBAlkIrzUh4](https://www.youtube.com/watch?v=zBAlkIrzUh4)
 
+2026-04-04 Trump requested a $1.5 trillion Pentagon budget and argued that military spending should take precedence over federal programs such as daycare, Medicaid, and Medicare. Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”. 
+
+[https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=qEURbAHBPvg](https://www.youtube.com/watch?v=qEURbAHBPvg)
+
+[https://www.youtube.com/watch?v=5GFcmIVM3Yc](https://www.youtube.com/watch?v=5GFcmIVM3Yc)
+
+[https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/](https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/)
+
+[https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars](https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars)
+
+[https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)
 
 2026-04-09 The Trump administration announced automatic draft registration will start in December 2026.
 

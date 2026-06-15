@@ -423,7 +423,7 @@ TIMELINE: [https://www.camera.org/article/timeline-the-bbc-gaza-documentary-cont
 
 [https://www.aljazeera.com/news/2026/5/24/france-bans-ben-gvir-which-other-israeli-leaders-have-been-penalised](https://www.aljazeera.com/news/2026/5/24/france-bans-ben-gvir-which-other-israeli-leaders-have-been-penalised)
 
-2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+2026-05-26 Israeli strikes killed five Palestinians at a refugee camp in central Gaza, including a six-year-old girl. 
 
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 

@@ -689,7 +689,7 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
-2026-05-12 The UN Children’s Fund UNICEF reported that Israel has killed 70 Palestinian children in the occupied West Bank since 2025, amounting to 1 child killed per week. UNICEF spokesperson James Elder reported March 2026 was the highest number of attacks in the past 20 years, including children shot, stabbed, beaten and pepper sprayed. About 78 years ago was Nakba, another genocide.
+2026-05-12 UNICEF reported that Israeli forces had killed approximately 70 Palestinian children in the West Bank since 2025, averaging about one child per week. 
 
 [https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s](https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s)
 

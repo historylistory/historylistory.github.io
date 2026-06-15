@@ -86,7 +86,7 @@ This is why I brought this up. It might not be related to universal childcare, b
 
 ### 2026 April
 
-2026-04-04 The White House requested a $1.5T budget for the Pentagon. During an event at the White House Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.  In other words, Trump wants to funnel American taxpayer dollars into funding Israel’s power-grabbing war in the Middle East. 
+2026-04-04 Trump requested a $1.5 trillion Pentagon budget and argued that military spending should take precedence over federal programs such as daycare, Medicaid, and Medicare. Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”. 
 
 [https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
 

@@ -119,7 +119,7 @@ permalink: /categories/health/other/
 ### 2026 May
 
 
-2026-05-08 RFK halted a ban on tanning beds for minors. 
+2026-05-08 RFK ended a ban on tanning beds for minors.
 
 [https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258](https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258)
 

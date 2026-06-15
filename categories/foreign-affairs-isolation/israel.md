@@ -147,7 +147,7 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 [https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3](https://www.youtube.com/watch?v=0Q4bM3mkrbE&list=WL&index=3)
 
-2026-05-12 The UN Children’s Fund UNICEF reported that Israel has killed 70 Palestinian children in the occupied West Bank since 2025, amounting to 1 child killed per week. UNICEF spokesperson James Elder reported March 2026 was the highest number of attacks in the past 20 years, including children shot, stabbed, beaten and pepper sprayed. About 78 years ago was Nakba, another genocide.
+2026-05-12 UNICEF reported that Israeli forces had killed approximately 70 Palestinian children in the West Bank since 2025, averaging about one child per week. 
 
 [https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s](https://www.youtube.com/watch?v=oXyvUORlD1Y&t=1s)
 
@@ -203,7 +203,7 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon](https://www.theguardian.com/world/2026/may/25/lebanese-diaspora-reaction-to-bombardment-in-lebanon)
 
-2026-05-26 Israeli strikes killed 5 Palestinians at a refugee camp in central Gaza, following a strike on Monday at another tent encampment in the Moasi area. A six-year-old girl was among the dead killed at the encampment. 
+2026-05-26 Israeli strikes killed five Palestinians at a refugee camp in central Gaza, including a six-year-old girl. 
 
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 

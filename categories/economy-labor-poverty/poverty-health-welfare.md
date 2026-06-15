@@ -452,7 +452,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor/en)
 
-2026-04-16 Headline MS Now: “Trump administration’s depraved crusade against Catholic leaders continues”. This article includes examples of the Trump administration now defunding shelter and migrant-children care ran by Catholic charities.
+2026-04-16 The Trump administration defunded Catholic charities that provide shelter and care for migrant children. 
 
 [https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled](https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled)
 

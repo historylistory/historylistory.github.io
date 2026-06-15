@@ -93,7 +93,7 @@ TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=32
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
 
 
-2026-05-08 During a panel discussion at the Milken Institute’s Global Conference in Los Angeles, Ted Cruz admitted Trump Accounts for babies were a backdoor for privatized social security, calling it the GOP’s “dirty little secret”, arguing that “it’s because we gave the money to babies so the old people didn’t get pissed”.
+2026-05-08 During a Milken Institute panel, Ted Cruz described Trump Accounts as a "dirty little secret" for advancing privatized Social Security through accounts created for newborns, and an article quoted him as saying, “it’s because we gave the money to babies so the old people didn’t get pissed”.
 
 [https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/](https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security/)
 

@@ -174,7 +174,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2026 May
 
-2026-05-07 The Guardian investigated that during the first 7 months of Trump’s ICE operations, ICE arrested the parents of at least 27,000 children. Advocates warn of a new family separation crisis. 
+2026-05-07 ICE had arrested the parents of at least 27,000 children during the first seven months of expanded immigration operations, raising concerns about renewed family separation.
 
 [https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested](https://www.theguardian.com/us-news/ng-interactive/2026/may/08/trump-administration-parents-arrested)
 
