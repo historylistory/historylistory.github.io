@@ -8,7 +8,7 @@ permalink: /categories/health/child-cancer-disease/
 
 ### 2024
 
-2024-02-15 The Creating Hope Reauthorization Act, which was introduced in 2024 to incentivize drug manufacturers to develop new treatments for children with rare pediatric diseases, will be set to expire with no motion by the Trump administration.
+2024-02-15 The Creating Hope Reauthorization Act, intended to encourage development of treatments for rare pediatric diseases, faced expiration without action from the administration. 
 
 [https://www.congress.gov/bill/118th-congress/house-bill/7384](https://www.congress.gov/bill/118th-congress/house-bill/7384)
 

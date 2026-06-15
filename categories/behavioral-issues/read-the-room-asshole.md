@@ -14,6 +14,18 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 {% include youtubePlayer.html id="PcKlPhFIE7w" %}
 
+### 2024
+
+2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, ”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”. 
+
+[https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/](https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/)
+
+[https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/](https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 ### 2025 January
 
 2025-01-20 Mike Johnson temporarily raised flags during Jimmy Carter’s mourning period at Trump’s request.

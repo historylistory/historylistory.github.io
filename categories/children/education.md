@@ -12,7 +12,7 @@ permalink: /categories/children/education/
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 
-2025-01-20 Trump rescinded Executive Order 14000 **Supporting the Reopening and Continuing Operation of Schools and Early Childhood Education Providers**.
+2025-01-20 Trump rescinded Executive Order 14000 Supporting the Reopening and Continuing Operation of Schools and Early Childhood Education Providers.
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 

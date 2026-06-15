@@ -18,11 +18,9 @@ permalink: /categories/children/immigrants/
 
 ### 2023
 
-2023-09-29 During the Benny Show, Mike Davis stated, quote, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
+2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
-
-{% include youtubePlayer.html id="KFPzD50ErFU" %}
 
 [https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358](https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358)
 
@@ -30,9 +28,11 @@ permalink: /categories/children/immigrants/
 
 [https://www.inquirer.com/opinion/commentary/mike-davis-trump-attorney-general-20231119.html](https://www.inquirer.com/opinion/commentary/mike-davis-trump-attorney-general-20231119.html)
 
+{% include youtubePlayer.html id="KFPzD50ErFU" %}
+
 ### 2024
 
-2024-12-16 A Human Rights Watch article analyzed the deliberate use of child separation as a deterrent, as well as citing stats that **1,360 children have never been reunited with their parents after 6 years**.
+2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later. 
 
 [https://www.hrw.org/news/2024/12/16/us-lasting-harm-family-separation-border](https://www.hrw.org/news/2024/12/16/us-lasting-harm-family-separation-border)
 

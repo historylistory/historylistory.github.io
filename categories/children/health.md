@@ -8,7 +8,7 @@ permalink: /categories/children/health/
 
 ### 2024
 
-2024-02-15 The Creating Hope Reauthorization Act, which was introduced in 2024 to incentivize drug manufacturers to develop new treatments for children with rare pediatric diseases, is set to expire with no motion by the Trump administration.
+2024-02-15 The Creating Hope Reauthorization Act, intended to encourage development of treatments for rare pediatric diseases, faced expiration without action from the administration. 
 
 [https://www.congress.gov/bill/118th-congress/house-bill/7384](https://www.congress.gov/bill/118th-congress/house-bill/7384)
 
@@ -18,7 +18,7 @@ permalink: /categories/children/health/
 
 ### 2025 January
 
-2025-01-29 During a confirmation hearing, Bernie Sanders asked RFK why his non-profit Children's Health Defense is selling anti-vax propaganda onesies on their website. One set reads “Unvaxxed - Unafraid” and the other set reads “No Vax - No Problem”.
+2025-01-29 During a confirmation hearing, Bernie Sanders asked about RFK Jr’s Children's Health Defense's sale of anti-vaccine infant onesies carrying slogans "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 [https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/](https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/)
 

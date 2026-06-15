@@ -34,6 +34,32 @@ permalink: /categories/behavioral-issues/soulless/
 
 [https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s](https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s)
 
+### 2023 
+
+2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
+
+[https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
+
+[https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358](https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358)
+
+[https://www.thedailybeast.com/trumps-likely-ag-mike-davis-were-going-to-put-kids-in-cages/](https://www.thedailybeast.com/trumps-likely-ag-mike-davis-were-going-to-put-kids-in-cages/)
+
+[https://www.inquirer.com/opinion/commentary/mike-davis-trump-attorney-general-20231119.html](https://www.inquirer.com/opinion/commentary/mike-davis-trump-attorney-general-20231119.html)
+
+{% include youtubePlayer.html id="KFPzD50ErFU" %}
+
+### 2024 January
+
+2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
+
+[https://www.nbcnews.com/politics/donald-trump/trump-tells-supporters-get-iowa-school-shooting-move-forward-rcna132610](https://www.nbcnews.com/politics/donald-trump/trump-tells-supporters-get-iowa-school-shooting-move-forward-rcna132610)
+
+[https://www.desmoinesregister.com/story/news/elections/presidential/caucus/2024/01/05/donald-trump-sends-deepest-sympathy-in-perry-school-shooting-then-attacks-biden-haley-desantis/72107498007/#:~:text=SIOUX%20CENTER%2C%20Iowa%20%E2%80%94%20Former%20President,we%20have%20to%20stop%20it.%22](https://www.desmoinesregister.com/story/news/elections/presidential/caucus/2024/01/05/donald-trump-sends-deepest-sympathy-in-perry-school-shooting-then-attacks-biden-haley-desantis/72107498007/)
+
+[https://www.facebook.com/watch/?v=775213131268910](https://www.facebook.com/watch/?v=775213131268910)
+
+[https://giffords.org/press-release/2024/10/trump-to-parents-of-kids-killed-we-need-guns-for-entertainment/](https://giffords.org/press-release/2024/10/trump-to-parents-of-kids-killed-we-need-guns-for-entertainment/)
+
 ### 2024 June
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.

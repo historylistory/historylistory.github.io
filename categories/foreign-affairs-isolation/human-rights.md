@@ -18,7 +18,7 @@ This is specifically for any Global Human Right council activity or events.
 
 ### 2024
 
-2024-12-16 A Human Rights Watch article analyzed the deliberate use of child separation as a deterrent, as well as citing stats that **1,360 children have never been reunited with their parents after 6 years**.
+2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later. 
 
 [https://www.hrw.org/news/2024/12/16/us-lasting-harm-family-separation-border](https://www.hrw.org/news/2024/12/16/us-lasting-harm-family-separation-border)
 

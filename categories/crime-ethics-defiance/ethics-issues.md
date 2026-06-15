@@ -163,13 +163,17 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2024 December
 
-2024-12-23 The House Ethics Committee report on Matt Gaetz.
+2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls. 
 
 [https://ethics.house.gov/wp-content/uploads/2024/12/Committee-Report.pdf](https://ethics.house.gov/wp-content/uploads/2024/12/Committee-Report.pdf)
 
+[https://19thnews.org/2024/12/matt-gaetz-ethics-report-released/](https://19thnews.org/2024/12/matt-gaetz-ethics-report-released/)
+
+[https://www.npr.org/2024/12/23/nx-s1-5233060/matt-gaetz-ethics-report-released](https://www.npr.org/2024/12/23/nx-s1-5233060/matt-gaetz-ethics-report-released)
+
 ### 2025 January
 
-2025-01-29 During a confirmation hearing, Bernie Sanders asked RFK why his non-profit Children's Health Defense is selling anti-vax propaganda onesies for infants on their website.
+2025-01-29 During a confirmation hearing, Bernie Sanders asked about RFK Jr’s Children's Health Defense's sale of anti-vaccine infant onesies carrying slogans "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 [https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/](https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/)
 

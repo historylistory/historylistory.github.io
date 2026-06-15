@@ -30,7 +30,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 2024 December
 
-2024-12-23 The House Ethics Committee released a report confirming he had been involved in illicit drug use and sex with underage girls.
+2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls. 
 
 [https://ethics.house.gov/wp-content/uploads/2024/12/Committee-Report.pdf](https://ethics.house.gov/wp-content/uploads/2024/12/Committee-Report.pdf)
 
@@ -40,9 +40,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 2025 January
 
-2025-01-20 During the first day of Trump’s second term, he granted a blanket pardon to nearly 1600 J6 insurrectionists. Multiple members he pardoned were involved in sexual criminal cases, some of which involved children. Not only did he put them back out on the streets, but many of them were also repeat offenders once released.
-
-There’s video of the oversight committee hearing September 18 2025 where Representative Crocket listed some of the violent offenders and gory details of what they did when they assaulted their victims, but I don’t want to say those things out loud here because they are terrible, so I will provide you with a link below and you can watch for yourself.
+2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing) https://www.youtube.com/watch?v=n_S5sYC1nKw
 
 [https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
 

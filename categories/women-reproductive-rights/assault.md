@@ -91,9 +91,7 @@ UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com
 
 [https://19thnews.org/2025/01/pete-hegseth-settlement-amount/](https://19thnews.org/2025/01/pete-hegseth-settlement-amount/)
 
-2025-01-20 During the first day of Trump’s second term, he granted a blanket pardon to nearly 1600 J6 insurrectionists. Multiple members he pardoned were involved in sexual criminal cases, some of which involved children. Not only did he put them back out on the streets, but many of them were also repeat offenders once released.
-
-There’s video of the oversight committee hearing September 18 2025 where Representative Crocket listed some of the violent offenders and gory details of what they did when they assaulted their victims, but I don’t want to say those things out loud here because they are terrible, so I will provide you a link below and you can watch for yourself.
+2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing) https://www.youtube.com/watch?v=n_S5sYC1nKw
 
 [https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
 

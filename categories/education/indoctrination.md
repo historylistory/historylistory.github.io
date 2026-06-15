@@ -28,7 +28,7 @@ permalink: /categories/education/indoctrination/
 
 ### 2023
 
-2023-10-16 The Daily Wire launched a children’s entertainment streaming service called “Bentkey” aiming to provide “non-woke” conservative views to children.
+2023-10-16 The Daily Wire launched Bentkey, a children's streaming service offering explicitly "non-woke" conservative views to children.
 
 [https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney](https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney)
 

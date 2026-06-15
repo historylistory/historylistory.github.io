@@ -8,7 +8,7 @@ permalink: /categories/children/abroad/
 
 ### 2025 January
 
-2025-01-24 PEPFAR was designed to implement life-saving HIV treatment services for pregnant and breastfeeding women, and orphans. The Trump administration cut funding for treatment to pregnant and breastfeeding women, orphans and vulnerable children. GOP members like Senator Kennedy were upset because some of the lifesaving care went to homosexuals, transgenders, and intersex patients, calling it “sick-bucket stuff”. After cuts were made, patients who normally received care for free no longer could reach care, and orphans like 14-year-old Mande Andrew died because of them.
+2025-01-24 The administration cut portions of PEPFAR funding which provided lifesaving treatment for pregnant women, breastfeeding mothers, orphans, and vulnerable children. Reports linked the cuts to disruptions in care and child deaths. 
 
 [https://www.cgdev.org/blog/update-lives-lost-usaid-cuts](https://www.cgdev.org/blog/update-lives-lost-usaid-cuts)
 

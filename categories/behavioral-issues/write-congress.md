@@ -70,7 +70,11 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2023-09-15 Lauren Boebert was removed from a Beetlejuice performance after vaping, filming, and disruptive behavior including flipping off the staff.
 
+2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
+
 2023-11-02 Lauren Boebert sarcastically mocked the federal bicycle subsidy program.
+
+2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 
 2024-03-07 Katie Britt delivered a widely mocked State of the Union response.
 
@@ -87,6 +91,8 @@ These concerns represent only a few examples of the issues that have led me to t
 2024-08-05 RFK Jr. admitted leaving a dead bear in Central Park for amusement.
 
 2024-09-01 Laura Loomer claimed on social media that Marjorie Taylor Greene had “Arby’s in [her] pants”. The slander didn’t come out until August 2025 during a deposition against Bill Maher.
+
+2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, ”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”. 
 
 2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 

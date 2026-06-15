@@ -22,7 +22,7 @@ permalink: /categories/children/universal-childcare/
 
 ### 2024
 
-2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, *”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”*.
+2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, ”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”. 
 
 [https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/](https://www.azcentral.com/story/opinion/op-ed/laurieroberts/2024/09/05/jd-vance-childcare-arizona-visit/75088786007/)
 

@@ -89,7 +89,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2024 January
 
-2024-01-04 After the shooting in Perry Iowa, Trump addressed the community of Perry by stating we would “have to get over it”.
+2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 
 [https://www.nbcnews.com/politics/donald-trump/trump-tells-supporters-get-iowa-school-shooting-move-forward-rcna132610](https://www.nbcnews.com/politics/donald-trump/trump-tells-supporters-get-iowa-school-shooting-move-forward-rcna132610)
 
@@ -111,7 +111,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2025 January
 
-2025-01-20 The Trump administration eliminated the White House Office of Gun Violence Prevention which was originally started by President Biden in 2023. They also repealed the ATF’s zero tolerance policy that aimed to revoke the licenses of gun dealers who willfully violated federal law, gutted funding for community-based violence intervention programs, and removed $1B in funding for the Department of Education to provide mental health support to students.
+2025-01-20 The administration eliminated the White House Office of Gun Violence Prevention, repealed the ATF's zero-tolerance dealer policy, reduced community-violence funding, and removed $1 billion for school mental-health programs. 
 
 [https://www.politico.com/news/2025/03/17/trump-gun-violence-public-health-advisory-00234171](https://www.politico.com/news/2025/03/17/trump-gun-violence-public-health-advisory-00234171)
 
