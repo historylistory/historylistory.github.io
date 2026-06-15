@@ -134,6 +134,17 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid](https://www.pbs.org/newshour/politics/trump-says-the-government-owes-him-a-lot-of-money-over-federal-probes-heres-how-he-could-be-paid)
 
+### 2025 November
+
+2025-11-14 Kristi Noem allegedly funneled $143M of the $220M in taxpayer money to a Virginia media company for her ad campaign. 
+
+[https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group](https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group)
+
+[https://www.govexec.com/oversight/2025/11/lawmakers-call-probe-how-firm-tied-kristi-noem-got-piece-220m-dhs-ad-contracts/409786/](https://www.govexec.com/oversight/2025/11/lawmakers-call-probe-how-firm-tied-kristi-noem-got-piece-220m-dhs-ad-contracts/409786/)
+
+[https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/](https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/)
+
+
 ### 2026 January
 
 2026-01-14 The Congressional Budget Office estimated it would cost American taxpayers up to ***$125M for rebranding the DoD*** as the Department of War.

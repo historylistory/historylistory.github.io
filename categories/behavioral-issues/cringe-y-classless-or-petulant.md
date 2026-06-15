@@ -416,6 +416,12 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/](https://www.reuters.com/world/fbis-patel-defends-beer-soaked-olympic-celebration-while-italy-trip-2026-02-23/)
 
+2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
+
+[https://thehill.com/homenews/house/5760484-boebert-bill-clinton-deposition-epstein-files/](https://thehill.com/homenews/house/5760484-boebert-bill-clinton-deposition-epstein-files/)
+
+[https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo](https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo)
+
 ### 2026 March
 
 2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.

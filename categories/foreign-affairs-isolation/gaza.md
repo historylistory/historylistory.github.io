@@ -448,3 +448,7 @@ October 2024: [https://www.nbcnews.com/news/world/teen-burnt-alive-israeli-strik
 April 2025: [https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/](https://mondoweiss.net/2025/04/we-smelled-the-stench-of-burning-human-flesh-israel-burns-8-children-to-death-in-gaza-safe-zone/)
 
 April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/](https://www.cair.com/press_releases/cair-calls-israeli-military-burning-children-alive-a-stain-on-humanity/)
+
+2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
+
+[https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)

@@ -361,3 +361,12 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)
 
+### 2026 June
+
+2026-06-04 Three armed National Guard soldiers approached, physically assaulted and detained a woman on her own porch. 
+
+[https://freedcproject.org/news/national-guard-soldiers-tackle-woman-to-the-ground-handcuff-her-outside-her-home](https://freedcproject.org/news/national-guard-soldiers-tackle-woman-to-the-ground-handcuff-her-outside-her-home)
+
+[https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html](https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html)
+
+[https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4](https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4)

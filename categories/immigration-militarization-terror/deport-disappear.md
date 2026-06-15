@@ -124,3 +124,11 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)
 
 [https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia](https://www.npr.org/2026/05/23/nx-s1-5831979/tennessee-judge-dismisses-federal-human-smuggling-charges-against-kilmar-abrego-garcia)
+
+### 2026 June
+
+2026-06-12 The State Department opened an investigation into Trita Parsi for reporting on the war in Iran, and now he faces deportation.
+
+[https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war](https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war)
+
+[https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html](https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html)

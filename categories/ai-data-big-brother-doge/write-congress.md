@@ -264,6 +264,9 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-05-26 Trump rescinded a proposed AI safety-vetting executive order, prompting criticism from Senator Mark Kelly about billionaire influence over AI policy. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”.
 
+2026-06-10 Data centers are seizing Georgian residents’ homes and contaminating the drinking water. 
+
+2026-06-12 Elon Musk officially became the first trillionaire. 
 
 
 

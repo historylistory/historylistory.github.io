@@ -18,6 +18,11 @@ permalink: /categories/transportation/other/
 
 [https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers](https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers)
 
+### 1997
+
+1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
+
+[https://en.wikipedia.org/wiki/Sean_Duffy](https://en.wikipedia.org/wiki/Sean_Duffy)
 
 ### 2019 November
 
@@ -117,8 +122,17 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)
 
+2026-05-12 Transportation Secretary Sean Duffy filmed a reality show, funded by firms he regulates. He was a reality TV star in the late 90’s for MTV’s The Real World and Road Rules.
+
+[https://www.npr.org/2026/05/12/nx-s1-5818190/sean-duffy-road-trip-reality-show-sponsors](https://www.npr.org/2026/05/12/nx-s1-5818190/sean-duffy-road-trip-reality-show-sponsors)
+
+[https://www.npr.org/2026/05/13/nx-s1-5821065/transportation-secretary-duffy-filmed-a-reality-show-funded-by-firms-he-regulates](https://www.npr.org/2026/05/13/nx-s1-5821065/transportation-secretary-duffy-filmed-a-reality-show-funded-by-firms-he-regulates)
+
+[https://www.youtube.com/watch?v=1wTxdxRGpAc](https://www.youtube.com/watch?v=1wTxdxRGpAc)
+
 2026-05-14 A jury in Chicago ordered Boeing to pay nearly $50M in a lawsuit stemming from a fatal crash.
 
 [https://www.reuters.com/legal/litigation/us-jury-awards-family-boeing-737-max-crash-victim-495-million-2026-05-14/](https://www.reuters.com/legal/litigation/us-jury-awards-family-boeing-737-max-crash-victim-495-million-2026-05-14/)
 
 [https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/](https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/)
+

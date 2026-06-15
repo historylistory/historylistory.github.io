@@ -49,6 +49,17 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/](https://www.washingtonpost.com/politics/2026/04/01/trump-supreme-court-birthright-citizenship/)
 
+### 2026 May
+
+2026-05-04 Customers pulled their money out of Citizens Bank for funding ICE. 
+
+[https://www.boycottcitizens.org/](https://www.boycottcitizens.org/)
+
+[https://www.bankingdive.com/news/citizens-bank-customers-pull-money-over-lenders-ice-ties/819223/](https://www.bankingdive.com/news/citizens-bank-customers-pull-money-over-lenders-ice-ties/819223/)
+
+[https://www.newhavenindependent.org/2026/06/05/anti-ice-protest-targets-citizens-bank/](https://www.newhavenindependent.org/2026/06/05/anti-ice-protest-targets-citizens-bank/)
+
+
 ### 2026 June
 
 2026-06-05 The Senate passed a $70B ICE funding budget.

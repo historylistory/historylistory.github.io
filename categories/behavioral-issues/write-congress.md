@@ -26,6 +26,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 1991–2009 Trump bankrupted at least four casinos
 
+1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
+
 1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
 
 2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
@@ -380,6 +382,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles on an all-girls school, killing 170 schoolchildren.
 
+2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
+
 2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
 
 2026-02-27 During an interview with Piers Morgan, Lauren Boebert couldn’t answer what inflation was.
@@ -601,3 +605,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
 
 2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
+
+2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
+
+2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
+

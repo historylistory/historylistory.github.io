@@ -258,3 +258,7 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians](https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians)
 
 [https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)
+
+2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
+
+[https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)

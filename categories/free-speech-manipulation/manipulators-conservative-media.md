@@ -88,6 +88,17 @@ Remember: rage bait sells. 
 
 ### 2023
 
+2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways. 
+
+[https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/](https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/)
+
+[https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/](https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/)
+
+[https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham](https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham)
+
+[https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
+
+
 2023-10-16 The Daily Wire launched Bentkey, a children's streaming service offering explicitly "non-woke" conservative views to children.
 
 [https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney](https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney)

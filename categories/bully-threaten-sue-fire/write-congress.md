@@ -535,3 +535,5 @@ Manhattan grand jury in the hush-money case.
 2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets. 
 
 2026-05-25 Trump used a Memorial Day message to trash Democrats and anyone who questioned his plans in Iran.
+
+2026-06-12 The State Department opened an investigation into Trita Parsi for reporting on the war in Iran, and now he faces deportation.

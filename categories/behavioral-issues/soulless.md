@@ -729,3 +729,7 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)
 
+2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
+
+[https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
+

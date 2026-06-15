@@ -144,3 +144,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html](https://www.independent.co.uk/news/world/americas/us-politics/peter-thiel-argentina-billionaire-tax-b2986444.html)
 
 [https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s](https://www.youtube.com/watch?v=FYISkD2BGLQ&list=WL&index=2&t=44s)
+
+### 2026 June
+
+2026-06-12 Elon Musk officially became the first trillionaire. 
+
+[https://www.forbes.com/sites/pr/2026/06/12/forbes-declares-elon-musk-as-the-worlds-first-trillionaire/](https://www.forbes.com/sites/pr/2026/06/12/forbes-declares-elon-musk-as-the-worlds-first-trillionaire/)
+
+[https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016](https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016)

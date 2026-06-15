@@ -750,3 +750,9 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2)
 
 [https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel](https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel)
+
+2026-06-12 The State Department opened an investigation into Trita Parsi for reporting on the war in Iran, and now he faces deportation.
+
+[https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war](https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war)
+
+[https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html](https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html)

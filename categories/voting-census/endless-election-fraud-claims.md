@@ -167,6 +167,17 @@ OTHER SHADY BUSINESS
 
 ### 2023
 
+2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways. 
+
+[https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/](https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/)
+
+[https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/](https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/)
+
+[https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham](https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham)
+
+[https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
+
+
 2023-09-17 During an interview with NBC, Trump continued to assert that the 2020 election was rigged.
 
 [https://www.cnn.com/2023/09/17/politics/trump-election-results-decision](https://www.cnn.com/2023/09/17/politics/trump-election-results-decision)

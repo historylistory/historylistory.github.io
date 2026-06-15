@@ -18,6 +18,12 @@ permalink: /categories/economy-labor-poverty/farming/
 
 ### 2020
 
+2020-05-26 America paid $15M to prevent screwworm, saving American farmers an estimated $796M in damages. 
+
+[https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/](https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/)
+
+[https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s](https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s)
+
 2020-10-28 Trump handed farmers bailouts after farm sales were destroyed from the first trade war.
 
 [https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers](https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers)
@@ -65,6 +71,10 @@ permalink: /categories/economy-labor-poverty/farming/
 2025-06-24 During the second trade war, farmers began to worry if the Trump administration will bail them out again amidst elevated agricultural costs.
 
 [https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/](https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/)
+
+2025-06-24 Newsmax posted, “A government agency spending $300 million in taxpayer dollars to produce sterilized flies sounds like a dream scenario for a DOGE team looking to cut waste, fraud and abuse”. In June of 2026 there was a flesh-eating screwworm outbreak after DOGE cut the research and development sectors responsible for sterilizing the males so there wouldn’t be an outbreak. 
+
+[https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s](https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s)
 
 ### 2025 September
 

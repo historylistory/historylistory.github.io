@@ -123,6 +123,17 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2023
 
+2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways. 
+
+[https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/](https://www.cbsnews.com/news/fox-news-hosts-2020-election-fraud-claims-dominion-defamation-suit/)
+
+[https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/](https://www.washingtonpost.com/media/2023/03/07/fox-news-lawsuit/)
+
+[https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham](https://www.theguardian.com/media/2023/feb/17/fox-news-hosts-dominion-lawsuit-trump-election-fraud-tucker-carlson-sean-hannity-laura-ingraham)
+
+[https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
+
+
 2023-09-15 Starting as early as 2023, multiple articles have been published about an alleged open affair between Kristi Noem and Corey Lewandowski.
 
 [https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair#:~:text=Caption%20Options&text=Noem%20stoked%20speculation%20that%20she's,the%20indicted%20man%20for%20president.&text=Lewandowski%20became%20a%20key%20adviser,apologize%20to%20staffers%20for%20him.%E2%80%9D](https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair)
@@ -311,6 +322,15 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use](https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use)
 
+2025-11-14 Kristi Noem allegedly funneled $143M of the $220M in taxpayer money to a Virginia media company for her ad campaign. 
+
+[https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group](https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group)
+
+[https://www.govexec.com/oversight/2025/11/lawmakers-call-probe-how-firm-tied-kristi-noem-got-piece-220m-dhs-ad-contracts/409786/](https://www.govexec.com/oversight/2025/11/lawmakers-call-probe-how-firm-tied-kristi-noem-got-piece-220m-dhs-ad-contracts/409786/)
+
+[https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/](https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/)
+
+
 2025-11-18 In a lawsuit between the International Association of Cruise Lines and the State of Hawaii, the cruise line was challenging a new tourism tax on ships that stop in Hawaii. They hired Brad Bondi as their lawyer. The DOJ intervened in the lawsuit on behalf of the cruise lines. 
 
 [https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
@@ -360,6 +380,13 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 2026-02-24 Kash Patel used the FBI jet and taxpayer money to fly to Italy for the Olympics.
 
 [https://www.cnn.com/2026/02/24/politics/kash-patel-fbi-jet-use-explained](https://www.cnn.com/2026/02/24/politics/kash-patel-fbi-jet-use-explained)
+
+2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
+
+[https://thehill.com/homenews/house/5760484-boebert-bill-clinton-deposition-epstein-files/](https://thehill.com/homenews/house/5760484-boebert-bill-clinton-deposition-epstein-files/)
+
+[https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo](https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo)
+
 
 ### 2026 March
 
@@ -483,6 +510,15 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 [https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html](https://www.cnbc.com/2026/04/06/jeffrey-epstein-howard-lutnick-house-oversight-interview.html)
 
 SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865](https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epstein-00908865)
+
+2026-05-12 Transportation Secretary Sean Duffy filmed a reality show, funded by firms he regulates. He was a reality TV star in the late 90’s for MTV’s The Real World and Road Rules.
+
+[https://www.npr.org/2026/05/12/nx-s1-5818190/sean-duffy-road-trip-reality-show-sponsors](https://www.npr.org/2026/05/12/nx-s1-5818190/sean-duffy-road-trip-reality-show-sponsors)
+
+[https://www.npr.org/2026/05/13/nx-s1-5821065/transportation-secretary-duffy-filmed-a-reality-show-funded-by-firms-he-regulates](https://www.npr.org/2026/05/13/nx-s1-5821065/transportation-secretary-duffy-filmed-a-reality-show-funded-by-firms-he-regulates)
+
+[https://www.youtube.com/watch?v=1wTxdxRGpAc](https://www.youtube.com/watch?v=1wTxdxRGpAc)
+
 
 2026-05-14 Head of the US Border Patrol Michael Banks resigned weeks after the Washington Examiner reported he bragged about paying for sex with prostitutes while traveling in Columbia and Thailand. This prompted investigation which ended abruptly as Kristi Noem served as DHS head.
 

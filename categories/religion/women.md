@@ -62,3 +62,15 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 [https://www.youtube.com/watch?v=OhxBC3-6u9o](https://www.youtube.com/watch?v=OhxBC3-6u9o)
 
 [https://www.instagram.com/reels/DYFryUyP4Gq/](https://www.instagram.com/reels/DYFryUyP4Gq/)
+
+### 2026 June
+
+2026-06-10 The Southern Baptist Convention voted to formally ban women from serving as pastors. 
+
+[https://www.youtube.com/watch?v=vG1snc42NYM&list=WL&index=2](https://www.youtube.com/watch?v=vG1snc42NYM&list=WL&index=2)
+
+[https://abcnews.com/US/southern-baptists-vote-ban-women-pastors-sparks-outcry/story?id=133747095](https://abcnews.com/US/southern-baptists-vote-ban-women-pastors-sparks-outcry/story?id=133747095)
+
+[https://www.christianitytoday.com/2026/06/southern-baptist-constitution-ban-women-pastors/](https://www.christianitytoday.com/2026/06/southern-baptist-constitution-ban-women-pastors/)
+
+[https://www.cnn.com/2026/06/10/us/southern-baptists-women-pastors-vote](https://www.cnn.com/2026/06/10/us/southern-baptists-women-pastors-vote)

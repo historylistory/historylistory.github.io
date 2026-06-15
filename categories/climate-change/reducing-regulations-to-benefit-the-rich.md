@@ -363,3 +363,23 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/](https://westvirginiawatch.com/2026/05/28/wv-environmental-groups-file-suit-over-clean-water-act-violations-in-harrison-county/)
 
 [https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s](https://www.youtube.com/watch?v=KMmNRHOJ0Kk&list=WL&index=1&t=141s)
+
+### 2026 June
+
+2026-06-10 SpaceX will receive 700 acres of protected wildlife refuge in Texas. 
+
+[https://biologicaldiversity.org/w/news/press-releases/lawsuit-seeks-to-stop-spacex-land-deal-from-destroying-texas-wildlife-refuge-2026-06-10/](https://biologicaldiversity.org/w/news/press-releases/lawsuit-seeks-to-stop-spacex-land-deal-from-destroying-texas-wildlife-refuge-2026-06-10/)
+
+[https://www.texastribune.org/2026/06/11/environmental-groups-sue-to-stop-spacex-land-deal/](https://www.texastribune.org/2026/06/11/environmental-groups-sue-to-stop-spacex-land-deal/)
+
+[https://www.youtube.com/watch?v=5KKq1b18mPQ&list=WL&index=3](https://www.youtube.com/watch?v=5KKq1b18mPQ&list=WL&index=3)
+
+2026-06-10 Data centers are seizing Georgian residents’ homes and contaminating the drinking water. 
+
+[https://www.youtube.com/watch?v=dV58WsALxsk&list=WL&index=5](https://www.youtube.com/watch?v=dV58WsALxsk&list=WL&index=5)
+
+[https://www.bbc.com/news/articles/cy8gy7lv448o](https://www.bbc.com/news/articles/cy8gy7lv448o)
+
+[https://www.youtube.com/watch?v=752gOFl2_p0](https://www.youtube.com/watch?v=752gOFl2_p0)
+
+[https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/](https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/)

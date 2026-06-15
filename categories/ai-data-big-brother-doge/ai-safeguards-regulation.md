@@ -123,3 +123,13 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.nbcnews.com/tech/tech-news/trump-ai-executive-order-rcna348072](https://www.nbcnews.com/tech/tech-news/trump-ai-executive-order-rcna348072)
 
 [https://www.pbs.org/newshour/nation/trump-signs-executive-order-that-allows-voluntary-federal-vetting-of-top-ai-models-for-national-security-risks](https://www.pbs.org/newshour/nation/trump-signs-executive-order-that-allows-voluntary-federal-vetting-of-top-ai-models-for-national-security-risks)
+
+2026-06-10 Data centers are seizing Georgian residents’ homes and contaminating the drinking water. 
+
+[https://www.youtube.com/watch?v=dV58WsALxsk&list=WL&index=5](https://www.youtube.com/watch?v=dV58WsALxsk&list=WL&index=5)
+
+[https://www.bbc.com/news/articles/cy8gy7lv448o](https://www.bbc.com/news/articles/cy8gy7lv448o)
+
+[https://www.youtube.com/watch?v=752gOFl2_p0](https://www.youtube.com/watch?v=752gOFl2_p0)
+
+[https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/](https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/)

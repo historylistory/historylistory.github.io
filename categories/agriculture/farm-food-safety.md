@@ -6,6 +6,15 @@ subcategory_slug: farm-food-safety
 permalink: /categories/agriculture/farm-food-safety/
 ---
 
+### 2020
+
+2020-05-26 America paid $15M to prevent screwworm, saving American farmers an estimated $796M in damages. 
+
+[https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/](https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/)
+
+[https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s](https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s)
+
+
 ### 2025 April
 
 2025-04-01 Trump repealed the Salmonella Framework for Raw Poultry Products developed by the Biden administration to place more stringent safety standards in our poultry. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. The links below include a statement from the National Chicken Council explaining their rationale for eliminating the more stringent standards.
@@ -17,6 +26,13 @@ permalink: /categories/agriculture/farm-food-safety/
 [https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/](https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/)
 
 [https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
+
+### 2025 June
+
+2025-06-24 Newsmax posted, “A government agency spending $300 million in taxpayer dollars to produce sterilized flies sounds like a dream scenario for a DOGE team looking to cut waste, fraud and abuse”. In June of 2026 there was a flesh-eating screwworm outbreak after DOGE cut the research and development sectors responsible for sterilizing the males so there wouldn’t be an outbreak. 
+
+[https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s](https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s)
+
 
 ### 2025 August
 

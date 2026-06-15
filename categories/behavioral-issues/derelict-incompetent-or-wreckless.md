@@ -17,6 +17,13 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 [https://docs.house.gov/meetings/JU/JU00/20200929/111078/HMKP-116-JU00-20200929-SD003.pdf](https://docs.house.gov/meetings/JU/JU00/20200929/111078/HMKP-116-JU00-20200929-SD003.pdf)
 
+### 1997 (context)
+
+1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
+
+[https://en.wikipedia.org/wiki/Sean_Duffy](https://en.wikipedia.org/wiki/Sean_Duffy)
+
+
 ### 2009
 
 2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
@@ -606,3 +613,10 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 [https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html](https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html)
 
+2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
+
+[https://www.youtube.com/watch?v=9CBXhmvZgds&list=WL&index=6&t=28s](https://www.youtube.com/watch?v=9CBXhmvZgds&list=WL&index=6&t=28s)
+
+[https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte](https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte)
+
+[https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798](https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798)

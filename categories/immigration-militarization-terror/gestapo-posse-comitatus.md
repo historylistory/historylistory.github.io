@@ -425,6 +425,15 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 ### 2026 June
 
+2026-06-04 Three armed National Guard soldiers approached, physically assaulted and detained a woman on her own porch. 
+
+[https://freedcproject.org/news/national-guard-soldiers-tackle-woman-to-the-ground-handcuff-her-outside-her-home](https://freedcproject.org/news/national-guard-soldiers-tackle-woman-to-the-ground-handcuff-her-outside-her-home)
+
+[https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html](https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html)
+
+[https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4](https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4)
+
+
 2026-06-10 Representative Maxwell Frost of Florida wrote, “Instead of investing in you and ensuring you can afford your healthcare, groceries, or rent – they chose to hand $70 BILLION to agencies operating without any guardrails while terrorizing and brutalizing our communities.”
 
 [https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)

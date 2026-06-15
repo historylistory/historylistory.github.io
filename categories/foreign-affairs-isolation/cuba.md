@@ -248,3 +248,10 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 2026-05-28 Trump continued a pressure campaign on Cuba, claiming Cuba was “next”. 
 
 [https://www.youtube.com/watch?v=GdWaJglHusU&list=WL&index=5&t=107s](https://www.youtube.com/watch?v=GdWaJglHusU&list=WL&index=5&t=107s)
+
+### 2026 June
+
+2026-06-11 Further sanctions were placed on Cuba.
+
+[https://www.ohchr.org/en/press-releases/2026/06/us-sanctions-against-cuba-are-endangering-lives-and-must-be-lifted](https://www.ohchr.org/en/press-releases/2026/06/us-sanctions-against-cuba-are-endangering-lives-and-must-be-lifted)
+
