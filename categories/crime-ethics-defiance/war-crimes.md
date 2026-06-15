@@ -98,7 +98,7 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
 
-2026-02-28 The US, in joint efforts with Israel, bombed Iran. Only one of the news outlets reported over 200 people including 170 schoolchildren were killed on the first day of bombings. The US did not seek Congressional or international approval and did not provide proof there was an imminent threat warranting the bombing. For context, Trump stated several months ago that the US already destroyed nuclear bombs in Iran and ran on the platform that the US would never start a war in the Middle East. Trump said after the bombing, “When we are finished, take over your government. It will be yours to take”. 
+2026-02-28 The United States and Israel bombed an all-girl’s school on day 1 of the war in Iran and killed at least 170 schoolgirls. 
 
 [https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
 

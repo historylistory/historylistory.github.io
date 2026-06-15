@@ -63,7 +63,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2025 December
 
-2025-12-17 After the Trump administration shut down USAID, reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud.
+2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
 [https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths](https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths)
 
@@ -81,7 +81,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2026 February
 
-2026-02-08 The New York Times reported “more than 2000 health clinics have closed in crisis zones around the world”. See article “What We Lost When We Lost U.S.A.I.D.”. France-24 reported that in just one district 29 children died in just a month’s time from malnutrition and illness; deaths which would have been avoided if funding had been maintained according to one of the coordinators of Action Against Hunger in Ituri.
+2026-02-08 The New York Times reported that more than 2,000 health clinics worldwide had closed after USAID reductions. Other reports linked the cuts to preventable child deaths from malnutrition and illness. 
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}
 
@@ -89,7 +89,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/](https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/)
 
-2026-02-28 The US, in joint efforts with Israel, bombed Iran. Only one of the news outlets reported over 200 people including 170 schoolchildren were killed on the first day of bombings. The US did not seek Congressional or international approval and did not provide proof there was an imminent threat warranting the bombing. For context, Trump stated several months ago that the US already destroyed nuclear bombs in Iran and ran on the platform that the US would never start a war in the Middle East. Trump said after the bombing, “When we are finished, take over your government. It will be yours to take”. 
+2026-02-28 The United States and Israel bombed an all-girl’s school on day 1 of the war in Iran and killed at least 170 schoolgirls. 
 
 [https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
 
@@ -103,7 +103,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2026 March
 
-2026-03-04 News outlets published the names of the children killed by the U.S. Tomahawk missile that hit the school in Minab, Iran.
+2026-03-04 Media outlets published the names of the children killed by the U.S. TOMAHAWK MISSILE in Minab, Iran. When questioned, Trump claimed Iran had hit itself with its own missile, while other administration officials said the incident remained under investigation. 
 
 [https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike](https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike)
 

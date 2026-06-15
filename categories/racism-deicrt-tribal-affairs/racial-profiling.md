@@ -80,7 +80,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 ### 2026 March
 
-2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students of color to show their papers before enrolling.
+2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
 
 [https://edtrusttn.org/resource/threats-to-education-for-all/](https://edtrusttn.org/resource/threats-to-education-for-all/)
 

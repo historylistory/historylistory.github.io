@@ -58,7 +58,7 @@ permalink: /categories/children/universal-childcare/
 
 ### 2025 December
 
-2025-12-26 A right-wing shock vlogger Nick Shirley demanded entry into daycare centers and accused Somali residents of $9B in childcare fraud. 
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. 
 
 The viral video prompted DHS to conduct a massive investigation in Minnesota. 
 

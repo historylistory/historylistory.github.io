@@ -337,7 +337,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.today.com/video/ag-pam-bondi-says-all-of-the-epstein-files-have-been-released-257737285955](https://www.today.com/video/ag-pam-bondi-says-all-of-the-epstein-files-have-been-released-257737285955)
 
-2026-02-19 Trump said he was “totally exonerated” from Epstein. Meanwhile, the DOJ withheld documents naming Trump in an alleged sexual assault of a 13-year-old girl.
+2026-02-19 Trump declared himself "totally exonerated" regarding Epstein-related allegations while the Justice Department continued withholding certain records. The DOJ reportedly withheld documents naming Trump in an alleged sexual assault of a 13-year-old girl.
 
 [https://www.nytimes.com/2026/02/25/us/politics/trump-epstein-files.html](https://www.nytimes.com/2026/02/25/us/politics/trump-epstein-files.html)
 

@@ -82,7 +82,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 ### 2025 December
 
-2025-12-17 After the Trump administration shut down USAID, reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud.
+2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
 [https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths](https://www.propublica.org/article/kenya-trump-usaid-world-food-program-starvation-children-deaths)
 
@@ -104,7 +104,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 ### 2026 February
 
-2026-02-08 The New York Times reported “more than 2000 health clinics have closed in crisis zones around the world”. See article “What We Lost When We Lost U.S.A.I.D.”. France-24 reported that in just one district 29 children died in just a month’s time from malnutrition and illness; deaths which would have been avoided if funding had been maintained according to one of the coordinators of Action Against Hunger in Ituri.
+2026-02-08 The New York Times reported that more than 2,000 health clinics worldwide had closed after USAID reductions. Other reports linked the cuts to preventable child deaths from malnutrition and illness. 
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}
 

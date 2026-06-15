@@ -21,9 +21,7 @@ See also Social Security for more detail - this is an admitted backdoor for priv
 
 ### 2025 December
 
-2025-12-02 My Trump Accounts section is in progress right now, but I first heard about it when Michael and Susan Dell donated $6.25B into **Trump accounts.**Apparently these accounts are designed to give $250 as low-cost stock funds. 
-
-From what I gather, they have criteria and can only be given to children born between certain years and only within certain zip codes. 
+2025-12-02 Reports described "Trump Accounts" funded in part by major private donations (i.e. Michael and Susan Dell donated $6.25B) and designed to provide investment accounts for children born on certain years and within certain zip codes. 
 
 [https://www.npr.org/2025/12/02/nx-s1-5628412/michael-susan-dell-trump-account-children-investment-saving](https://www.npr.org/2025/12/02/nx-s1-5628412/michael-susan-dell-trump-account-children-investment-saving)
 

@@ -71,7 +71,7 @@ You know your bite is poisonous, and now I’m going to die’.
 
 ### SPOTLIGHT LINK
 
-2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
+2026-03-18 Ms. Rachel and other public figures launched a petition calling for closure of the Dilley, Texas ICE detention center after hearing accounts from detained children. Check out her petition on Change.org.
 
 [https://www.change.org/](https://www.change.org/)
 

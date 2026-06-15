@@ -56,17 +56,7 @@ permalink: /categories/children/immigrants/
 
 ### 2026 January
 
-2026-01-29 ICE detained 5-year-old Liam Ramos and his father in the Dilley Texas detention center. 
-
-The child had stopped eating, was lethargic, and was going through depression. 
-
-One article quoted an attorney as saying, “It’s way worse than people think. The water is putrid. They have to mix baby formula with water that nobody wants to even smell. The food has bugs in it. The food has dirt in it”. 
-
-After this got national attention the child and his father were released in February on judge orders. The father said ICE agents refused medical treatment for the child during custody.
-
-One article wrote that shortly after the father and son were released, the detention center had an outbreak of an active measles infection.
-
-The Trump administration said they planned to appeal the release. 
+2026-01-29 ICE detained 5-year-old Liam Ramos and his father at the Dilley, Texas detention center. The child stopped eating, was lethargic, and was going through depression. Reports described poor conditions, medical concerns, and a later measles outbreak. A judge ordered their release in February. The Trump administration said they planned to appeal the release.  
 
 [https://www.cnn.com/2026/01/28/us/liam-ramos-joaquin-castro-visit](https://www.cnn.com/2026/01/28/us/liam-ramos-joaquin-castro-visit)
 
@@ -80,7 +70,7 @@ The Trump administration said they planned to appeal the release. 
 
 ### 2026 March
 
-2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
+2026-03-18 Ms. Rachel and other public figures launched a petition calling for closure of the Dilley, Texas ICE detention center after hearing accounts from detained children. Check out her petition on Change.org.
 
 [https://www.change.org/](https://www.change.org/)
 

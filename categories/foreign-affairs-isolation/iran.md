@@ -426,7 +426,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/](https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/)
 
-2026-02-28 The US, in joint efforts with Israel, bombed Iran. Only one of the news outlets reported over 200 people including 170 schoolchildren were killed on the first day of bombings. The US did not seek Congressional or international approval and did not provide proof there was an imminent threat warranting the bombing. For context, Trump stated several months ago that the US already destroyed nuclear bombs in Iran and ran on the platform that the US would never start a war in the Middle East. Trump said after the bombing, “When we are finished, take over your government. It will be yours to take”. 
+2026-02-28 The United States and Israel bombed an all-girl’s school on day 1 of the war in Iran and killed at least 170 schoolgirls. 
 
 [https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
 
@@ -486,7 +486,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/](https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/)
 
-2026-03-04 News outlets published the names of the children killed by the U.S. Tomahawk missile that hit the school in Minab, Iran.
+2026-03-04 Media outlets published the names of the children killed by the U.S. TOMAHAWK MISSILE in Minab, Iran. When questioned, Trump claimed Iran had hit itself with its own missile, while other administration officials said the incident remained under investigation. 
 
 [https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike](https://www.middleeasteye.net/news/names-and-ages-children-iranian-school-strike)
 

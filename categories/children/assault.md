@@ -90,7 +90,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 [https://www.bbc.com/news/articles/ce3ex92557jo](https://www.bbc.com/news/articles/ce3ex92557jo)
 
-2026-02-19 Trump said he was “totally exonerated” from Epstein. Meanwhile, the DOJ withheld documents naming Trump in an alleged sexual assault of a 13-year-old girl.
+2026-02-19 Trump declared himself "totally exonerated" regarding Epstein-related allegations while the Justice Department continued withholding certain records. The DOJ reportedly withheld documents naming Trump in an alleged sexual assault of a 13-year-old girl.
 
 [https://www.nytimes.com/2026/02/25/us/politics/trump-epstein-files.html](https://www.nytimes.com/2026/02/25/us/politics/trump-epstein-files.html)
 
@@ -98,7 +98,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 [https://www.cnbc.com/2026/02/24/epstein-trump-doj-garcia.html](https://www.cnbc.com/2026/02/24/epstein-trump-doj-garcia.html)
 
-2026-02-25 Sources reported that US skin care companies started heavily marketing skin care products to 3-year-old girls and makeup to 6-year-old girls.
+2026-02-25 Companies are marketing skincare products to very young girls, including children as young as three.
 
 [https://ktla.com/news/consumer-business/makeup-for-6-year-olds-kids-beauty-brands-fuel-growing-debate-among-parents/](https://ktla.com/news/consumer-business/makeup-for-6-year-olds-kids-beauty-brands-fuel-growing-debate-among-parents/)
 
@@ -106,7 +106,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 2026 March
 
-2026-03-25 Parents were warned to monitor their children for the use of the Roblox platform due to the increase of online sexual predators using the platform to target little kids.
+2026-03-25 Parents were warned about increasing reports of online predators targeting children through Roblox. 
 
 [https://www.reuters.com/business/media-telecom/roblox-announces-control-measures-comply-with-indonesias-social-media-curb-2026-04-30/](https://www.reuters.com/business/media-telecom/roblox-announces-control-measures-comply-with-indonesias-social-media-curb-2026-04-30/)
 

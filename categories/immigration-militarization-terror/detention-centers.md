@@ -114,7 +114,7 @@ permalink: /categories/immigration-militarization-terror/detention-centers/
 
 [https://havenwatch.org/](https://havenwatch.org/)
 
-2026-01-29 State Representatives made efforts to visit 5-year-old detainee Liam Ramos and his father at the Dilley Texas detention center, and learned that the child had stopped eating, was lethargic, and going through depression. It was only after national attention that the child and his father were released in February on judge orders. The Trump administration stated they would plan to appeal the release. The father stated the abandonment accusations were untrue, and they refused medical treatment to the child during custody.
+2026-01-29 ICE detained 5-year-old Liam Ramos and his father at the Dilley, Texas detention center. The child stopped eating, was lethargic, and was going through depression. Reports described poor conditions, medical concerns, and a later measles outbreak. A judge ordered their release in February. The Trump administration said they planned to appeal the release.  
 
 [https://www.cnn.com/2026/01/28/us/liam-ramos-joaquin-castro-visit](https://www.cnn.com/2026/01/28/us/liam-ramos-joaquin-castro-visit)
 
@@ -152,7 +152,7 @@ permalink: /categories/immigration-militarization-terror/detention-centers/
 
 [https://www.miamiherald.com/news/politics-government/article314928484.html](https://www.miamiherald.com/news/politics-government/article314928484.html)
 
-2026-03-18 YouTube celebrity Ms. Rachel and dozens of celebrities banded together to get a petition going calling for the immediate closure of Dilley detention center in Texas. The YouTuber and children’s entertainer spoke out after hearing directly from children in the Texas ICE facility describing emotional torture and horrendous conditions. Her petition can be found at [Change.org/](https://www.change.org/).
+2026-03-18 Ms. Rachel and other public figures launched a petition calling for closure of the Dilley, Texas ICE detention center after hearing accounts from detained children. Check out her petition on Change.org.
 
 [https://www.change.org/](https://www.change.org/)
 

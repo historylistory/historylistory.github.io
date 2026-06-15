@@ -82,11 +82,7 @@ permalink: /categories/religion/school/
 
 [https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423#:~:text=As%20disputes%20rage%20on%20over,:%20Louisiana%2C%20Arkansas%20and%20Texas](https://theconversation.com/3-states-push-to-put-the-ten-commandments-back-in-school-banking-on-new-guidance-at-the-supreme-court-264423).
 
-2026-03-16 US District Judge Timothy Brooks ruled that an Arkansas law requiring the Ten Commandments be placed in schools violates both the Establishment Clause and the Free Exercise Clause of the Constitution. Judge Brooks wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”. 
-
-**Proselytize:** to induce someone to convert to a different faith, religion, or cause. This practice is often considered distinct from, and more aggressive than, evangelism, which is generally viewed as sharing faith without pressure.
-
-FYI: Basic values of human decency can also be found in the non-denominational core “Golden Rules” taught in schools. If teaching core values required religious preference (which it shouldn’t), **then educational systems would also consider the “Five Precepts” of Buddhism, the “Yamas” and “Niyamas” of Hinduism, and an array of other ethical concepts found in the multitude of religions practiced worldwide.** 
+2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas's Ten Commandments classroom law violated the Constitution's Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
 
 https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-injunction-prohibiting-ten-commandments-display-in-arkansas-schools
 

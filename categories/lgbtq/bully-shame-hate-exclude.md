@@ -152,7 +152,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775](https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775)
 
-2026-02-27 Pete Hegseth laid out a contingency plan that the US armed forces would continue to support Scouting America only if they complied with Executive Order 14173 and end DEI including the welcoming of trans kids, offering the Citizenship in Society merit badge, among other things. Hegseth wrote in X, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
+2026-02-27 Pete Hegseth said the US armed forces would continue to support Scouting America only if they complied with Executive Order 14173 and end DEI including the welcoming of trans kids, offering the Citizenship in Society merit badge, among other things. Hegseth wrote in X, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
 
 [https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon](https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon)
 

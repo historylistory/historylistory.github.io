@@ -106,7 +106,7 @@ permalink: /categories/education/indoctrination/
 
 ### 2026 February
 
-2026-02-10 Nebraska became one of the first states to integrate extreme-right conservative Turning Point USA clubs into schools. The governor stated, “I see it as right and wrong, God and Satan”.
+2026-02-10 Nebraska became one of the first states to incorporate extreme-right Turning Point USA indoctrination clubs into schools. The governor stated, “I see it as right and wrong, God and Satan”.
 
 [https://nebraskaexaminer.com/2026/02/10/pillen-touts-plan-to-open-turning-point-usa-chapters-in-every-nebraska-high-school/](https://nebraskaexaminer.com/2026/02/10/pillen-touts-plan-to-open-turning-point-usa-chapters-in-every-nebraska-high-school/)
 
@@ -133,11 +133,7 @@ permalink: /categories/education/indoctrination/
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
 
-2026-03-16 US District Judge Timothy Brooks ruled that an Arkansas law requiring the Ten Commandments be placed in schools violates both the Establishment Clause and the Free Exercise Clause of the Constitution. Judge Brooks wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”. 
-
-**Proselytize:** to induce someone to convert to a different faith, religion, or cause. This practice is often considered distinct from, and more aggressive than, evangelism, which is generally viewed as sharing faith without pressure.
-
-FYI: Basic values of human decency can also be found in the non-denominational core “Golden Rules” taught in schools. If teaching core values required religious preference (which it shouldn’t), **then educational systems would also consider the “Five Precepts” of Buddhism, the “Yamas” and “Niyamas” of Hinduism, and an array of other ethical concepts found in the multitude of religions practiced worldwide.** 
+2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas's Ten Commandments classroom law violated the Constitution's Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
 
 https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-injunction-prohibiting-ten-commandments-display-in-arkansas-schools
 
