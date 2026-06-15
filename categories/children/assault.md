@@ -58,7 +58,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 2025 November
 
-2025-11-14 Megyn Kelly said she had it on good authority that Epstein was not a pedophile, but rather, he liked 15-year-old girls. One article quoted Kelly as saying, “I’m definitely not trying to make an excuse for this - I’m just giving you facts. That he wasn’t into, like, 8-year-olds, but he liked the very young teen types that could pass for even younger than they were, but would look legal to a passerby”. 
+2025-11-14 Megyn Kelly said she had it “on good authority” that Epstein was not a pedophile, but rather, he liked 15-year-old girls. One article quoted Kelly as saying, “I’m definitely not trying to make an excuse for this - I’m just giving you facts. That he wasn’t into, like, 8-year-olds, but he liked the very young teen types that could pass for even younger than they were, but would look legal to a passerby”. 
 
 [https://www.cnn.com/2025/11/14/business/video/megyn-kelly-questions-epstein-pedophile-digvid](https://www.cnn.com/2025/11/14/business/video/megyn-kelly-questions-epstein-pedophile-digvid)
 

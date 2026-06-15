@@ -356,7 +356,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 September 28 TPUSA INDOC
 
-2025-09-28 Information circulated on X that conservatives are planning to incorporate Turning Point USA indoctrination in school curriculum.
+2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
 

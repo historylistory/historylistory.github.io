@@ -179,15 +179,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 November
 
-2025-11-03 Against judge orders, Trump refused to release contingency funds for SNAP benefits. He also refused to dip into other pots to fund the $8B needed to continue benefits through November, stating he would only release partial funds but that it “could take months”. Unrelated but **for context** on the US economy at this time, we had just paid $20B in bailouts to Argentina, meanwhile the US reached a record high in national debt, and the president had just thrown a massive Great Gatsby party for his billionaire friends.
-
-[https://www.commondreams.org/news/trump-defies-court-snap-ruling](https://www.commondreams.org/news/trump-defies-court-snap-ruling)
-
-[https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap](https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap)
-
-[https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/](https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/)
-
-2025-11-03 Despite judge rulings, the Trump administration announced they will restart SNAP benefits but will only pay out half the amount people normally get.
+2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
 [https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown](https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown)
 
@@ -196,6 +188,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.politico.com/news/2025/11/04/trump-snap-funding-shutdown-food-aid-00635141](https://www.politico.com/news/2025/11/04/trump-snap-funding-shutdown-food-aid-00635141)
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
+
+[https://www.commondreams.org/news/trump-defies-court-snap-ruling](https://www.commondreams.org/news/trump-defies-court-snap-ruling)
+
+[https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap](https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap)
+
+[https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/](https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/)
+
 
 2025-11-09 Former U.S. Federal Judge Mark Wolf resigned after his 50-year tenure under the Regan administration, stating he could no longer stay silent about the “White House assault on rule of law” and calling it “deeply disturbing”.
 

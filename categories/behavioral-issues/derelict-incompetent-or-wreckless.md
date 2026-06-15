@@ -233,7 +233,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://publicwitness.wordandway.org/p/mike-johnson-doesnt-know-church-state](https://publicwitness.wordandway.org/p/mike-johnson-doesnt-know-church-state)
 
-2025-11-10 Eight Democratic senators joined Republicans in a vote to reopen the government without any concessions like saving affordable health care. During the shutdown, Trump leveraged SNAP benefits for politics and defied judge orders to release them to feed millions of starving Americans, so maybe this is what broke Democrats to cave. This was also when Trump forked over $40B in American taxpayer dollars to help Argentina out while our food pantries were overrun with needy citizens, and nobody voted to take the funds back from that either.
+2025-11-10 Eight Democratic senators joined Republicans in voting to reopen the government without additional concessions, and nobody voted to take back the $40B bailout that Trump gave to Argentina. 
 
 [https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/](https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/)
 

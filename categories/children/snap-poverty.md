@@ -54,7 +54,7 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 October
 
-2025-10-28 Rob Schmitt commented on Newsmax that there should be a weight limit for receiving SNAP benefits, asked why the people are subsidizing food for people that “weigh 300 pounds”, and claimed that people were “selling their benefits to get their nails done and buy weaves”. He even posted his comments on X.
+2025-10-28 Rob Schmitt commented on both Newsmax and X that there should be a weight limit for SNAP recipients, claiming benefits were going to people who “weigh 300 pounds” and were “selling their benefits to get their nails done and buy weaves”. 
 
 [https://www.yahoo.com/news/articles/newsmax-anchor-claims-americans-using-160133829.html](https://www.yahoo.com/news/articles/newsmax-anchor-claims-americans-using-160133829.html)
 
@@ -70,17 +70,17 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins played the new pick-me-girl in November when she weighed in on SNAP benefits in an X post, spinning rhetoric of SNAP fraud, attacking blue states, and calling Trump the “new sheriff in town”.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
-2025-11-03 Despite judge orders, Trump leveraged SNAP benefits, citing it “could take months” to release them, once saying he’d only release HALF, then going on X and posting he would release none. 
+2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
 [https://www.commondreams.org/news/trump-defies-court-snap-ruling](https://www.commondreams.org/news/trump-defies-court-snap-ruling)
 
 [https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap](https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap)
 
-[https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/](https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/)Page gone
+[https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/](https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/)
 
 [https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown](https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown)
 
@@ -90,7 +90,7 @@ permalink: /categories/children/snap-poverty/
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
 
-2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
+2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 
@@ -104,7 +104,7 @@ permalink: /categories/children/snap-poverty/
 
 [https://www.npr.org/2025/11/09/nx-s1-5603417/full-snap-benefits-trump-states-order](https://www.npr.org/2025/11/09/nx-s1-5603417/full-snap-benefits-trump-states-order)
 
-2025-11-10 Eight Democratic Senators joined Republicans in a vote to reopen the government without concessions. Also, nobody voted to reroute the $40B sent to bail out Argentina to feed 40 million Americans.
+2025-11-10 Eight Democratic senators joined Republicans in voting to reopen the government without additional concessions, and nobody voted to take back the $40B bailout that Trump gave to Argentina. 
 
 [https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/](https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/)
 

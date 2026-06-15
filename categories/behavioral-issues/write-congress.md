@@ -281,7 +281,7 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends hours before SNAP benefits expired.
 
-2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
 
 2025-11-04 Reports mocked Mike Johnson for repeatedly claiming ignorance about current events when it suits him. 
 

@@ -356,7 +356,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-11-03 Reports alleged Kash Patel fired FBI veteran Steven Palmer shortly after scrutiny over Patel's use of a government jet to visit is girlfriend. 
 
-2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
+2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
 
 2025-11-09 Trump threatened to sue the BBC for $1 billion over alleged edits to coverage of his January 6 remarks. 
 

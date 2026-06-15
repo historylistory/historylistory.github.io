@@ -199,7 +199,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
  
 
-2025-10-28 Rob Schmitt commented on Newsmax that there should be a weight limit for receiving SNAP benefits, asked why the people are subsidizing food for people that “weigh 300 pounds”, and claimed that people were “selling their benefits to get their nails done and buy weaves”. He even posted the bit about 300 pounds on his X account.
+2025-10-28 Rob Schmitt commented on both Newsmax and X that there should be a weight limit for SNAP recipients, claiming benefits were going to people who “weigh 300 pounds” and were “selling their benefits to get their nails done and buy weaves”. 
 
 [https://www.yahoo.com/news/articles/newsmax-anchor-claims-americans-using-160133829.html](https://www.yahoo.com/news/articles/newsmax-anchor-claims-americans-using-160133829.html)
 
@@ -223,19 +223,17 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 November
 
-2025-11-02 Brooke Rollins attacked blue states and SNAP recipients online.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
-2025-11-03 Against judge orders, Trump refused to release contingency funds for SNAP benefits. He also refused to dip into other pots to fund the $8B needed to continue benefits through November, stating he would only release partial funds but that it “could take months”. Unrelated but **for context** on the US economy at this time, we had just paid $20B in bailouts to Argentina, meanwhile the US reached a record high in national debt, and the president had just thrown a massive Great Gatsby party for his billionaire friends.
+2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
 [https://www.commondreams.org/news/trump-defies-court-snap-ruling](https://www.commondreams.org/news/trump-defies-court-snap-ruling)
 
 [https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap](https://www.npr.org/2025/11/03/g-s1-96296/trump-deadline-contingency-funds-snap)
 
 [https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/](https://www.opb.org/article/2025/11/03/trump-administration-says-snap-will-be-partially-funded-after-judges-rulings/)
-
-2025-11-03 Despite judge rulings, the Trump administration announced they will restart SNAP benefits but will only pay out half the amount people normally get.
 
 [https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown](https://www.npr.org/2025/11/03/nx-s1-5596121/snap-food-benefits-trump-government-shutdown)
 
@@ -245,7 +243,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
 
-2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
+2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 
@@ -269,9 +267,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.marketplace.org/story/2025/11/12/trump-kills-irs-direct-file-what-now](https://www.marketplace.org/story/2025/11/12/trump-kills-irs-direct-file-what-now)
 
- 
-
-2025-11-10 News outlets reported that the Trump Administration **Agriculture Department** threatened to penalize states that don’t “undo” steps to fully fund SNAP.
+ 2025-11-10 The Agriculture Department threatened to penalize states that didn’t “undo” steps to fully fund SNAP.
 
 [https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/](https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/)
 
@@ -283,7 +279,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
  
 
-2025-11-10 Eight Democratic senators joined Republicans in a vote to reopen the government without any concessions like saving affordable health care. During the shutdown, Trump leveraged SNAP benefits for politics and defied judge orders to release them to feed millions of starving Americans, so maybe this is what broke Democrats to cave. This was also when Trump forked over $40B in American taxpayer dollars to help Argentina out while our food pantries were overrun with needy citizens, and nobody voted to take the funds back from that either.
+2025-11-10 Eight Democratic senators joined Republicans in voting to reopen the government without additional concessions, and nobody voted to take back the $40B bailout that Trump gave to Argentina. 
 
 [https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/](https://time.com/7332610/8-senators-broke-with-democrats-to-end-government-shutdown/)
 

@@ -352,7 +352,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 November
 
-2025-11-04 Trump weaponized hunger and said SNAP funding would remain frozen until Democrats reopened the government
+2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 

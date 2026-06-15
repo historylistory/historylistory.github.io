@@ -114,6 +114,6 @@ https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-i
 
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
-2025-09-28 Information circulated on X that conservatives are planning to incorporate Turning Point USA indoctrination in school curriculum.
+2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)

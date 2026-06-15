@@ -72,7 +72,7 @@ permalink: /categories/foreign-affairs-isolation/usaid/
 
 ### 2025 October
 
-2025-10-25 PBS covered a story about how nurse Agnes Nambozo scales a 1000-foot ladder to work every day to reach the children in a remote part of Uganda to administer vaccines and life-saving care, and now that USAID has been dismantled she must also cover the work of several other people who, because of the Trump administration, are no longer available to provide aid.
+2025-10-25 PBS reported on Ugandan nurse Agnes Nambozo, who climbed a 1,000-foot ladder daily to provide vaccines and medical care. Following USAID cuts, she also assumed duties previously handled by other aid workers. 
 
 [https://www.pbs.org/newshour/show/meet-the-nurse-in-uganda-who-climbs-a-1000-foot-ladder-to-save-lives](https://www.pbs.org/newshour/show/meet-the-nurse-in-uganda-who-climbs-a-1000-foot-ladder-to-save-lives)
 
