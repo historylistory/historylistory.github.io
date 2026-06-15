@@ -8,7 +8,7 @@ permalink: /categories/children/universal-childcare/
 
 ### 2021
 
-2021-04-29 In a Tweet, JD Vance posted, “Universal day care is class war against normal people”. He also tweeted, “It turns out that normal Americans care more about their families than their jobs and want a family policy that doesn’t shunt their kids into crap daycare so they can enjoy more “freedom” in the paid labor force”. ***see Thought Project section on False Dilemma fallacies***
+2021-04-29 JD Vance posted, “Universal day care is class war against normal people”. He also tweeted, “It turns out that normal Americans care more about their families than their jobs and want a family policy that doesn’t shunt their kids into crap daycare so they can enjoy more “freedom” in the paid labor force”. 
 
 [https://x.com/JDVance/status/1387763955557445640](https://x.com/JDVance/status/1387763955557445640)
 

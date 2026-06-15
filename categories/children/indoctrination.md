@@ -8,11 +8,11 @@ permalink: /categories/children/indoctrination/
 
 ### 2022
 
-2022-01-01 PragerU announced plans to go "toe-to-toe" with PBS Kids and Disney. **The Prager-U 2022 Annual Report PDF**features conservative propaganda, such as defending children from widespread left-wing brainwashing, going toe-to-toe with PBS Kids and Disney, finding young talent and developing them into conservative influencers, rejecting leftist insanity - from CRT and picking your gender to learning to be ashamed of America, and A quote from Dennis Prager about changing minds.
+2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
 [https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf](https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf)
 
-2022-03-29 Kash Patel published a **politically biased** children's book called "The Plot Against The King", featuring “Hillary's horrible plot” against Trump, fake heralds, and “Komey's spying slugs”. The book is a trilogy, in which a wizard named Kash helps King Donald defeat characters like Hillary Queenton and Comma-la-la-la.
+2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 [https://www.npr.org/transcripts/nx-s1-5213692](https://www.npr.org/transcripts/nx-s1-5213692)
 

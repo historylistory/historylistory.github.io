@@ -22,7 +22,7 @@ permalink: /categories/education/villainizing-rhetoric/
 
 ### 2019
 
-2019-11-08 During an interview with Tucker Carlson, Rebecca Friedrichs accused teachers in unions of not really being teachers, but rather "radical socialists pushing an agenda" and only wanting power. She continued her nauseating claims to assert that when unions are pushing for free lunch programs, healthcare, and emotional support, this is all an attempt to replace the family with indoctrination and communism.
+2019-11-08 During a Tucker Carlson interview, Rebecca Friedrichs asserted that teachers' unions promoted socialism, and pushing for free lunch programs, healthcare, and emotional support is all an attempt to replace the family with indoctrination and communism.
 
 [https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and](https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and)
 

@@ -111,7 +111,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2022
 
-2022-03-29 Kash Patel published a **politically biased** children's book called "The Plot Against The King", featuring “Hillary's horrible plot” against Trump, fake heralds, and “Komey's spying slugs”.
+2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 [https://www.npr.org/transcripts/nx-s1-5213692](https://www.npr.org/transcripts/nx-s1-5213692)
 

@@ -47,7 +47,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2022
 
-2022-05-25 Beto O'Rourke was removed from the floor when he interrupted Greg Abbott during the Uvalde school shooting press conference to warn about the dire importance of this ignored issue. 
+2022-05-25 Beto O'Rourke was physically removed from Governor Greg Abbott's Uvalde shooting press conference after criticizing state gun policies. 
 
 {% include youtubePlayer.html id="eEIVS7TPZzA" %}
 

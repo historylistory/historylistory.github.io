@@ -12,9 +12,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 1997
 
-1997-05-07 Alan Dershowitz wrote an article arguing that “statutory rape is an outdated concept” and that sexual consent should be lowered to age 15. 
-
-Context: Dershowitz was a member of the team that got convicted sex offender Jeffrey Epstein a plea deal.
+1997-05-07 Alan Dershowitz argued in an article that statutory-rape laws were outdated and that the age of consent should be lowered to 15. Dershowitz later served on Jeffrey Epstein's legal team and got Epstein a plea deal. 
 
 [https://www.jpost.com/diaspora/alan-dershowitz-defends-his-statutory-rape-is-an-outdated-concept-column-597197](https://www.jpost.com/diaspora/alan-dershowitz-defends-his-statutory-rape-is-an-outdated-concept-column-597197)
 
@@ -24,7 +22,7 @@ Context: Dershowitz was a member of the team that got convicted sex offender Jef
 
 ### 2021 May
 
-2021-05-17 Joel Greenberg pleaded guilty to six charges including sex trafficking of a minor and was sentenced in December 2022.
+2021-05-17 Joel Greenberg plead guilty to six charges including sex trafficking of a minor and was sentenced in December 2022.
 
 [https://www.pbs.org/newshour/politics/gaetz-associate-pleads-guilty-to-sex-trafficking-charges](https://www.pbs.org/newshour/politics/gaetz-associate-pleads-guilty-to-sex-trafficking-charges)
 

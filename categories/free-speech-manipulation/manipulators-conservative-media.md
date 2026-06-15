@@ -82,9 +82,10 @@ Remember: rage bait sells. 
 
 [https://news.berkeley.edu/2025/02/13/study-finds-persistent-spike-in-hate-speech-on-x/](https://news.berkeley.edu/2025/02/13/study-finds-persistent-spike-in-hate-speech-on-x/)
 
-2022-01-01 PragerU announced plans to take advantage of the youth media landscape and go "toe-to-toe" with PBS and Disney. Their websites and resources are inundated with conservative propaganda that they intend to indoctrinate everyone’s children with. (**more on Prager-U is covered in section “School Indoctrination”**)
+2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
 [https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf](https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf)
+
 
 ### 2024 September
 

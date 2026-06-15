@@ -8,11 +8,11 @@ permalink: /categories/children/immigrants/
 
 ### 2017
 
-2017-01-20 The Trump administration considered using child separation from their mothers as a way to deter asylum-seekers.
+2017-01-20 The Trump administration used child separation as a deterrent to asylum seekers. 
 
 [https://en.wikipedia.org/wiki/Trump_administration_family_separation_policy](https://en.wikipedia.org/wiki/Trump_administration_family_separation_policy)
 
-2017-05-01 The Criminal Consequence Initiative was implemented in Yuma, AZ to prosecute first-time border crossers and allow agents to separate children from parents as young as **10 months old**.
+2017-05-01 The Criminal Consequence Initiative in Yuma, Arizona prosecuted first-time border crossers and enabled family separations involving children as young as 10 months old. 
 
 [https://en.wikipedia.org/wiki/Trump_administration_family_separation_policy](https://en.wikipedia.org/wiki/Trump_administration_family_separation_policy)
 

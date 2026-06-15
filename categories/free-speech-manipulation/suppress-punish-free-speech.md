@@ -6,6 +6,12 @@ subcategory_slug: suppress-punish-free-speech
 permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 ---
 
+### 2022
+
+2022-05-25 Beto O'Rourke was physically removed from Governor Greg Abbott's Uvalde shooting press conference after criticizing state gun policies. 
+
+{% include youtubePlayer.html id="eEIVS7TPZzA" %}
+
 ### 2025 June
 
 2025-06-11 Karoline Leavitt claimed that Trump was a champion for the First Amendment at the same time Trump threatened to sue or revoke licenses of networks that didn’t agree with him. She herself revoked press credentials for anyone in the press pool that didn’t refer to the Gulf of Mexico as “Gulf of America”. 

@@ -70,7 +70,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf](https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf)
 
-2022-03-29 Kash Patel published a **politically biased** children's book called "The Plot Against The King", featuring “Hillary's horrible plot” against Trump, fake heralds, and “Komey's spying slugs”.
+2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 [https://www.npr.org/transcripts/nx-s1-5213692](https://www.npr.org/transcripts/nx-s1-5213692)
 

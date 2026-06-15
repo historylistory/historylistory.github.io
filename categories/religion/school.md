@@ -22,7 +22,7 @@ permalink: /categories/religion/school/
 
 ### PragerU
 
-2022-01-01 PragerU announced plans to take advantage of the youth media landscape and go "toe-to-toe" with PBS and Disney. Their websites and resources are inundated with conservative propaganda that they intend to indoctrinate everyone’s children with.
+2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
 [https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf](https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf)
 
