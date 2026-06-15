@@ -74,7 +74,7 @@ permalink: /categories/religion/school/
 
 ### Ten Commandments
 
-2025-05-21 Senate Bill SB10 was introduced, requiring the Ten Commandments in classrooms. State Representative James Talrico sparred with Noble and ended the debate by stating “**forcing religion down throats is not love**”.
+2025-05-21 Senate Bill SB10 was introduced to require display of the Ten Commandments in classrooms. Representative James Talarico argued against the measure, “forcing religion down throats is not love”.
 
 {% include youtubePlayer.html id="g3Na7eXsRpI" %}
 

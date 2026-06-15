@@ -50,7 +50,7 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 ### 2025 July
 
-2025-07-31 News outlets reported that Treasury Secretary Scott Bessent once referred to the "Trump Baby Account" as a “back door for privatizing Social Security". However, the same article referred to Bessent's social media post clarifying that those accounts are "...an additive benefit for future generations, which will supplement...", which White House Press Secretary Karoline Leavitt reasserted during a press conference. The article quoted Leavitt as saying, “What the secretary of treasury was saying, and what this administration believes, is that these Trump newborn accounts, which is an incredibly creative and great provision that was in the one big, beautiful bill for newborn babies and families and future generations of Americans, will help supplement not substitute Social Security”.
+2025-07-31 Treasury Secretary Scott Bessent clarified that "Trump Baby Accounts" were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security”.
 
 [https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243](https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243)
 

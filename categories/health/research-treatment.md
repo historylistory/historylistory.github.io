@@ -12,11 +12,7 @@ permalink: /categories/health/research-treatment/
 
 [https://calmatters.org/education/higher-education/2025/04/dementia/](https://calmatters.org/education/higher-education/2025/04/dementia/)
 
-2025-01-31 The Trump administration purged medical information and data related to adolescent health, HIV and LGBTQ.
-
-[https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
-
-2025-01-31 The Trump administration purged federal health agency websites related to LGBTQ health, Civil Rights, Sexual and Gender Minority research, interactive tools for surveilling HIV, viral hepatitis, STDs and TB, and a Social Vulnerability Index. Among the purge they erased medical information on adolescent health such as the CDC's Division of Adolescent and School Health, monitoring health-related behaviors among high schoolers, and the Youth Risk Behavior Surveillance System which tracked nutrition, physical activity, tobacco and drug use, and sexual behavior.
+2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs. 
 
 [https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
 

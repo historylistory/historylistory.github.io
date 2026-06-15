@@ -28,13 +28,13 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 May
 
-2025-05-06 Trump told the interviewer of Meet the Press that girls don't need to have 30 dolls, they can have two or three. I hope he was just talking about the rich kids, and not about the ones who go completely without. 
+2025-05-06 Trump stated that girls did not need 30 dolls and could be satisfied with two or three. This was the same year he cut after-school care programs, weaponized SNAP benefits, removed mental health programs for children, fired working moms and dads from thousands of jobs so they couldn’t afford to feed their kids, dismantled every working safety net American families depend on, worked on building his stock portfolio and family business finances, diverted billions in taxpayer dollars to vanity projects, and treated his billionaire friends to lavish parties.  The only one who needs their toys taken away from them is Trump. 
 
 [https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829](https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829)
 
 ### 2025 July
 
-2025-07-04 The Big Beautiful Bill sharply reduced the number of Americans receiving food stamps or other programs designed to help struggling families.
+2025-07-04 The "Big Beautiful Bill" sharply reduced eligibility for food assistance and other aid programs serving low-income families. 
 
 [https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable#:~:text=/-,SNAP%20Cuts%20in%20One%20Big%20Beautiful%20Bill%20Act%20Leave%20Almost,vulnerable%20to%20losing%20that%20assistance](https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable)
 

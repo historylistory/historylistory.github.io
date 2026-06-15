@@ -24,17 +24,17 @@ permalink: /categories/children/health/
 
 [https://www.cnn.com/2025/01/29/politics/video/robert-kennedy-jr-bernie-sanders-confirmation-hearing-digvid](https://www.cnn.com/2025/01/29/politics/video/robert-kennedy-jr-bernie-sanders-confirmation-hearing-digvid)
 
-2025-01-31 The Trump administration purged federal health agency websites related to LGBTQ health, Civil Rights, Sexual and Gender Minority research, interactive tools for surveilling HIV, viral hepatitis, STDs and TB, and a Social Vulnerability Index. Among the purge they erased medical information on adolescent health such as the CDC's Division of Adolescent and School Health, monitoring health-related behaviors among high schoolers, and the Youth Risk Behavior Surveillance System which tracked nutrition, physical activity, tobacco and drug use, and sexual behavior.
+2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs. 
 
 [https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
 
 ### 2025 February
 
-2025-02-01 The Accelerating Kids Access to Care Act was reintroduced to Congress by Democratic Representative Lori Trahan of Massachusetts. This legislation aims to improve and speed up access to care for children with cancer that are enrolled in Medicaid.
+2025-02-01 Democratic Representative Lori Trahan of Massachusetts reintroduced the Accelerating Kids Access to Care Act to improve Medicaid access for children with cancer
 
 [https://www.congress.gov/bill/118th-congress/house-bill/4758](https://www.congress.gov/bill/118th-congress/house-bill/4758)
 
-2025-02-03 A bipartisan law, the Give Kids a Chance Act, was passed to accelerate the development of new drug combinations for pediatric cancer patients.
+2025-02-03 Congress passed the bipartisan Give Kids a Chance Act to speed development of pediatric cancer drug combinations. 
 
 [https://www.childrenscancercause.org/give-kids-a-chance-act?gad_source=1&gad_campaignid=1025228780&gbraid=0AAAAADHhkyJ1Fo4YzLHm0J7xb6cfjtjSH&gclid=Cj0KCQiAqeDMBhDcARIsAJEbU9R2dGDht0HFfXuyiT--1vTSMYiB4U31GMBsZcfHBFuxt9pPrj_VvD0aAsFGEALw_wcB](https://www.childrenscancercause.org/give-kids-a-chance-act?gad_source=1&gad_campaignid=1025228780&gbraid=0AAAAADHhkyJ1Fo4YzLHm0J7xb6cfjtjSH&gclid=Cj0KCQiAqeDMBhDcARIsAJEbU9R2dGDht0HFfXuyiT--1vTSMYiB4U31GMBsZcfHBFuxt9pPrj_VvD0aAsFGEALw_wcB)
 

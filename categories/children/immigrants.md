@@ -38,7 +38,7 @@ permalink: /categories/children/immigrants/
 
 ### 2025
 
-2025-02-14 Rerouting agents to immigration enforcement started to take  agents away from drug, weapon and child trafficking investigations.
+2025-02-14 Immigration-enforcement priorities reportedly diverted agents AWAY from drug trafficking, weapons trafficking, and child-trafficking investigations
 
 [https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf](https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf)
 

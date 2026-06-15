@@ -40,7 +40,7 @@ permalink: /categories/children/universal-childcare/
 
 ### 2025 April
 
-2025-04-08 Legislation called “Fairness for Stay-At-Home Parents Act” was introduced. 
+2025-04-08 The Fairness for Stay-at-Home Parents Act was introduced
 
 [https://www.congress.gov/bill/119th-congress/senate-bill/1348/all-info](https://www.congress.gov/bill/119th-congress/senate-bill/1348/all-info)
 

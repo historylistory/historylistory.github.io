@@ -24,7 +24,7 @@ permalink: /categories/children/indoctrination/
 
 ### 2025 May
 
-2025-05-21 Senate Bill SB10 was introduced, requiring the Ten Commandments in classrooms. State Representative James Talrico sparred with Noble and ended the debate by stating “**forcing religion down throats is not love**”.
+2025-05-21 Senate Bill SB10 was introduced to require display of the Ten Commandments in classrooms. Representative James Talarico argued against the measure, “forcing religion down throats is not love”.
 
 {% include youtubePlayer.html id="g3Na7eXsRpI" %}
 
@@ -34,7 +34,23 @@ permalink: /categories/children/indoctrination/
 
 ### 2025 August
 
-2025-08-08 PragerU announced plans to completely replace PBS in children's education and peddle conservative content. Some examples of the material Prager U offers on their website include: Who’s behind the anti-ICE riots - How Foreign aid keeps Africa poor - Laughter on Lockdown featuring Roseanne Barr - Their Lives Mattered - a spin off the Black Lives Matter movement - MIA: Masculinity in America - Why do you hate conservatives - And an artificially generated AI version of John Adams who tells children “Facts do not care about your feelings”. The quote "Facts do not care about your feelings" comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being "almost designed to be anti-Catholic indoctrination centers". 
+2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
+
+1. Who’s behind the anti-ICE riots 
+
+2. How Foreign aid keeps Africa poor 
+
+3. Laughter on Lockdown featuring Roseanne Barr 
+
+4. Their Lives Mattered - a spin off the Black Lives Matter movement 
+
+5. MIA: Masculinity in America 
+
+6. Why do you hate conservatives 
+
+7. And an artificially generated AI version of John Adams who tells children, “Facts do not care about your feelings”. 
+
+8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
 
 [https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
 
