@@ -135,7 +135,7 @@ OTHER SHADY BUSINESS
 
 [https://abcnews.go.com/Politics/senate-republicans-defeat-voting-rights-reform-bill/story?id=80643465](https://abcnews.go.com/Politics/senate-republicans-defeat-voting-rights-reform-bill/story?id=80643465)
 
-2021-06-24 An OAN host perpetuated election fraud claims on a broadcast and suggested that “traitors” who “stole” the election should be **executed**.
+2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
 
 [https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit#:~:text=One%20America%20News'%20Pearson%20Sharp,6%20violence%20at%20the%20Capitol](https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit).
 

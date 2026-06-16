@@ -8,7 +8,7 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 ### 2017
 
-2017-08-15 David Duke submitted a social media post thanking Trump for his **kind words about the protesters at the Unite the Right rally**. In his post he referenced ANTIFA. He wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
+2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
 [https://abc3340.com/news/nation-world/former-kkk-leader-david-duke-thank-you-president-trump-for-blaming-leftist-terrorists](https://abc3340.com/news/nation-world/former-kkk-leader-david-duke-thank-you-president-trump-for-blaming-leftist-terrorists)
 

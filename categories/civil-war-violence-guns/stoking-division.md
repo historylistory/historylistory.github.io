@@ -30,7 +30,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2019
 
-2019-03-01 In 2021 news outlets reported on surfaced video from March 2019 where Marjorie Taylor Greene confronted and harassed gun control activist and Parkland shooting survivor David Hogg and made baseless claims that the activist was being funded by George Soros.
+2019-03-01 Marjorie Taylor Greene confronted and harassed Parkland shooting survivor David Hogg and promoted claims that he was funded by George Soros
 
 [https://www.cnn.com/2021/01/27/politics/marjorie-taylor-greene-david-hogg-video](https://www.cnn.com/2021/01/27/politics/marjorie-taylor-greene-david-hogg-video)
 
@@ -40,7 +40,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2020
 
-2020-07-07 (context) Former political consultant Julie Kelly published a book, "Disloyal Opposition; how the *NeverTrump Right Tried - and Failed - to Take Down the President". Her bio can be found on docs.house.gov as file HHRG-117-JU08-Bio-KellyJ-20220121.pdf.
+2020-07-07 Julie Kelly published “Disloyal Opposition: How the NeverTrump Right Tried—and Failed—to Take Down the President”. 
 
 [https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf](https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf)
 
@@ -66,11 +66,11 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2022
 
-2022-01-01 (context) Former political consultant Julie Kelly published a book, "January 6 – How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right". Her bio can be found on docs.house.gov as file HHRG-117-JU08-Bio-KellyJ-20220121.pdf.
+2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
 
 [https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf](https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf)
 
-2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
+2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 [https://www.npr.org/transcripts/nx-s1-5213692](https://www.npr.org/transcripts/nx-s1-5213692)
 

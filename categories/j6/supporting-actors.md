@@ -44,7 +44,7 @@ permalink: /categories/j6/supporting-actors/
 
 ### 2022
 
-2022-01-01 (context) Former political consultant Julie Kelly published a book, "January 6 – How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right". Her bio can be found on docs.house.gov as file HHRG-117-JU08-Bio-KellyJ-20220121.pdf.
+2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
 
 [https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf](https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf)
 

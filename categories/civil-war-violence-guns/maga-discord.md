@@ -21,7 +21,7 @@ PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-l
 
 ### 2019
 
-2019-09-10 Trump tweeted about his ongoing dispute with his former National Security Advisor John Bolton.
+2019-09-10 Trump publicly criticized former National Security Advisor John Bolton. 
 
 [https://x.com/realDonaldTrump/status/1171452880055746560](https://x.com/realDonaldTrump/status/1171452880055746560)
 

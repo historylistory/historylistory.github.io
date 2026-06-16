@@ -54,7 +54,7 @@ The examples below further illustrate these concerns.
 
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
-2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
+2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 2022-05-25 Beto O'Rourke was physically removed from Governor Greg Abbott's Uvalde shooting press conference after criticizing state gun policies. 
 

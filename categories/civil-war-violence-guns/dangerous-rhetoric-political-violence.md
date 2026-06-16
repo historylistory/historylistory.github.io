@@ -38,13 +38,13 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 ### 2017
 
-2017-06-14 Not without Democrats’ share of political violence, there was a mass shooting at a Congressional baseball game in Virginia targeting Republicans.
+2017-06-14 A gunman opened fire at a congressional baseball practice in Virginia, targeting Republican lawmakers. 
 
 [https://www.cbsnews.com/news/who-is-steve-scalise-congressman-in-critical-condition-after-alexandria-shooting/](https://www.cbsnews.com/news/who-is-steve-scalise-congressman-in-critical-condition-after-alexandria-shooting/)
 
 [https://intelligence.house.gov/uploadedfiles/majority_report_of_baseball_shooting.pdf](https://intelligence.house.gov/uploadedfiles/majority_report_of_baseball_shooting.pdf)
 
-2017-08-11 (context – because these groups align with and support Trump) There was an organized **Unite the Right rally in Charlottesville**. One of the Nazis **deliberately charged his car into a crowd** of counter protesters, killing a 32-year-old woman.
+2017-08-11 The Unite the Right rally took place in Charlottesville. A white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer. 
 
 [https://en.wikipedia.org/wiki/Charlottesville_car_attack](https://en.wikipedia.org/wiki/Charlottesville_car_attack)
 
@@ -63,7 +63,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2020
 
-2020-06-01 (for context) When peaceful protestors rallied near the White House at Lafayette Square to protest in the name of racial justice, the Trump administration allowed law enforcement to tear-gas protestors. The DOJ reached a settlement in 2022 for excessive force. Some news outlets reported that **Trump made inquiries as to whether he was allowed to order law enforcement to “just shoot” the protestors**.
+2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
 
 [https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement](https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement)
 
@@ -79,13 +79,13 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary](https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary)
 
-2020-06-28 Mark and Patricia McCloskey aimed firearms at protesters during the George Floyd protests in Missouri.
+2020-06-28 Mark and Patricia McCloskey pointed firearms at protesters outside their Missouri home. 
 
 [https://en.wikipedia.org/wiki/St._Louis_gun-toting_incident](https://en.wikipedia.org/wiki/St._Louis_gun-toting_incident)
 
 [https://www.bbc.com/news/election-us-2020-53891184](https://www.bbc.com/news/election-us-2020-53891184)
 
-2020-08-25 Kyle Rittenhouse, a 17-year-old at the time, drove from Illinois to Wisconsin with an AR-15 and shot three protesters in the wake of the Jacob Blake shooting. He was hailed by Conservatives as a defender of Second Amendment rights and was acquitted on all charges including first-degree intentional homicide. FYI, news outlets reported that Kash Patel tried to help Rittenhouse sue Biden and the media for character assassination even though he brought guns across state lines to a protest – then later in 2026 Patel admonished Alex Pretti for carrying a legal weapon before he was executed by ICE.
+2020-08-25 Kyle Rittenhouse shot three protesters during unrest in Kenosha, Wisconsin. He was acquitted on all charges including first-degree intentional homicide and later received support from many conservatives. Reports later stated Kash Patel assisted in efforts to pursue lawsuits on Rittenhouse's behalf. 
 
 [https://www.aclu-wi.org/justice-jacob-blake/](https://www.aclu-wi.org/justice-jacob-blake/)
 
@@ -122,7 +122,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 A private account on X has posted the video, but due to the account being private their link will not be shared here.
 
-2021-06-24 An OAN host perpetuated election fraud claims on a broadcast and suggested that “traitors” who “stole” the election should be **executed**.
+2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
 
 [https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit#:~:text=One%20America%20News'%20Pearson%20Sharp,6%20violence%20at%20the%20Capitol](https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit).
 
@@ -130,7 +130,7 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2022 June
 
-2022-06-08 Suspect Nicholas Roske turned herself in for an assassination attempt on Brett Kavanaugh and pleaded guilty in April 2025 as Sophie Roske.
+2022-06-08 Nicholas Roske was arrested for attempting to assassinate Justice Brett Kavanaugh and later pleaded guilty. 
 
 [https://www.politico.com/news/2025/04/08/brett-kavanaugh-assassination-attempt-plea-00278743](https://www.politico.com/news/2025/04/08/brett-kavanaugh-assassination-attempt-plea-00278743)
 

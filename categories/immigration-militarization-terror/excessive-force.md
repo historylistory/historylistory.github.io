@@ -18,7 +18,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2020 - This is the behavior, right?
 
-2020-06-01 (for context) When peaceful protestors rallied near the White House at Lafayette Square to protest in the name of racial justice, the Trump administration allowed law enforcement to tear-gas protestors. The DOJ reached a settlement in 2022 for excessive force. Some news outlets reported that Trump made inquiries as to whether he was allowed to order law enforcement to “just shoot” the protestors.
+2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
 
 [https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement](https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement)
 

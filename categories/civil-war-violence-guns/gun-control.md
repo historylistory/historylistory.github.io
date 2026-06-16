@@ -35,7 +35,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2020
 
-2020-08-25 Kyle Rittenhouse, a 17-year-old at the time, drove from Illinois to Wisconsin with an AR-15 and shot three protesters in the wake of the Jacob Blake shooting. He was hailed by Conservatives as a defender of Second Amendment rights and was acquitted on all charges including first-degree intentional homicide. FYI, news outlets reported that Kash Patel tried to help Rittenhouse sue Biden and the media for character assassination even though he brought guns across state lines to a protest – then later in 2026 Patel admonished Alex Pretti for carrying a legal weapon before he was executed by ICE.
+2020-08-25 Kyle Rittenhouse shot three protesters during unrest in Kenosha, Wisconsin. He was acquitted on all charges including first-degree intentional homicide and later received support from many conservatives. Reports later stated Kash Patel assisted in efforts to pursue lawsuits on Rittenhouse's behalf. 
 
 [https://www.aclu-wi.org/justice-jacob-blake/](https://www.aclu-wi.org/justice-jacob-blake/)
 

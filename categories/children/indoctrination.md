@@ -12,7 +12,7 @@ permalink: /categories/children/indoctrination/
 
 [https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf](https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf)
 
-2022-03-29 Kash Patel published a politically-biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
+2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 [https://www.npr.org/transcripts/nx-s1-5213692](https://www.npr.org/transcripts/nx-s1-5213692)
 

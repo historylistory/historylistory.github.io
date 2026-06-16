@@ -34,21 +34,18 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.abc.net.au/news/2018-10-30/pittsburgh-massacre-whats-behind-us-alt-right-platform-gab/10444202](https://www.abc.net.au/news/2018-10-30/pittsburgh-massacre-whats-behind-us-alt-right-platform-gab/10444202)
 
-2017-08-11 There was an organized **Unite the Right rally in Charlottesville**. One of the Nazis **deliberately charged his car into a crowd** of counter protesters, killing a 32-year-old woman.
+2017-08-11 The Unite the Right rally took place in Charlottesville. A white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer. 
 
 [https://www.npr.org/2022/08/12/1116942725/the-charlottesville-rally-5-years-later-its-what-youre-still-trying-to-forget#:~:text=On%20the%20night%20of%20Aug,to%20take%20our%20country%20back.%22](https://www.npr.org/2022/08/12/1116942725/the-charlottesville-rally-5-years-later-its-what-youre-still-trying-to-forget)
 
 [https://www.integrityfirstforamerica.org/our-work/case/charlottesville-case/defendants](https://www.integrityfirstforamerica.org/our-work/case/charlottesville-case/defendants)
 
-2017-08-15 Trump called the far-right activists who attended the Unite the Right rally "very fine people".
+2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
 [https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
-
-2017-08-15 David Duke submitted a social media post thanking Trump for his **kind words about the protesters at the Unite the Right rally**. In his post he referenced ANTIFA. He wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
 [https://abc3340.com/news/nation-world/former-kkk-leader-david-duke-thank-you-president-trump-for-blaming-leftist-terrorists](https://abc3340.com/news/nation-world/former-kkk-leader-david-duke-thank-you-president-trump-for-blaming-leftist-terrorists)
 
-[https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
 
 ### 2018 
 
