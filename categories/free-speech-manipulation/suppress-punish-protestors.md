@@ -163,7 +163,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.theguardian.com/technology/2026/jan/27/ice-facial-recognition-minnesota](https://www.theguardian.com/technology/2026/jan/27/ice-facial-recognition-minnesota)
 
-2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. A double standard, considering the J6 insurrection.
+2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. This was the same day Trump posted on Truth Social that protesters in Los Angeles should be arrested for wearing masks. 
 
 [https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar](https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar)
 

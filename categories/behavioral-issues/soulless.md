@@ -183,6 +183,14 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2025 June
 
+2025-06-16 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X. The post was captioned with “This is what happens when Marxists don’t get their way” and a second post “Nightmare on Waltz Street”. The posts have since been taken down.
+
+{% include youtubePlayer.html id="Ot31E4JGglk" %}
+
+2025-06-17 After the politically motivated assassinations Trump refused to contact Tim Walz, saying, “I think the governor is so whacked out, why would I call him”, “the guy doesn’t have a clue, he’s a mess”, and “why waste time”.
+
+{% include youtubePlayer.html id="f-POfJnbHIs" %}
+
 2025-06-30 Laura Loomer joked that alligators would get “65 million meals” from migrants. She wrote on X, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)

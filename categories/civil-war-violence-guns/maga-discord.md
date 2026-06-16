@@ -88,7 +88,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2025 April
 
-2025-04-04 Ben Shapiro chastised Trump’s tariff policies.
+2025-04-04 Even right-wing hack Ben Shapiro criticized Trump’s tariff policies.
 
 [https://www.youtube.com/watch?v=Dfk_iZfrE5E](https://www.youtube.com/watch?v=Dfk_iZfrE5E)
 
@@ -97,7 +97,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2025 June
 
-2025-06-17 Thomas Massie opposed military escalation and emergency powers, and introduced a bipartisan War Powers Resolution to prohibit “United States Armed Forces from unauthorized hostilities in the Islamic Republic of Iran”.
+2025-06-17 Thomas Massie opposed military escalation and emergency powers and introduced a bipartisan War Powers Resolution to prohibit “United States Armed Forces from unauthorized hostilities in the Islamic Republic of Iran”.
 
 [https://massie.house.gov/news/documentsingle.aspx?DocumentID=395731](https://massie.house.gov/news/documentsingle.aspx?DocumentID=395731)
 

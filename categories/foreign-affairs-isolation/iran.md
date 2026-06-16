@@ -376,6 +376,13 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### 2025 June - Trump Bombs Iran
 
+2025-06-18 Steve Bannon warned against regime change in Iran, opposing Trump’s more aggressive posture.
+
+[https://www.csmonitor.com/USA/Politics/monitor_breakfast/2025/0618/steve-bannon-trump-maga-iran](https://www.csmonitor.com/USA/Politics/monitor_breakfast/2025/0618/steve-bannon-trump-maga-iran)
+
+[https://www.youtube.com/watch?v=bJnVvF2B2to](https://www.youtube.com/watch?v=bJnVvF2B2to)
+
+
 2025-06-21 Trump announced the US had “completely and totally obliterated” Iranian nuclear sites.
 
 [https://www.nbcnews.com/world/iran/trump-said-obliterated-irans-nuclear-program-now-says-us-may-bomb-iran-rcna260383](https://www.nbcnews.com/world/iran/trump-said-obliterated-irans-nuclear-program-now-says-us-may-bomb-iran-rcna260383)

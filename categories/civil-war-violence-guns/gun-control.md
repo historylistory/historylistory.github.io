@@ -121,7 +121,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2025 July
 
-2025-07-17 The Trump administration proposed restoration of a federal program which would allow certain individuals with past convictions to petition for the restoration of their federal firearm rights.
+2025-07-17 The administration proposed restoring a federal process allowing some people with prior convictions to seek restoration of firearm rights 
 
 [https://www.justice.gov/opa/pr/justice-department-publishes-proposed-rule-grant-relief-certain-individuals-precluded#:~:text=The%20proposed%20rule%20will%20provide,the%20process%20easier%20for%20them.%22](https://www.justice.gov/opa/pr/justice-department-publishes-proposed-rule-grant-relief-certain-individuals-precluded)
 

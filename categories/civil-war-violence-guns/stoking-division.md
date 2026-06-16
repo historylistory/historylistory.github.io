@@ -118,7 +118,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 June
 
-2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”.
+2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. This was the same day Trump posted on Truth Social that protesters in Los Angeles should be arrested for wearing masks. 
 
 [https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar](https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar)
 

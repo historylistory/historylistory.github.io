@@ -216,7 +216,7 @@ A private account on X has posted the video, but due to the account being privat
 
 [https://www.justice.gov/opa/pr/nevada-resident-arrested-and-charged-connection-violent-tesla-arson-las-vegas](https://www.justice.gov/opa/pr/nevada-resident-arrested-and-charged-connection-violent-tesla-arson-las-vegas)
 
-2025-05-26 Following court rulings against administration policies (tariffs and ending the 14th Amendment), judges received death threats, bomb threats, swatting attempts, and doxxing campaigns. Judges were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”.
+2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
 
 {% include youtubePlayer.html id="OiUU1JLoT2E" %}
 
@@ -235,19 +235,19 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2025 June
 
-2025-06-14 Democrat House Majority leader Melissa Hortman and her husband were brutally killed in their home in a politically motivated attack. Investigators uncovered a manifesto targeting other State leaders in the suspect's car.
+2025-06-14 Minnesota House Democratic leader Melissa Hortman and her husband were killed in a politically motivated attack. Investigators found a manifesto targeting other public officials. Senator Mike Lee mocked the murder in a post two days later.
 
 [https://www.house.mn.gov/sessiondaily/Story/18843](https://www.house.mn.gov/sessiondaily/Story/18843)
 
-2025-06-14 Democrat State Senator John Hoffman and his wife were shot in their home in a politically motivated attack. The assailant was impersonating an officer.
+2025-06-14 Minnesota State Senator John Hoffman and his wife were shot in a politically motivated attack by a suspect posing as a police officer 
 
 [https://www.mprnews.org/story/2025/08/04/sen-john-hoffman-speaks-about-his-shooting-hortman-murder](https://www.mprnews.org/story/2025/08/04/sen-john-hoffman-speaks-about-his-shooting-hortman-murder)
 
-2025-06-16 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X. The post was captioned with "This is what happens when Marxists don't get their way" and a second post "Nightmare on Waltz Street". The posts have since been taken down but screen captures still exist on news outlets.
+2025-06-16 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X. The post was captioned with “This is what happens when Marxists don’t get their way” and a second post “Nightmare on Waltz Street”. The posts have since been taken down.
 
 {% include youtubePlayer.html id="Ot31E4JGglk" %}
 
-2025-06-17 When the press asks Trump if he plans to call Tim Walz to express condolences for the political assassination, Trump responded, "I think the governor is so whacked out, why would I call him", "the guy doesn't have a clue, he's a mess", and "why waste time".
+2025-06-17 After the politically motivated assassinations Trump refused to contact Tim Walz, saying, “I think the governor is so whacked out, why would I call him”, “the guy doesn’t have a clue, he’s a mess”, and “why waste time”.
 
 {% include youtubePlayer.html id="f-POfJnbHIs" %}
 
