@@ -6,9 +6,22 @@ subcategory_slug: threats-of-violence-doxxing
 permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 ---
 
+### 2010
+
+2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
+
+[https://www.cnn.com/2022/02/10/media/sarah-palin-testifies-new-york-times](https://www.cnn.com/2022/02/10/media/sarah-palin-testifies-new-york-times)
+
+[https://www.npr.org/sections/thetwo-way/2017/06/28/534661773/sarah-palin-sues-new-york-times-says-editorial-defamed-her#:~:text=Palin's%20%22political%20action%20committee%20circulated,a%20Washington%2C%20D.C.%2C%20hospital](https://www.npr.org/sections/thetwo-way/2017/06/28/534661773/sarah-palin-sues-new-york-times-says-editorial-defamed-her).
+
+[https://abcnews.com/Politics/sarah-palins-crosshairs-ad-focus-gabrielle-giffords-debate/story?id=12576437#:~:text=Crosshairs%20is%20a%20political%20phrase,on%20a%20cable%20news%20program](https://abcnews.com/Politics/sarah-palins-crosshairs-ad-focus-gabrielle-giffords-debate/story?id=12576437).
+
+[https://www.npr.org/2025/04/22/g-s1-62157/new-york-times-alaska-governor-sarah-palin-libel](https://www.npr.org/2025/04/22/g-s1-62157/new-york-times-alaska-governor-sarah-palin-libel)
+
 ### 2016
 
-2016-08-09 During a campaign rally in Wilmington NC, Trump remarked "maybe the Second Amendment supporters should 'do' something about Hillary Clinton".
+2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
+
 
 {% include youtubePlayer.html id="58SawH2FJ4Q" %}
 

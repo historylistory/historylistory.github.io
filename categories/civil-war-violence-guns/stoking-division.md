@@ -14,7 +14,7 @@ permalink: /categories/civil-war-violence-guns/stoking-division/
 
 ### 2017
 
-2017-01-20 Within the first three minutes of Trump's first inaugural speech he planted seeds of doubt in the US government by saying “The establishment protected itself, but not the citizens”.
+2017-01-20 In his inaugural address, Trump said the political establishment protected itself rather than ordinary citizens. 
 
 [https://www.theguardian.com/world/2017/jan/20/donald-trump-transition-of-power-president-first-speech](https://www.theguardian.com/world/2017/jan/20/donald-trump-transition-of-power-president-first-speech)
 

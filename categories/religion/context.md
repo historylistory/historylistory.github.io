@@ -24,7 +24,7 @@ ITS THE FIRST AMENDMENT ESTABLISHMENT CLAUSE [https://firstamendment.mtsu.edu/ar
 
 ### 1992
 
-1992-08-17 Pat Buchanan declared a cultural and religious war, defining his "**Make America First Again**" campaign.
+1992-08-17 Pat Buchanan declared a cultural and religious war as part of his "Make America First Again" campaign. 
 
 {% include youtubePlayer.html id="y1rQKnTWEDQ" %}
 

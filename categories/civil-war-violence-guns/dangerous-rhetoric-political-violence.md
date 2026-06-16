@@ -8,7 +8,7 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 ### 2010
 
-2010-03-01 Ahead of the mid-terms, Sarah Palin's SarahPAC published an online map with crosshairs over Democratic districts. The post used the slogan "Reload".
+2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
 
 [https://www.cnn.com/2022/02/10/media/sarah-palin-testifies-new-york-times](https://www.cnn.com/2022/02/10/media/sarah-palin-testifies-new-york-times)
 
@@ -20,11 +20,11 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 ### 2011
 
-2011-01-08 Democratic Congresswoman Gabby Giffords and 18 others were shot during a "Congress On Your Corner" event in Tucson. Six were killed including a 9-year-old girl and 13 were seriously wounded.
+2011-01-08 Representative Gabby Giffords and 18 others were shot at a “Congress On Your Corner” event in Tucson. Six people were killed, including a 
 
 [https://www.justice.gov/archives/opa/pr/jared-lee-loughner-pleads-guilty-federal-charges-tucson-shooting](https://www.justice.gov/archives/opa/pr/jared-lee-loughner-pleads-guilty-federal-charges-tucson-shooting)
 
-2011-01-11 Following speculation over her crosshairs map and rhetoric, Sarah Palin published a video admonishing the accusation as "blood libel".
+2011-01-11 Sarah Palin rejected claims that her political rhetoric contributed to the Giffords shooting, calling the accusations "blood libel." 
 
 [https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage#:~:text=Saying%20that%20%22after%20this%20shocking,More%20options](https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage)
 

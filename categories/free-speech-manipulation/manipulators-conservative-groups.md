@@ -8,7 +8,13 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 
 ### 2010
 
-2023-03-17 Project Veritas is a far-right group started by James O’Keefe. They are notorious for going undercover to produce gotcha video material of their political and media foes. 
+2010-06-01 James O'Keefe founded far-right group Project Veritas, which is notorious for going undercover to produce “gotcha” material against political opposition. 
+
+[https://en.wikipedia.org/wiki/Project_Veritas](https://en.wikipedia.org/wiki/Project_Veritas)
+
+[https://www.rollingstone.com/politics/politics-features/project-veritas-james-okeefe-rise-fall-1235036748/](https://www.rollingstone.com/politics/politics-features/project-veritas-james-okeefe-rise-fall-1235036748/)
+
+[https://yaf.org/people/james-okeefe/](https://yaf.org/people/james-okeefe/)
 
 [https://www.cta.org/educator/posts/uninvited-guests-project-veritas-caught-trying-to-crash-state-council](https://www.cta.org/educator/posts/uninvited-guests-project-veritas-caught-trying-to-crash-state-council)
 

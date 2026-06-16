@@ -8,7 +8,7 @@ permalink: /categories/civil-war-violence-guns/far-right-groups-maga-roots/
 
 ### 1982
 
-1982-01-01 (for context) The Federalist Society was founded by Yale, Harvard and Chicago law school students to challenge liberal or left-wing ideology. Several members and supporters of Trump are current or former members of this organization.
+1982-01-01 The Federalist Society was founded by Yale, Harvard, and University of Chicago law students to challenge liberal legal ideas. Many Trump allies have been members or supporters.
 
 [https://en.wikipedia.org/wiki/Federalist_Society](https://en.wikipedia.org/wiki/Federalist_Society)
 
@@ -16,19 +16,30 @@ permalink: /categories/civil-war-violence-guns/far-right-groups-maga-roots/
 
 ### 1992
 
-1992-08-17 Pat Buchanan declared a cultural and religious war, defining his "Make America First Again" campaign.
+1992-08-17 Pat Buchanan declared a cultural and religious war as part of his "Make America First Again" campaign. 
 
 {% include youtubePlayer.html id="y1rQKnTWEDQ" %}
 
 ### 2010
 
-2010-06-01 Far-right activist James O’Keefe founded the controversial Project Veritas.
+2010-06-01 James O'Keefe founded far-right group Project Veritas, which is notorious for going undercover to produce “gotcha” material against political opposition. 
 
 [https://en.wikipedia.org/wiki/Project_Veritas](https://en.wikipedia.org/wiki/Project_Veritas)
 
 [https://www.rollingstone.com/politics/politics-features/project-veritas-james-okeefe-rise-fall-1235036748/](https://www.rollingstone.com/politics/politics-features/project-veritas-james-okeefe-rise-fall-1235036748/)
 
 [https://yaf.org/people/james-okeefe/](https://yaf.org/people/james-okeefe/)
+
+[https://www.cta.org/educator/posts/uninvited-guests-project-veritas-caught-trying-to-crash-state-council](https://www.cta.org/educator/posts/uninvited-guests-project-veritas-caught-trying-to-crash-state-council)
+
+[https://en.wikipedia.org/wiki/Project_Veritas](https://en.wikipedia.org/wiki/Project_Veritas)
+
+[https://www.nytimes.com/2020/09/29/us/politics/project-veritas-ilhan-omar.html](https://www.nytimes.com/2020/09/29/us/politics/project-veritas-ilhan-omar.html)
+
+[https://time.com/4536212/james-okeefe-project-veritas-video-democrats/](https://time.com/4536212/james-okeefe-project-veritas-video-democrats/)
+
+
+
 
 ### 2026
 

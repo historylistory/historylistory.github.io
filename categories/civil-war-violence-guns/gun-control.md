@@ -29,7 +29,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 1999
 
-1999-08-16 David Horowitz wrote an article in Salon.com titled, “Guns don’t kill black people, other blacks do” and the caption below said, “The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior”. Another excerpt of this article read, “If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
+1999-08-16 David Horowitz published a Salon article criticizing the NAACP's lawsuit against gun manufacturers and arguing that social problems should not be attributed primarily to systemic oppression. He wrote, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”. 
 
 [https://www.salon.com/1999/08/16/naacp/](https://www.salon.com/1999/08/16/naacp/)
 
