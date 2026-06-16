@@ -44,7 +44,13 @@ permalink: /categories/dictators-control/parallels/
 
 ### 2025 October
 
-2025-10-16 Trump announced plans to build his own “Victory Arch”.
+2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
+
+[https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
+
+[https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary](https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
 
 [https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590](https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590)
 

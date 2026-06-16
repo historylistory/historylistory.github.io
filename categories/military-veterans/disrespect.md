@@ -44,6 +44,26 @@ permalink: /categories/military-veterans/disrespect/
 
 {% include youtubePlayer.html id="-Rtr14AP13Y" %}
 
+### 2025 October
+
+2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
+
+
+[https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
+
+[https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary](https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+[https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590](https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590)
+
+[https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748](https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+
 ### 2026 January
 
 2026-01-28 The US Embassy in Copenhagen removed flags honoring fallen Danish soldiers who died in Afghanistan for the US. Trump claimed the soldiers “didn’t walk the front line”. Only after public outcry were the flags reinstalled.
@@ -163,6 +183,11 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/](https://www.militarytimes.com/news/pentagon-congress/2026/04/02/hegseth-asks-armys-top-general-to-retire-immediately-as-iran-war-rages/)
 
 [https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3](https://www.youtube.com/watch?v=U1fFnZlG8Zs&list=WL&index=3)
+
+2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+
+[https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
+
 
 2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
 

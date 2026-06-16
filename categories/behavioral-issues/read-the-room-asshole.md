@@ -60,11 +60,19 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
 
+
 [https://www.bbc.com/news/articles/cy7e8lv176go](https://www.bbc.com/news/articles/cy7e8lv176go)
 
 [https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary](https://www.npr.org/2025/10/16/nx-s1-5576506/president-trump-arch-us-250th-anniversary)
 
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
+[https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590](https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590)
+
+[https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748](https://theconversation.com/trump-wants-an-independence-arch-how-famous-arches-warn-about-dangers-to-republics-268748)
+
+[https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
+
 
 2025-10-24 Trump demolished the White House East Wing for ballroom construction despite earlier assurances.
 
