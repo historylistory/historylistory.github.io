@@ -76,19 +76,19 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2023
 
-2023-02-08 Republican Governor of Arkansas Sarah Huckabee Sanders stated, "the choice is between normal or crazy", accused the Biden administration of "woke fantasies" and asserted that Republicans "are under attack in a left-wing culture war we didn't start".
+2023-02-08 Arkansas Governor Sarah Huckabee Sanders framed politics as a choice between "normal or crazy", accused Democrats of promoting "woke fantasies." and asserted that Republicans “are under attack in a left-wing culture war”.
 
 {% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
 ### 2024 February
 
-2024-02-23 In a speech at CPAC Kash Patel talked about the need for an army to help Trump take America back, fight the media, fight the “deep state”, fight education, fight the border, and propagate conservative values back into the ecosystem.
+2024-02-23 At CPAC, Kash Patel called for building an "army" to help Trump fight the media, the deep state, education systems, and border policies 
 
 [https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926](https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926)
 
 ### July
 
-2024-07-26 A news article quoted JD Vance as saying, *”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”*.
+2024-07-26 A news article quoted JD Vance, ”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”.
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 
@@ -98,7 +98,8 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2024 August
 
-2024-08-03 Far-right activist Jack Posobiec’s book ‘Unhumans – The Secret History of Communist Revolutions and How to Crush Them’ refers to anyone on the left as “unhuman” and claims they “undo civilization itself”. This person also promoted the Pizzagate hoax. 
+2024-08-03 Jack Posobiec's book “Unhumans” argued that left-wing movements undermine civilization and promoted themes associated with anti-communist political activism. This person also promoted the Pizzagate. 
+
 [https://www.motherjones.com/politics/2024/07/jd-vance-unhumans-book-jack-posobiec-alt-right-january-6/](https://www.motherjones.com/politics/2024/07/jd-vance-unhumans-book-jack-posobiec-alt-right-january-6/)
 
 [https://www.splcenter.org/resources/guides/splc-investigation-far-right-oann-anchor-jack-posobiecs-rise-tied-white-supremacist-movement/](https://www.splcenter.org/resources/guides/splc-investigation-far-right-oann-anchor-jack-posobiecs-rise-tied-white-supremacist-movement/)
@@ -111,7 +112,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
-2024-08-07 JD Vance spoke at the Shelby Police Department during a memorial service. There he politicized the officer’s death by blaming Kamala Harris for it.
+2024-08-07 During a Shelby Police Department memorial service JD Vance politicized an officer’s death and blamed Kamala Harris policies for it.
 
 [https://bridgemi.com/michigan-government/vance-says-he-would-deport-violent-criminals-first-michigan-speech/](https://bridgemi.com/michigan-government/vance-says-he-would-deport-violent-criminals-first-michigan-speech/)
 

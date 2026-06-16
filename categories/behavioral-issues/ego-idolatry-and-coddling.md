@@ -42,7 +42,7 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 ### 2024
 
-2024-07-13 (Context) Assassination attempt on Trump. After the attempt, someone built a Trump sculpture out of nails.
+2024-07-13 This was the first assassination attempt on Trump in Butler PA. Ryan Routh, the convicted assailant who attempted to assassinate Trump, later attempted to stab himself in the neck after being found guilty September 23, 2025. One of the MAGA followers constructed a statue of Trump out of nails. 
 
 [https://www.cnn.com/politics/live-news/election-biden-trump-07-13-24](https://www.cnn.com/politics/live-news/election-biden-trump-07-13-24)
 

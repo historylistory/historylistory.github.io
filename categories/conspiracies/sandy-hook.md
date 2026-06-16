@@ -9,7 +9,7 @@ permalink: /categories/conspiracies/sandy-hook/
 ### 2022
 
 
-2022-08-03 Alex Jones pushed the narrative that Sandy Hook was a hoax. 
+2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax. 
 
 [https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
 

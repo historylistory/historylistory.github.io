@@ -51,7 +51,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 {% include youtubePlayer.html id="eEIVS7TPZzA" %}
 
-2022-06-23 After NYSRPA v. Bruen The Federalist Society helped to expand public carry rights. Context: According to some sources, The Federalist Society is a financial backer of Project 2025.
+2022-06-23 After NYSRPA v. Bruen, the Federalist Society – a Project 2025 supporter – expanded public-carry rights. 
 
 [https://fedsoc.org/commentary/fedsoc-blog/in-rahimi-gun-control-advocates-score-a-minor-and-mostly-hollow-victory#:~:text=In%20a%20similar%20vein%2C%20the,game%20for%20gun%20rights%20advocates](https://fedsoc.org/commentary/fedsoc-blog/in-rahimi-gun-control-advocates-score-a-minor-and-mostly-hollow-victory).
 
@@ -73,7 +73,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16](https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16)
 
-2022-08-03 Alex Jones pushed the narrative that Sandy Hook was a hoax. 
+2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax. 
 
 [https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
 

@@ -36,6 +36,10 @@ permalink: /categories/behavioral-issues/soulless/
 
 ### 2023 
 
+2023-09-29 Trump mocked the attack on Paul Pelosi during a California GOP event.
+
+[https://www.c-span.org/clip/campaign-2024/user-clip-trump-mocks-paul-pelosi-attack/5124885](https://www.c-span.org/clip/campaign-2024/user-clip-trump-mocks-paul-pelosi-attack/5124885)
+
 2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)

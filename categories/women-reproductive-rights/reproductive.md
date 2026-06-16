@@ -206,7 +206,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 
-2024-07-26 A news article quoted JD Vance as saying, *”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”*.
+2024-07-26 A news article quoted JD Vance, ”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”.
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 

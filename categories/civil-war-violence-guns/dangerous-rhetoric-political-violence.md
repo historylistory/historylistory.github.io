@@ -138,31 +138,27 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2022 October
 
-2022-10-01 Starting in 2022, Elon Musk made it so you could pay for the blue check verification on Twitter. Then they started having issues with impersonators from other countries and increased rage bait. Research showed a significant increase in hate speech on X following Elon Musk's acquisition in October 2022.
-
-Remember: rage bait sells. 
+2022-10-01 Following Elon Musk's acquisition of Twitter researchers reported increases in impersonation, misinformation, and hate speech. Elon Musk also allowed users to pay their way for their blue check verification. 
 
 [https://www.cbsnews.com/news/twitter-blue-check-verification-ending-new-subscription-april-1-elon-musk/#:~:text=Twitter%20is%20officially%20ending%20its,U.S](https://www.cbsnews.com/news/twitter-blue-check-verification-ending-new-subscription-april-1-elon-musk/).
 
 [https://news.berkeley.edu/2025/02/13/study-finds-persistent-spike-in-hate-speech-on-x/](https://news.berkeley.edu/2025/02/13/study-finds-persistent-spike-in-hate-speech-on-x/)
 
-2022-10-28 Paul Pelosi was brutally attacked in his home with a hammer by David DePape.
+2022-10-28 Paul Pelosi was attacked with a hammer in his home. Charlie Kirk responded to the Pelosi attack on his podcast, “…why is the Conservative movement to blame for gay schizophrenic nudists that are hemp jewelry makers breaking into somebody’s home…” and then urged a “brave patriot” to post bail for the suspect.
 
 [https://www.cnn.com/2022/10/28/politics/paul-pelosi-attack](https://www.cnn.com/2022/10/28/politics/paul-pelosi-attack)
-
-2022-10-28 Charlie Kirk responded to the Pelosi attack on his podcast by saying, "…why is the Conservative movement to blame for gay schizophrenic nudists that are hemp jewelry makers breaking into somebody's home…" and then urged a "brave patriot" to post bail for the suspect.
 
 [https://www.instagram.com/reel/DOjDtdUDi3Q/](https://www.instagram.com/reel/DOjDtdUDi3Q/)
 
 ### 2023
 
-2023-09-29 During an address at the California GOP convention, Trump mocked the Paul Pelosi assault.
+2023-09-29 Trump mocked the attack on Paul Pelosi during a California GOP event.
 
 [https://www.c-span.org/clip/campaign-2024/user-clip-trump-mocks-paul-pelosi-attack/5124885](https://www.c-span.org/clip/campaign-2024/user-clip-trump-mocks-paul-pelosi-attack/5124885)
 
 ### 2024 February
 
-2024-02-23 In a speech at CPAC Kash Patel talked about the need for an army to help Trump take America back, fight the media, fight the “deep state”, fight education, fight the border, and propagate conservative values back into the ecosystem.
+2024-02-23 At CPAC, Kash Patel called for building an "army" to help Trump fight the media, the deep state, education systems, and border policies 
 
 [https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926](https://www.c-span.org/program/public-affairs-event/kash-patel-speaks-at-cpac/638926)
 
@@ -174,7 +170,7 @@ Remember: rage bait sells. 
 
 ### 2024 July
 
-2024-07-13 Assassination attempt on Trump in Butler PA. Ryan Routh, the convicted assailant who attempted to assassinate Trump, later attempted to stab himself in the neck after being found guilty September 23, 2025.
+2024-07-13 This was the first assassination attempt on Trump in Butler PA. Ryan Routh, the convicted assailant who attempted to assassinate Trump, later attempted to stab himself in the neck after being found guilty September 23, 2025. One of the MAGA followers constructed a statue of Trump out of nails. 
 
 [https://abcnews.go.com/US/closing-arguments-set-trial-ryan-routh-accused-kill/story?id=125833927](https://abcnews.go.com/US/closing-arguments-set-trial-ryan-routh-accused-kill/story?id=125833927)
 
@@ -190,7 +186,7 @@ Remember: rage bait sells. 
 
 ### 2024 November
 
-2024-11-03 During a rally, Trump encouraged the idea of firing at the media by saying, “to get me someone would have to shoot through the fake news, and I don't mind that so much".
+2024-11-03 During a rally, Trump encouraged shooting firearms at journalists when he said, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 [https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
 
@@ -200,7 +196,7 @@ Remember: rage bait sells. 
 
 ### 2025 January
 
-2025-01-10 Lucy Harrison was shot in the chest with a semi-automatic handgun by her father in Prosper Texas after an argument about Trump. The father was never charged, stating the gun went off “accidentally”.
+2025-01-10 Lucy Harrison was shot in the chest with a semi-automatic handgun by her father in Prosper Texas after an argument about Trump. The father was never charged, stating the gun went off accidentally.
 
 [https://www.theguardian.com/uk-news/2026/feb/11/british-woman-lucy-harrison-unlawfully-killed-by-father-kris-harrison-texas](https://www.theguardian.com/uk-news/2026/feb/11/british-woman-lucy-harrison-unlawfully-killed-by-father-kris-harrison-texas)
 
@@ -210,7 +206,7 @@ Remember: rage bait sells. 
 
 ### 2025 February
 
-2025-02-09 After Elon Musk indiscriminately put hundreds of thousands of people out of work, arsonists set fire to a Tesla at an Albuquerque showroom.
+2025-02-09 Following large federal workforce firings from DOGE a Tesla was set on fire at an Albuquerque showroom 
 
 [https://www.justice.gov/opa/pr/albuquerque-man-charged-connection-arson-attacks-tesla-dealership-and-republican-party-new](https://www.justice.gov/opa/pr/albuquerque-man-charged-connection-arson-attacks-tesla-dealership-and-republican-party-new)
 

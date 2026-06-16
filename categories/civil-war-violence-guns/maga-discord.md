@@ -39,7 +39,7 @@ PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-l
 [https://www.congress.gov/event/118th-congress/house-event/117688/text](https://www.congress.gov/event/118th-congress/house-event/117688/text)
 
 
-2023-09-29 Paul Gosar criticized foreign entanglements and spending priorities inconsistent with strict “America First.”
+2023-09-29 Representative Paul Gosar criticized foreign intervention and spending that conflicted with "America First" agendas.
 
 [https://gosar.house.gov/news/email/show.aspx?ID=ONYQITDGDADMSDRBUJK2CVFDYQ](https://gosar.house.gov/news/email/show.aspx?ID=ONYQITDGDADMSDRBUJK2CVFDYQ)
 
@@ -56,7 +56,7 @@ PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-l
 
 ### 2024 
 
-2024-07-15 J.D. Vance criticized elements of Trump-aligned foreign policy messaging—especially mixed signals on Ukraine.
+2024-07-15 JD Vance criticized elements of Trump-aligned messaging about Ukraine and foreign policy. 
 
 [https://abcnews.com/Politics/vance-made-conflicting-comments-us-wars-abroad-heres/story?id=130692431](https://abcnews.com/Politics/vance-made-conflicting-comments-us-wars-abroad-heres/story?id=130692431)
 
@@ -68,10 +68,11 @@ PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-l
 
 ### 2025 March
 
-2025-03-04 Chip Roy criticized federal spending deals and lack of cuts, even when aligned with Trump priorities.
-https://schweikert.house.gov/2025/03/04/full-of-crap-deficit-hawk-roy-snipes-at-senators-who-say-tax-cut-extensions-are-free/
+2025-03-04 Representative Chip Roy criticized federal spending agreements and insufficient budget cuts 
 
-2025-03-10 Elon Musk v Steve Bannon ongoing feud after Musk split from MAGA. 
+[https://schweikert.house.gov/2025/03/04/full-of-crap-deficit-hawk-roy-snipes-at-senators-who-say-tax-cut-extensions-are-free](https://schweikert.house.gov/2025/03/04/full-of-crap-deficit-hawk-roy-snipes-at-senators-who-say-tax-cut-extensions-are-free)
+
+2025-03-10 Elon Musk and Steve Bannon publicly feuded after Musk's split with parts of the MAGA movement 
 
 [https://www.youtube.com/watch?v=jgqbpjKcTmo&t=82s](https://www.youtube.com/watch?v=jgqbpjKcTmo&t=82s)
 

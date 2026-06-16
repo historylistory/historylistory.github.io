@@ -122,7 +122,7 @@ Manhattan grand jury in the hush-money case.
 
 2024-10-31 During an interview with Tucker Carlson, Trump called Liz Cheney a radical war hawk and stated, “let’s put her with the rifles standing there with nine barrels shooting at her” and “let’s see how she feels about it, you know, when the guns are trained on her face”.
 
-2024-11-03 During a rally, Trump encouraged the idea of firing at the media by saying, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
+2024-11-03 During a rally, Trump encouraged shooting firearms at journalists when he said, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 2024-11-05 Trump attacked Fox News for airing Oprah.
 
