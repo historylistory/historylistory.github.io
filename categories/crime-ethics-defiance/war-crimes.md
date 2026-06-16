@@ -14,6 +14,22 @@ permalink: /categories/crime-ethics-defiance/war-crimes/
 
 [https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s](https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s)
 
+### 1982
+
+1982-03-23 Self-proclaimed born-again Pentecostal Efrain Rios Montt carried out one of the largest genocides against the Maya, with financial backing from the US. He was convicted of genocide in 2013. Ronald Regan called him “a man of great personal integrity”. Jerry Falwell supported him, and Pat Robinson interviewed him on the 700 Club. Christianity Today’s Luis Palau said, “It’s great to have a Christian president as a model…the hand of God appears to be on him”. 
+
+[https://nsarchive.gwu.edu/guatemalan-genocide-case](https://nsarchive.gwu.edu/guatemalan-genocide-case)
+
+[https://www.nytimes.com/1983/06/13/world/special-envoy-praises-guatemala.html ](https://www.nytimes.com/1983/06/13/world/special-envoy-praises-guatemala.html )
+
+[https://digitalcommons.trinity.edu/cgi/viewcontent.cgi?article=1023&context=hist_faculty](https://digitalcommons.trinity.edu/cgi/viewcontent.cgi?article=1023&context=hist_faculty)
+
+[https://www.thenation.com/article/society/pat-robertson-obituary/](https://www.thenation.com/article/society/pat-robertson-obituary/)
+
+[https://www.christianitytoday.com/2021/03/died-luis-palau-evangelist-argentina-portland-latin-america/](https://www.christianitytoday.com/2021/03/died-luis-palau-evangelist-argentina-portland-latin-america/)
+
+LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
+
 
 ### 2024 July
 

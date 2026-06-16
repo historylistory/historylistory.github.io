@@ -28,6 +28,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
 
+1982-03-23 Self-proclaimed born-again Pentecostal Efrain Rios Montt carried out one of the largest genocides against the Maya, with financial backing from the US. He was convicted of genocide in 2013. Ronald Regan called him “a man of great personal integrity”. Jerry Falwell supported him, and Pat Robinson interviewed him on the 700 Club. Christianity Today’s Luis Palau said, “It’s great to have a Christian president as a model…the hand of God appears to be on him”. 
+
 1991–2009 Trump bankrupted at least four casinos
 
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 

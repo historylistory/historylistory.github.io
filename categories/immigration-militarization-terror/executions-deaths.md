@@ -184,6 +184,16 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 ### 2026 March
 
+2026-03-02 Haitian asylum seeker Daffy Michelle’s body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June. 
+
+TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1)
+
+[https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/](https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/)
+
+[https://www.youtube.com/watch?v=_u24qQPsQ9c](https://www.youtube.com/watch?v=_u24qQPsQ9c)
+
+[https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343](https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343)
+
 2026-03-12 In May of 2025 Trump had accused South Africa of white genocide and invited white South Afrikaners to migrate to the U.S. By March 2026, those who migrated to the U.S. decided it would be best to return to South Africa, citing a better cost of living in South Africa, less racism, and concerns over growing violence from the Trump regime such as the execution of American citizens by ICE. One article quotes a South Afrikaner as stating, **“People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.**
 
 [https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/](https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/)

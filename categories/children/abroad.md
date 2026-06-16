@@ -224,3 +224,7 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039](https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039)
 
 [https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time](https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time)
+
+2026-06-11 Bipartisan Congressmembers urged Trump to halt deportation of hundreds of Afghan refugees to the Congo after they served the U.S. in Afghanistan. The group includes over 400 children and family of US servicemembers. 
+
+[https://www.theguardian.com/world/2026/jun/11/us-lawmakers-trump-afghans-drc](https://www.theguardian.com/world/2026/jun/11/us-lawmakers-trump-afghans-drc)

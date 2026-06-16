@@ -28,6 +28,17 @@ permalink: /categories/immigration-militarization-terror/due-process/
 
 [https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
 
+2025-04-29 A leaked memo confirmed Stephen Miller’s intentions to suspend Habeas Corpus. 
+
+[https://www.youtube.com/watch?v=NO7yLHxFdMQ&list=WL&index=6&t=200s](https://www.youtube.com/watch?v=NO7yLHxFdMQ&list=WL&index=6&t=200s)
+
+[https://www.youtube.com/watch?v=A_DjyHY45nI&list=WL&index=5&t=216s](https://www.youtube.com/watch?v=A_DjyHY45nI&list=WL&index=5&t=216s)
+
+[https://www.the-independent.com/news/world/americas/us-politics/habeas-corpus-trump-mass-deportation-arrests-b2996080.html](https://www.the-independent.com/news/world/americas/us-politics/habeas-corpus-trump-mass-deportation-arrests-b2996080.html)
+
+[https://abcnews.com/Politics/wh-trump-suspending-habeas-corpus/story?id=121653587](https://abcnews.com/Politics/wh-trump-suspending-habeas-corpus/story?id=121653587)
+
+[https://www.instagram.com/reels/DJcp_1DR97c/](https://www.instagram.com/reels/DJcp_1DR97c/)
 
 ### 2025 May
 

@@ -260,3 +260,12 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-05-18 A new report finds that more than 100,000 children in the US have had a parent detained since the Trump administration began its mass deportations.
 
 2026-05-26 Israeli strikes killed five Palestinians at a refugee camp in central Gaza, including a six-year-old girl. 
+
+2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
+
+2026-06-06 Overnight Israel killed 9 civilians including 4 children.
+
+2026-06-10 An investigation by AP found the Trump administration separated children from their families again in violation of a landmark settlement meant to unite children with their parents. 
+
+2026-06-11 Bipartisan Congressmembers urged Trump to halt deportation of hundreds of Afghan refugees to the Congo after they served the U.S. in Afghanistan. The group includes over 400 children and family of US servicemembers. 
+

@@ -70,3 +70,15 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 2026-02-09 The headline from the Springfield News-Sun says it all: "Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning."
 
 [https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
+
+### 2026 March
+
+2026-03-02 Haitian asylum seeker Daffy Michelle’s body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June. 
+
+TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1)
+
+[https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/](https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/)
+
+[https://www.youtube.com/watch?v=_u24qQPsQ9c](https://www.youtube.com/watch?v=_u24qQPsQ9c)
+
+[https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343](https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343)
