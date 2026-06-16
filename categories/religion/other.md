@@ -6,6 +6,14 @@ subcategory_slug: other
 permalink: /categories/religion/other/
 ---
 
+### 1975
+
+1975-01-01 The Banzer Plan was developed to deliberately discredit liberation theology and suppress left-wing Roman Catholic dissent.  Bolivian intelligence joined with the U.S. CIA to plant literature and shut down any progressive church publications. 
+
+[https://en.wikipedia.org/wiki/Banzer_Plan](https://en.wikipedia.org/wiki/Banzer_Plan)
+
+[https://history.state.gov/historicaldocuments/frus1977-80v24/d127](https://history.state.gov/historicaldocuments/frus1977-80v24/d127)
+
 ### 2021 
 
 2021-11-01 Doug Wilson flamethrower videos.

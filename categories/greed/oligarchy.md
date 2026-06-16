@@ -19,6 +19,19 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.bbc.com/news/blogs-echochambers-27074746](https://www.bbc.com/news/blogs-echochambers-27074746)
 
+### 1971
+
+1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to coordinate and fund the takeover of universities and media that shape American opinion. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer. 
+
+[https://www.inequalitymedia.org/explainers/v/the-powell-memo](https://www.inequalitymedia.org/explainers/v/the-powell-memo)
+
+[https://www.historyisaweapon.com/defcon1/powellmemo.html](https://www.historyisaweapon.com/defcon1/powellmemo.html)
+
+[https://scholarlycommons.law.wlu.edu/powellmemo/](https://scholarlycommons.law.wlu.edu/powellmemo/)
+
+[https://www.youtube.com/watch?v=klVyGr3rnAE&list=WL&index=2&t=155s](https://www.youtube.com/watch?v=klVyGr3rnAE&list=WL&index=2&t=155s)
+
+
 ### 2025 January
 
 2025-01-20 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade.

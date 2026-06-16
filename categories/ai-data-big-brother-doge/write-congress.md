@@ -19,7 +19,8 @@ You can start it however you'd like.
 
 Dear Sir or Madam,
 
-I do not agree with the current direction of technology policy in my country, particularly regarding AI deregulation, mass surveillance, and the environmental impacts of emerging technologies. Below are several examples that illustrate these concerns.
+I do not agree with the current direction of technology policy in my country, particularly regarding AI deregulation, mass surveillance, and the environmental impacts of emerging technologies. Below are several examples that illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
+
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 

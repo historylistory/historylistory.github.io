@@ -28,6 +28,24 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 [https://chevrontoxico.com/](https://chevrontoxico.com/)
 
+### 1969
+
+1969-07-12 The National Security Council characterized progressive Catholic clergy as an “increasingly disruptive force”, writing that “sermons and writings have already aroused the concern of Conservative church officials and military leaders” .
+
+INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
+
+[https://history.state.gov/historicaldocuments/frus1969-76ve10/d13](https://history.state.gov/historicaldocuments/frus1969-76ve10/d13)
+
+### 1971
+
+1971-03-05 Nixon stated in a directorate that they were threatened because priests were working with the peasants and workers “against the oligarchs and the armies”. 
+
+[https://www.sdmorrison.org/when-the-cia-conspired-to-crush-liberation-theology/](https://www.sdmorrison.org/when-the-cia-conspired-to-crush-liberation-theology/)
+
+[https://history.state.gov/historicaldocuments/frus1969-76ve10/d36](https://history.state.gov/historicaldocuments/frus1969-76ve10/d36)
+
+[https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
+
 
 ### 1989
 

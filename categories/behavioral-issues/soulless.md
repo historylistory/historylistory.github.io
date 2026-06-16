@@ -6,6 +6,24 @@ subcategory_slug: soulless
 permalink: /categories/behavioral-issues/soulless/
 ---
 
+### 1973
+
+1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
+
+[https://nsarchive.gwu.edu/briefing-book/southern-cone/2016-05-27/operation-condor-verdict-guilty](https://nsarchive.gwu.edu/briefing-book/southern-cone/2016-05-27/operation-condor-verdict-guilty)
+
+[https://www.wola.org/multimedia/uncovering-operation-condor-a-50-year-fight-for-accountability/](https://www.wola.org/multimedia/uncovering-operation-condor-a-50-year-fight-for-accountability/)
+
+[https://www.christianitytoday.com/1975/01/worlds-largest-congregation-cathedral-in-chile/](https://www.christianitytoday.com/1975/01/worlds-largest-congregation-cathedral-in-chile/)
+
+### 1980
+
+1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
+
+[https://en.wikipedia.org/wiki/1980_murders_of_U.S._missionaries_in_El_Salvador](https://en.wikipedia.org/wiki/1980_murders_of_U.S._missionaries_in_El_Salvador)
+
+[https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s](https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s)
+
 ### 1998
 
 1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.

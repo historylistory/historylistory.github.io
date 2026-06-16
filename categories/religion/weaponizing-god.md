@@ -16,6 +16,17 @@ Due to the lofty nature of this section, I don’t have a timeline for completio
 
 There is much to cover; still trying to gather. However, such events are peppered throughout the file
 
+### 1973
+
+1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
+
+[https://nsarchive.gwu.edu/briefing-book/southern-cone/2016-05-27/operation-condor-verdict-guilty](https://nsarchive.gwu.edu/briefing-book/southern-cone/2016-05-27/operation-condor-verdict-guilty)
+
+[https://www.wola.org/multimedia/uncovering-operation-condor-a-50-year-fight-for-accountability/](https://www.wola.org/multimedia/uncovering-operation-condor-a-50-year-fight-for-accountability/)
+
+[https://www.christianitytoday.com/1975/01/worlds-largest-congregation-cathedral-in-chile/](https://www.christianitytoday.com/1975/01/worlds-largest-congregation-cathedral-in-chile/)
+
+
 ### 2023
 
 2023-09-09 OPINION: Christian Nationalism is not Christianity – it is a polarizing extremist group bent on pushing political agendas and greed and promotes political violence.

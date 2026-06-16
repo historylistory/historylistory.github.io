@@ -29,7 +29,8 @@ The measure of a society is how it treats its most vulnerable members. Children 
 
 These concerns are not isolated incidents. They reflect a broader pattern of governance that, in my view, has shown far too little concern for the safety, health, dignity, and future of children. No administration should be beyond criticism when the well-being of the next generation is at stake.
 
-The examples below further illustrate these concerns.
+The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
+
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 

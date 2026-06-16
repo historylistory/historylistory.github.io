@@ -6,6 +6,15 @@ subcategory_slug: war-crimes
 permalink: /categories/crime-ethics-defiance/war-crimes/
 ---
 
+### 1980
+
+1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
+
+[https://en.wikipedia.org/wiki/1980_murders_of_U.S._missionaries_in_El_Salvador](https://en.wikipedia.org/wiki/1980_murders_of_U.S._missionaries_in_El_Salvador)
+
+[https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s](https://www.youtube.com/watch?v=xCyLgOZNee4&t=10s)
+
+
 ### 2024 July
 
 

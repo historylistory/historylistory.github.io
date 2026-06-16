@@ -23,7 +23,8 @@ I find it deeply troubling to witness what I perceive as a pattern of intimidati
 
 These behaviors are inconsistent with the principles of mutual respect, civic discourse, and democratic governance that I believe should characterize American leadership. Citizens should be free to express their views and participate in public life without fear of retaliation from their government. When political power is used to intimidate or silence dissent, it can erode public trust, weaken democratic institutions, and diminish the freedoms that are fundamental to our society.
 
-The examples below further illustrate these concerns.
+The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
+
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
