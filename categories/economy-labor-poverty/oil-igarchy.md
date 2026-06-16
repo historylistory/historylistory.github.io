@@ -14,6 +14,30 @@ This section is still in progress, but since Trump took office he has been tryin
 
 Oil dependency is the bottom-line for investors, which is why they repeatedly block clean energy and advocate for drilling and mining in protected areas. For more information, see the section ***CLIMATE CHANGE***
 
+### 1932
+
+1932-01-01 Summer Institute of Linguistics was set up to go to remote regions to proselytize to indigenous people. Some reports cited a political mandate of SIL and that the group would foster subservience and compliance, and banish ideas of community organization or social solidarity. This would be the case in the 60’s when they forced Ecuadorian people onto reservations at the behest of oil companies. 
+
+[https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/](https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/)
+
+[https://www.cia.gov/readingroom/docs/CIA-RDP99-00498R000200020098-4.pdf](https://www.cia.gov/readingroom/docs/CIA-RDP99-00498R000200020098-4.pdf)
+
+[https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
+
+PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/](https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/)
+
+### 1964
+
+1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development. 
+
+[https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day](https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day)
+
+[https://amazonfrontlines.org/chronicles/waorani-victory/](https://amazonfrontlines.org/chronicles/waorani-victory/)
+
+[https://chevrontoxico.com/](https://chevrontoxico.com/)
+
+
+
 ### 2011
 
 2011-04-17 Trump said he would like to seize oil fields in Libya and Iraq.

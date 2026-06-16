@@ -1,10 +1,33 @@
 ---
 layout: subcategory
-title: Politics
+title: Profit & Politics
 category_slug: religion
-subcategory_slug: politics
-permalink: /categories/religion/politics/
+subcategory_slug: profit-and-politics
+permalink: /categories/religion/profit-and-politics/
 ---
+
+### 1932
+
+1932-01-01 Summer Institute of Linguistics was set up to go to remote regions to proselytize to indigenous people. Some reports cited a political mandate of SIL and that the group would foster subservience and compliance, and banish ideas of community organization or social solidarity. This would be the case in the 60’s when they forced Ecuadorian people onto reservations at the behest of oil companies. 
+
+[https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/](https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/)
+
+[https://www.cia.gov/readingroom/docs/CIA-RDP99-00498R000200020098-4.pdf](https://www.cia.gov/readingroom/docs/CIA-RDP99-00498R000200020098-4.pdf)
+
+[https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
+
+PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/](https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/)
+
+### 1964
+
+1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development. 
+
+[https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day](https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day)
+
+[https://amazonfrontlines.org/chronicles/waorani-victory/](https://amazonfrontlines.org/chronicles/waorani-victory/)
+
+[https://chevrontoxico.com/](https://chevrontoxico.com/)
+
 
 ### 1989
 
@@ -93,11 +116,23 @@ permalink: /categories/religion/politics/
 
 [https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6](https://www.middlebury.edu/institute/academics/centers-initiatives/ctec/ctec-publications/white-christian-nationalism-after-january-6)
 
-### 2024
+### 2024 March
+
+2024-03-26 Trump announced the rebranding of the Lee Greenwood Bible as the Trump Bible, which are made in China for $3 each and sold in the US for $59.99.
+
+[https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY](https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY)
+
+[https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html](https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html)
+
+
+### 2024 May
 
 2024-05-28 Speaker Mike Johnson hung an “An Appeal to Heaven” flag outside his office. The flag is associated with the Christian Nationalist movement.
 
 {% include youtubePlayer.html id="4X6iSP86NEM" %}
+
+### 2024 November
+
 
 2024-11-05 Kenneth Copeland organized election coverage with America Stands, an organization which offers education on **how to vote** according to their biblical values.
 
@@ -284,3 +319,17 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian](https://www.npr.org/2026/05/15/g-s1-122276/the-trump-administration-is-planning-a-prayer-event-on-the-national-mall-all-but-one-of-the-speakers-is-christian)
 
 [https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
+
+### 2026 June
+
+2026-06-04 A few companies released Christian-themed energy drinks to capitalize on current events. 
+
+[https://www.theguardian.com/business/2026/jun/04/jesus-christian-energy-drink](https://www.theguardian.com/business/2026/jun/04/jesus-christian-energy-drink)
+
+[https://drinkpraise.com/](https://drinkpraise.com/)
+
+[https://www.drinkagapeenergy.com/](https://www.drinkagapeenergy.com/)
+
+[https://www.cnn.com/2026/06/09/business/video/christian-energy-drinks-ldn-digvid-vrtc](https://www.cnn.com/2026/06/09/business/video/christian-energy-drinks-ldn-digvid-vrtc)
+
+
