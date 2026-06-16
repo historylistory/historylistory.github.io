@@ -571,3 +571,10 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 [https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html](https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html)
 
 SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c8f67e4b0dade60327c0b](https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c8f67e4b0dade60327c0b)
+
+### 2026 June
+
+2026-06-13 Protesters in Albania tore down fences surrounding Jared Kushner’s luxury development site. 
+
+[https://www.vanityfair.com/story/albania-protest-luxury-resort-jared-kushner](https://www.vanityfair.com/story/albania-protest-luxury-resort-jared-kushner)
+

@@ -207,3 +207,12 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/](https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/)
 
 [https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches](https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches)
+
+### 2026 June
+
+2026-06-16 Protesters demand release of president of the Islamic Society of Milwaukee Salah Sarsour who has been held at Clay County Jail for over two months. He has been denied medical care and religious rights. He is a type-II diabetic and has lost weight. 
+
+[https://www.democracynow.org/2026/6/16/headlines/activists_demand_release_of_milwaukee_muslim_leader_salah_sarsour_from_indiana_ice_jail](https://www.democracynow.org/2026/6/16/headlines/activists_demand_release_of_milwaukee_muslim_leader_salah_sarsour_from_indiana_ice_jail)
+
+[https://www.milwaukeeindependent.com/newswire/supporters-rally-outside-indiana-detention-center-milwaukees-salah-sarsour-remains-held-ice/](https://www.milwaukeeindependent.com/newswire/supporters-rally-outside-indiana-detention-center-milwaukees-salah-sarsour-remains-held-ice/)
+

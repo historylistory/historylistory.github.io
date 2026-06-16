@@ -262,3 +262,7 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 
 [https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
+
+2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
+
+[https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)

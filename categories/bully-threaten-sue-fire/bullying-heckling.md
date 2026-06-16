@@ -376,3 +376,9 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://nypost.com/2026/05/25/us-news/president-trump-heralds-memorial-day-by-trashing-dumocrats-rinos-and-fools/](https://nypost.com/2026/05/25/us-news/president-trump-heralds-memorial-day-by-trashing-dumocrats-rinos-and-fools/)
 
 [https://www.yahoo.com/news/politics/articles/donald-trump-uses-memorial-day-083412620.html](https://www.yahoo.com/news/politics/articles/donald-trump-uses-memorial-day-083412620.html)
+
+### 2026 June
+
+2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
+
+[https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event](https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event)

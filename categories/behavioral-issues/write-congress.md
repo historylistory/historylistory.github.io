@@ -614,5 +614,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 
+2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
+
 2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
 

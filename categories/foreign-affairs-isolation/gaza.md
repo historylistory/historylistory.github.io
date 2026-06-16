@@ -452,3 +452,13 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 
 [https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
+
+2026-06-15 In Britain four Palestine activists were sentenced as terrorists without conviction for protesting in 2024. 
+
+[https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/](https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/)
+
+2026-06-15 The UK has labelled Palestine Action as a terrorist organization. 
+
+[https://www.reuters.com/world/britain-wins-appeal-that-palestine-action-ban-was-unlawful-2026-06-15/](https://www.reuters.com/world/britain-wins-appeal-that-palestine-action-ban-was-unlawful-2026-06-15/)
+
+[https://www.cnn.com/2026/06/15/uk/ban-palestine-action-uk-appeal-ruling-intl](https://www.cnn.com/2026/06/15/uk/ban-palestine-action-uk-appeal-ruling-intl)

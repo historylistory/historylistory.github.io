@@ -252,3 +252,15 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.politico.com/news/2026/05/31/trump-vents-about-judge-who-blocked-kennedy-center-changes-00943727](https://www.politico.com/news/2026/05/31/trump-vents-about-judge-who-blocked-kennedy-center-changes-00943727)
 
 [https://www.reuters.com/world/us-judge-orders-removal-trumps-name-kennedy-center-2026-05-29/](https://www.reuters.com/world/us-judge-orders-removal-trumps-name-kennedy-center-2026-05-29/)
+
+### 2026 June
+
+2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
+
+[https://www.forbes.com/sites/conormurray/2026/06/15/a-tarp-still-blocks-the-kennedy-centers-sign-days-after-trumps-name-was-removed/](https://www.forbes.com/sites/conormurray/2026/06/15/a-tarp-still-blocks-the-kennedy-centers-sign-days-after-trumps-name-was-removed/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-kennedy-center-name-removed-cover-up](https://www.ms.now/rachel-maddow-show/maddowblog/trump-kennedy-center-name-removed-cover-up)
+
+[https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/](https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/)
+
+[https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/](https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/)

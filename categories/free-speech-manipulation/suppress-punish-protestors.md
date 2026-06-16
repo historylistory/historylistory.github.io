@@ -357,3 +357,9 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 2023 [https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462](https://www.kcra.com/article/protesters-shut-down-bay-bridge-heading-san-francisco/45862462)
 
 2024 [https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/](https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/)
+
+### 2026 June
+
+2026-06-15 In Britain four Palestine activists were sentenced as terrorists without conviction for protesting in 2024. 
+
+[https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/](https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/)

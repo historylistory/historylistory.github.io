@@ -67,3 +67,8 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://abc7chicago.com/story/new-details-released-united-plane-flew-15-feet-jersey-turnpike-striking-pole-truck-ntsb-report-says/19239322/](https://abc7chicago.com/story/new-details-released-united-plane-flew-15-feet-jersey-turnpike-striking-pole-truck-ntsb-report-says/19239322/)
 
 [https://abcnews.com/video/133601833/](https://abcnews.com/video/133601833/)
+
+2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8. 
+
+[https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7](https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7)
+

@@ -211,3 +211,7 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 [https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s](https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s)
 
 [https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list](https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list)
+
+2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8. 
+
+[https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7](https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7)

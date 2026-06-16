@@ -255,3 +255,10 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.ohchr.org/en/press-releases/2026/06/us-sanctions-against-cuba-are-endangering-lives-and-must-be-lifted](https://www.ohchr.org/en/press-releases/2026/06/us-sanctions-against-cuba-are-endangering-lives-and-must-be-lifted)
 
+2026-06-15 Trump administration blocked 250,000 barrels of gasoline and diesel to Cuba. 
+
+[https://www.democracynow.org/2026/6/15/headlines/cubas_humanitarian_crisis_deepens_as_us_blocks_delivery_of_desperately_needed_fuel](https://www.democracynow.org/2026/6/15/headlines/cubas_humanitarian_crisis_deepens_as_us_blocks_delivery_of_desperately_needed_fuel)
+
+2026-06-15 Vance said the administration plans to release the “Memorandum of Understanding” agreement between the US and Iran. 
+
+[https://www.politico.com/news/2026/06/15/jd-vance-iran-deal-signed-00962149](https://www.politico.com/news/2026/06/15/jd-vance-iran-deal-signed-00962149)

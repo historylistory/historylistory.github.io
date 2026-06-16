@@ -106,3 +106,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 2026-06-02 Israel continued attacks on Lebanon and killed 8 people even after Trump said both sides agreed to a ceasefire.
 
 [https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack](https://www.democracynow.org/2026/6/2/headlines/israel_kills_8_in_lebanon_after_trump_says_he_told_netanyahu_to_call_off_beirut_attack)
+
+2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
+
+[https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)

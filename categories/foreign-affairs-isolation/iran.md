@@ -1821,3 +1821,7 @@ TIMESTAMP 2:24 [https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2](htt
 TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2)
 
 [https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel](https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel)
+
+2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
+
+[https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)
