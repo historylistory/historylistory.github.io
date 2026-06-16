@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: American Security
+title: Global Security
 category_slug: foreign-affairs-isolation
-subcategory_slug: american-security
-permalink: /categories/foreign-affairs-isolation/american-security/
+subcategory_slug: global-security
+permalink: /categories/foreign-affairs-isolation/global-security/
 ---
 
 ### 2025 July
@@ -43,3 +43,24 @@ permalink: /categories/foreign-affairs-isolation/american-security/
 [https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
+
+
+### 2026 June
+
+2026-06-12 U.S. officials confirmed plans to remove air and naval forces from the EU amidst pressure from Russia.
+
+[https://www.aljazeera.com/news/2026/6/12/us-to-cut-air-and-naval-assets-deployed-for-nato-operations-in-europe](https://www.aljazeera.com/news/2026/6/12/us-to-cut-air-and-naval-assets-deployed-for-nato-operations-in-europe)
+
+[https://www.cfr.org/articles/trump-is-pulling-troops-from-germany-the-missiles-are-a-bigger-problem](https://www.cfr.org/articles/trump-is-pulling-troops-from-germany-the-missiles-are-a-bigger-problem)
+
+[https://www.forbes.com/sites/davedeptula/2026/05/31/a-baltic-pressure-campaign-for-president-trump-to-end-russias-war/](https://www.forbes.com/sites/davedeptula/2026/05/31/a-baltic-pressure-campaign-for-president-trump-to-end-russias-war/)
+
+
+2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
+
+[https://www.youtube.com/watch?v=9CBXhmvZgds&list=WL&index=6&t=28s](https://www.youtube.com/watch?v=9CBXhmvZgds&list=WL&index=6&t=28s)
+
+[https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte](https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte)
+
+[https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798](https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798)
+
