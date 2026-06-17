@@ -14,7 +14,7 @@ permalink: /categories/conspiracies/immigrants/
 
 ### 2024 September
 
-2024-09-09 Trump reposted a tweet from JD Vance. The Vance post read, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump added "Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did".
+2024-09-09 Trump reposted a tweet from JD Vance, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump added “Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did”.
 
 [https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html](https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html)
 
@@ -26,7 +26,7 @@ permalink: /categories/conspiracies/immigrants/
 
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
-2024-09-11 JD Vance doubled down on his perpetuating the nonsense that migrants were eating pets in Ohio. During a sit-down interview with Kaitlan Collins on CNN, he stated *“When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”.* **[see Thought Project section in the main menu under ‘Fallacies’]** 
+2024-09-11 JD Vance defended spreading Springfield pet rumors on CNN, “When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”. 
 
 [https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid](https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid)
 
@@ -38,7 +38,7 @@ permalink: /categories/conspiracies/immigrants/
 
 [https://www.wcpo.com/news/state/state-ohio/4-days-of-threats-in-springfield-what-happened-after-viral-post-claimed-haitian-immigrants-were-eating-pets](https://www.wcpo.com/news/state/state-ohio/4-days-of-threats-in-springfield-what-happened-after-viral-post-claimed-haitian-immigrants-were-eating-pets)
 
-2024-09-15 During an interview with Face the Nation, JD Vance responded to Springfield bomb threats by saying he believed those responsible should be prosecuted, but then he circumvented the question by stating"… we don't believe in a heckler's veto in this country. You can condemn violence on the one hand, while also saying that there have been terrible problems caused by Kamala Harris' open border in Springfield. Now, you said that these are false rumors, but I've heard about a dozen things...ten of them are verifiable and confirmable...maybe all of these constituents are lying to me, but I would appreciate if all of the media showed up and did some real investigation rather than amplifying the worst people in the world".
+2024-09-15 During an interview with Face the Nation, JD Vance responded to Springfield bomb threats by condemning the media for reporting on it, “We don’t believe in a heckler’s veto in this country. You can condemn violence on the one hand, while also saying that there have been terrible problems caused by Kamala Harris’ open border in Springfield. Now, you said that these are false rumors, but I’ve heard about a dozen things…ten of them are verifiable and confirmable…maybe all of these constituents are lying to me, but I would appreciate if all of the media showed up and did some real investigation rather than amplifying the worst people in the world”.
 
 [https://www.cbsnews.com/news/jd-vance-ohio-haitian-immigrants-false-claims-face-the-nation/](https://www.cbsnews.com/news/jd-vance-ohio-haitian-immigrants-false-claims-face-the-nation/)
 

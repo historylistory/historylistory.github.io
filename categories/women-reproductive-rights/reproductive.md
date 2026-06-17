@@ -217,7 +217,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2024 September
 
-2024-09-10 During the presidential debate, Kamala Harris warned that Trump was trying to micromanage women's healthcare choices. During the debate, Trump even claimed that Democrats supported “after birth” abortions. 
+2024-09-10 During a debate, Trump falsely claimed that Democrats support “after birth” abortions.
 
 [https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865](https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865)
 

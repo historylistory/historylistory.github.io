@@ -76,7 +76,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2024 July
 
-2024-07-19 Elon Musk fueled the conspiracy DEI caused by CrowdStrike by responding to a Bright Network DEI banner on social media, "Not very "bright" right now, is it?". Interestingly timed, the conservative group America First Legal filed a civil rights complaint on CrowdStrike for discriminating against white males. Steve Guest posted “Equity is nobody in the world being able to get on an airplane simultaneously. Thanks CrowdStrike”.
+2024-07-19 After the CrowdStrike outage, Elon Musk posted, “Not very “bright” right now, is it?” alongside a reposted Bright Network DEI banner, suggesting the outage was due to DEI. America First Legal filed a civil rights complaint on CrowdStrike for discriminating against white males. Steve Guest posted “Equity is nobody in the world being able to get on an airplane simultaneously. Thanks CrowdStrike”.
 
 [https://x.com/elonmusk/status/1814252636855500948](https://x.com/elonmusk/status/1814252636855500948)
 

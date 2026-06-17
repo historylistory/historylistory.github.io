@@ -22,7 +22,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 ### 2024 September
 
-2024-09-09 Trump reposted a tweet from JD Vance. The Vance post read, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump piggy-backed off the post by writing, "Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did".
+2024-09-09 Trump reposted a tweet from JD Vance, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump added “Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did”.
 
 [https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html](https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html)
 
@@ -41,7 +41,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
 
-2024-09-11 JD Vance doubled down on his perpetuating the nonsense that migrants were eating pets in Ohio. During a sit-down interview with Kaitlan Collins on CNN, he stated *“When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”.* **[see Thought Project section in the main menu under ‘Fallacies’]** 
+2024-09-11 JD Vance defended spreading Springfield pet rumors on CNN, “When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”. 
 
 [https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid](https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid)
 
@@ -49,7 +49,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
-2024-09-12 Springfield OH received bomb threats after the Trump administration made baseless claims about Haitian migrants. The Ohio governor had to bring in State Troopers and bomb dogs.
+2024-09-12 After Trump and Vance spread pet-eating claims, Springfield residents faced extensive bomb threats against county, school, and hospital facilities.
 
 [https://www.npr.org/2024/09/13/nx-s1-5110258/springfield-city-offices-are-reopening-a-day-after-bomb-threat-caused-evacuations](https://www.npr.org/2024/09/13/nx-s1-5110258/springfield-city-offices-are-reopening-a-day-after-bomb-threat-caused-evacuations)
 

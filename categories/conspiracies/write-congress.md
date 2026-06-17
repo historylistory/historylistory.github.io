@@ -22,7 +22,7 @@ The Trump administration and many prominent figures within the MAGA movement hav
 
 It is particularly troubling when elected officials and party leaders amplify such claims through social media rather than engaging in serious, fact-based discussion. Public servants should set an example of integrity, responsibility, and respect for the truth.
 
-The examples below illustrate these concerns.
+The examples below illustrate these concerns. For example, Trump spread misinformation about Hurricane Helene relief efforts, leaving thousands of victims afraid to file claims. Vance spread misinformation about Somalians eating pets, and residents suffered death and bomb threats. These deliberate efforts to fearmonger are damaging. 
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 

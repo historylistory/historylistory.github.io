@@ -72,7 +72,7 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 [https://factcheck.afp.com/doc.afp.com.363K7N2](https://factcheck.afp.com/doc.afp.com.363K7N2)
 
-2024-09-07 During a rally in Mosinee Wisconsin, Trump reinforced the falsehood that children are going to come home from school with sex changes.
+2024-09-07 At a Wisconsin rally, Trump falsely claimed children were going to school and coming home with sex changes.
 
 [https://www.nbcnews.com/nbc-out/out-politics-and-policy/trump-false-claims-schools-transgender-surgeries-rcna170217](https://www.nbcnews.com/nbc-out/out-politics-and-policy/trump-false-claims-schools-transgender-surgeries-rcna170217)
 

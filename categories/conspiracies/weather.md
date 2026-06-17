@@ -20,7 +20,7 @@ permalink: /categories/conspiracies/weather/
 
 ### 2024 September
 
-2024-09-30 After Hurricane Helene hit, Trump spread misinformation on social media about aid being withheld, "…I'll be there shortly, but don't like the reports that I'm getting about the Federal Government, and the Democrat Governor of the State, going out of their way to not help people in Republican areas. MAGA!" It is worth mentioning for context the North Carolina governor reached out to the Trump administration September 15, 2025 asking for Helene relief, stating that they only paid out 9% of what was expected. 
+2024-09-30 After Hurricane Helene hit, Trump posted, “…I’ll be there shortly, but don’t like the reports that I’m getting about the Federal Government, and the Democrat Governor of the State, going out of their way to not help people in Republican areas. MAGA!” It is worth mentioning for context the North Carolina governor reached out to the Trump administration September 15, 2025 asking for Helene relief, stating that they only paid out 9% of what was expected. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/113227214995355086](https://truthsocial.com/@realDonaldTrump/posts/113227214995355086)
 
@@ -28,11 +28,11 @@ permalink: /categories/conspiracies/weather/
 
 ### 2024 October
 
-2024-10-03 Trump sent out another post on Truth Social in response to Hurricane Helene, "Kamala and Sleepy Joe are universally being given POOR GRADES for the way that they are handling the Hurricane, especially in North Carolina. It is going down as the WORST & MOST INCOMPETENTLY MANAGED "STORM," AT THE FEDERAL LEVEL, EVER SEEN BEFORE - BUT THEIR MANAGEMENT OF THE BORDER IS WORSE! MAGA2024".
+2024-10-03 Trump posted about Hurricane Helene relief, “Kamala and Sleepy Joe are universally being given POOR GRADES for the way that they are handling the Hurricane, especially in North Carolina. It is going down as the WORST & MOST INCOMPETENTLY MANAGED “STORM,” AT THE FEDERAL LEVEL, EVER SEEN BEFORE - BUT THEIR MANAGEMENT OF THE BORDER IS WORSE! MAGA2024”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/113243226398293844](https://truthsocial.com/@realDonaldTrump/posts/113243226398293844)
 
-2024-10-03 After Trump and other politicians planted seeds of misinformation about Helene recovery efforts, news outlets began to report hindered rescue efforts and an increased number of disaster victims not filing for aid because they’ve been told by conspirators that they will only receive $750 and their property would be seized.
+2024-10-03 After Helene misinformation spread, reports said rescue efforts were hindered and some victims avoided aid over false claims about $750 limits and property seizure.
 
 [https://www.pbs.org/newshour/nation/disinformation-and-conspiracy-theories-cloud-helene-recovery-efforts-in-hard-hit-areas](https://www.pbs.org/newshour/nation/disinformation-and-conspiracy-theories-cloud-helene-recovery-efforts-in-hard-hit-areas)
 
