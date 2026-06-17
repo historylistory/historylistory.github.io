@@ -114,7 +114,7 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 
 [https://electricityinfo.org/news/us-wind-8/](https://electricityinfo.org/news/us-wind-8/)
 
-2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects. 
+2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects outside New York and North Carolina.
 
 [https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases](https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases)
 

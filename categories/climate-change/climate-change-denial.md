@@ -134,7 +134,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2026 March
 
-2026-03-01 NOAA confirmed that March 2026 was the hottest March on record in 132 years of record keeping.
+2026-03-01 NOAA reported that March 2026 was the hottest March recorded in 132 years of recordkeeping.
 
 [https://www.ncei.noaa.gov/news/national-climate-202603](https://www.ncei.noaa.gov/news/national-climate-202603)
 

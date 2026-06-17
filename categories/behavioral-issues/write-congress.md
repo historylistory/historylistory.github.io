@@ -572,7 +572,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
 
-2026-04-29 The Trump administration weakened the Endangered Species Act to expand drilling and mining.
+2026-04-29 The Trump administration attempted to weaken the Endangered Species Act to expand drilling and mining but the vote was delayed over bipartisan concern. 
 
 2026-05-04 Border-wall crews destroyed a Native American archaeological site in the Sonoran Desert.
 

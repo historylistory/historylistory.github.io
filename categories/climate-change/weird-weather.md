@@ -31,7 +31,7 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2026 February
 
-2026-02-09 News agencies reported that Lake Eerie has a 100-mile crack due to increasing temperatures and can be seen from space.
+2026-02-09 Lake Erie developed a roughly 100-mile ice crack linked to unusually warm conditions.
 
 {% include youtubePlayer.html id="5Bda2NijPX8" %}
 
@@ -54,7 +54,7 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2026 March
 
-2026-03-01 NOAA confirmed that March 2026 was the hottest March on record in 132 years of record keeping.
+2026-03-01 NOAA reported that March 2026 was the hottest March recorded in 132 years of recordkeeping.
 
 [https://www.ncei.noaa.gov/news/national-climate-202603](https://www.ncei.noaa.gov/news/national-climate-202603)
 
@@ -64,7 +64,7 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/](https://thehill.com/homenews/state-watch/5822980-el-nino-rising-temperatures/)
 
-2026-03-07 A barrage of tornadoes hit southwest Michigan resulting in loss of life. It was the earliest recorded tornado of its size, meaning the earliest in the year. This coincides with a huge uptick in unusual weather. The impact of climate change also hits Americans wallets with rising costs in homeowners insurance and recovery. 
+2026-03-07 Southwest Michigan experienced unusually early and destructive tornadoes amid broader increases in extreme weather and rising insurance costs.
 
 [https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes](https://www.weather.gov/iwx/03062026_LowerMichiganTornadoes)
 
@@ -116,7 +116,7 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.youtube.com/watch?v=TdszYzyBhtg&list=WL&index=6](https://www.youtube.com/watch?v=TdszYzyBhtg&list=WL&index=6)
 
-2026-04-18 Guam experienced a category 5 super typhoon.
+2026-04-18 Guam was hit by a category 5 super typhoon.
 
 [https://www.youtube.com/watch?v=8bAiwWjtCqY&list=WL&index=5](https://www.youtube.com/watch?v=8bAiwWjtCqY&list=WL&index=5)
 
@@ -144,7 +144,7 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2026 May
 
-2026-05-19 On this date Sandy Fire roared in California, tornadoes ripped through the Midwest, freeze advisories were issued in North Dakota, and heat wave advisories were issued in New York.
+2026-05-19 California battled the Sandy Fire while tornadoes struck the Midwest, freeze advisories affected North Dakota, and heat advisories were issued in New York – all in the same week.
 
 [https://abc7.com/live-updates/sandy-fire-simi-valley-several-structures-burned-184-acres-scorched/19125501/entry/19130618/](https://abc7.com/live-updates/sandy-fire-simi-valley-several-structures-burned-184-acres-scorched/19125501/entry/19130618/)
 

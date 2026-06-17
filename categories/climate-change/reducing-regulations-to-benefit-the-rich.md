@@ -97,7 +97,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 April
 
-2026-04-29 The Trump administration weakened the Endangered Species Act to expand drilling and mining.
+2026-04-29 The Trump administration attempted to weaken the Endangered Species Act to expand drilling and mining but the vote was delayed over bipartisan concern. 
 
 [https://www.npr.org/2025/04/19/nx-s1-5366814-e1/destroying-endangered-species-habitat-wouldnt-count-as-harm-under-proposed-rule](https://www.npr.org/2025/04/19/nx-s1-5366814-e1/destroying-endangered-species-habitat-wouldnt-count-as-harm-under-proposed-rule)
 
@@ -268,7 +268,7 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 ### 2026 February
 
-2026-02-12 Trump reversed Obama-era regulations to curb greenhouse gas emissions.
+2026-02-12 Trump reversed Obama-era greenhouse-gas regulations.
 
 [https://www.cnn.com/2026/02/12/climate/trump-repeals-epa-endangerment-finding](https://www.cnn.com/2026/02/12/climate/trump-repeals-epa-endangerment-finding)
 
@@ -280,7 +280,7 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 ### 2026 March
 
-2026-03-31 (context) US Forest Service Tom Schultz announced more cuts to the Forest Service, claiming it is a “common sense” initiative.  The cuts would shutter 75% of research, reduce wildlife and climate change monitoring, reduce oversight of mining and logging, shut down 9 regional offices, and move the headquarters out of DC.
+2026-03-31 Forest Service Chief Tom Schultz announced additional cuts that would eliminate 75% of research, reduce wildlife and climate monitoring, shrink oversight of mining and logging, close nine regional offices, and relocate headquarters from Washington, D.C.
 
 [https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires](https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires)
 
@@ -346,7 +346,7 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 
 ### 2026 May
 
-2026-05-18 The EPA proposed to eliminate drinking water limits for 4 forever-chemicals set by the Biden administration in 2024. The EPA will allow water utilities to extend their compliance deadline from 2029 to 2031. 
+2026-05-18 The EPA proposed eliminating drinking-water limits for four PFAS “forever chemicals” established in 2024 and extending utility compliance deadlines from 2029 to 2031.
 
 [https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically](https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically)
 
@@ -357,7 +357,7 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6](https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6)
 
 
-2026-05-21 Trump rolled back refrigerant regulations aimed to reduce emissions, claiming the rollback was a means to reduce grocery prices.
+2026-05-21 Trump rolled back refrigerant regulations intended to reduce emissions, arguing the move would lower grocery costs.
 
 [https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123](https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123)
 
@@ -373,7 +373,7 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 
 [https://www.epa.gov/newsreleases/epa-cuts-biden-era-refrigerant-rules-saving-americans-over-24-billion-and-lowering](https://www.epa.gov/newsreleases/epa-cuts-biden-era-refrigerant-rules-saving-americans-over-24-billion-and-lowering)
 
-2026-05-27 West Virginia residents have repeatedly had to fight water contamination issues from mining runoff. 
+2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
 
 [https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/](https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/)
 

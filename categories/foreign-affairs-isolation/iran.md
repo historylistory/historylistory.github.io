@@ -622,7 +622,7 @@ Jewish news sources reported that the US did what Netanyahu had “wanted to do 
 
 {% include youtubePlayer.html id="CA73grSSk8E" %}
 
-2026-03-09 After US strikes on oil facilities in Iran, toxic “black rain” fell over Tehran, shrouded the city in toxic smoke clouds, and rendered air quality toxic to health and environment.
+2026-03-09 Following U.S. strikes on Iranian oil facilities, toxic “black rain” and hazardous air pollution affected Tehran.
 
 [https://www.nbcnews.com/world/iran/iran-war-israel-us-tehran-oil-refineries-acid-rain-global-markets-rcna262390](https://www.nbcnews.com/world/iran/iran-war-israel-us-tehran-oil-refineries-acid-rain-global-markets-rcna262390)
 

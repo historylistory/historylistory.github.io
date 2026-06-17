@@ -237,7 +237,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
 
-2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects. 
+2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects outside New York and North Carolina.
 
 [https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases](https://yaleclimateconnections.org/2026/03/trump-administration-to-pay-french-company-1b-to-walk-away-from-us-offshore-wind-leases)
 

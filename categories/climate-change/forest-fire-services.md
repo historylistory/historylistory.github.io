@@ -76,7 +76,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2026 March
 
-2026-03-31 US Forest Service Tom Schultz announced more cuts to the Forest Service, claiming it is a “common sense” initiative.  The cuts would shutter 75% of research, reduce wildlife and climate change monitoring, reduce oversight of mining and logging, shut down 9 regional offices, and move the headquarters out of DC.
+2026-03-31 Forest Service Chief Tom Schultz announced additional cuts that would eliminate 75% of research, reduce wildlife and climate monitoring, shrink oversight of mining and logging, close nine regional offices, and relocate headquarters from Washington, D.C.
 
 [https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires](https://www.pbs.org/newshour/show/u-s-forest-service-cuts-raise-concerns-on-protecting-public-lands-and-fighting-wildfires)
 
@@ -89,7 +89,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2026 April
 
-2026-04-29 The U.S. Forest Service under Trump expanded the use of Roundup to treat public forests – particularly in California. While glyphosate has been used since at least 2020, reports suggest a record increase now. 
+2026-04-29 The Forest Service expanded the use of glyphosate-based herbicides, including Roundup, in public forests, particularly in California.
 
 [https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/](https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/)
 

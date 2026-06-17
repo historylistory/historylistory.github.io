@@ -24,7 +24,7 @@ permalink: /categories/climate-change/economy/
 
 ### 2026 May
 
-2026-05-21 Trump rolled back refrigerant regulations aimed to reduce emissions, claiming the rollback was a means to reduce grocery prices.
+2026-05-21 Trump rolled back refrigerant regulations intended to reduce emissions, arguing the move would lower grocery costs.
 
 [https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123](https://apnews.com/article/refrigerants-epa-hfc-air-conditioners-trump-eb0ffc23a65b42171d834c3700585123)
 

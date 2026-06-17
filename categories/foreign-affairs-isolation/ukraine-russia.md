@@ -244,7 +244,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 
 PAY WALL [https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russias-war-on-ukraine-news-and-information-from-ukraine/](https://www.forbes.com/sites/katyasoldak/2026/05/05/tuesday-may-5-russias-war-on-ukraine-news-and-information-from-ukraine/)
 
-2026-05-05 Ukrainian strikes caused “black rain” in Russia.
+2026-05-05 Ukrainian strikes reportedly produced “black rain” conditions in parts of Russia.
 
 [https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain](https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain)
 

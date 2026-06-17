@@ -86,7 +86,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2026 March
 
-2026-03-09 After US strikes on oil facilities in Iran, toxic “black rain” fell over Tehran, shrouded the city in toxic smoke clouds, and rendered air quality toxic to health and environment.
+2026-03-09 Following U.S. strikes on Iranian oil facilities, toxic “black rain” and hazardous air pollution affected Tehran.
 
 [https://www.nbcnews.com/world/iran/iran-war-israel-us-tehran-oil-refineries-acid-rain-global-markets-rcna262390](https://www.nbcnews.com/world/iran/iran-war-israel-us-tehran-oil-refineries-acid-rain-global-markets-rcna262390)
 
@@ -126,7 +126,7 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)
 
-2026-04-29 The U.S. Forest Service under Trump expanded the use of Roundup to treat public forests – particularly in California. While glyphosate has been used since at least 2020, reports suggest a record increase now. 
+2026-04-29 The Forest Service expanded the use of glyphosate-based herbicides, including Roundup, in public forests, particularly in California.
 
 [https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/](https://www.motherjones.com/politics/2026/04/roundup-glyphosate-spraying-forests-monsanto-science-retraction-cancer-health-concerns-maha-trump-executive-order-supreme-court-bayer-lawsuits/)
 
@@ -148,11 +148,11 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 
 ### 2026 May
 
-2026-05-05 Ukrainian strikes caused “black rain” in Russia.
+2026-05-05 Ukrainian strikes reportedly produced “black rain” conditions in parts of Russia.
 
 [https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain](https://www.democracynow.org/2026/5/5/headlines/ukrainian_attacks_on_russian_refineries_trigger_black_sea_oil_spills_and_toxic_rain)
 
-2026-05-18 The EPA proposed to eliminate drinking water limits for 4 forever-chemicals set by the Biden administration in 2024. The EPA will allow water utilities to extend their compliance deadline from 2029 to 2031. 
+2026-05-18 The EPA proposed eliminating drinking-water limits for four PFAS “forever chemicals” established in 2024 and extending utility compliance deadlines from 2029 to 2031.
 
 [https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically](https://www.epa.gov/newsreleases/epa-advances-comprehensive-pfas-strategy-legally-defensible-practical-scientifically)
 
@@ -162,7 +162,7 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 
 [https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6](https://www.youtube.com/watch?v=nCZJyiy0veE&list=WL&index=6)
 
-2026-05-27 West Virginia residents have repeatedly had to fight water contamination issues from mining runoff. 
+2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
 
 [https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/](https://www.wvva.com/2026/05/27/water-quality-worsens-brenton-residents/)
 

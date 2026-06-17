@@ -34,7 +34,7 @@ permalink: /categories/climate-change/drill-baby-drill/
 
 [https://x.com/SecretaryBurgum/status/2014382110828536183](https://x.com/SecretaryBurgum/status/2014382110828536183)
 
-2026-02-27 A North Dakota judge ordered Greenpeace to pay $345M to the developer of the Dakota Access Pipeline over alleged damages to the developer during anti-pipeline protests in 2016 and 2017.
+2026-02-27 North Dakota judge ordered Greenpeace to pay $345 million in damages related to Dakota Access Pipeline protests.
 
 [https://northdakotamonitor.com/2026/02/27/judge-finalizes-order-for-greenpeace-to-pay-345-million-in-north-dakota-oil-pipeline-case/](https://northdakotamonitor.com/2026/02/27/judge-finalizes-order-for-greenpeace-to-pay-345-million-in-north-dakota-oil-pipeline-case/)
 
@@ -42,7 +42,7 @@ permalink: /categories/climate-change/drill-baby-drill/
 
 ### 2026 March
 
-2026-03-14 The Trump administration approved BP’s $5B deep-sea drilling project off the coast of Louisiana and the Gulf of Mexico. This is the same company involved and responsible for the 2010 Deep Water Horizon disaster. This will threaten deep sea ecosystems and marine life. 
+2026-03-14 The administration approved BP’s $5 billion deep-water drilling project in the Gulf of Mexico despite concerns about marine ecosystems and BP’s Deepwater Horizon history. This will threaten deep sea ecosystems and marine life.
 
 [https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast](https://www.democracynow.org/2026/3/17/headlines/trump_admin_approves_bps_5_billion_drilling_project_off_louisiana_coast)
 
