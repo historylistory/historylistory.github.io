@@ -1,22 +1,11 @@
 ---
 layout: subcategory
-title: Racial Profiling
+title: Racial Profiling in Immigration
 category_slug: racism-deicrt-tribal-affairs
-subcategory_slug: racial-profiling
-permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
+subcategory_slug: racial-profiling-immigration
+permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling-immigration/
 ---
 
-### 2025 January
-
-2025-01-28 The Navajo Nation in Arizona issued a warning to citizens that dozens of their tribe members were being stopped, questioned, and detained based solely on their appearance.
-
-[https://www.cnn.com/2025/01/27/us/navajo-detained-ice-indigenous-immigration-trump](https://www.cnn.com/2025/01/27/us/navajo-detained-ice-indigenous-immigration-trump)
-
-[https://www.nbcnews.com/news/latino/trump-immigration-raids-citizens-profiling-accusations-native-american-rcna189203](https://www.nbcnews.com/news/latino/trump-immigration-raids-citizens-profiling-accusations-native-american-rcna189203)
-
-[https://narf.org/citizenship-immigration-2025/](https://narf.org/citizenship-immigration-2025/)
-
-[https://www.axios.com/2025/01/29/native-american-immigration-raids-navajo-nation](https://www.axios.com/2025/01/29/native-american-immigration-raids-navajo-nation)
 
 ### 2025 June
 
@@ -42,25 +31,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 [https://www.bbc.com/news/articles/c784697j2v8o](https://www.bbc.com/news/articles/c784697j2v8o)
 
-### 2025 November
-
-2025-11-28 Elaine Miles, a member of the Confederated Tribes of the Umatilla Indian Reservation and known for her acting role in Northern Exposure, was detained and questioned by ICE. News outlets reported that when she provided her tribal identification card, ICE accused her of providing a fake ID. (For context, the Navajo Nations had issued a warning to citizens back in January 2025 for ICE agents profiling Native Americans).
-
-[https://www.newsweek.com/northern-exposure-actress-elaine-miles-detained-by-ice-told-id-is-fake-11124694](https://www.newsweek.com/northern-exposure-actress-elaine-miles-detained-by-ice-told-id-is-fake-11124694)
-
-[https://www.masslive.com/news/2025/11/northern-exposure-actor-interrogated-by-ice-called-her-tribal-id-fake.html](https://www.masslive.com/news/2025/11/northern-exposure-actor-interrogated-by-ice-called-her-tribal-id-fake.html)
-
-[https://www.oregonlive.com/pacific-northwest-news/2025/11/indigenous-actor-elaine-miles-says-ice-called-her-oregon-tribal-id-fake.html](https://www.oregonlive.com/pacific-northwest-news/2025/11/indigenous-actor-elaine-miles-says-ice-called-her-oregon-tribal-id-fake.html)
-
-### 2025 December
-
-2025-12-03 The Trump administration announced a task force specifically targeting Somali immigrants in Minnesota. The DOJ called it **Operation Metro Surge.**
-
-[https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/](https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/)
-
-[https://www.house.mn.gov/members/Profile/News/15535/41031](https://www.house.mn.gov/members/Profile/News/15535/41031)
-
-[https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/](https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/)
 
 ### 2026 January
 
@@ -72,11 +42,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 [https://mahometdaily.com/ice-agents-going-door-to-door-trump-administration-intensifies-immigration-enforcement-as-nationwide-protests-erupt/](https://mahometdaily.com/ice-agents-going-door-to-door-trump-administration-intensifies-immigration-enforcement-as-nationwide-protests-erupt/)
 
-2026-01-15 ICE profiled and detained members of the Oglala Sioux tribe.
-
-[https://www.kotatv.com/2026/01/14/oglala-sioux-tribe-gives-update-tribal-members-detained-by-ice/](https://www.kotatv.com/2026/01/14/oglala-sioux-tribe-gives-update-tribal-members-detained-by-ice/)
-
-[https://thehill.com/homenews/state-watch/5688969-oglala-sioux-tribe-demands-action/](https://thehill.com/homenews/state-watch/5688969-oglala-sioux-tribe-demands-action/)
 
 ### 2026 March
 
@@ -106,13 +71,4 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling/
 
 [https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
-### 2026 June
 
-
-2026-06-10 A World Cup referee from Somalia was denied entry into the U.S. days before the World Cup. 
-
-[https://apnews.com/article/world-cup-referee-somalia-fifa-trump-visa-a73dfeb3a960a3ffa858a419bdb8a8f1](https://apnews.com/article/world-cup-referee-somalia-fifa-trump-visa-a73dfeb3a960a3ffa858a419bdb8a8f1)
-
-[https://www.espn.com/soccer/story/_/id/49016259/us-official-somalia-omar-artan-suspected-terror-ties](https://www.espn.com/soccer/story/_/id/49016259/us-official-somalia-omar-artan-suspected-terror-ties)
-
-[https://www.npr.org/2026/06/10/nx-s1-5853075/somali-world-cup-referee-denied-u-s-entry-hailed-as-hero-at-home](https://www.npr.org/2026/06/10/nx-s1-5853075/somali-world-cup-referee-denied-u-s-entry-hailed-as-hero-at-home)
