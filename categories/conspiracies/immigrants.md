@@ -46,13 +46,13 @@ permalink: /categories/conspiracies/immigrants/
 
 ### 2025 April
 
-2025-04-30 The White House shared a digitally altered image of "M-S-1-3" on Abrego Garcia's hand. Most Americans quickly realized it was simply text typed over a photo of his hand and not actually tattoos. However, Trump repeatedly insisted the picture was real during an interview.  It is unclear if the photo intends to depict the meaning behind each tattoo.
+2025-04-30 The White House shared an altered image labeling Abrego Garcia’s tattoos as “M-S-1-3”; Trump later insisted the image was authentic.
 
 {% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 
 ### 2025 July
 
-2025-07-01 Kristi Noem peddled a claim that an immigrant tried to eat their own arm during a deportation flight. Whether the immigrant did or didn't try to injure themselves or the exact circumstance has not been known, but some fear these claims are more rhetoric to instill fear about immigrants.
+2025-07-01 Kristi Noem claimed an immigrant attempted to eat their own arm during a deportation flight.
 
 {% include youtubePlayer.html id="X5q-85Z4Z38" %}
 
@@ -60,7 +60,7 @@ permalink: /categories/conspiracies/immigrants/
 
 ### 2025 October
 
-2025-10-05 In an X post Mike Johnson wrote, “as a condition for ending the Democrat shutdown, Democrats want hospitals (to be) paid MORE to treat illegal aliens than American citizens”.
+2025-10-05 Mike Johnson posted, “as a condition for ending the Democrat shutdown, Democrats want hospitals (to be) paid MORE to treat illegal aliens than American citizens”.
 
 [https://www.politifact.com/factchecks/2025/oct/09/mike-johnson/Shutdown-Medicaid-illegal-immigrants-Democrats/](https://www.politifact.com/factchecks/2025/oct/09/mike-johnson/Shutdown-Medicaid-illegal-immigrants-Democrats/)
 

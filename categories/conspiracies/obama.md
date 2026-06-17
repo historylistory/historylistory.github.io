@@ -42,13 +42,13 @@ s
 
 ### 2025 July: Obama is guilty of treason
 
-2025-07-22 Trump accused Barack Obama of treason and election-rigging during a White House press conference, claiming, “they tried to rig the election, and they got caught” and “…whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
+2025-07-22 Trump accused Obama of treason, “they tried to rig the election, and they got caught” and “Whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
 
 [https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis](https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis)
 
 [https://abcnews.go.com/Politics/trump-accuses-obama-treason-oval-office/story?id=123963917](https://abcnews.go.com/Politics/trump-accuses-obama-treason-oval-office/story?id=123963917)
 
-2025-07-23 On social media Tulsi Gabbard claimed to debunk Obama administration intelligence assessments and posted a conspiracy board on her account. In the first paragraph of her post she wrote “New evidence has emerged of the most egregious weaponization and politicization of intelligence in American history. Per President @realDonaldTrump’s directive, I have declassified a House Intelligence oversight majority staff report that exposes how the Obama Administration manufactured the January 2017 Intelligence Community Assessment that they knew was false, promoting the LIE that Vladimir Putin and the Russian government helped President Trump win the 2016 election”.
+2025-07-23 Tulsi Gabbard claimed in a conspiracy-board post that newly released intelligence documents showed the Obama administration manufactured evidence of Russian election interference in 2016
 
 [https://www.factcheck.org/2025/07/gabbards-misleading-coup-claim/](https://www.factcheck.org/2025/07/gabbards-misleading-coup-claim/)
 

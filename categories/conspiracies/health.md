@@ -38,7 +38,7 @@ permalink: /categories/conspiracies/health/
 
 ### 2025 September
 
-2025-09-29 Trump posted and then quickly deleted a social media post of an AI generated video featuring Lara Trump on Fox News promoting "Medbeds".
+2025-09-29 Trump briefly shared and then deleted an AI-generated video featuring Lara Trump promoting “Medbeds.”
 
 {% include youtubePlayer.html id="fzM5tOauPZI" %}
 

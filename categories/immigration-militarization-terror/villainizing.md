@@ -115,7 +115,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 July
 
-2025-07-01 Kristi Noem peddled a claim that an immigrant tried to eat their own arm during a deportation flight. Whether the immigrant did or didn't try to injure themselves or the exact circumstance has not been known, but some fear these claims are more rhetoric to instill fear about immigrants.
+2025-07-01 Kristi Noem claimed an immigrant attempted to eat their own arm during a deportation flight.
 
 {% include youtubePlayer.html id="X5q-85Z4Z38" %}
 

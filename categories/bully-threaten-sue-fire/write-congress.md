@@ -218,7 +218,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-07-20 Trump posted an AI-generated video depicting Barack Obama being arrested.
 
-2025-07-22 Trump accused Barack Obama of treason and election-rigging during a White House press conference, claiming, “they tried to rig the election, and they got caught” and “…whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
+2025-07-22 Trump accused Obama of treason, “they tried to rig the election, and they got caught” and “Whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
 
 2025-07-22 Trump tweeted out again that he heard Jimmy Kimmel would be fired and that he wanted Jimmy Fallon fired next.
 

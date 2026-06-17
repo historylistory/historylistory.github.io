@@ -12,7 +12,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 {% include youtubePlayer.html id="jMtGXSB8tlU" %}
 
-2025-04-30 The White House shared a digitally altered image of "M-S-1-3" on Abrego Garcia's hand. Most Americans quickly realized it was simply text typed over a photo of his hand and not actually tattoos. However, Trump repeatedly insisted the picture was real during an interview.  It is unclear if the photo intends to depict the meaning behind each tattoo.
+2025-04-30 The White House shared an altered image labeling Abrego Garcia’s tattoos as “M-S-1-3”; Trump later insisted the image was authentic.
 
 {% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 

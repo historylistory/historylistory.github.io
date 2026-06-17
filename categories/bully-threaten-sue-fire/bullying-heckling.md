@@ -168,7 +168,7 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2025 July
 
-2025-07-22 Trump accused Barack Obama of treason and election-rigging during a White House press conference, claiming, “they tried to rig the election, and they got caught” and “…whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
+2025-07-22 Trump accused Obama of treason, “they tried to rig the election, and they got caught” and “Whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
 
 [https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis](https://www.cnn.com/2025/07/22/politics/trump-obama-treason-accusation-analysis)
 

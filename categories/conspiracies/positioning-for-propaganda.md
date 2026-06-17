@@ -34,7 +34,7 @@ permalink: /categories/conspiracies/positioning-for-propaganda/
 
 ### 2025 November
 
-2025-11-03 Conservative activist Laura Loomer was given press credentials to cover the Pentagon.
+2025-11-03 Conservative activist Laura Loomer received Pentagon press credentials.
 
 [https://firstamendment.mtsu.edu/post/conservative-activist-laura-loomer-a-trump-ally-says-she-has-new-pentagon-press-pass/](https://firstamendment.mtsu.edu/post/conservative-activist-laura-loomer-a-trump-ally-says-she-has-new-pentagon-press-pass/)
 

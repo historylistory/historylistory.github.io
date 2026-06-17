@@ -78,6 +78,10 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://x.com/FoxNews/status/1976631367858258002](https://x.com/FoxNews/status/1976631367858258002)
 
+2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
+
+[https://x.com/glennbeck/status/1977804534232514781](https://x.com/glennbeck/status/1977804534232514781)
+
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 
 [https://www.oregonlive.com/portland/2026/02/antifa-safehouse-leader-at-portland-ice-protests-singled-out-in-federal-records-report-says.html](https://www.oregonlive.com/portland/2026/02/antifa-safehouse-leader-at-portland-ice-protests-singled-out-in-federal-records-report-says.html)

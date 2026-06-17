@@ -22,7 +22,7 @@ permalink: /categories/conspiracies/antifa-protesters/
 
 ### 2025 October
 
-2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the Antifa network. He reiterated the unfounded conspiracy that there is a network funding material and financial support for Antifa even though it is not an actual organization.
+2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
 
 [https://x.com/glennbeck/status/1977804534232514781](https://x.com/glennbeck/status/1977804534232514781)
 

@@ -8,13 +8,13 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 
 ### 2025 March
 
-2025-03-25 Minnesota introduced SF 2589 to research the so-called Trump Derangement Syndrome.
+2025-03-25 Minnesota introduced SF 2589 to study what they call “Trump Derangement Syndrome”.
 
 [https://www.revisor.mn.gov/bills/94/2025/0/SF/2589/versions/latest/](https://www.revisor.mn.gov/bills/94/2025/0/SF/2589/versions/latest/)
 
 ### 2025 May
 
-2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced the "Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn't aligned with the Trump agenda must be suffering from a mental illness. For context, this is not the first time the phrase “___insert-name-here derangement syndrome has been coined – it was also found in an opinion article in 2023 coined “Bari Weiss Derangement Syndrome”.
+2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced Bill HR3432 the so-called “Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn’t aligned with the Trump agenda must be suffering from a mental illness. This was not the first use of this phraseology - it was also found in an opinion article in 2023 “Bari Weiss Derangement Syndrome”.
 
 [https://davidson.house.gov/2025/5/rep-warren-davidson-introduces-the-trump-derangement-syndrome-tds-research-act-of-2025](https://davidson.house.gov/2025/5/rep-warren-davidson-introduces-the-trump-derangement-syndrome-tds-research-act-of-2025)
 
