@@ -125,7 +125,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-08-25 Americans United criticized PragerU's growing role in public education and described it as advancing Christian nationalist ideas, writing, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 
-2025-08-27 After a Catholic-school shooting in Minneapolis, Jen Psaki cited the need for actionable policy responses beyond prayer alone. MAGA supporters were in an uproar, and Karoline Leavitt accused her of attacking prayer. 
+2025-08-27 After a Catholic-school shooting in Minneapolis Jen Psaki cited that addressing school shootings required action – not just prayer.  Karoline Leavitt and Fox commentators characterized Psaki's remarks as an attack on prayer
 
 2025-08-28 During a White House briefing, right-wing influencer Brandon Tatum claimed school shootings were a mental-health issue and “not a gun thing”.
 

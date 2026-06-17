@@ -129,7 +129,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2025 August
 
-2025-08-27 After a Catholic-school shooting in Minneapolis, Jen Psaki cited the need for actionable policy responses beyond prayer alone. MAGA supporters were in an uproar, and Karoline Leavitt accused her of attacking prayer. 
+2025-08-27 After a Catholic-school shooting in Minneapolis Jen Psaki cited that addressing school shootings required action – not just prayer.  Karoline Leavitt and Fox commentators characterized Psaki's remarks as an attack on prayer
 
 {% include youtubePlayer.html id="89Kgu8KUfIs" %}
 

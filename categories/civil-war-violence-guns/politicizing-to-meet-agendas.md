@@ -8,7 +8,7 @@ permalink: /categories/civil-war-violence-guns/politicizing-to-meet-agendas/
 
 ### 2025 August
 
-2025-08-22 After the killing of Iryna Zarutska, multiple right-wing figures politicized this tragedy as a red herring fallacy to rile up the MAGA base and to use the incident as an excuse to send National Guard troops to Charlotte.
+2025-08-22 After the killing of Iryna Zarutska, several right-wing commentators used the case to argue for National Guard deployment in Charlotte
 
 [https://en.wikipedia.org/wiki/Killing_of_Iryna_Zarutska](https://en.wikipedia.org/wiki/Killing_of_Iryna_Zarutska)
 

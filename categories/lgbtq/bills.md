@@ -47,7 +47,7 @@ permalink: /categories/lgbtq/bills/
 
 [https://www.whitehouse.gov/presidential-actions/2025/02/keeping-men-out-of-womens-sports/](https://www.whitehouse.gov/presidential-actions/2025/02/keeping-men-out-of-womens-sports/)
 
-2025-09-05 The DOJ considered banning guns specifically from anyone who is transgender.
+2025-09-05 The DOJ considered banning guns specifically from anyone transgender.
 
 [https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/](https://www.wizmnews.com/2025/09/05/justice-department-talks-about-banning-transgender-gun-owners-spark-fury-across-political-spectrum/)
 

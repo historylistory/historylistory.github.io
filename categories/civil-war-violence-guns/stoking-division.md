@@ -132,7 +132,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 September 9
 
-2025-09-09 Newsmax host Rob Schmidt fearmongered his listeners, stating, “For the last several years the Democrats have destabilized this country by installing agents of chaos…" and suggested Democrats are trying to "intentionally sabotage the country" and "shred faith in the system".
+2025-09-09 Newsmax host Rob Schmidt villainized, “For the last several years the Democrats have destabilized this country by installing agents of chaos…" and suggested Democrats are trying to "intentionally sabotage the country" and "shred faith in the system".
 
 {% include youtubePlayer.html id="2jJVDH0KvRk" %}
 

@@ -22,7 +22,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://x.com/elonmusk/status/1965915897673167135](https://x.com/elonmusk/status/1965915897673167135)
 
-2025-09-10 Laura Loomer posted a message on X calling the Left terrorists and asserting “they” sent a trained sniper to assassinate Kirk. 
+2025-09-10 Laura Loomer posted a message on X calling the Left terrorists and asserted “they” sent a trained sniper to assassinate Kirk. 
 
 [https://timesofindia.indiatimes.com/world/us/charlie-kirk-shot-dead-laura-loomer-rages-against-the-left-calls-them-terrorists/articleshow/123817016.cms](https://timesofindia.indiatimes.com/world/us/charlie-kirk-shot-dead-laura-loomer-rages-against-the-left-calls-them-terrorists/articleshow/123817016.cms)
 
