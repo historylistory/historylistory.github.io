@@ -255,7 +255,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 
-2025-09-14 On his podcast, Glenn Beck told his listeners that what Charlie Kirk was doing wasn't politics, it was an attempt to stand up for people’s civil rights. What he failed to mention was Charlie Kirk’s organization Turning Point was a massive mega-donor to right-wing politics, or that Kirk primarily stood up for white conservative rights, frequently bashed principles Martin Luther King fought for, called George Floyd a scumbag, abhorred the idea of women choosing careers over having babies, practiced Gish-galloping and fallacy tactics while weaponizing the bible and religion against people, he fanned the flames of civil unrest on his podcast, and frequently spewed hate rhetoric about the LGBTQ+ community.
+2025-09-14 On his podcast, Glenn Beck told his listeners that what Charlie Kirk was doing wasn’t politics, it was an attempt to stand up for people’s civil rights. OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is as a right-wing megadonor, Kirk frequently bashed principles Martin Luther King fought for, called George Floyd a scumbag, abhorred the idea of women choosing careers over having babies, weaponized the bible with Gish-galloping and fallacy tactics, fanned the flames of civil unrest on his podcast, and frequently spewed hate rhetoric about the LGBTQ+ community.
 
 [https://www.youtube.com/shorts/3LnvYF9ICT8](https://www.youtube.com/shorts/3LnvYF9ICT8)
 
@@ -267,7 +267,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 {% include youtubePlayer.html id="ggJEvIALIJQ" %}
 
-2025-09-15 NBC reported that Attorney General Pam Bondi faced backlash from MAGA over cracking down on “hate speech”.
+2025-09-15 NBC reported criticism from MAGA supporters over Bondi's efforts to police online hate speech.
 
 [https://www.nbcnews.com/politics/justice-department/attorney-general-pam-bondi-backlash-right-hate-speech-rcna231713](https://www.nbcnews.com/politics/justice-department/attorney-general-pam-bondi-backlash-right-hate-speech-rcna231713)
 
@@ -281,7 +281,8 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics](https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics)
 
-2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting accusations of doxxing.
+2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting viewers to outwardly dox servicemembers. He wrote, "“This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is —- of the US Navy he is stationed on the USS —- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”.
+
 
 [https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/](https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/)
 

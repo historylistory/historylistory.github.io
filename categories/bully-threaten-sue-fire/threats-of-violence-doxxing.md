@@ -133,7 +133,8 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics](https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics)
 
-2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting accusations of doxxing.
+2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting viewers to outwardly dox servicemembers. He wrote, "“This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is —- of the US Navy he is stationed on the USS —- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”.
+
 
 [https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/](https://wisconsinexaminer.com/2025/09/12/after-charlie-kirk-assassination-wisconsin-rep-derrick-van-orden-fans-the-flames/)
 

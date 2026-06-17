@@ -44,7 +44,7 @@ permalink: /categories/education/villainizing-rhetoric/
 
 ### 2025 September
 
-2025-09-14 During a prayer vigil for Kirk, Kari Lake addressed the crowd with conspiracy theories that the suspect was "brainwashed" by woke. She went on to “warn” parents not to send their children to universities, which she labeled "indoctrination camps". This is important because she is the senior advisor for the US Agency for Global Media and could potentially hold a lot of unchecked power in the media. For context, Kari Lake also helped stir controversy in 2022 when she demanded ballots be counted by hand.
+2025-09-14 During a prayer vigil for Kirk, Kari Lake claimed the suspect was “brainwashed” by woke and then warned not to send their children to universities, which she labeled “indoctrination camps”. Kari Lake also stirred controversy in 2022 when she demanded ballots be counted by hand.
 
 [https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/](https://www.thedailybeast.com/kari-lake-blames-college-indoctrination-for-charlie-kirks-death/)
 
