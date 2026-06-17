@@ -9,7 +9,7 @@ permalink: /categories/conspiracies/ivermectin/
 ### 2021
 
 
-2021-06-01 People who didn’t believe in the COVID vaccine opted to take the horse dewormer Ivermectin instead. When Merck later made a deal with the Pentagon for an oral treatment those same people used that as “proof” the horse dewormer was the answer to COVID.
+2021-06-01 Some vaccine skeptics promoted ivermectin (horse dewormer) as a COVID treatment, later citing Merck’s Pentagon oral-treatment deal as supposed proof. 
 
 [https://www.ncbi.nlm.nih.gov/search/research-news/15867/](https://www.ncbi.nlm.nih.gov/search/research-news/15867/)
 

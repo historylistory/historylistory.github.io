@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/anti-lgbtq-rhetoric/
 
 ### 2024 July
 
-2024-07-01 BBC investigated false social media posts and a viral article by Daily Trust claiming that a trade pact between the EU and Nigeria contained a clause forcing Nigeria to legalize same-sex relationships. In the same pool, a 2024 investigation by Deutsche Welle showed that American far-right Christian groups have been influencing and fueling anti-LGBTQ sentiment in Africa, including Nigeria, for decades - pushing homophobic misinformation and lobbying for anti-gay legislation.
+2024-07-01 False posts claimed an EU-Nigeria trade pact forced Nigeria to legalize same-sex relationships. A 2024 investigation by Deutsche Welle showed that American far-right Christian groups have been influencing and fueling anti-LGBTQ sentiment in Africa, including Nigeria, for decades - pushing homophobic misinformation and lobbying for anti-gay legislation.
 
 [https://www.bbc.com/news/articles/cqv53ej2d33o](https://www.bbc.com/news/articles/cqv53ej2d33o)
 

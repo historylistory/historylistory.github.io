@@ -102,7 +102,7 @@ Manhattan grand jury in the hush-money case.
 
 2023-12-13 Ruby Freeman, a Georgia election worker, testified to receiving violent and racist threats against her after Rudy Giuliani and other Republicans spread false claims about her. She stated she received threats of hanging and even had to flee her home for her own safety.
 
-2024-01-08 In a Truth Social post, Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.
+2024-01-08 Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.
 
 2024-01-19 During a Concord, New Hampshire rally Trump accused Nikki Haley of not being the right “timber” for the presidency.
 

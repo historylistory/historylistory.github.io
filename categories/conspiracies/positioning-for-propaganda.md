@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/positioning-for-propaganda/
 
 ### 2024 January
 
-2024-01-26 News outlets reported on a cascade of misleading claims not limited to immigration, the economy, electric vehicles, the Panama Canal, 2020, and January 6th. 
+2024-01-26 News outlets reported a wave of misleading claims about immigration, the economy, electric vehicles, the Panama Canal, 2020, and January 6. 
 
 [https://www.theguardian.com/us-news/2025/jan/26/trump-white-house-lies-immigration-economy](https://www.theguardian.com/us-news/2025/jan/26/trump-white-house-lies-immigration-economy)
 

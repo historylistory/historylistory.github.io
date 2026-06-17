@@ -71,7 +71,7 @@ permalink: /categories/health/covid/
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
 
-2021-06-01 People who didn’t believe in the COVID vaccine opted to take the horse dewormer Ivermectin instead. When Merck later made a deal with the Pentagon for an oral treatment those same people used that as “proof” the horse dewormer was the answer to COVID.
+2021-06-01 Some vaccine skeptics promoted ivermectin (horse dewormer) as a COVID treatment, later citing Merck’s Pentagon oral-treatment deal as supposed proof. 
 
 [https://www.ncbi.nlm.nih.gov/search/research-news/15867/](https://www.ncbi.nlm.nih.gov/search/research-news/15867/)
 
@@ -100,7 +100,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 ### 2024 February
 
-2024-02-27 Kash Patel posted an anti-vax promo for dietary supplements on Truth Social captioned "The only mRNA vaccine detoxification system" along with a purchase link.
+2024-02-27 Kash Patel promoted an anti-vaccine supplement on Truth Social, calling it “The only mRNA vaccine detoxification system.”
 
 [https://truthsocial.com/@Kash/posts/112004498555307440Thanks](https://truthsocial.com/@Kash/posts/112004498555307440Thanks)
 

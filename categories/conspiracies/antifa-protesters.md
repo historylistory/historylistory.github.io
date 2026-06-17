@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/antifa-protesters/
 
 ### 2021
 
-2021-01-06 Following the J6 insurrection, some Republican politicians and right-wing social media influencers began falsely claiming that Antifa was involved. It also states Fox host Tucker Carlson amplified the "false flag" theory suggesting the siege was orchestrated by the FBI, and a year later the conspiracy grew into a "Ray Epps" conspiracy theory.
+2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
 
 {% include youtubePlayer.html id="w7Bg5_-7e00" %}
 

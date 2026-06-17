@@ -178,7 +178,7 @@ OTHER SHADY BUSINESS
 [https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
 
 
-2023-09-17 During an interview with NBC, Trump continued to assert that the 2020 election was rigged.
+2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
 [https://www.cnn.com/2023/09/17/politics/trump-election-results-decision](https://www.cnn.com/2023/09/17/politics/trump-election-results-decision)
 

@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/dei/
 
 ### 2024 March
 
-2024-03-27 After the Francis Key Scott bridge collapse, numerous fake videos and conspiracy theories spread on social media. Some suggested explosives were intentionally detonated, some claimed it had to do with DEI, some suggested it was an attack perpetrated by Israel. News outlets reported several of these unfounded claims came from verified right-wing accounts on Elon Musk’s platform X.
+2024-03-27 After the Francis Scott Key Bridge collapse, fake videos and conspiracies spread online, blaming explosives, DEI, or Israel. According to some reports, the posts allegedly came from verified right-wing accounts on X. 
 
 [https://www.npr.org/2024/03/27/1241001030/-baltimore-bridge-collapse-conspiracy-theories](https://www.npr.org/2024/03/27/1241001030/-baltimore-bridge-collapse-conspiracy-theories)
 
@@ -18,7 +18,7 @@ permalink: /categories/conspiracies/dei/
 
 [https://www.axios.com/2024/03/26/francis-scott-key-bridge-collapse-reasons-conspiracy](https://www.axios.com/2024/03/26/francis-scott-key-bridge-collapse-reasons-conspiracy)
 
-2024-03-28 After the Baltimore bridge collapsed, Phil Lyman posted an unfounded claim that the crash was caused by DEI, writing "This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens". He also shared a post from the Young Conservative Federation featuring a dossier of Karenthia A. Barber.
+2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and shared a post targeting Karenthia A. Barber. He posted, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. He also reposted a dossier of Karenthia A. Barber from the Young Conservative Federation.
 
 [https://x.com/phil_lyman/status/1772647920124211378](https://x.com/phil_lyman/status/1772647920124211378)
 

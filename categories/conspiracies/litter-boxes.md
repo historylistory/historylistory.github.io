@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/litter-boxes/
 
 ### 2021
 
-2021-12-01 A conspiracy gained traction when conservatives like Lisa Hansen asserted that students who “identify as cats” were provided kitty litter boxes by schools. The conspiracy lived all the way through 2023 with multiple conservative leaders repeating the hoax on social media and televised interviews. By 2023 the hoax  spread to the UK, Australia, and New Zealand.
+2021-12-01 Conservatives spread the hoax that schools gave litter boxes to students identifying as cats; the claim persisted into 2023 and spread internationally.
 
 [https://www.edweek.org/leadership/litter-boxes-in-schools-how-a-disruptive-and-demeaning-hoax-frustrated-school-leaders/2022/11](https://www.edweek.org/leadership/litter-boxes-in-schools-how-a-disruptive-and-demeaning-hoax-frustrated-school-leaders/2022/11)
 

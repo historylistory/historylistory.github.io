@@ -14,7 +14,7 @@ permalink: /categories/conspiracies/weather/
 
 ### 2024 April
 
-2024-04-06 News outlets reported on Rudy Giuliani comments that earthquakes were targeting communist states. He later defended his comment and scoffed that his critics had no sense of humor.
+2024-04-06 Rudy Giuliani suggested earthquakes were targeting communist states, later claiming critics lacked a sense of humor.
 
 [https://x.com/Newsweek/status/1776690949176856804](https://x.com/Newsweek/status/1776690949176856804)
 

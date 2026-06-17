@@ -32,7 +32,7 @@ permalink: /categories/conspiracies/health/
 
 ### 2024 February
 
-2024-02-27 Kash Patel posted an anti-vax promo for dietary supplements on Truth Social captioned "The only mRNA vaccine detoxification system" along with a purchase link.
+2024-02-27 Kash Patel promoted an anti-vaccine supplement on Truth Social, calling it “The only mRNA vaccine detoxification system.”
 
 [https://truthsocial.com/@Kash/posts/112004498555307440Thanks](https://truthsocial.com/@Kash/posts/112004498555307440Thanks)
 

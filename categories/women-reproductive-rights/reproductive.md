@@ -169,7 +169,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2024 February
 
-2024-02-29 In February 2024 Republicans blocked the IVF bill in. Some of them claimed that IVF would lead to human-animal chimeras. During an interview with Lila Rose in September 2025, **Emma Waters of the Heritage Foundation** also made a mention of how IVF could “**invite” birthright citizenship** if contracted out to the Chinese. It is recommended to watch the entire 45-minute video to gain perspective of the entire interview.
+2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
 
 [https://www.newsweek.com/ivf-bill-blocked-cindy-hyde-smith-1874559](https://www.newsweek.com/ivf-bill-blocked-cindy-hyde-smith-1874559)
 

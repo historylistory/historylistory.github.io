@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/italygate/
 
 ### 2021
 
-2021-06-06 GOP conspiracy theorists claimed Italy used military satellites to make US voting machines switch votes for Biden. Trump re-perpetuated the claims via social media in 2026 after he ordered the DOJ to seize voting machines in Georgia.
+2021-06-06 Conspiracy theorists claimed Italy used military satellites to switch U.S. votes to Biden; Trump revived the claim in 2026 while targeting Georgia voting machines.
 
 [https://www.theguardian.com/us-news/2021/jun/06/donald-trump-mark-meadows-doj-italygate](https://www.theguardian.com/us-news/2021/jun/06/donald-trump-mark-meadows-doj-italygate)
 

@@ -24,7 +24,7 @@ permalink: /categories/conspiracies/elections/
 
 ### 2023
 
-2023-09-17 During an interview with NBC, Trump continued to assert that the 2020 election was rigged.
+2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
 [https://www.cnn.com/2023/09/17/politics/trump-election-results-decision](https://www.cnn.com/2023/09/17/politics/trump-election-results-decision)
 
@@ -32,7 +32,7 @@ permalink: /categories/conspiracies/elections/
 
 ### 2024
 
-2024-04-13 Trump made claims his 2024 trial was "rigged", called it a political witch hunt, and accused the Biden administration of using the trial as election interference.
+2024-04-13 Trump called his 2024 trial “rigged,” a political witch hunt, and Biden-led election interference.
 
 [https://www.npr.org/2024/05/31/g-s1-2149/trump-trial-guilty-verdict-press-conference](https://www.npr.org/2024/05/31/g-s1-2149/trump-trial-guilty-verdict-press-conference)
 

@@ -66,7 +66,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.bestcolleges.com/news/fafsa-drops-nonbinary-gender-id-option-streamlines-race-ethnicity-questions/](https://www.bestcolleges.com/news/fafsa-drops-nonbinary-gender-id-option-streamlines-race-ethnicity-questions/)
 
-2024-03-28 After the Baltimore bridge collapsed, Phil Lyman posted an unfounded claim that the crash was caused by DEI, writing "This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens". He also shared a post from the Young Conservative Federation featuring a dossier of Karenthia A. Barber.
+2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and shared a post targeting Karenthia A. Barber. He posted, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. He also reposted a dossier of Karenthia A. Barber from the Young Conservative Federation.
 
 [https://x.com/phil_lyman/status/1772647920124211378](https://x.com/phil_lyman/status/1772647920124211378)
 
