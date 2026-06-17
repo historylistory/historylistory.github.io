@@ -66,7 +66,7 @@ permalink: /categories/health/other/
 
 ### 2026 April
 
-2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+2026-04-08 RFK received backlash for being “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 [https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
 

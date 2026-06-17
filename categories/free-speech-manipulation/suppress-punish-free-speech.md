@@ -176,7 +176,7 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist](https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-employee-over-alleged-leak-to-journalist)
 
-2026-04-16 Tennessee passed House Bill 1476, the “Charlie Kirk Act”, limiting campus walkouts and protests. So basically, if you disagree or cause what the GOP considers a disruption, you can be expelled from school. 
+2026-04-16 Tennessee enacted House Bill 1476 "Charlie Kirk Act," restricting campus walkouts and certain protest activities. 
 
 [https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s](https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s)
 

@@ -223,7 +223,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 
 
-2026-04-07 Ro Khanna and Martha MacCallum got into an exchange over Trump’s war crime threat to exterminate the Iranian civilization. 
+2026-04-07 Ro Khanna and Martha MacCallum debated Trump's threat to destroy Iranian civilization.
 
 [https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
 

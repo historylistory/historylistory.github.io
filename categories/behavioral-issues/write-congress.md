@@ -506,7 +506,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-07 Trump and Hegseth declared victory over Iran with a so-called 10-point deal. 
 
-2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+2026-04-08 RFK received backlash for being “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after Trump tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
 

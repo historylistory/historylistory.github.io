@@ -613,7 +613,7 @@ what women who are paid to do things are called”.
 
 [https://x.com/RogerJStoneJr/status/2041680652962295825](https://x.com/RogerJStoneJr/status/2041680652962295825)
 
-2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+2026-04-08 RFK received backlash for being “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 [https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
 

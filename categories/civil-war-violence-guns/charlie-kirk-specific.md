@@ -373,7 +373,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2026 April
 
-2026-04-16 Tennessee passed House Bill 1476, the “Charlie Kirk Act”, limiting campus walkouts and protests. So basically, if you disagree or cause what the GOP considers a disruption, you can be expelled from school. 
+2026-04-16 Tennessee enacted House Bill 1476 "Charlie Kirk Act," restricting campus walkouts and certain protest activities. 
 
 [https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s](https://www.youtube.com/watch?v=fJ5hlrDtFYk&list=WL&index=3&t=98s)
 

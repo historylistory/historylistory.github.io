@@ -43,6 +43,22 @@ permalink: /categories/crime-ethics-defiance/other/
 
 ### 2026 April
 
+2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened. 
+
+[https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
+
+[https://www.pbs.org/newshour/politics/doj-moves-to-erase-seditious-conspiracy-convictions-of-oath-keepers-proud-boys-in-jan-6-cases](https://www.pbs.org/newshour/politics/doj-moves-to-erase-seditious-conspiracy-convictions-of-oath-keepers-proud-boys-in-jan-6-cases)
+
+[https://www.cbsnews.com/news/doj-moves-dismiss-jan-6-convictions-proud-boys-oath-keepers-seditious-conspiracy/](https://www.cbsnews.com/news/doj-moves-dismiss-jan-6-convictions-proud-boys-oath-keepers-seditious-conspiracy/)
+
+[https://thehill.com/regulation/court-battles/5831248-justice-department-seeks-vacation-proud-boys-convictions/](https://thehill.com/regulation/court-battles/5831248-justice-department-seeks-vacation-proud-boys-convictions/)
+
+[https://www.npr.org/2026/04/15/g-s1-117473/justice-department-toss-seditious-conspiracy](https://www.npr.org/2026/04/15/g-s1-117473/justice-department-toss-seditious-conspiracy)
+
+[https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
+
+[https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
 2026-04-23 Kalshi fined and suspended congressional candidates for betting on their own elections.
 
 [https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections](https://www.pbs.org/newshour/politics/kalshi-fines-and-suspends-3-congressional-candidates-for-betting-on-their-own-elections)

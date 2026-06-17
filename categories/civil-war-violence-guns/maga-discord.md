@@ -336,7 +336,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/](https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/)
 
-2026-04-07 Ro Khanna and Martha MacCallum got into an exchange over Trump’s war crime threat to exterminate the Iranian civilization. 
+2026-04-07 Ro Khanna and Martha MacCallum debated Trump's threat to destroy Iranian civilization.
 
 [https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
 
@@ -376,7 +376,7 @@ what women who are paid to do things are called”.
 [https://x.com/RogerJStoneJr/status/2041680652962295825](https://x.com/RogerJStoneJr/status/2041680652962295825)
 
 
-2026-04-08 RFK received backlash for “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
+2026-04-08 RFK received backlash for being “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
 
 [https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11](https://www.youtube.com/watch?v=tWqK7K9Xzmk&list=WL&index=11)
 
@@ -386,7 +386,7 @@ what women who are paid to do things are called”.
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
 
-2026-04-08 The House Freedom Caucus posted against Trump and Johnsons ICE reconciliation package via social media, writing, “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”. 
+2026-04-08 The House Freedom Caucus posted “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”.
 
 [https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10](https://www.youtube.com/watch?v=dWblM9rXip0&list=WL&index=10)
 
@@ -394,7 +394,7 @@ what women who are paid to do things are called”.
 
 [https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/](https://thehill.com/homenews/house/5819560-freedom-caucus-dhs-reconciliation/)
 
-2026-04-22 Theo Von turned against Trump over Iran.
+2026-04-22 Theo Von broke with Trump over the Iran conflict.
 
 [https://www.yahoo.com/entertainment/celebrity/articles/theo-von-turns-against-president-200443413.html](https://www.yahoo.com/entertainment/celebrity/articles/theo-von-turns-against-president-200443413.html)
 

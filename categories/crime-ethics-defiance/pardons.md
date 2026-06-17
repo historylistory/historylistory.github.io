@@ -338,7 +338,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 ### 2026 April
 
-2026-04-14 The DOJ moved to vacate the most serious J6 convictions from the Proud Boys and Oath Keepers, two white supremacist groups in the U.S. To vacate a conviction means to totally wipe an event from record as though it had never happened.
+2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened. 
 
 [https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
 

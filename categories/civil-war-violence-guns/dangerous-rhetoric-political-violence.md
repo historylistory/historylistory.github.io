@@ -355,7 +355,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 ### 2026 April
 
-2026-04-14 The DOJ moved to vacate the most serious J6 convictions from the Proud Boys and Oath Keepers, two white supremacist groups in the U.S. To vacate a conviction means to totally wipe an event from record as though it had never happened.
+2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened. 
 
 [https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
 
@@ -371,7 +371,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
 
-2026-04-25 Another assassination attempt on Trump during the Correspondent’s Dinner.
+2026-04-25 Another assassination attempt targeting Trump during the White House Correspondents' Dinner. This time people speculated it was staged, and the Trump administration used it as a reason for continuing the ballroom project.
 
 [https://www.npr.org/2026/04/26/g-s1-118807/trump-white-house-correspondents-dinner](https://www.npr.org/2026/04/26/g-s1-118807/trump-white-house-correspondents-dinner)
 
