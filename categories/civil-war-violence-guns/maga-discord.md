@@ -199,7 +199,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2026 March
 
-2026-03-03 Nick Fuentes opposed Trump’s pro-Israel / anti-Iran stance, calling it inconsistent with nationalism.
+2026-03-03 Nick Fuentes criticized Trump's pro-Israel and anti-Iran policies as inconsistent with nationalist principles.
 
 [https://www.hindustantimes.com/world-news/us-news/covering-up-epstein-files-far-right-influencer-nick-fuentes-blasts-trump-over-iran-strikes-says-vote-democrat-101772476636193.html](https://www.hindustantimes.com/world-news/us-news/covering-up-epstein-files-far-right-influencer-nick-fuentes-blasts-trump-over-iran-strikes-says-vote-democrat-101772476636193.html)
 

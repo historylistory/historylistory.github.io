@@ -264,3 +264,9 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/](https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/)
 
 [https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/](https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/)
+
+2026-06-16 After Trump had it painted blue, the Reflecting Pool turned green.
+
+[https://apnews.com/article/trump-reflecting-pool-renovation-1235f9417697bb2e1f56e14e4d2214de](https://apnews.com/article/trump-reflecting-pool-renovation-1235f9417697bb2e1f56e14e4d2214de)
+
+[https://www.nbcnews.com/politics/donald-trump/reflecting-pool-green-algae-trump-rcna350278](https://www.nbcnews.com/politics/donald-trump/reflecting-pool-green-algae-trump-rcna350278)

@@ -618,3 +618,4 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
 
+2026-06-16 After Trump had it painted blue, the Reflecting Pool turned green.

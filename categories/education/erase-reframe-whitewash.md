@@ -172,3 +172,14 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 [https://www.pbs.org/newshour/nation/citing-orwells-1984-judge-orders-trump-administration-to-restore-slavery-exhibit-it-removed-in-philadelphia](https://www.pbs.org/newshour/nation/citing-orwells-1984-judge-orders-trump-administration-to-restore-slavery-exhibit-it-removed-in-philadelphia)
 
 [https://www.cnn.com/2026/02/16/politics/philadelphia-slavery-exhibits-judge-orders-return-orwell](https://www.cnn.com/2026/02/16/politics/philadelphia-slavery-exhibits-judge-orders-return-orwell)
+
+### 2026 June
+
+2026-06-16 Trump administration moved two high-profile functions out of the Department of Education: Civil Rights Education will now be under the Department of Justice, and Special Education will now be under the Department of Health and Human Services. 
+
+[https://federalnewsnetwork.com/reorganization/2026/06/trump-moves-oversight-of-special-education-and-civil-rights-from-the-education-department/](https://federalnewsnetwork.com/reorganization/2026/06/trump-moves-oversight-of-special-education-and-civil-rights-from-the-education-department/)
+
+[https://www.highereddive.com/news/education-department-to-move-core-civil-rights-duties-to-doj/823059/](https://www.highereddive.com/news/education-department-to-move-core-civil-rights-duties-to-doj/823059/)
+
+[https://www.youtube.com/watch?v=jKiK3vtxmtY&list=WL&index=4](https://www.youtube.com/watch?v=jKiK3vtxmtY&list=WL&index=4)
+

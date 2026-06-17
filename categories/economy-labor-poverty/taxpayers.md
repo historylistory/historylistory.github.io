@@ -442,3 +442,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)
 
 [https://www.commondreams.org/news/house-republicans-2677019857](https://www.commondreams.org/news/house-republicans-2677019857)
+
+2026-06-16 An investigation was launched into allegations that Kash Patel created a $1M personal slush fund of taxpayer money to pay off MAGA loyalists. 
+
+[https://www.youtube.com/watch?v=M5Ap6Ai3ZUg&list=WL&index=3&t=23s](https://www.youtube.com/watch?v=M5Ap6Ai3ZUg&list=WL&index=3&t=23s)
+
+[https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039](https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039)
+
+[https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle](https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle)
