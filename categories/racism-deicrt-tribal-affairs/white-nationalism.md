@@ -332,3 +332,12 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.justice.gov/opa/media/1437146/dl?inline](https://www.justice.gov/opa/media/1437146/dl?inline)
 
 [https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668](https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668)
+
+2026-06-13 At a Houston Texas GOP convention on Judeo-Christian values, Texas Republicans promoted “Don’t Sharia My Texas” and then quickly rejected Muslim attendees.
+
+[https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/](https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/)
+
+[https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/](https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/)
+
+[https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s](https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s)
+

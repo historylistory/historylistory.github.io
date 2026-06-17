@@ -170,11 +170,34 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139](https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139)
 
+2024-09-09 Trump reposted a tweet from JD Vance. The Vance post read, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump piggy-backed off the post by writing, "Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did".
+
+[https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html](https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html)
+
+2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+
+[https://x.com/tedcruz/status/1833174142591365185](https://x.com/tedcruz/status/1833174142591365185)
+
+2024-09-10 JD Vance posted on Truth Social "In the last several weeks, my office has received many inquiries from actual residents of Springfield who've said their neighbors' pets or local wildlife were abducted by Haitian migrants. It's possible, of course, that all of these rumors will turn out to be false".
+
+{% include youtubePlayer.html id="d5qoaj3YndQ" %}
+
+
+
 2024-09-10 Trump falsely accused Haitian immigrants of eating pets during a debate and denied involvement with Project 2025.
 
 [https://www.bbc.com/news/articles/c77l28myezko](https://www.bbc.com/news/articles/c77l28myezko)
 
 {% include youtubePlayer.html id="d5qoaj3YndQ" %}
+
+2024-09-11 JD Vance doubled down on his perpetuating the nonsense that migrants were eating pets in Ohio. During a sit-down interview with Kaitlan Collins on CNN, he stated *“When you have a lot of people saying ‘My pets are being abducted’ or ‘Geese at the city pond are being abducted and slaughtered right in front of us’, this is crazy stuff. And again, whether those exact rumors turn out to be mostly true, somewhat true, whatever the case may be – Kaitlan, this town has been ravaged by 20,000 migrants coming in. Health care costs are up. Housing costs are up. Communicable diseases like HIV and TB have skyrocketed in this small Ohio town. This is what Kamala Harris’s border policies have done. And I think it’s interesting, Kaitlan, that, that the media didn’t care about the carnage brought by these policies until we turned it into a meme about cats”.* **[see Thought Project section in the main menu under ‘Fallacies’]** 
+
+[https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid](https://www.cnn.com/2024/09/11/politics/video/jd-vance-cat-haitian-immigrants-trump-harris-debate-abc-news-digvid)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
 
 2024-09-12 Springfield OH received bomb threats after the Trump administration made baseless claims about Haitian migrants. The Ohio governor had to bring in State Troopers and bomb dogs.
 
@@ -303,6 +326,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://x.com/LauraLoomer/status/1988100437913071858](https://x.com/LauraLoomer/status/1988100437913071858)
 
+
 2025-11-27 Trump claimed that Congresswoman Ilhan Omar of Minnesota should be “thrown the hell out of our country” in a social media post, claimed the Congresswoman “probably came to the US illegally” and mocked her hijab. In a side-rant, Trump also managed to call Governor Tim Walz “seriously retarded”. Trump suggested Ilhan Omar For context, this came immediately after Trump ranted on social media that Minnesota was overrun by Somali gangs.
 
 [https://thenationaldesk.com/news/nation-world/trump-claims-ilhan-omar-should-get-thrown-the-hell-out-of-our-country](https://thenationaldesk.com/news/nation-world/trump-claims-ilhan-omar-should-get-thrown-the-hell-out-of-our-country)
@@ -333,6 +357,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2026 January
 
+2026-01-03 Both House.Gov and Congress.gov features documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
+
+[https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
+
+
 2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
@@ -359,11 +390,29 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116038200403048483](https://truthsocial.com/@realDonaldTrump/posts/116038200403048483)
 
+2026-02-09 The headline from the Springfield News-Sun says it all: "Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning."
+
+[https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
+
 2026-02-10 On Piers Morgan, Megyn Kelly was outraged about Bad Bunny performing at the Superbowl in Spanish, stating “who gives a damn that we have 40 million Spanish speakers in the United States?” and, “this is supposed to be a unifying event for the country, not for the Latinos, not for a small group, but for the country. We don’t need a black national anthem”. She went on to say multiple racist things, then attacked Piers Morgan’s home country by stating “This is why you in Great Britain have lost your culture. You seeded your culture to a bunch of radical Muslims….”. So she basically attacked any non-white group in under 3 minutes over a Superbowl halftime show being performed in Spanish. Very telling.
 
 {% include youtubePlayer.html id="ZPZoVwgfK84" %}
 
+
+
+
 ### 2026 March
+
+2026-03-02 Haitian asylum seeker Daffy Michelle’s body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June. 
+
+TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1)
+
+[https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/](https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/)
+
+[https://www.youtube.com/watch?v=_u24qQPsQ9c](https://www.youtube.com/watch?v=_u24qQPsQ9c)
+
+[https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343](https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343)
+
 
 2026-03-05 The Miami Herald reported more leaked GOP chats from WhatsApp involving heavy use of the n-word, calling women “whores”, and explaining multiple ways how to kill Black people.  The group chat featured multiple prominent figures including individuals known to start pro-life groups, some leadership of Turning Point USA, and a county GOP secretary.
 
@@ -390,7 +439,28 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4)
 
+### 2026 April
+
+2026-04-22 Marco Rubio falsely claimed detained women named Soleimani were related to Qassem Soleimani.
+
+[https://www.dropsitenews.com/p/iranian-women-ice-detention-not-related-qasem-soleimani-rubio-loomer](https://www.dropsitenews.com/p/iranian-women-ice-detention-not-related-qasem-soleimani-rubio-loomer)
+
+[https://www.aljazeera.com/news/2026/4/4/top-diplomat-marco-rubio-strips-qassem-soleimanis-niece-of-us-residency](https://www.aljazeera.com/news/2026/4/4/top-diplomat-marco-rubio-strips-qassem-soleimanis-niece-of-us-residency)
+
+[https://www.instagram.com/p/DWuZIiHEhrE/](https://www.instagram.com/p/DWuZIiHEhrE/)
+
+[https://www.middleeasteye.net/news/iranian-women-held-us-immigration-not-qassem-soleimani-relatives-report](https://www.middleeasteye.net/news/iranian-women-held-us-immigration-not-qassem-soleimani-relatives-report)
+
+[https://www.democracynow.org/2026/4/24/headlines/iranian_asylum_seekers_jailed_by_ice_are_not_related_to_military_commander_as_trump_admin_claimed](https://www.democracynow.org/2026/4/24/headlines/iranian_asylum_seekers_jailed_by_ice_are_not_related_to_military_commander_as_trump_admin_claimed)
+
+
 ### 2026 May
+
+2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
+
+[https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)
+
+
 
 2026-05-15 Jesse Watters said on “The Five”, “I did some research on the Blacks – as Judge Janine so eloquently would say – um. The solution to Hakeem’s problem, the (ske?) Obama, is baby making. Blacks for 150 years have only represented 10 to 15% of the American population. Okay? That’s not that much. So, if they wanna have more seats, they gotta get in between the sheets. Spanish – they’re comin’ North, they’re havin’ tons of kids, and at this point they have the same – almost – the same amount of house seats as Blacks! The Hispanic caucus is almost as big as the – the Black caucus. So, if you guys need to solve that problem you know what you need to do”. 
 
@@ -416,3 +486,4 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.youtube.com/watch?v=hA9ydIiKI7c&list=WL&index=10&t=251s](https://www.youtube.com/watch?v=hA9ydIiKI7c&list=WL&index=10&t=251s)
 
 [https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/](https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/)
+

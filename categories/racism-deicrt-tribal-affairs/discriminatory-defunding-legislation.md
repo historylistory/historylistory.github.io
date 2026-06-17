@@ -104,6 +104,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://apnews.com/article/redistricting-texas-map-blocked-lawsuit-trump-ab4dc519717c6661c63e116c9f26d899](https://apnews.com/article/redistricting-texas-map-blocked-lawsuit-trump-ab4dc519717c6661c63e116c9f26d899)
 
+2025-11-18 Texas Governor Greg Abbot deemed the Council on American-Islamic Relations as a terrorist organization and banned them or anyone associated with them from purchasing or acquiring Texas land. The organization later filed a lawsuit.
+
+[https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/](https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/)
+
+
 2025-11-26 The Trump Administration announced it would be ending deportation protections for more than 350,000 Haitian immigrants who fell under the Temporary Protected Status. A judge temporarily blocked the order February 2, 2026.
 
 [https://www.bbc.com/news/articles/c5yxn7kqww8o](https://www.bbc.com/news/articles/c5yxn7kqww8o)

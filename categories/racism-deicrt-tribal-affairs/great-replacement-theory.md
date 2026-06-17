@@ -168,3 +168,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 [https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588](https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588)
 
 [https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
+
+### 2026 June
+
+2026-06-13 At a Houston Texas GOP convention on Judeo-Christian values, Texas Republicans promoted “Don’t Sharia My Texas” and then quickly rejected Muslim attendees.
+
+[https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/](https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/)
+
+[https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/](https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/)
+
+[https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s](https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s)
+

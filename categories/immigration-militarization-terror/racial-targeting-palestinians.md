@@ -6,6 +6,12 @@ subcategory_slug: racial-targeting-palestinians
 permalink: /categories/immigration-militarization-terror/racial-targeting-palestinians/
 ---
 
+### Commentary
+
+I realize there is a lot more. Generally this information gets copied to genocidal information under [Foreign Affairs - Gaza ](https://historylistory.com/categories/foreign-affairs-isolation/gaza) because it is so immense.
+
+
+
 ### 2026
 
 2026-04-27 The Trump administration instructed DHS and immigration officers to deny green cards to anyone who protested views that didn’t align with Trump, including criticizing Israel or supporting Palestine. 
