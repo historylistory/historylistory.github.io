@@ -70,7 +70,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2025 September
 
-2025-09-04 The DOJ sued Southern Californian Edison, seeking $77M and blaming them for the Edison wildfires.
+2025-09-04 The DOJ blamed Southern California Edison for the Edison wildfires and sued them for $77M.
 
 [https://calmatters.org/environment/wildfires/2025/09/edison-caused-eaton-fire-feds-say/](https://calmatters.org/environment/wildfires/2025/09/edison-caused-eaton-fire-feds-say/)
 

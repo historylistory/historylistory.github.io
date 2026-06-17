@@ -35,6 +35,18 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 {% include youtubePlayer.html id="ORg7VfCYmzM" %}
 
+2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
+
+[https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states](https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states)
+
+[https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d](https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115302268694968810](https://truthsocial.com/@realDonaldTrump/posts/115302268694968810)
+
+{% include youtubePlayer.html id="MYM40nNxN1M" %}
+
 2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)

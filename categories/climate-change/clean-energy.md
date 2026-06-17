@@ -70,7 +70,7 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 ### 2025 September
 
-2025-09-09 Several Republicans have repeatedly fought against the expansion of solar energy on agricultural lands (such as agrovoltaics) often framing it as “green energy boondoggles”. 
+2025-09-09 Several Republicans continued opposing solar expansion on farmland, often describing such projects as “green-energy boondoggles.”
 
 WHAT IS IT [https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you](https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you)
 
@@ -91,13 +91,18 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 
 ### 2025 October
 
-2025-10-02 In a retaliatory move during the government shutdown, Trump pulled $8B in clean energy products from Democratic states.
+2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
-{% include youtubePlayer.html id="MYM40nNxN1M" %}
+[https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states](https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states)
+
+[https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d](https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
 
 [https://truthsocial.com/@realDonaldTrump/posts/115302268694968810](https://truthsocial.com/@realDonaldTrump/posts/115302268694968810)
 
-[https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
+{% include youtubePlayer.html id="MYM40nNxN1M" %}
+
 
 ### 2026 March
 

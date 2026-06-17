@@ -264,15 +264,18 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 October
 
-2025-10-02 Trump pulled $8B in clean energy products from Democratic states as a retaliatory measure for the government shutdown standoff.
+2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
 [https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states](https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states)
 
 [https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d](https://apnews.com/article/trump-clean-energy-hydrogen-hub-newsom-0223cb4469508bcea4f689c18c9ab65d)
 
+[https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115302268694968810](https://truthsocial.com/@realDonaldTrump/posts/115302268694968810)
+
 {% include youtubePlayer.html id="MYM40nNxN1M" %}
 
-[https://truthsocial.com/@realDonaldTrump/posts/115304455138824245](https://truthsocial.com/@realDonaldTrump/posts/115304455138824245)
 
 2025-10-08 Florida Representative Kevin Steele introduced legislation threatening state funding for colleges and universities that did not name roads after Charlie Kirk.
 

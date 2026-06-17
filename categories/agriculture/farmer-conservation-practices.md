@@ -24,7 +24,7 @@ permalink: /categories/agriculture/farmer-conservation-practices/
 
 ### 2025 September
 
-2025-09-09 Several Republicans have repeatedly fought against the expansion of solar energy on agricultural lands (such as agrovoltaics) often framing it as “green energy boondoggles”. 
+2025-09-09 Several Republicans continued opposing solar expansion on farmland, often describing such projects as “green-energy boondoggles.”
 
 WHAT IS IT [https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you](https://www.climatehubs.usda.gov/hubs/northeast/topic/agrivoltaics-coming-soon-farm-near-you)
 

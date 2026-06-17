@@ -162,7 +162,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2025 September
 
-2025-09-30 The Trump administration reported they planned to cut 1 in 3 EPA staffers by the end of 2025 on top of the 23% they had already cut in July.
+2025-09-30 The administration announced plans to cut one-third of remaining EPA staff by year’s end, in addition to earlier reductions.
 
 [https://www.govexec.com/workforce/2025/09/trump-administration-track-cut-1-3-epa-staffers-end-2025/408455/](https://www.govexec.com/workforce/2025/09/trump-administration-track-cut-1-3-epa-staffers-end-2025/408455/)
 

@@ -8,7 +8,7 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2025 August
 
-2025-08-31 Numerous reports surged about flash flooding, rip currents, heat waves and fires nationwide.
+2025-08-31 Reports of flash flooding, rip currents, heat waves, and wildfires surged nationwide.
 
 [https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves](https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves)
 

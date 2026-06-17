@@ -79,7 +79,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 September
 
-2025-09-02 Eighty-five veteran scientists issued a joint rebuttal to the U.S. Department of Energy report about climate change, finding it full of errors, misinterpretations of climate science, and cherry picking of data to roll back regulations. The group of researchers also cited the energy department calling climate change "potentially beneficial".
+2025-09-02 Eighty-five veteran scientists issued a rebuttal to a Department of Energy climate report, citing errors, misrepresentations, and selective use of data.
 
 [https://www.npr.org/2025/09/02/nx-s1-5521384/energy-report-scientists-climate-change](https://www.npr.org/2025/09/02/nx-s1-5521384/energy-report-scientists-climate-change)
 
@@ -93,7 +93,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://ktvz.com/cnn-other/2025/09/02/scientists-submit-coordinated-response-to-trump-admin-report-casting-doubt-on-climate-change-it-makes-a-mockery-of-science/](https://ktvz.com/cnn-other/2025/09/02/scientists-submit-coordinated-response-to-trump-admin-report-casting-doubt-on-climate-change-it-makes-a-mockery-of-science/)
 
-2025-09-23 Trump mocked the UN, climate change, and immigration policy during a speech. Trump stated, “What is the purpose of the United Nations?”, dismissed climate change calling it “the greatest con job ever perpetrated on the world…”, offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody “I’m really good at this stuff - your countries are going to hell”.
+2025-09-23 At the U.N., Trump mocked climate change as “the greatest con job ever perpetrated on the world” and questioned the purpose of the United Nations. This was the time he told the UN, “What is the purpose of the United Nations?” and, I’m really good at this stuff - your countries are going to hell”.
 
 [https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/](https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23/)
 

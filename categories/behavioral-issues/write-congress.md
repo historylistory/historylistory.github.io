@@ -234,7 +234,7 @@ couldn’t remember where he assigned Walker, stating, “…and now he’s goin
 
 2025-09-23 Trump repeatedly claimed he ended 7–10 wars.
 
-2025-09-23 Trump mocked the UN, climate change, and immigration policy during a speech. Trump stated, “What is the purpose of the United Nations?”, dismissed climate change calling it “the greatest con job ever perpetrated on the world…”, offered his crackdown on immigration as a case study for what he believes other world leaders should do, and told everybody “I’m really good at this stuff - your countries are going to hell”.
+2025-09-23 At the U.N., Trump mocked climate change as “the greatest con job ever perpetrated on the world” and questioned the purpose of the United Nations. This was the time he told the UN, “What is the purpose of the United Nations?” and, I’m really good at this stuff - your countries are going to hell”.
 
 2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
