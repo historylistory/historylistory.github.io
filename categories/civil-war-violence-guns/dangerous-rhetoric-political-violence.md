@@ -259,7 +259,7 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2025 September
 
-2025-09-12 After Charlie Kirk was shot, three Democratic Oregon State Senators received bomb threats: Rob Wagner, Kayse Jama, and James Manning.
+2025-09-12 Three Democratic Oregon state senators received bomb threats following the Kirk shooting: Rob Wagner, Kayse Jama, and James Manning.
 
 [https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety](https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety)
 

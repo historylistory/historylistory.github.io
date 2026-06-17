@@ -24,6 +24,6 @@ permalink: /categories/conspiracies/anti-lgbtq-rhetoric/
 
 ### 2025 September
 
-2025-09-13 Laura Loomer perpetuated transgender hatred by posting on social media, "How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated". On the same day in a separate post, Loomer responded to News Wire "It's time to designate the transgender movement as a terrorist movement." The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
+2025-09-13 Laura Loomer posted, “How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated”. On the same day in a separate post, Loomer responded to News Wire “It’s time to designate the transgender movement as a terrorist movement.” The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
 
 [https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/](https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/)

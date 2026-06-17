@@ -28,11 +28,11 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.irishstar.com/news/us-news/laura-loomer-assassin-charlie-kirk-35888837](https://www.irishstar.com/news/us-news/laura-loomer-assassin-charlie-kirk-35888837)
 
-2025-09-10 Stephen Miller's wife Katie Miller posted a message on X saying Liberals had blood on their hands. She wrote, “It’s a real treat to see all these Liberals condemn political violence now. You called us Hitler. You called us Nazis. You called us Racists. You have blood on your hands”.
+2025-09-10 Katie Miller posted “It’s a real treat to see all these Liberals condemn political violence now. You called us Hitler. You called us Nazis. You called us Racists. You have blood on your hands”.
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-shooting-death-trump-reaction](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-shooting-death-trump-reaction)
 
-2025-09-10 Founder of anti-abortion group Students for Life of America Kristan Hawkins posted a bible verse and a call for war in the same post, writing, "This is a new civil war. One that we must fight with love and restore a Culture of Life".
+2025-09-10 Anti-abortion group president Kristan Hawkins described the Kirk shooting as a "new civil war"
 
 [https://www.studentsforlifeaction.org/a-message-from-kristan-hawkins-remembering-charlie-kirk-a-loving-father-husband-fierce-defender-of-life/](https://www.studentsforlifeaction.org/a-message-from-kristan-hawkins-remembering-charlie-kirk-a-loving-father-husband-fierce-defender-of-life/)
 
@@ -40,17 +40,17 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.thenational.scot/news/25458296.right-wing-influencers-call-civil-war-charlie-kirk-murder/](https://www.thenational.scot/news/25458296.right-wing-influencers-call-civil-war-charlie-kirk-murder/)
 
-2025-09-10 During an interview with Newsmax’s Rob Schmitt, Carl Higbie threatened to use gun violence, stating, "I caution them. The last thing I want is violence…but if these people keep pushing they are going to radicalize a huge portion of America they don't want...I'm not threatening that, I'm warning that...I want debate…not gunfire, because I'll win”.
+2025-09-10 During an interview with Newsmax’s Rob Schmitt, Carl Higbie threatened violence, “I caution them. The last thing I want is violence…but if these people keep pushing they are going to radicalize a huge portion of America they don’t want…I’m not threatening that, I’m warning that…I want debate…not gunfire, because I’ll win”.
 
 [https://www.newsmaxtv.com/Shows/Rob-Schmitt-Tonight/vid/8c854460-8eab-11f0-8b7a-c17ff5ab3dc8](https://www.newsmaxtv.com/Shows/Rob-Schmitt-Tonight/vid/8c854460-8eab-11f0-8b7a-c17ff5ab3dc8)
 
-2025-09-10 Before anyone had a shooter suspect, Nancy Mace declared that Democrats needed to own what happened to Charlie Kirk. A reporter asked her if the same rationale could be applied to the murder of the Minnesota senators.
+2025-09-10 Nancy Mace declared that Democrats needed to own what happened to Charlie Kirk. A reporter asked her if the same rationale could be applied to the murder of the Minnesota senators.
 
 {% include youtubePlayer.html id="l6dV4y91l8Y" %}
 
 [https://www.youtube.com/shorts/Tpawq6l_RxU](https://www.youtube.com/shorts/Tpawq6l_RxU)
 
-2025-09-10 Representative Anna Paulina Luna posted on X requesting Charlie Kirk videos be removed. Multiple readers in the MAGA base responded, calling to allow videos to remain as a reminder that Democrats are “terrorists” and "savages" who only want to see them "bleed out and die".
+2025-09-10 When representative Anna Paulina Luna posted on X requesting Charlie Kirk videos be removed, several MAGA readers responded to keep the videos “as a reminder” that Democrats are “terrorists” and “savages” who only want to see them “bleed out and die”.
 
 [https://x.com/RepLuna/status/1965957600324796675](https://x.com/RepLuna/status/1965957600324796675)
 
@@ -64,7 +64,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824](https://www.politico.com/news/2025/09/15/patel-premature-announcement-kirk-killing-suspect-custody-00563824)
 
-2025-09-10 A far-right social media influencer group “Libs of TikTok” posted “THIS IS WAR” on X. That same day they posted a "war board" on social media featuring call-to-action posts by people like Gunther Eagleman, Laura Loomer, Matt Forney, Patrick Casey, Nikki McCann, Brian Eastwood, Oilfield Rando, Joey Mannarino, Elon Musk, Sean Davis, Christopher F. Rufo, and Jere_Memez.
+2025-09-10 Libs of TikTok posted "THIS IS WAR" and circulated a "war board" featuring calls to action from prominent conservative influencers
 
 [https://www.wired.com/story/far-right-reactions-charlie-kirk-shooting-civil-war/](https://www.wired.com/story/far-right-reactions-charlie-kirk-shooting-civil-war/)
 
@@ -74,21 +74,21 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD066.pdf](https://www.congress.gov/118/meeting/house/115561/documents/HHRG-118-IF16-20230328-SD066.pdf)
 
-2025-09-10 Blaze Media (co-founded by Glenn Beck) host Auron MacIntyre wrote multiple social media posts including one message, "They shot the voice of reason through the throat so now it's time to become unreasonable".
+2025-09-10 Auron MacIntyre wrote, “They shot the voice of reason through the throat so now it’s time to become unreasonable”.
 
 [https://time.com/7316315/republicans-far-right-reacts-charlie-kirk-death-blame-left-crackdown/](https://time.com/7316315/republicans-far-right-reacts-charlie-kirk-death-blame-left-crackdown/)
 
 [https://bayarea.binnews.com/content/2025-09-11-party-of-murder-maga-declares-war-on-left-after-charlie-kirks-death/#:~:text=Christopher%20Rufo%2C%20a%20senior%20fellow,The%20shooter%20remains%20at%20large](https://bayarea.binnews.com/content/2025-09-11-party-of-murder-maga-declares-war-on-left-after-charlie-kirks-death/).
 
-2025-09-10 Jason Chaffetz decided to float the idea on Fox that the Kirk shooter was transgender.
+2025-09-10 Jason Chaffetz publicly speculated that the shooter might be transgender
 
 [https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness](https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness)
 
-2025-09-10 During a Fox News interview, Greg Gutfield stated "…if they can do this they can do anything - I think that was the message", proclaims it is hard to radicalize the Republicans, and that Democrats "better watch out" because they "woke them the f-ck up".
+2025-09-10 During a Fox News interview, Greg Gutfield stated “…if they can do this they can do anything - I think that was the message”, claimed it is hard to radicalize Republicans, and that Democrats “better watch out” because they “woke them the f-ck up”.
 
 [https://www.threads.com/@chasem1551/post/DOceJM7jemL/did-he-actually-say-its-hard-to-radicalize-republicans](https://www.threads.com/@chasem1551/post/DOceJM7jemL/did-he-actually-say-its-hard-to-radicalize-republicans)
 
-2025-09-10 On the same day Kirk was shot Fox host Jesse Watters proclaimed the Democrats were "at war" while he simultaneously attacked transgender people.
+2025-09-10 Fox host Jesse Watters proclaimed the Democrats were “at war” while he simultaneously attacked transgender people.
 
 {% include youtubePlayer.html id="0RmvOCiTJAQ" %}
 
@@ -96,7 +96,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://x.com/netanyahu/status/1965888327938158764](https://x.com/netanyahu/status/1965888327938158764)
 
-2025-09-10 Matt Forney made several posts on X over the Kirk shooting, including one addressing this as the right’s "Reichstag Fire" moment.
+2025-09-10 Matt Forney referred to the Kirk shooting as the political right's "Reichstag Fire" moment
 
 [https://marx21us.org/2025/09/13/farrightusekirksdeath/](https://marx21us.org/2025/09/13/farrightusekirksdeath/)
 
@@ -114,11 +114,11 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 September 11
 
-2025-09-11 During a media press conference Kash Patel offered an unusual sentiment to Kirk, "Rest now brother, we have the watch, and I'll see you in Valhalla". According to some online sources, "Valhalla" is known to be referenced by some right-wing extremists.
+2025-09-11 During a media press conference Kash Patel offered, “Rest now brother, we have the watch, and I’ll see you in Valhalla”. 
 
 [https://www.c-span.org/clip/news-conference/fbi-director-patel-to-charlie-kirk-see-you-in-valhalla/5171858](https://www.c-span.org/clip/news-conference/fbi-director-patel-to-charlie-kirk-see-you-in-valhalla/5171858)
 
-2025-09-11 News outlets share data charts indicating a huge spike in Republicans posting the phrase "civil war" on X
+2025-09-11 Data shared by news outlets showed a sharp spike in Republicans using the phrase "civil war" on social media after the shooting
 
 [https://www.nytimes.com/2025/09/12/technology/charlie-kirk-shooting-civil-war.html](https://www.nytimes.com/2025/09/12/technology/charlie-kirk-shooting-civil-war.html)
 
@@ -126,17 +126,17 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://x.com/derrickvanorden/status/1966109793782829388](https://x.com/derrickvanorden/status/1966109793782829388)
 
-2025-09-11 Fox commentator Laura Ingraham stated the left had a lot to “answer to” and, "we have warned for years that their left will lead to violence".
+2025-09-11 Fox commentator Laura Ingraham claimed the left had a lot to “answer to…we have warned for years that their left will lead to violence”.
 
 {% include youtubePlayer.html id="bWRG4k9XkhI" %}
 
-2025-09-11 In separate interviews on both Fox News and The Benny Show Eric Trump incorrectly asserted that "bullets are only flying one way".
+2025-09-11 Eric Trump falsely claimed on both Fox News and The Benny Show that “bullets are only flying one way”.
 
 [https://www.thedailybeast.com/eric-trump-claims-bullets-aimed-at-political-figures-only-going-one-way/](https://www.thedailybeast.com/eric-trump-claims-bullets-aimed-at-political-figures-only-going-one-way/)
 
 [https://www.newsbreak.com/mediaite-520570/4230474574993-eric-trump-claims-the-bullets-are-only-going-one-way-in-fiery-interview](https://www.newsbreak.com/mediaite-520570/4230474574993-eric-trump-claims-the-bullets-are-only-going-one-way-in-fiery-interview)
 
-2025-09-11 The Daily Wire posted accusations on X that the left killed Charlie Kirk and told its readers this is a fight between good and evil. The post included a snip of a Matt Walsh Blog.
+2025-09-11 The Daily Wire posted accusations on X that the left killed Charlie Kirk and told its readers this is a fight between good and evil. They included a Matt Walsh Blog.
 
 [https://x.com/realDailyWire/status/1966238479005954530](https://x.com/realDailyWire/status/1966238479005954530)
 
@@ -144,7 +144,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://x.com/DeputySecState/status/1966114506116927972](https://x.com/DeputySecState/status/1966114506116927972)
 
-2025-09-11 Influencers like Nick Fuentes became increasingly vocal after the Kirk shooting and made references to a "groyper war". Some online sources say is an attempt to introduce alt-right politics into mainstream conservatism.
+2025-09-11 Influencers like Nick Fuentes became increasingly vocal after the Kirk shooting and made references to a “groyper war”. 
 
 [https://en.wikipedia.org/wiki/Groypers](https://en.wikipedia.org/wiki/Groypers)
 
@@ -170,7 +170,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.wral.com/story/2-initially-detained-in-charlie-kirk-shooting-threatened-even-after-police-cleared-them/22155469/](https://www.wral.com/story/2-initially-detained-in-charlie-kirk-shooting-threatened-even-after-police-cleared-them/22155469/)
 
-2025-09-11 Pete Hegseth launched a witch hunt on social media against any service member speaking negatively of Charlie Kirk. Hegseth wrote, “We are tracking all these very closely – and will address, immediately. Completely unacceptable”. General Mike Flynn responded to “Fire every one of these from their respective services immediately…” while Gunther Eagleman wrote, “…thoroughly root out the radical leftists festering in our DoW”.
+2025-09-11 Pete Hegseth launched a witch hunt against military members who didn’t sufficiently mourn, “We are tracking all these very closely – and will address, immediately. Completely unacceptable”. General Mike Flynn responded to “Fire every one of these from their respective services immediately…” while Gunther Eagleman wrote, “…thoroughly root out the radical leftists festering in our DoW”.
 
 [https://x.com/PeteHegseth/status/1966274615975739604](https://x.com/PeteHegseth/status/1966274615975739604)
 
@@ -184,17 +184,17 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/](https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/)
 
-2025-09-11 During a conference in Strasbourg France, the EU refused to provide a moment of silence for Charlie Kirk. Some would argue this is totally reasonable, because considering Kirk a national or global hero is a biased opinion and not a fact.
+2025-09-11 During a conference in Strasbourg France, the EU refused to provide a moment of silence for Charlie Kirk and were heckled and booed for it. 
 
 [https://www.dailymail.co.uk/news/article-15089181/Shocking-moment-left-wing-politicians-refuse-minutes-silence-Charlie-Kirk-European-Parliament-prompting-screaming-match-right-wing-opponents.html](https://www.dailymail.co.uk/news/article-15089181/Shocking-moment-left-wing-politicians-refuse-minutes-silence-Charlie-Kirk-European-Parliament-prompting-screaming-match-right-wing-opponents.html)
 
 ### 2025 September 12 (SUSPECT DETAINED)
 
-2025-09-12 The Charlie Kirk shooter was detained.
+2025-09-12 Authorities detained the Charlie Kirk shooting suspect
 
 [https://www.nbcchicago.com/news/hey-fascist-catch-messages-written-on-bullet-casings-in-charlie-kirk-shooting/3823256/](https://www.nbcchicago.com/news/hey-fascist-catch-messages-written-on-bullet-casings-in-charlie-kirk-shooting/3823256/)
 
-2025-09-12 Conservatives and White House staff kindled an array of speculation into the meaning of bullet engravings found by the FBI including transgender, anti-fascism, furry role play, video games, and trolling.
+2025-09-12 Conservatives speculated over bullet engravings from the shooting and baselessly connected them to transgender people, anti-fascism, furry role play, video games, and trolling.
 
 [https://www.wsj.com/livecoverage/charlie-kirk-shot/card/ammunition-in-kirk-shooting-engraved-with-transgender-antifascist-ideology-sources-pdymd1sXXMSlVRhpvR4b?gaa_at=eafs&gaa_n=ASWzDAjX3TR3TKU2AuyS4krfnErX0mQiBPAnR9_JbwSZlDlzl7Q1sRwKCvNf3yVSqT8%3D&gaa_ts=68cc4e4c&gaa_sig=aqSZbsRVS7T-kiymVRtDqIgAWw8MJbQre4DOD_2nwqKraLtsn5tUFf5IV39QyaOUMn6ZadfcD9kgTonnHn_s7g%3D%3D](https://www.wsj.com/livecoverage/charlie-kirk-shot/card/ammunition-in-kirk-shooting-engraved-with-transgender-antifascist-ideology-sources-pdymd1sXXMSlVRhpvR4b?gaa_at=eafs&gaa_n=ASWzDAjX3TR3TKU2AuyS4krfnErX0mQiBPAnR9_JbwSZlDlzl7Q1sRwKCvNf3yVSqT8%3D&gaa_ts=68cc4e4c&gaa_sig=aqSZbsRVS7T-kiymVRtDqIgAWw8MJbQre4DOD_2nwqKraLtsn5tUFf5IV39QyaOUMn6ZadfcD9kgTonnHn_s7g%3D%3D)
 
@@ -204,39 +204,40 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 {% include youtubePlayer.html id="SxzScV6HXyk" %}
 
-2025-09-12 On September 10th, Nancy Mace called for the death penalty in response to the Kirk shooting. However, after learning the Kirk suspect was a white conservative male, Nancy Mace toned down her rhetoric from "Democrats have to own up…" to the suspect being "lost" and that she would pray "he finds Jesus Christ".
+2025-09-12 Nancy Mace shifted her judgement from calling for the death penalty to praying “he finds Jesus Christ” when she learned the Charlie Kirk shooter was from a MAGA household. 
 
 2025 09 12 nancy mace - post.png
 
-2025-09-12 Conservatives rolled out a site called "Charlie's Murderers" where they encourage everybody to dox anyone who didn’t sufficiently sympathize with the Kirk murder.
+2025-09-12 Conservatives rolled out a website called “Charlie’s Murderers” where they encourage users to dox anyone who didn’t sufficiently sympathize with the Kirk shooting.
 
 [https://www.rollingstone.com/culture/culture-features/charlie-kirk-murderers-site-defamation-1235429785/](https://www.rollingstone.com/culture/culture-features/charlie-kirk-murderers-site-defamation-1235429785/)
 
-2025-09-12 Conspiracy theories began to fly that Netanyahu set up the assassination.
+2025-09-12 Conspiracy theories circulated alleging Benjamin Netanyahu orchestrated the assassination
 
 [https://www.cnn.com/2025/09/20/politics/fact-check-charlie-kirk-murder](https://www.cnn.com/2025/09/20/politics/fact-check-charlie-kirk-murder)
 
 [https://www.adl.org/resources/article/antisemitic-and-anti-israel-conspiracy-theories-follow-fatal-shooting-charlie](https://www.adl.org/resources/article/antisemitic-and-anti-israel-conspiracy-theories-follow-fatal-shooting-charlie)
 
-2025-09-12 After Charlie Kirk was shot, three Democratic Oregon State Senators received bomb threats: Rob Wagner, Kayse Jama, and James Manning.
+2025-09-12 Three Democratic Oregon state senators received bomb threats following the Kirk shooting: Rob Wagner, Kayse Jama, and James Manning.
 
 [https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety](https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety)
 
 ### 2025 September 13
 
-2025-09-13 Nancy Mace posted, “I repeat: DEMOCRATS OWN THIS” in reference to the Kirk shooting and went on to say the left made extremism and violence mainstream, and that they celebrate murder. She ended the post by telling her readers to “hold the line”.
+2025-09-13 Nancy Mace wrote on social media, “I repeat: DEMOCRATS OWN THIS…hold the line”, and claimed that the left made extremism and violence mainstream. 
+
 
 [https://x.com/NancyMace/status/1967045889018786270](https://x.com/NancyMace/status/1967045889018786270)
 
-2025-09-13 Laura Loomer perpetuated transgender hatred by posting on social media, "How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated". On the same day in a separate post, Loomer responded to News Wire "It's time to designate the transgender movement as a terrorist movement." The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
+2025-09-13 Laura Loomer posted, “How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated”. On the same day in a separate post, Loomer responded to News Wire “It’s time to designate the transgender movement as a terrorist movement.” The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
 
 [https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/](https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/)
 
-2025-09-13 Far-right activist Nick Fuentes warned his listeners to not "take the bait" in response to conservative rhetoric inciting violence.
+2025-09-13 Far-right commentator and white nationalist Nick Fuentes warned listeners to not “take the bait” of conservatives inciting violence.
 
 [https://www.yahoo.com/news/articles/far-podcaster-pleads-followers-not-164435196.html](https://www.yahoo.com/news/articles/far-podcaster-pleads-followers-not-164435196.html)
 
-2025-09-13 American Airlines pilots were grounded fired for talking negatively about Charlie Kirk. 
+2025-09-13 American Airlines pilots were fired for talking negatively about the Charlie Kirk shooting.
 
 [https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41](https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41)
 
@@ -244,15 +245,13 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 September 14
 
-2025-09-14 Katie Miller, appalled that people wrote on her sidewalk with chalk in protest to her and her husband’s hatemongering, magnified the act as intimidation, and Derrick Van Orden escalated it to domestic terrorism on social media.
+2025-09-14 Katie Miller was publicly frazzled about chalk drawings on her sidewalk and claimed it was an act of intimidation. Derrick Van Orden replied on X, "We are 100% behind you. These people are domestic terrorists". Then Van Orden posted “the @dccc / @DNC and the complicit media are driving America to a second civil war. No one ever said: ‘Not all Confederates are bad’ during the first one. Until they collectively renounce members of their own party, I’m done with them”.
 
 [https://x.com/derrickvanorden/status/1967385369772728502](https://x.com/derrickvanorden/status/1967385369772728502)
 
-2025-09-14 Derrick Van Orden posted on X, “the @dccc / @DNC and the complicit media are driving America to a second civil war. No one ever said: ‘Not all Confederates are bad’ during the first one. Until they collectively renounce members of their own party, I’m done with them”.
-
 [https://x.com/derrickvanorden/status/1967308577661452707](https://x.com/derrickvanorden/status/1967308577661452707)
 
-2025-09-14 Trump asked Congress for an additional $58M to increase security for his administration.
+2025-09-14 Trump requested an additional $58 million for security measures protecting his administration
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 

@@ -39,7 +39,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/](https://www.knoxnews.com/story/news/education/2025/09/22/charlie-kirk-comments-can-university-of-tennessee-fire-a-professor/86182265007/)
 
-2025-09-13 American Airlines pilots were grounded fired for talking negatively about Charlie Kirk. 
+2025-09-13 American Airlines pilots were fired for talking negatively about the Charlie Kirk shooting.
 
 [https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41](https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41)
 

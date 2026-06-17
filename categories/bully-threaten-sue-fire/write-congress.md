@@ -263,7 +263,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-09 Former FBI leaders Brian Driscoll, Stephen Jensen and Spencer Evans alleged that their firings were both illegal and politically motivated.
 
-2025-09-13 American Airlines pilots were grounded fired for talking negatively about Charlie Kirk. More content related to the shooting will be in its own section.
+2025-09-13 American Airlines pilots were fired for talking negatively about the Charlie Kirk shooting.
 
 2025-09-15 Former federal prosecutor Maurene Comey sued the administration, alleging she was fired for political reasons. 
 

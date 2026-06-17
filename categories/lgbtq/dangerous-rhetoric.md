@@ -98,11 +98,11 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 ### 2025 September
 
-2025-09-10 Jason Chaffetz decided to float the idea on Fox that the Kirk shooter was transgender.
+2025-09-10 Jason Chaffetz publicly speculated that the shooter might be transgender
 
 [https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness](https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness)
 
-2025-09-10 On the same day Kirk was shot Fox host Jesse Watters proclaimed the Democrats were "at war" while he simultaneously attacked transgender people.
+2025-09-10 Fox host Jesse Watters proclaimed the Democrats were “at war” while he simultaneously attacked transgender people.
 
 {% include youtubePlayer.html id="0RmvOCiTJAQ" %}
 
@@ -110,7 +110,7 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 
 [https://x.com/LauraLoomer/status/1967042152585719867](https://x.com/LauraLoomer/status/1967042152585719867)
 
-2025-09-13 Laura Loomer perpetuated transgender hatred by posting on social media, "How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated". On the same day in a separate post, Loomer responded to News Wire "It's time to designate the transgender movement as a terrorist movement." The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”. Other far-right group slike Oversight Project posted, “We and @Heritage call on the @FBI to designate Transgender Ideology-Inspired Violent Extremism (TIVE) as Domestic Terrorism”.
+2025-09-13 Laura Loomer posted, “How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated”. On the same day in a separate post, Loomer responded to News Wire “It’s time to designate the transgender movement as a terrorist movement.” The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
 
 [https://pridesource.com/article/trump-falsely-links-trans-people-to-terrorism](https://pridesource.com/article/trump-falsely-links-trans-people-to-terrorism)
 

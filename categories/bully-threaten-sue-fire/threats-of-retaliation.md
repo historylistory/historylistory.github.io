@@ -194,7 +194,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 September
 
-2025-09-13 American Airlines pilots were grounded fired just for talking negatively about the Charlie Kirk shooting.
+2025-09-13 American Airlines pilots were fired for talking negatively about the Charlie Kirk shooting.
 
 [https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41](https://www.wfaa.com/article/travel/american-airlines-pilots-removed-from-service-over-posts-charlie-kirk-shooting-transportation-secretary-says/287-6ec2240f-8dfc-4722-8996-e1c5de8e4e41)
 
