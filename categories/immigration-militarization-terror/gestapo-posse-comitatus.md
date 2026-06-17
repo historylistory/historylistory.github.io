@@ -177,7 +177,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/](https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/)
 
-2025-09-27 Trump alleged that Portland ICE facilities were under siege by the so-called Antifa group and he authorized a "full force" response. Local officials disputed the characterization and described the protests as peaceful, while city leaders held a press conference to warn the public not to "take the bait".
+2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa, posting on social media that Portland was “war ravaged” and that he planned to authorize “full force”. 
 
 [https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/](https://www.opb.org/article/2025/09/29/timeline-donald-trump-pressure-portland/)
 

@@ -53,7 +53,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.politico.com/news/2025/09/15/kirk-social-media-gop-trump-tiktok-meta-x-censorship-00564655](https://www.politico.com/news/2025/09/15/kirk-social-media-gop-trump-tiktok-meta-x-censorship-00564655)
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 

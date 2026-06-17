@@ -269,7 +269,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-15 Trump threatened to withhold federal funding from New York if Zohran Mamdani were elected after receiving Governor Kathy Hochul's endorsement.
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
 
 2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk. 
 
@@ -301,7 +301,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-26 Former FBI Director James Comey was indicted after Trump publicly called for prosecutions of political rivals
 
-2025-09-27 Trump alleged that Portland ICE facilities were under siege by the so-called Antifa group and he authorized a "full force" response. Local officials disputed the characterization and described the protests as peaceful, while city leaders held a press conference to warn the public not to "take the bait".
+2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa, posting on social media that Portland was “war ravaged” and that he planned to authorize “full force”. 
 
 2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
@@ -319,9 +319,9 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-08 Senator Roger Marshall claimed the upcoming No Kings protest would be organized by paid agitators and suggested National Guard deployment might be necessary. Speaker Mike Johnson called it a "Hate America Rally.”
 
-2025-10-08 Florida Representative Kevin Steele proposed legislation threatening state funding for public colleges unless roads were named after Charlie Kirk. 
+2025-10-08 Florida Representative Kevin Steele introduced legislation threatening state funding for colleges and universities that did not name roads after Charlie Kirk.
 
-2025-10-08 Trump claimed that professionally made protest signs were evidence that Antifa protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
+2025-10-08 Trump claimed protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
 
 2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities. 
 

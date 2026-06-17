@@ -70,7 +70,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/](https://thehill.com/regulation/court-battles/5098764-trump-pardon-violent-jan-6-rioters/)
 
-2025-09-27 Trump alleged that Portland ICE facilities were under siege by the so-called Antifa group and he authorized a "full force" response. Local officials disputed the characterization and described the protests as peaceful, while city leaders held a press conference to warn the public not to "take the bait".
+2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa, posting on social media that Portland was “war ravaged” and that he planned to authorize “full force”. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115276694936263266](https://truthsocial.com/@realDonaldTrump/posts/115276694936263266)
 
@@ -91,7 +91,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 October
 
-2025-10-08 Trump claimed that professionally made protest signs were evidence that Antifa protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
+2025-10-08 Trump claimed protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
 
 {% include youtubePlayer.html id="nDjjFYsCAUE" %}
 

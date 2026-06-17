@@ -165,7 +165,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://www.denverpost.com/2025/09/11/evergreen-high-school-shooting-colorado-updates/](https://www.denverpost.com/2025/09/11/evergreen-high-school-shooting-colorado-updates/)
 
-2025-09-15 In a press conference, State Representative Justin J. Pearson of Tennessee District 86 addressed poverty, militarization, and pointed out that Republicans don't care about crime because they don't enforce gun laws.
+2025-09-15 In a press conference, State Representative Justin J. Pearson of Tennessee District 86 addressed poverty, militarization, and pointed out that Republicans don’t care about crime because they don’t enforce gun laws.
 
 {% include youtubePlayer.html id="cAB4ZgSiRXs" %}
 
@@ -173,7 +173,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://www.fox13news.com/news/open-carry-begins-thursday-florida-gun-owners](https://www.fox13news.com/news/open-carry-begins-thursday-florida-gun-owners)
 
-2025-09-25 Adam Mockler made an excellent point about gun violence, highlighting the radicalization of white males when people like Elon Musk are riling them up with rhetoric. 
+2025-09-25 Political commentator Adam Mockler argued that inflammatory rhetoric from figures such as Elon Musk contributes to the radicalization of young white males. 
 
 [https://x.com/adammocklerr](https://x.com/adammocklerr)
 

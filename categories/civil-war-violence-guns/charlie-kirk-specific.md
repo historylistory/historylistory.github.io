@@ -288,7 +288,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination](https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination)
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death.
+2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 
@@ -314,31 +314,31 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 September 16
 
-2025-09-16 Huff Post news media report that Republicans like Derrick Van Orden, Mike Lee and Nancy Mace appear to be intentionally fanning flames, posting positive messages about prayer and unity on one platform while calling for civil war against the left on others.
+2025-09-16 HuffPost reported that several Republican figures publicly promoted unity on ONE platform while simultaneously posting messages escalating political tensions on ANOTHER
 
 [https://www.huffpost.com/entry/republican-lawmakers-political-violence-charlie-kirk_n_68c96b5ee4b04bfe9a700241](https://www.huffpost.com/entry/republican-lawmakers-political-violence-charlie-kirk_n_68c96b5ee4b04bfe9a700241)
 
-2025-09-16 In response to the Kirk killing, Laura Loomer posted a racist comment on social media, "There seems to be an obvious trend in a lot of the videos I’m seeing of students mocking Charlie Kirk’s assassination. Most of them are black and appear to be social rejects…our colleges have become welfare centers….this is the product of race-based enrollment".
+2025-09-16 Laura Loomer posted, “There seems to be an obvious trend in a lot of the videos I’m seeing of students mocking Charlie Kirk’s assassination. Most of them are black and appear to be social rejects…our colleges have become welfare centers….this is the product of race-based enrollment”.
 
 [https://abcnews.go.com/US/multiple-hbcus-lockdown-after-receiving-threats-amid-rising/story?id=125483504](https://abcnews.go.com/US/multiple-hbcus-lockdown-after-receiving-threats-amid-rising/story?id=125483504)
 
-2025-09-16 Marco Rubio announced they will be monitoring foreign social media for any offensive comments made about Charlie Kirk and deny visas accordingly as part of their retaliation campaign.
+2025-09-16 Marco Rubio announced they would monitor foreign social media for any offensive comments made about Charlie Kirk and deny visas accordingly.
 
 {% include youtubePlayer.html id="F39XMfky6a8" %}
 
-2025-09-16 During a hearing in Capitol Hill to investigate his mishandling of the Kirk shooting, Kash Patel asserted that the suspect subscribed to leftist ideology.
+2025-09-16 During a hearing in Capitol Hill Kash Patel asserted that the suspect subscribed to leftist ideology.
 
 [https://www.bbc.com/news/articles/c9dxq8dn4xdo](https://www.bbc.com/news/articles/c9dxq8dn4xdo)
 
 ### 2025 September 19
 
-2025-09-19 The Republican-controlled House and Senate announced that October 14th would be known as a National Day of Remembrance for Charlie Kirk.
+2025-09-19 The Republican-controlled House and Senate designated October 14th as a National Day of Remembrance for Charlie Kirk.
 
 [https://abcnews.go.com/US/senate-passes-national-day-remembrance-charlie-kirk/story?id=125730824](https://abcnews.go.com/US/senate-passes-national-day-remembrance-charlie-kirk/story?id=125730824)
 
 ### 2025 September 21
 
-2025-09-21 During the Charlie Kirk memorial, Trump took the stage to tell the crowd, “I hate my opponents, and I don’t want the best for them”.
+2025-09-21 At Charlie Kirk's memorial, Trump said, "I hate my opponents, and I don't want the best for them.”
 
 [https://www.theguardian.com/us-news/2025/sep/21/thousands-gather-at-charlie-kirk-memorial-in-arizona-where-trump-to-pay-tribute-to-slain-organizer](https://www.theguardian.com/us-news/2025/sep/21/thousands-gather-at-charlie-kirk-memorial-in-arizona-where-trump-to-pay-tribute-to-slain-organizer)
 
@@ -362,7 +362,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 October
 
-2025-10-08 Florida Representative Kevin Steele proposed legislation threatening state funding for public colleges unless roads were named after Charlie Kirk. 
+2025-10-08 Florida Representative Kevin Steele introduced legislation threatening state funding for colleges and universities that did not name roads after Charlie Kirk.
 
 [https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/](https://www.wboy.com/news/national/florida-republican-unveils-bill-threatening-state-funding-if-colleges-dont-rename-roads-after-charlie-kirk/)
 

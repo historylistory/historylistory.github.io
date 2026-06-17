@@ -263,7 +263,7 @@ A private account on X has posted the video, but due to the account being privat
 
 [https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety](https://katu.com/news/politics/story/three-oregon-state-senators-received-bomb-threats-on-thursday-what-we-know-violence-threat-crime-politics-tense-republicans-democrats-charlie-kirk-assassin-shooting-safety)
 
-2025-09-21 During the Charlie Kirk memorial, Trump took the stage to tell the crowd, “I hate my opponents, and I don’t want the best for them”.
+2025-09-21 At Charlie Kirk's memorial, Trump said, "I hate my opponents, and I don't want the best for them.”
 
 [https://www.theguardian.com/us-news/2025/sep/21/thousands-gather-at-charlie-kirk-memorial-in-arizona-where-trump-to-pay-tribute-to-slain-organizer](https://www.theguardian.com/us-news/2025/sep/21/thousands-gather-at-charlie-kirk-memorial-in-arizona-where-trump-to-pay-tribute-to-slain-organizer)
 

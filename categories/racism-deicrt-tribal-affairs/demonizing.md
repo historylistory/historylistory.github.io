@@ -134,7 +134,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 [https://x.com/rightwingwatch/status/1965441200627782132?s=46](https://x.com/rightwingwatch/status/1965441200627782132?s=46)
 
-2025-09-16 In response to the Kirk killing, Laura Loomer posted on social media about videos mocking the assassination, "most of them are black and appear to be social rejects…our colleges have become welfare centers….this is the product of race based enrollment".
+2025-09-16 Laura Loomer posted, “There seems to be an obvious trend in a lot of the videos I’m seeing of students mocking Charlie Kirk’s assassination. Most of them are black and appear to be social rejects…our colleges have become welfare centers….this is the product of race-based enrollment”.
 
 ### 2025 October
 

@@ -154,7 +154,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 September 24
 
-2025-09-24 In speech during a Concord, North Carolina event JD Vance blamed Democrats for political violence.
+2025-09-24 JD Vance blamed Democrats for political violence during a speech in Concord, North Carolina.
 
 {% include youtubePlayer.html id="WH1ZnfN2AgQ" %}
 
