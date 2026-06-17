@@ -34,7 +34,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2025 February
 
-2025-02-01 The Trump administration froze federal funds for wildfire prevention programs that were already approved by Congress.
+2025-02-01 The Trump administration froze congressionally approved funding for wildfire prevention programs.
 
 [https://www.propublica.org/article/trump-funding-freeze-wildfire-season](https://www.propublica.org/article/trump-funding-freeze-wildfire-season)
 
@@ -42,7 +42,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 [https://www.padilla.senate.gov/newsroom/press-releases/padilla-raises-alarm-on-trump-administration-illegally-blocking-hundreds-of-billions-in-federal-support/](https://www.padilla.senate.gov/newsroom/press-releases/padilla-raises-alarm-on-trump-administration-illegally-blocking-hundreds-of-billions-in-federal-support/)
 
-2025-02-14 The Trump administration fired around 3400 National Forest Service staff, followed by a "Fork in the Road" program encouraging remaining employees to resign or accept early retirement.
+2025-02-14 Approximately 3,400 Forest Service employees were fired. Remaining workers were encouraged to resign or take early retirement through the “Fork in the Road” program.
 
 [https://www.reuters.com/world/us/us-forest-service-fires-3400-workers-park-service-cuts-1000-2025-02-14/](https://www.reuters.com/world/us/us-forest-service-fires-3400-workers-park-service-cuts-1000-2025-02-14/)
 

@@ -8,7 +8,7 @@ permalink: /categories/climate-change/disaster-recovery/
 
 ### 2025 February
 
-2025-02-21 The Trump administration made cuts to FEMA, beginning with laying off hundreds of staff, freezing grants, and denying some states' requests for disaster recovery funds. After the cuts Central Texas had trouble receiving flood response. 
+2025-02-21 FEMA began layoffs, grant freezes, and reductions in disaster funding. Central Texas later struggled to secure flood-response assistance. 
 
 [https://www.nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html](https://www.nytimes.com/2025/07/11/climate/fema-missed-calls-texas-floods.html)
 
@@ -24,7 +24,7 @@ permalink: /categories/climate-change/disaster-recovery/
 
 ### 2025 April
 
-2025-04-01 The Trump administration made cuts to the Building Resilient Infrastructure and Communities program (BRIC), claiming it was wasteful and ineffective and more focused on political agendas than helping Americans. BRIC was designed to help communities prepare for climate disasters as part of the EPA. 
+2025-04-01 Funding was cut for the BRIC disaster-preparedness program, which helped communities prepare for climate-related disasters.  
 
 [https://www.floods.org/news-views/fema-news/fema-ends-bric-program-leaving-states-in-the-lurch/](https://www.floods.org/news-views/fema-news/fema-ends-bric-program-leaving-states-in-the-lurch/)
 

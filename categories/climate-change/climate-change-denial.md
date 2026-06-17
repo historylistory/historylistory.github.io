@@ -21,7 +21,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 April
 
-2025-04-09 The Trump administration cut funding to Princeton, claiming the cuts were over antisemitism concerns, but also ***citing the motive that Princeton climate research promoted "exaggerated and implausible climate threats"***.
+2025-04-09 Princeton lost federal funding for climate research because the Trump administration accused them of promoting “exaggerated and implausible climate threats.” 
 
 [https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump](https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump)
 

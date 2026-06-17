@@ -57,7 +57,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 {% include youtubePlayer.html id="LnGsyz4-xf4" %}
 
-2025-01-20 Trump rescinded The Presidential Memorandum Withdrawal of Certain Areas off the United States Arctic Coast of the Outer Continental Shelf from Oil or Gas Leasing.
+2025-01-20 Trump rescinded The Presidential Memorandum Withdrawal of Certain Areas off the United States Arctic Coast of the Outer Continental Shelf from Oil or Gas Leasing and reopened previously protected Arctic offshore areas to oil and gas leasing.
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
@@ -79,7 +79,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 March
 
-2025-03-12 The Trump administration made huge cuts to the Environmental Protection Agency. These cuts will affect things like waste cleanup initiatives, recycling programs, and prevention of illegal dumping. In a statement on the EPA news release website, the administrator said, "Alongside President Trump, we are living up to our promises to unleash American energy, lower costs for Americans, revitalize the American auto industry, and work hand-in-hand with our state partners to advance our shared mission..." by reconsidering regulations on power plants, oil, gas, greenhouse gas reporting, toxic standards, and other regulatory guidelines that were designed to protect the environment.
+2025-03-12 The EPA announced major cuts affecting cleanup projects, recycling programs, and anti-dumping efforts while reconsidering regulations on power plants, oil, gas, greenhouse-gas reporting, and toxic emissions.
 
 [https://www.epa.gov/newsreleases/epa-launches-biggest-deregulatory-action-us-history](https://www.epa.gov/newsreleases/epa-launches-biggest-deregulatory-action-us-history)
 
