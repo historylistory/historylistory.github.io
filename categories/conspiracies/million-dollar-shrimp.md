@@ -10,7 +10,7 @@ permalink: /categories/conspiracies/million-dollar-shrimp/
 
 ### 2011
 
-2011-01-01 From 2011 through 2019, Fox News repeatedly peddled that universities were paying $503K, then $3M, then $3B in funding to "watch shrimp on a treadmill". They failed to cite the actual cost being paid for out-of-pocket by the researchers, or that the research was used to study food safety and how much bacteria can end up in our seafood.
+2011-01-01 From 2011 to 2019, Fox News repeatedly mocked “shrimp on a treadmill” research, inflating costs and ignoring its food-safety purpose.
 
 [https://www.chronicle.com/blogs/conversation/how-a-47-shrimp-treadmill-became-a-3-million-political-plaything](https://www.chronicle.com/blogs/conversation/how-a-47-shrimp-treadmill-became-a-3-million-political-plaything)
 

@@ -28,7 +28,7 @@ permalink: /categories/military-veterans/disrespect/
 
 [https://lieu.house.gov/media-center/in-the-news/congressional-veterans-slam-trump-reported-comments-military](https://lieu.house.gov/media-center/in-the-news/congressional-veterans-slam-trump-reported-comments-military)
 
-2020-10-13 After Trump retweeted a Q-ANON linked account promoting baseless theories about Bin Laden, a former navy seal involved in the operation that killed Bin Laden responded to Trump “Very brave men said goodby to their kids to go kill Osama bin Laden. We were given the order by President Obama. It was not a body double. Thank you Mr. President. Happy birthday @USNavy.”
+2020-10-13 After Trump boosted a QAnon-linked Bin Laden conspiracy, a Navy SEAL from the raid publicly refuted the claim. 
 
 [https://www.politico.com/news/2020/10/14/famed-navy-seal-pushes-back-after-trump-amplifies-baseless-bin-laden-conspiracy-theory-429428](https://www.politico.com/news/2020/10/14/famed-navy-seal-pushes-back-after-trump-amplifies-baseless-bin-laden-conspiracy-theory-429428)
 

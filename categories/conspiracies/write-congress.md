@@ -16,7 +16,13 @@ You can start it however you'd like.
 
 ### SAMPLE LETTER
 
-pending text
+Dear Sir or Madam,
+
+The Trump administration and many prominent figures within the MAGA movement have repeatedly promoted conspiracy theories and misinformation that undermine public trust in institutions and public discourse. This behavior reflects poorly on our country and diminishes the quality of political debate.
+
+It is particularly troubling when elected officials and party leaders amplify such claims through social media rather than engaging in serious, fact-based discussion. Public servants should set an example of integrity, responsibility, and respect for the truth.
+
+The examples below illustrate these concerns.
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 

@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/q-anon/
 
 ### 2017
 
-2017-10-01 QANON was birthed on social media via 4Chan when an anonymous user posted a series of messages, then signed off as Q and claimed to have “Q clearance”. This user dropped cryptic messages and pro-Trump themes and coined the phrase “Where we go one we go all”.
+2017-10-01 QAnon began on 4chan when an anonymous user claimed ‘Q clearance’ and posted cryptic pro-Trump messages and the slogan “Where we go one, we go all.”
 
 [https://www.bbc.com/news/53498434](https://www.bbc.com/news/53498434)
 

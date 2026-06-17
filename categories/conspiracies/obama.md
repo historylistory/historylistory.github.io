@@ -8,14 +8,14 @@ permalink: /categories/conspiracies/obama/
 
 ### 2011: Obama is Muslim
 
-2011-03-28 During an interview with Fox, Trump floated the idea that Obama is Muslim, stating, "He doesn't have a birth certificate. He may have one, but there's something on that, maybe religion, maybe it says he is a Muslim".
+2011-03-28 During an interview with Fox, Trump claimed about Obama, “He doesn’t have a birth certificate. He may have one, but there’s something on that, maybe religion, maybe it says he is a Muslim”.
 
 [https://www.cnn.com/2015/09/18/politics/trump-obama-muslim-birther](https://www.cnn.com/2015/09/18/politics/trump-obama-muslim-birther)
 
 ### 2012: Obama engineered Hurricane Sandy
 
-2012-10-30 The right cultivated conspiracies that Obama engineered Hurricane Sandy using a secret military radio-wave system. Trump posted four separate tweets about Hurricane Sandy: "Hurricane is good luck for Obama again - he will buy the election by handing out billions of dollars", "The polls & momentum are trending towards @MittRomney. Don't let the hurricane change your thinking!", "Could be the hurricane helps @MittRomney -- people are rioting in the streets over gasoline", and "Polls show that the hurricane had a huge positive effect for Obama on his win - isn't that ridiculous?".
-
+2014-02-04 Facebook rumors claimed Obama ordered $1 billion in disposable coffins for FEMA detention centers in case of an American revolt.
+s
 [https://www.politico.com/story/2016/10/trump-hurricane-sandy-obama-birther-229237](https://www.politico.com/story/2016/10/trump-hurricane-sandy-obama-birther-229237)
 
 ### 2014: Obama ordered coffins for a revolt
@@ -26,7 +26,7 @@ permalink: /categories/conspiracies/obama/
 
 ### 2015: Obama would impose martial law
 
-2015-02-18 Governor Greg Abbot and Ted Cruz held a joint press conference in Austin to question the Pentagon over military training. This was in the wake of rumors that Obama would impose martial law. In May Governor Abbot ordered the Texas State Guard to monitor U.S. military training.
+2015-02-18 Greg Abbott and Ted Cruz questioned Pentagon training exercises amid martial-law rumors; Abbott later ordered the Texas State Guard to monitor U.S. military drills.
 
 [https://www.newsweek.com/2015/05/22/obamas-invasion-texas-when-partisanship-becomes-extreme-sport-330947.html](https://www.newsweek.com/2015/05/22/obamas-invasion-texas-when-partisanship-becomes-extreme-sport-330947.html)
 
@@ -34,8 +34,8 @@ permalink: /categories/conspiracies/obama/
 
 ### 2016: Obama founded ISIS
 
-2016-06-16 Trump cultivated a conspiracy that Obama arranged a deal with Iran and ISIS to launch a nuclear attack. During an interview on CNBC, Trump stated, "No I meant that he's the founder of ISIS. I do. He was the most valuable player. I gave him the most valuable player award”.
-
+2016-06-16 Trump promoted the claim that Obama helped found ISIS, telling CNBC, “No, I meant that he’s the founder of ISIS. I do. He was the most valuable player. I gave him the most valuable player award”.
+s
 [https://www.npr.org/2016/08/11/489607788/trump-attacks-obama-as-the-founder-of-isis](https://www.npr.org/2016/08/11/489607788/trump-attacks-obama-as-the-founder-of-isis)
 
 {% include youtubePlayer.html id="HHPGaS5gU1Y" %}

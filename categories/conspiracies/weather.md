@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/weather/
 
 ### 2018
 
-2018-11-01 Marjorie Taylor Greene posted her theory on social media that California wildfires were started by "space solar generators". The post has since been deleted.
+2018-11-01 Marjorie Taylor Greene posted a deleted theory that California wildfires were started by “space solar generators.
 
 [https://www.aju.edu/events/jewish-space-lasers-conspiracy-theories-and-antisemitism](https://www.aju.edu/events/jewish-space-lasers-conspiracy-theories-and-antisemitism)
 

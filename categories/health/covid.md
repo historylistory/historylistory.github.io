@@ -41,7 +41,7 @@ permalink: /categories/health/covid/
 [https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
 
 
-2020-04-23 During a press conference, Trump mused over the idea of injecting the body with disinfectant to treat COVID. When a reporter cautioned Trump not to perpetuate misinformation, Trump angrily backfired.
+2020-04-23 During a COVID press conference, Trump mused about injecting disinfectant as treatment until a reporter told him to stop spreading dangerous misinformation – to which he lashed out at the reporter.
 
 [https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399](https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399)
 

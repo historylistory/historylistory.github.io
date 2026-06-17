@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/george-soros/
 
 ### 2020
 
-2020-06-02 Dating back to 2020 and up to current, Republicans have repeatedly touted the conspiracy that George Soros is somehow funding left-wing protests or fomenting chaos.
+2020-06-02 Since 2020, Republicans have repeatedly claimed George Soros funds left-wing protests or chaos.
 
 [https://www.adl.org/resources/article/soros-conspiracy-theories-and-protests-gateway-antisemitism](https://www.adl.org/resources/article/soros-conspiracy-theories-and-protests-gateway-antisemitism)
 

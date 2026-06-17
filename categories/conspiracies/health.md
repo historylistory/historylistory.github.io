@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/health/
 
 ### 2020
 
-2020-04-23 During a press conference, Trump mused over the idea of injecting the body with disinfectant to treat COVID. When a reporter cautioned Trump not to perpetuate misinformation, Trump angrily backfired.
+2020-04-23 During a COVID press conference, Trump mused about injecting disinfectant as treatment until a reporter told him to stop spreading dangerous misinformation – to which he lashed out at the reporter.
 
 [https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399](https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399)
 
@@ -18,7 +18,7 @@ permalink: /categories/conspiracies/health/
 
 ### 2021
 
-2021-01-01 The Children's Health Defense - chaired by RFK - published a book called "**The Measles Book: Thirty-Five Secrets the Government and the Media Aren't Telling You**", peddling the notion that the government was lying about vaccinations.
+2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book – Thirty-Give Secrets the Government and the Media Aren’t Telling You, promoting claims that the government and media hide vaccine information.
 
 [https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/](https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/)
 

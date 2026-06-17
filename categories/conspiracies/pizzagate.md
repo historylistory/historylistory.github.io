@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/pizzagate/
 
 ### 2016
 
-2016-12-02 The rise of the conspiracy theory Pizzagate spread on social media over a leaked email to Podesta “would love to get pizza”. The MAGA base concluded it was code for a child sex ring in which Clinton was involved.
+2016-12-02 Pizzagate spread online after leaked Podesta emails were falsely interpreted as code for a Clinton-linked child sex ring.
 
 [https://www.bbc.com/news/blogs-trending-38156985](https://www.bbc.com/news/blogs-trending-38156985)
 
