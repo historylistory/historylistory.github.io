@@ -79,7 +79,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 October
 
-2025-10-24 OpenAI announced plans to sell erotica to boost revenue.
+2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
 
 [https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
 

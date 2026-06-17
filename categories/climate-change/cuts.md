@@ -168,7 +168,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2025 December
 
-2025-12-19 The Trump administration expressed plans to completely dismantle the climate and weather center NCAR, with Trump's budget director Russ Vought posting that the National Center for Atmospheric Research was a “source of climate alarmism”.
+2025-12-19 The administration proposed dismantling the National Center for Atmospheric Research, an agency that Russ Vought accused of being “a source of climate alarmism”.
 
 [https://x.com/russvought/status/2001099488774033692?s=20](https://x.com/russvought/status/2001099488774033692?s=20)
 
@@ -178,7 +178,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2026 January
 
-2026-01-07 Trump signed a memorandum to eliminate the White House Office of Domestic Climate Policy.
+2026-01-07 Trump eliminated the White House Office of Domestic Climate Policy.
 
 [https://www.actonclimate.com/trumptracker/](https://www.actonclimate.com/trumptracker/)
 

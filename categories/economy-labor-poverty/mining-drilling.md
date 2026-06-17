@@ -26,11 +26,19 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 ### 2025 October
 
-2025-10-24 The Trump administration finalized plans to remove protections for the protected coastal plain of Alaska’s National Wildlife Refuge to allow for oil and gas drilling.
+2025-10-24 The administration finalized plans to remove protections from Alaska’s National Wildlife Refuge coastal plain to expand oil and gas drilling.
 
 [https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling](https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling)
 
 [https://alaskabeacon.com/briefs/trump-signs-law-that-revokes-some-limits-on-drilling-in-alaskas-national-petroleum-reserve/](https://alaskabeacon.com/briefs/trump-signs-law-that-revokes-some-limits-on-drilling-in-alaskas-national-petroleum-reserve/)
+
+[https://earthjustice.org/press/2025/trump-administration-opens-the-entire-coastal-plain-of-the-arctic-national-wildlife-refuge-to-oil-and-gas-leasing](https://earthjustice.org/press/2025/trump-administration-opens-the-entire-coastal-plain-of-the-arctic-national-wildlife-refuge-to-oil-and-gas-leasing)
+
+[https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling](https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling)
+
+[https://www.theguardian.com/us-news/2025/oct/23/oil-gas-drilling-alaska-national-wildlife-refuge](https://www.theguardian.com/us-news/2025/oct/23/oil-gas-drilling-alaska-national-wildlife-refuge)
+
+[https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska](https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska)
 
 ### 2026 February
 

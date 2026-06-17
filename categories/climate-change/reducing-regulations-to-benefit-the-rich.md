@@ -186,7 +186,11 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://hbr.org/2024/07/the-uneven-distribution-of-ais-environmental-impacts](https://hbr.org/2024/07/the-uneven-distribution-of-ais-environmental-impacts)
 
-2025-10-24 Trump opened the pristine arctic national wildlife refuge for oil drilling.
+2025-10-24 The administration finalized plans to remove protections from Alaska’s National Wildlife Refuge coastal plain to expand oil and gas drilling.
+
+[https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling](https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling)
+
+[https://alaskabeacon.com/briefs/trump-signs-law-that-revokes-some-limits-on-drilling-in-alaskas-national-petroleum-reserve/](https://alaskabeacon.com/briefs/trump-signs-law-that-revokes-some-limits-on-drilling-in-alaskas-national-petroleum-reserve/)
 
 [https://earthjustice.org/press/2025/trump-administration-opens-the-entire-coastal-plain-of-the-arctic-national-wildlife-refuge-to-oil-and-gas-leasing](https://earthjustice.org/press/2025/trump-administration-opens-the-entire-coastal-plain-of-the-arctic-national-wildlife-refuge-to-oil-and-gas-leasing)
 
@@ -196,9 +200,17 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska](https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska)
 
+2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
+
+[https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
+
+[https://www.usatoday.com/story/tech/2025/10/15/openai-chatgpt-erotica-sam-altman/86716163007/](https://www.usatoday.com/story/tech/2025/10/15/openai-chatgpt-erotica-sam-altman/86716163007/)
+
+[https://www.cnbc.com/2025/10/15/erotica-coming-to-chatgpt-this-year-says-openai-ceo-sam-altman.html](https://www.cnbc.com/2025/10/15/erotica-coming-to-chatgpt-this-year-says-openai-ceo-sam-altman.html)
+
 ### 2025 November
 
-2025-11-07 The Guardian uncovered a climate change denial campaign by ExxonMobil called “Atlas”.
+2025-11-07 The Guardian reported on “Atlas,” an alleged ExxonMobil-backed climate-change denial campaign.
 
 [https://www.theguardian.com/environment/2025/nov/03/exxon-funded-thinktanks-to-spread-climate-denial-in-latin-america-documents-reveal](https://www.theguardian.com/environment/2025/nov/03/exxon-funded-thinktanks-to-spread-climate-denial-in-latin-america-documents-reveal)
 
@@ -208,7 +220,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 
 
-2025-11-20 The Trump administration greatly expanded offshore sales of oil and gas and continued to tout Trump’s “drill-baby-drill” agenda.
+2025-11-20 The administration expanded offshore oil and gas sales.
 
 [https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy](https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy)
 
@@ -216,7 +228,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy](https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy)
 
-2025-11-23 Multiple doctors and other health professionals signed a petition against EPA Lee Zeldin, stating he was pursuing deregulation on greenhouse gases and the 2009 Endangerment finding. 
+2025-11-23 Doctors and health professionals petitioned against EPA Administrator Lee Zeldin, criticizing efforts to weaken greenhouse gas regulations and the 2009 Endangerment findings.
 
 OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
 
@@ -230,7 +242,7 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 ### 2025 December
 
-2025-12-03 Trump announced his administration would be rolling back fuel efficiency standards on automobiles and suggested that lowering carbon emissions put tremendous upward pressure on car prices. They also reported they would reclassify crossover vehicles and small SUVs as passenger automobiles instead of light trucks. The rollback would change fuel standards from 50mpg to around 35.
+2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
 
 [https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236](https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236)
 

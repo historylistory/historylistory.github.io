@@ -198,6 +198,19 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 December
 
+2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
+
+[https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236](https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236)
+
+[https://www.npr.org/2025/12/03/nx-s1-5630389/trump-administration-rolls-back-fuel-economy-standards](https://www.npr.org/2025/12/03/nx-s1-5630389/trump-administration-rolls-back-fuel-economy-standards)
+
+[https://abcnews.go.com/Politics/trump-roll-back-biden-era-vehicle-fuel-efficiency/story?id=128080691](https://abcnews.go.com/Politics/trump-roll-back-biden-era-vehicle-fuel-efficiency/story?id=128080691)
+
+[https://www.foxbusiness.com/economy/ford-ceo-hails-trump-fuel-standards-reset-victory-affordability-common-sense](https://www.foxbusiness.com/economy/ford-ceo-hails-trump-fuel-standards-reset-victory-affordability-common-sense)
+
+[https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-announces-the-reset-of-corporate-average-fuel-economy-cafe-standards/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-announces-the-reset-of-corporate-average-fuel-economy-cafe-standards/)
+
+
 2025-12-17 Trump decided to hold an 18-minute televised press conference fixating on Biden, deflecting affordability concerns, and touting a great economy that Americans were not seeing or feeling.
 
 {% include youtubePlayer.html id="Mjzh_lghnq4" %}

@@ -74,7 +74,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2026 January
 
-2026-01-07 Trump signed a memorandum to eliminate the White House Office of Domestic Climate Policy.
+2026-01-07 Trump eliminated the White House Office of Domestic Climate Policy.
 
 [https://www.actonclimate.com/trumptracker/](https://www.actonclimate.com/trumptracker/)
 
@@ -100,7 +100,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2026 April
 
-2026-04-09 Multiple doctors and other health professionals signed a petition against EPA Lee Zeldin, stating he was pursuing deregulation on greenhouse gases and the 2009 Endangerment finding. 
+2025-11-23 Doctors and health professionals petitioned against EPA Administrator Lee Zeldin, criticizing efforts to weaken greenhouse gas regulations and the 2009 Endangerment findings.
 
 OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
 

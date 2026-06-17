@@ -19,7 +19,7 @@ permalink: /categories/climate-change/weird-weather/
 
 ### 2026 January
 
-2026-01-22 The U.S. experienced record-breaking cold in the south, and 12-hour rain and ice storms in the Northeast.
+2026-01-22 The U.S. experienced record cold across parts of the South and severe rain and ice storms in the Northeast. 
 
 [https://www.cnn.com/2026/01/28/weather/weather-forecast-cold-temperatures-climate#:~:text=The%20worst%20of%20the%20upcoming,Kate%20Dearman/Bloomberg/Getty%20Images](https://www.cnn.com/2026/01/28/weather/weather-forecast-cold-temperatures-climate)
 

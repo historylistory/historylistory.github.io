@@ -151,7 +151,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-10-13 California passed AB 1043 requiring Linux and Windows users to verify their age.
 
-2025-10-24 OpenAI announced plans to sell erotica to boost revenue.
+2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
 
 2025-10-24 News outlets increasingly warned about AI’s environmental impact.
 

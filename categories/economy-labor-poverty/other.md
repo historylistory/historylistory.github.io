@@ -78,7 +78,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 ### 2025 December
 
-2025-12-03 Trump announced his administration would be rolling back fuel efficiency standards on automobiles and suggested that lowering carbon emissions put tremendous upward pressure on car prices. They also reported they would reclassify crossover vehicles and small SUVs as passenger automobiles instead of light trucks. The rollback would change fuel standards from 50mpg to around 35.
+2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
 
 [https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236](https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236)
 

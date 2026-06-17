@@ -129,7 +129,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2025 November
 
-2025-11-20 The Trump administration greatly expanded offshore sales of oil and gas and continued to tout Trump’s “drill-baby-drill” agenda.
+2025-11-20 The administration expanded offshore oil and gas sales.
 
 [https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy](https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy)
 

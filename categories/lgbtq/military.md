@@ -26,7 +26,7 @@ permalink: /categories/lgbtq/military/
 
 ### 2025 November
 
-2025-11-12 Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit. In that speech, he compared the current moment in history as a “1939 type moment or hopefully a 1981 moment” (context: 1939 is the year Adolf Hitler began his reign of terror). He talked about readiness, stating that means, “no more social justice, no more political correctness, no more toxic ideological garbage that infected the department”. He further stated, “**No more identity months, no more DEI offices, no more dudes in dresses**”. He went on to say “no more climate change worship, no more division, no more delusions, gender delusions or quotas, no more distraction. As the chairman of the joint chiefs puts it: Pete you’re clearing out the debris.
+2025-11-12 Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit where he criticized DEI initiatives, political correctness, and what he called “climate change worship” during a public speech.
 
 {% include youtubePlayer.html id="s2undI6MmQs" %}
 

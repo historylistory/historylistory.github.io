@@ -86,6 +86,17 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 [https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html](https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html)
 
+### 2025 November
+
+2025-11-20 The administration expanded offshore oil and gas sales.
+
+[https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy](https://www.doi.gov/pressreleases/interior-launches-expansive-11th-national-offshore-leasing-program-advance-us-energy)
+
+[https://www.aljazeera.com/economy/2025/11/20/trump-announces-new-offshore-drilling-projects-despite-bipartisan-pushback](https://www.aljazeera.com/economy/2025/11/20/trump-announces-new-offshore-drilling-projects-despite-bipartisan-pushback)
+
+[https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy](https://www.heritage.org/energy/commentary/new-wave-american-offshore-energy)
+
+
 ### 2026 March
 
 2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
