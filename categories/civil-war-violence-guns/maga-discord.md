@@ -443,7 +443,7 @@ SUB WALL [https://www.politico.com/news/2026/05/02/casey-means-maha-surgeon-gene
 
 PAY WALL [https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c](https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c)
 
-2026-05-12 FDA Marty Makary resigned.
+2026-05-12 FDA Commissioner Marty Makary resigned.
 
 [https://www.youtube.com/watch?v=XY20ijch-Vc&list=WL&index=3](https://www.youtube.com/watch?v=XY20ijch-Vc&list=WL&index=3)
 
@@ -488,7 +488,7 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)
 
 
-2026-05-21 In response to Trump’s J6 slush fund, Senate Majority Leader John Thune of South Dakota said, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”. 
+2026-05-21 Senate Majority Leader John Thune responded to Trump’s J-6 Insurrectionist slush fund, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”.
 
 [https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands](https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands)
 
@@ -520,7 +520,7 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund](https://newrepublic.com/post/210785/stupid-stilts-republican-senator-tillis-trump-slush-fund)
 
-2026-05-29 House GOP members rejected Trump’s NDAA demands.
+2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
 
 [https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6](https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6)
 

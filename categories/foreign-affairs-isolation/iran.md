@@ -1597,7 +1597,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/](https://thehill.com/policy/defense/5851740-senate-democrats-investigate-kuwait-attack/)
 
-2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
+2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 

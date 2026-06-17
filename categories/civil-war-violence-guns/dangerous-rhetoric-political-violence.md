@@ -377,7 +377,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner](https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner)
 
-2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
+2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 
@@ -397,11 +397,11 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)
 
-2026-05-18 Shooting at the Islamic Center of San Diego.
+2026-05-18 A shooting occurred at the Islamic Center of San Diego.
 
 [https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b](https://apnews.com/article/islamic-center-san-diego-shooting-mosque-hate-d81d87793aa3eea836d45a9d5b1f297b)
 
-2026-05-20 Army Veteran Kerry Sheron was beaten outside his Trump-themed home and later died in the hospital. 
+2026-05-20 Army veteran Kerry Sheron was assaulted outside his Trump-themed home and later died from his injuries.
 
 [https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/](https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/)
 

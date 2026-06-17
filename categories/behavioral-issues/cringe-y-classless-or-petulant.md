@@ -645,7 +645,7 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister](https://www.espn.com/soccer/story/_/id/48571163/italy-replacing-iran-world-cup-not-appropriate-sports-minister)
 
-2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
+2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 

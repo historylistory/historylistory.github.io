@@ -172,7 +172,7 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 [https://www.osw.waw.pl/en/publikacje/analyses/2026-05-05/united-states-planned-reduction-us-military-presence-germany](https://www.osw.waw.pl/en/publikacje/analyses/2026-05-05/united-states-planned-reduction-us-military-presence-germany)
 
-2026-05-20 Army Veteran Kerry Sheron was beaten outside his Trump-themed home and later died in the hospital. 
+2026-05-20 Army veteran Kerry Sheron was assaulted outside his Trump-themed home and later died from his injuries.
 
 [https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/](https://www.nbcsandiego.com/news/local/escondido-man-dies-brutal-attack-outside-trump-themed-home/4028570/)
 

@@ -566,7 +566,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-28 Trump unsuccessfully tried to get the Artemis II crew to criticize NATO during a televised event.
 
-2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
+2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
 2026-04-29 Trump added his image to U.S. passports.
 

@@ -341,7 +341,7 @@ FROM 2022 [https://www.newsweek.com/donald-trump-pastor-god-chose-save-america-1
 
 FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/](https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/)
 
-2026-04-29 Trump posted AI generated images of himself holding an assault rifle.
+2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
 [https://www.youtube.com/watch?v=hYypemF9ULo](https://www.youtube.com/watch?v=hYypemF9ULo)
 

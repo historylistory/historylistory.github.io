@@ -447,7 +447,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
 
-2026-05-29 House GOP members rejected Trump’s NDAA demands.
+2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
 
 [https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6](https://www.youtube.com/watch?v=MTLLvoDE0iQ&list=WL&index=6)
 

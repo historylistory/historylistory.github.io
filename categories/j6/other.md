@@ -66,13 +66,13 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)
 
-2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+2026-05-21 Senate Majority Leader John Thune responded to Trump’s J-6 Insurrectionist slush fund, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”.
 
 [https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
 
 [https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
 
-2026-05-21 In response to Trump’s J6 slush fund, Senate Majority Leader John Thune of South Dakota said, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”. 
+2026-05-21 Senate Majority Leader John Thune responded to Trump’s J-6 Insurrectionist slush fund, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”.
 
 [https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands](https://www.pbs.org/newshour/politics/pushed-to-the-limit-republicans-show-rare-defiance-to-trumps-demands)
 
