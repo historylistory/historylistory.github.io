@@ -232,7 +232,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://newrepublic.com/post/205376/ice-attack-car-kids-six-month-old-unconscious](https://newrepublic.com/post/205376/ice-attack-car-kids-six-month-old-unconscious)
 
-2026-01-24 Stephen Miller was implicated in accusations of encouraging DHS agents to force confrontations leading up to the killing of Alex Pretti.
+2026-01-24 Stephen Miller was implicated of encouraging DHS tactics that contributed to confrontations preceding the death of Alex Pretti.
 
 [https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements](https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements)
 

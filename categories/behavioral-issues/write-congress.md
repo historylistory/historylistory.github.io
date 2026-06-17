@@ -255,7 +255,7 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-07 Pam Bondi deflected Senate questions with combative rhetoric.
 
-2025-10-09 After the snowflake MAGA base melted down about Bad Bunny at the Super Bowl, The Trump administration proposed a rival “All American Halftime Show.”
+2025-10-09 The administration announced plans for a divisive Turning Point USA–affiliated "All American Halftime Show" in response to Bad Bunny set to perform at the Super Bowl halftime show.
 
 2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 

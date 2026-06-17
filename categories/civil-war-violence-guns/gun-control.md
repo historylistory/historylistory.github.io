@@ -179,7 +179,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2026 January
 
-2026-01-28 After ICE agents killed Alex Pretti in Minnesota, Trump stated Pretti should not have had a gun at a protest. Shortly after, both the NRA and Gun Owners of America clashed with Trump over Second Amendment rights.
+2026-01-28 After ICE agents killed Alex Pretti, Trump argued Pretti should not have carried a firearm at the protest, drawing criticism from gun-rights organizations including the NRA and Gun Owners of America.
 
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 

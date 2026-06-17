@@ -349,7 +349,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.stuff.co.nz/world-news/360935198/trump-shares-racist-video-depicts-obamas-primates-jungle](https://www.stuff.co.nz/world-news/360935198/trump-shares-racist-video-depicts-obamas-primates-jungle)
 
-2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. Trump made his divisive comments after.
+2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. 
 
 [https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw](https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw)
 

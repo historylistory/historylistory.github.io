@@ -117,7 +117,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2025 October
 
-2025-10-29 Susan Collins broke with Trump on the same tariff emergency powers vote.
+2025-10-29 Senator Susan Collins broke with Trump on a vote involving tariff-related emergency powers.
 
 [https://spectrumlocalnews.com/me/maine/politics/2025/10/29/collins-breaks-ranks-in-vote-to-block-tariffs-on-brazil](https://spectrumlocalnews.com/me/maine/politics/2025/10/29/collins-breaks-ranks-in-vote-to-block-tariffs-on-brazil)
 
@@ -133,7 +133,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.aljazeera.com/opinions/2026/2/22/the-carlson-huckabee-interview-may-be-the-wake-up-call-americans-needed](https://www.aljazeera.com/opinions/2026/2/22/the-carlson-huckabee-interview-may-be-the-wake-up-call-americans-needed)
 
-2025-11-10 MAGA v. Tucker Carlson for interviewing Nick Fuentes.
+2025-11-10 Tensions emerged between MAGA supporters and Tucker Carlson after Carlson interviewed Nick Fuentes.
 
 [https://thehill.com/video/ben-shapiro-mark-levin-torch-tucker-carlson-for-fuentes-interview-rising/11248536/](https://thehill.com/video/ben-shapiro-mark-levin-torch-tucker-carlson-for-fuentes-interview-rising/11248536/)
 
@@ -146,7 +146,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2025 December
 
-2025-12-16 Candace Owens v Tim Pool over claims about Charlie Kirk’s death.
+2025-12-16 Candace Owens and Tim Pool publicly disputed claims related to Charlie Kirk's death.
 
 [https://theweek.com/politics/maga-melting-down-feud-influencers](https://theweek.com/politics/maga-melting-down-feud-influencers)
 
@@ -154,7 +154,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.youtube.com/watch?v=IEBLT8ZecPY](https://www.youtube.com/watch?v=IEBLT8ZecPY)
 
-2025-12-17 Candace Owens v Erika Kirk over handling events at TPUSA.
+2025-12-17 Candace Owens and Erika Kirk publicly disagreed over matters involving Turning Point USA.
 
 [https://apnews.com/article/turning-point-charlie-kirk-americafest-c1ef8d3535191e58ce2aa731d242bebf](https://apnews.com/article/turning-point-charlie-kirk-americafest-c1ef8d3535191e58ce2aa731d242bebf)
 
@@ -163,14 +163,14 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 [https://www.cnn.com/2025/12/16/politics/candace-owens-erika-kirk-podcast](https://www.cnn.com/2025/12/16/politics/candace-owens-erika-kirk-podcast)
 
 
-2025-12-19 Tucker Carlson v Ben Shapiro at a TPUSA convention over Israel and foreign policy.
+2025-12-19 Tucker Carlson and Ben Shapiro clashed at a TPUSA event over Israel and foreign policy.
 
 [https://apnews.com/article/turning-point-charlie-kirk-americafest-c1ef8d3535191e58ce2aa731d242bebf](https://apnews.com/article/turning-point-charlie-kirk-americafest-c1ef8d3535191e58ce2aa731d242bebf)
 
 [https://www.cnn.com/2025/12/19/politics/turning-point-usa-ben-shapiro-tucker-carlson](https://www.cnn.com/2025/12/19/politics/turning-point-usa-ben-shapiro-tucker-carlson)
 
 
-2025-12-22 Megyn Kelly v Ben Shapiro disagreement at AmericaFest.
+2025-12-22 Megyn Kelly and Ben Shapiro publicly disagreed during AmericaFest.
 
 [https://en.wikipedia.org/wiki/AmericaFest](https://en.wikipedia.org/wiki/AmericaFest)
 
@@ -182,13 +182,20 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2026 January
 
-2026-01-17 Mitch McConnell also opposed Trump’s tariff emergency declaration, drawing Trump’s criticism.
+2026-01-17 Mitch McConnell opposed Trump's tariff-emergency declaration and was subsequently criticized by Trump.
 
 [https://thehill.com/homenews/house/5749069-bacon-trump-new-tariffs-congress-response/](https://thehill.com/homenews/house/5749069-bacon-trump-new-tariffs-congress-response/)
 
 [https://www.theguardian.com/us-news/2026/jan/17/republicans-trump-greenland](https://www.theguardian.com/us-news/2026/jan/17/republicans-trump-greenland)
 
 [https://www.agriculture.com/partners-u-s-house-in-bipartisan-vote-defies-trump-agrees-to-end-his-tariffs-on-canada-11905232](https://www.agriculture.com/partners-u-s-house-in-bipartisan-vote-defies-trump-agrees-to-end-his-tariffs-on-canada-11905232)
+
+
+2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
+
+[https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
+
+[https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
 
 ### 2026 March
 
@@ -247,10 +254,6 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.reuters.com/world/middle-east/us-national-counterterrorism-center-director-resigns-over-war-iran-2026-03-17/](https://www.reuters.com/world/middle-east/us-national-counterterrorism-center-director-resigns-over-war-iran-2026-03-17/)
 
-
-2026-03-18 James Fishback spoke out against U.S. war posture toward Iran.
-
-[https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
 
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions. 
 

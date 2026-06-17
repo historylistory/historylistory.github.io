@@ -110,7 +110,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 
-2026-01-24 Stephen Miller was implicated in accusations of encouraging DHS agents to force confrontations leading up to the killing of Alex Pretti.
+2026-01-24 Stephen Miller was implicated of encouraging DHS tactics that contributed to confrontations preceding the death of Alex Pretti.
 
 [https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements](https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements)
 
@@ -138,7 +138,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/](https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/)
 
-2026-01-28 After ICE agents killed Alex Pretti in Minnesota, Trump stated Pretti should not have had a gun at a protest. Shortly after, both the NRA and Gun Owners of America clashed with Trump over Second Amendment rights.
+2026-01-28 After ICE agents killed Alex Pretti, Trump argued Pretti should not have carried a firearm at the protest, drawing criticism from gun-rights organizations including the NRA and Gun Owners of America.
 
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 

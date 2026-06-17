@@ -275,7 +275,7 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2026 January
 
-2026-01-24 Stephen Miller was implicated in accusations of encouraging DHS agents to force confrontations leading up to the killing of Alex Pretti.
+2026-01-24 Stephen Miller was implicated of encouraging DHS tactics that contributed to confrontations preceding the death of Alex Pretti.
 
 [https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements](https://www.theguardian.com/us-news/2026/jan/26/trump-administration-alex-pretti-shooting-statements)
 
@@ -291,7 +291,7 @@ A private account on X has posted the video, but due to the account being privat
 
 [https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
 
-2026-01-27 US Representative Ilhan Omar was attacked by a far-right activist during a town hall. After the attack, Trump responded with a conspiracy theory and accused Omar of “staging the attack”. This was not the first time he had used conspiracy to turn fault away from far-right political violence, as he had also done this after the murder of Rob Reiner and his wife, the violent assault of Nancy Pelosi’s husband, and after the insurrection.
+2026-01-27 Representative Ilhan Omar was attacked by a far-right activist during a town hall. Trump later claimed the incident had been staged.
 
 [https://www.cnn.com/2026/01/29/politics/ilhan-omar-trump-conspiracy-theory](https://www.cnn.com/2026/01/29/politics/ilhan-omar-trump-conspiracy-theory)
 
@@ -299,7 +299,9 @@ A private account on X has posted the video, but due to the account being privat
 
 [https://abcnews.go.com/US/man-faces-federal-assault-charge-attack-rep-ilhan/story?id=129675896](https://abcnews.go.com/US/man-faces-federal-assault-charge-attack-rep-ilhan/story?id=129675896)
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
+
+[https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
 

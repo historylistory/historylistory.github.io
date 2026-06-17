@@ -162,13 +162,13 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 October
 
-2025-10-09 After the snowflake MAGA base melted down about Bad Bunny at the Super Bowl, The Trump administration proposed a rival “All American Halftime Show.”
+2025-10-09 The administration announced plans for a divisive Turning Point USA–affiliated "All American Halftime Show" in response to Bad Bunny set to perform at the Super Bowl halftime show.
 
 [https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150](https://abcnews.go.com/GMA/Culture/turning-point-usa-announces-counterprogram-super-bowl-halftime/story?id=126399150)
 
 ### 2026 February
 
-2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. Trump made his divisive comments after.
+2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. 
 
 [https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw](https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw)
 
