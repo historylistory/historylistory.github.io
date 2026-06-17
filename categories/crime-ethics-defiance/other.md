@@ -13,6 +13,7 @@ permalink: /categories/crime-ethics-defiance/other/
 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
 
 
+
 ### 2024
 
 2024-04-01 Mysterious circumstances surrounding a death at a Nebraska Governor Pillen’s family farm.

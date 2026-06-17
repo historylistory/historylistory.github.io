@@ -127,6 +127,16 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.aclu-in.org/campaigns-initiatives/fair-redistricting-indiana/](https://www.aclu-in.org/campaigns-initiatives/fair-redistricting-indiana/)
 
+2025-12-03 The Trump administration announced a task force specifically targeting Somali immigrants in Minnesota. The DOJ called it **Operation Metro Surge.**The surge of agents being sent to Minneapolis occurred right after a right-wing podcaster harassed local Somalian daycares.
+
+[https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/](https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/)
+
+[https://www.house.mn.gov/members/Profile/News/15535/41031](https://www.house.mn.gov/members/Profile/News/15535/41031)
+
+[https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/](https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/)
+
+
+
 2025-12-06 The Trump administration had the US park service remove free entrance for Martin Luther King Jr. day and Juneteenth and moved the date for free admission to June 14th, which is both Flag Day and Trump’s birthday. The administration also forced an additional $100 fee for international visitors.
 
 [https://www.npr.org/2025/12/06/g-s1-101090/national-parks-fee-free-calendar-mlk-juneteenth](https://www.npr.org/2025/12/06/g-s1-101090/national-parks-fee-free-calendar-mlk-juneteenth)
@@ -138,6 +148,22 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 [https://www.cfr.org/article/guide-countries-trumps-travel-ban-list](https://www.cfr.org/article/guide-countries-trumps-travel-ban-list)
 
 [https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/)
+
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. 
+
+It is also important to note – for context – that the Heritage Foundation Project 2025 has a mandate in their text to dismantle and defund childcare, so **demonizing childcare in this country is****actually part****of the Trump and Heritage Foundation agenda**. Pages 482 and 486 outlines a plan to completely dismantle availability to childcare so women will be forced out of the workplace. That includes single mothers that they love to demonize.
+
+[https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
+
+[https://www.npr.org/2025/12/30/g-s1-104049/trump-minnesota-child-care-funding-freeze-fraud-schemes](https://www.npr.org/2025/12/30/g-s1-104049/trump-minnesota-child-care-funding-freeze-fraud-schemes)
+
+[https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud](https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud)
+
+[https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
+
+{% include youtubePlayer.html id="_z47VqygrQw" %}
+
+[https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
 
 ### 2026 January
 
@@ -175,6 +201,13 @@ TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&i
 [https://sewell.house.gov/2026/4/rep-sewell-presses-hhs-secretary-robert-f-kennedy-jr-on-comments-suggesting-black-children-should-be-re-parented](https://sewell.house.gov/2026/4/rep-sewell-presses-hhs-secretary-robert-f-kennedy-jr-on-comments-suggesting-black-children-should-be-re-parented)
 
 [https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/](https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/)
+
+2026-04-27 The Trump administration instructed DHS and immigration officers to deny green cards to anyone who protested views that didn’t align with Trump, including criticizing Israel or supporting Palestine. 
+
+[https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002](https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002)
+
+[https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel](https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel)
+
 
 ### 2026 May
 

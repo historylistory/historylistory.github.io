@@ -326,6 +326,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://x.com/LauraLoomer/status/1988100437913071858](https://x.com/LauraLoomer/status/1988100437913071858)
 
+2025-11-27 Trump claimed Somali refugees were taking over Minnesota, described Somali gangs as predatory, attacked Governor Tim Walz, and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+
+{% include youtubePlayer.html id="lOlZlti8bUA" %}
+
+[https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115590786862216464](https://truthsocial.com/@realDonaldTrump/posts/115590786862216464)
+
+[https://www.politico.com/news/2025/11/30/walz-klobuchar-trump-attack-minnesota-00671132](https://www.politico.com/news/2025/11/30/walz-klobuchar-trump-attack-minnesota-00671132)
+
+[https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299](https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299)
 
 2025-11-27 Trump claimed that Congresswoman Ilhan Omar of Minnesota should be “thrown the hell out of our country” in a social media post, claimed the Congresswoman “probably came to the US illegally” and mocked her hijab. In a side-rant, Trump also managed to call Governor Tim Walz “seriously retarded”. Trump suggested Ilhan Omar For context, this came immediately after Trump ranted on social media that Minnesota was overrun by Somali gangs.
 
@@ -354,6 +365,30 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 {% include youtubePlayer.html id="NobIxw0Q3Hg" %}
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
+
+2025-12-03 Tom Emmer went on Fox News claiming 80% of crimes being committed in Minnesota were being committed by Somalis.
+
+[https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
+
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. 
+
+It is also important to note – for context – that the Heritage Foundation Project 2025 has a mandate in their text to dismantle and defund childcare, so **demonizing childcare in this country is****actually part****of the Trump and Heritage Foundation agenda**. Pages 482 and 486 outlines a plan to completely dismantle availability to childcare so women will be forced out of the workplace. That includes single mothers that they love to demonize.
+
+[https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
+
+[https://www.npr.org/2025/12/30/g-s1-104049/trump-minnesota-child-care-funding-freeze-fraud-schemes](https://www.npr.org/2025/12/30/g-s1-104049/trump-minnesota-child-care-funding-freeze-fraud-schemes)
+
+[https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud](https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud)
+
+[https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
+
+{% include youtubePlayer.html id="_z47VqygrQw" %}
+
+[https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
+
+2025-12-27 JD Vance tweeted about Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.
+
+[https://x.com/JDVance/status/2005064947437650251?lang=en](https://x.com/JDVance/status/2005064947437650251?lang=en)
 
 ### 2026 January
 
@@ -398,6 +433,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 {% include youtubePlayer.html id="ZPZoVwgfK84" %}
 
+2026-02-24 During the State of the Union, Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime.” Representative Ilhan Omar looked on in horror, while JD Vance and Mike Johnson laughed and applauded.
+
+[https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100](https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100)
+
+[https://lasentinel.net/trump-repeats-baseless-claims-of-somali-pirates-but-remains-silent-on-ice-killings.html](https://lasentinel.net/trump-repeats-baseless-claims-of-somali-pirates-but-remains-silent-on-ice-killings.html)
 
 
 
