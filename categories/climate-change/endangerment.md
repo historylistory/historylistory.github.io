@@ -28,7 +28,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2025 April
 
-2025-04-22 The Economic Policy Institute reported on "How Trump's erasure of environmental data is endangering communities of color".
+2025-04-22 The Economic Policy Institute published a report arguing that the removal of environmental data disproportionately harms communities of color.
 
 [https://www.epi.org/blog/how-trumps-erasure-of-environmental-data-is-endangering-communities-of-color/](https://www.epi.org/blog/how-trumps-erasure-of-environmental-data-is-endangering-communities-of-color/)
 

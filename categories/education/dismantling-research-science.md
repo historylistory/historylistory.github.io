@@ -41,7 +41,7 @@ permalink: /categories/education/dismantling-research-science/
 
 ### 2025 April
 
-2025-04-25 The Trump administration cut $400M in funding to AmeriCorps, stating the grants no longer fit AmeriCorps priorities, but the administration did not articulate further. The cuts impacted 32,000 people, halted work in fields like disaster recovery, education, environmental stewardship and public health.
+2025-04-25 AmeriCorps lost $400 million in funding, affecting 32,000 participants and programs related to disaster recovery, education, environmental stewardship, and public health. Trump rescinded Executive Order 14143 Providing for the Appointment of Alumni of AmeriCorps to the Competitive Service. 
 
 [https://www.npr.org/2025/05/09/nx-s1-5383188/trumps-gutting-of-americorps-hits-hard-for-both-volunteers-and-communities](https://www.npr.org/2025/05/09/nx-s1-5383188/trumps-gutting-of-americorps-hits-hard-for-both-volunteers-and-communities)
 

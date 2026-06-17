@@ -25,7 +25,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump](https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump)
 
-2025-04-28 As outlined on page 59 of Project 2025, all authors working on the National Climate Assessment report were dismissed.
+2025-04-28 Following Project 2025 recommendations (page 59), all authors working on the National Climate Assessment were fired.
 
 [https://www.wbur.org/npr/nx-s1-5380816/climate-assessment-authors-released](https://www.wbur.org/npr/nx-s1-5380816/climate-assessment-authors-released)
 
