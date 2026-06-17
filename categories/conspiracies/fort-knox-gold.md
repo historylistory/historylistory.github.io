@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/fort-knox-gold/
 
 ### 2025 February
 
-2025-02-20 Following a fake post on Twitter saying gold was missing, Trump announced in a press conference they “might be going to Fort Knox” to see if gold was missing.
+2025-02-20 After a viral post claimed Fort Knox gold was missing, Trump announced in a press conference they “might be going to Fort Knox” to verify.
 
 [https://www.cnbc.com/2025/02/20/trump-says-his-administration-will-check-fort-knox-to-make-sure-the-gold-is-there.html](https://www.cnbc.com/2025/02/20/trump-says-his-administration-will-check-fort-knox-to-make-sure-the-gold-is-there.html)
 

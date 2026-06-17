@@ -31,7 +31,7 @@ permalink: /categories/education/dismantling-research-science/
 
 ### 2025 February
 
-2025-02-03 In a social media post, Elon Musk rehashed old conservative uproar about shrimp-treadmill research simply to rekindle and reinforce distrust and misinformation. He wrote, “Insane wasting of taxpayer money”.
+2025-02-03 Elon Musk revived criticism of “shrimp treadmill” research, calling it an “insane” waste of taxpayer money”. 
 
 [https://www.undercurrentnews.com/2025/02/11/how-fast-can-shrimp-run-on-a-treadmill-doge-goes-after-commercial-fishing-research/](https://www.undercurrentnews.com/2025/02/11/how-fast-can-shrimp-run-on-a-treadmill-doge-goes-after-commercial-fishing-research/)
 

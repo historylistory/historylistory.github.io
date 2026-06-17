@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/gaza/
 
 ### 2025 January
 
-2025-01-30 The Trump administration’s Karoline Leavitt claimed that U.S. taxpayers were spending $50M for condoms to Gaza.
+2025-01-30 White House Press Secretary Karoline Leavitt claimed U.S. taxpayers spent $50 million on condoms for Gaza.
 
 [https://www.reuters.com/fact-check/no-evidence-us-spent-50-million-condoms-gaza-2025-01-30/#:~:text=%22So%20look%20%2D%20on%20the%20%22,Fact%20Check](https://www.reuters.com/fact-check/no-evidence-us-spent-50-million-condoms-gaza-2025-01-30/)
 

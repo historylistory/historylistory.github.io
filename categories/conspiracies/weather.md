@@ -36,17 +36,17 @@ permalink: /categories/conspiracies/weather/
 
 [https://www.pbs.org/newshour/nation/disinformation-and-conspiracy-theories-cloud-helene-recovery-efforts-in-hard-hit-areas](https://www.pbs.org/newshour/nation/disinformation-and-conspiracy-theories-cloud-helene-recovery-efforts-in-hard-hit-areas)
 
-2024-10-03 Marjorie Taylor Greene posted on X “Yes they can control the weather. It’s ridiculous for anyone to lie and say it can’t be done”. Her post was made in response to a discussion about small scale cloud seeding that debunked any alternative claims that Hurricane Helene was manmade. She later posted a map on X showing how the hurricane affected areas in conjunction with the electoral map.
+2024-10-03 Marjorie Taylor Greene posted “Yes they can control the weather. It’s ridiculous for anyone to lie and say it can’t be done”. She later posted a map showing how the hurricane affected areas in conjunction with the electoral map.
 
 [https://x.com/mtgreenee/status/1842039774359462324](https://x.com/mtgreenee/status/1842039774359462324)
 
 [https://x.com/mtgreenee/status/1841839254143381961](https://x.com/mtgreenee/status/1841839254143381961)
 
-2024-10-03 In an X post, Alex Jones helped push the conspiracy theory that hurricanes were manmade and accused the federal government of not stopping the storm.
+2024-10-03 Alex Jones promoted the conspiracy that Hurricane Helene was manmade and accused the federal government of failing to stop it.
 
 [https://x.com/RealAlexJones/status/1842008511330357571](https://x.com/RealAlexJones/status/1842008511330357571)
 
-2024-10-04 The American Red Cross and the North Carolina DPS had to publish websites fighting harmful Republican rhetoric and misinformation about aid going into Helene disaster recovery efforts.
+2024-10-04 The American Red Cross and the North Carolina DPS had to publish websites fighting harmful Conservative rhetoric and misinformation about aid going into Helene disaster recovery efforts.
 
 [https://www.ncdps.gov/our-organization/emergency-management/tropical-storm-helene/ground-truth-facts-helene-response](https://www.ncdps.gov/our-organization/emergency-management/tropical-storm-helene/ground-truth-facts-helene-response)
 
@@ -62,6 +62,6 @@ permalink: /categories/conspiracies/weather/
 
 ### 2025 January
 
-2025-01-16 (Context) Rumors spread on social media that California wildfires were caused by a conspiracy called "Directed-Energy Weapon" (DEW).
+2025-01-16 Social media rumors claimed California wildfires were caused by a “Directed Energy Weapon” (DEW).
 
 [https://www.cbsnews.com/news/wildfire-conspiracy-theories-viral-fact-check/](https://www.cbsnews.com/news/wildfire-conspiracy-theories-viral-fact-check/)

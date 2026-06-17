@@ -14,7 +14,7 @@ permalink: /categories/transportation/dei-claims/
 
 ### 2025 February
 
-2025-02-04 Senator Roger Marshall of Kansas publicly claimed DEI hiring policies at the FAA contributed to the Potomac crash. He stated, quote, "Well, I think diversity issues did contribute to this accident, and what we know for sure is that under Joe Biden that they lowered the standards for people getting into air traffic control. And with that, the number of near misses increased 70% a year". The Senator went on to say, "What I think you're gonna find out is there were a lot of qualified white men that they were not hiring because they were holding spots for DEI hires".
+2025-02-04 In response to the Potomac crash Senator Roger Marshall said, “Well, I think diversity issues did contribute to this accident, and what we know for sure is that under Joe Biden that they lowered the standards for people getting into air traffic control. And with that, the number of near misses increased 70% a year”. The Senator went on to say, “What I think you’re gonna find out is there were a lot of qualified white men that they were not hiring because they were holding spots for DEI hires”.
 
 [https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/](https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/)
 

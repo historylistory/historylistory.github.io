@@ -18,7 +18,7 @@ permalink: /categories/conspiracies/positioning-for-propaganda/
 
 ### 2024 December
 
-2024-12-24 Elon Musk began attacking Wikipedia as “Wokepedia”. By October 2025 he created his own “Grokipedia”. This platform is like the alt-right “**Conservapedia” created in 2006**, which attacks science-based facts, homosexuality, and pro-choice. Online resources report that Conservapedia also peddles misinformation about the AIDS epidemic and conspiracy theories, among other topics.
+2024-12-24 Elon Musk attacked Wikipedia as “Wokepedia” and later launched “Grokipedia,” drawing comparisons to the conservative alternative encyclopedia Conservapedia.
 
 [https://x.com/elonmusk/status/1871443771424116954](https://x.com/elonmusk/status/1871443771424116954)
 

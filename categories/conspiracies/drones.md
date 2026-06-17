@@ -8,7 +8,7 @@ permalink: /categories/conspiracies/drones/
 
 ### 2024
 
-2024-12-16 Conspiracists touted claims that drones over New Jersey were a "deep state plot" against Trump to cancel the inauguration, calling it "Project Blue Beam". News outlets listed names involved like Roseanne Barr, Alex Jones, and Charlie Kirk among the individuals spreading the conspiracy. For context, Wikipedia has a biography of Serge Monast, who published “Project Blue Beam” in 1994 pushing the conspiracy about New Age religion and the antichrist.
+2024-12-16 Conspiracy theorists claimed New Jersey drone sightings were a “deep state” effort to stop Trump’s inauguration, reviving the “Project Blue Beam” theory. 
 
 [https://www.axios.com/2024/12/19/drone-sightings-nj-conspiracy-theories-lawmakers](https://www.axios.com/2024/12/19/drone-sightings-nj-conspiracy-theories-lawmakers)
 
