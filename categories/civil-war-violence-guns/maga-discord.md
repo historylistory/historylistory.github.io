@@ -207,30 +207,30 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority](https://biggs.house.gov/media/press-releases/congressman-biggs-votes-against-resolution-undermining-presidents-authority)
 
-2026-03-06 Nick Fuentes v Mark Levine over the war in Iran. 
+2026-03-06 Nick Fuentes and Mark Levin publicly feuded over the Iran conflict.
 
 [https://www.youtube.com/watch?v=-Ud4NK0nKTA](https://www.youtube.com/watch?v=-Ud4NK0nKTA)
 
 [https://www.theguardian.com/media/2026/mar/06/conservative-media-open-warfare-over-iran](https://www.theguardian.com/media/2026/mar/06/conservative-media-open-warfare-over-iran)
 
-2026-03-08 On this edition of Newsmax’s Savage Nation Michael Savage said, “I’m sick of the racialist vermin who follow Tucker Carlson and that psychotic Candy – whatever her name is. You’re basically crypto-Nazis, no matter what you say….Carlson and Candace espouse Nazi bloodline testing…” among other things.
+2026-03-08 On Newsmax, Michael Savage attacked Tucker Carlson and Candace Owens, accusing them of promoting extremist ideas, “I’m sick of the racialist vermin who follow Tucker Carlson and that psychotic Candy – whatever her name is. You’re basically crypto-Nazis, no matter what you say….Carlson and Candace espouse Nazi bloodline testing…” 
 
 [https://www.mediamatters.org/michael-savage/newsmaxs-michael-savage-im-sick-racialist-vermin-who-follow-tucker-carlson-and](https://www.mediamatters.org/michael-savage/newsmaxs-michael-savage-im-sick-racialist-vermin-who-follow-tucker-carlson-and)
 
-2026-03-12 Candace Owens broke with Trump over foreign policy and Israel/Iran stance.
+2026-03-12 Candace Owens broke with Trump over Israel and Iran policy.
 
 [https://www.msn.com/en-us/news/insight/owens-brands-trump-a-coward-over-iran-war/gm-GM5ADD9DA5](https://www.msn.com/en-us/news/insight/owens-brands-trump-a-coward-over-iran-war/gm-GM5ADD9DA5)
 
 [https://www.theguardian.com/us-news/2026/mar/22/maga-media-fight-trump-iran-war](https://www.theguardian.com/us-news/2026/mar/22/maga-media-fight-trump-iran-war)
 
-2026-03-11 Joe Rogan slammed Trump over the Iran war.
+2026-03-11 Joe Rogan criticized Trump's handling of the Iran war.
 
 [https://www.youtube.com/watch?v=D7kwHZv6cbs](https://www.youtube.com/watch?v=D7kwHZv6cbs)
 
 [https://thehill.com/policy/international/5846565-rogan-questions-trump-middle-east/](https://thehill.com/policy/international/5846565-rogan-questions-trump-middle-east/)
 
 
-2026-03-13 Laura Loomer v Tucker Carlson personal attacks and feud over allegations of antisemitism.
+2026-03-13 Laura Loomer and Tucker Carlson exchanged personal attacks during a dispute involving allegations of antisemitism.
 
 [https://www.hindustantimes.com/world-news/us-news/woke-leftist-laura-loomer-rips-tucker-carlson-for-meltdown-over-trump-mocking-islam-101775526375931.html](https://www.hindustantimes.com/world-news/us-news/woke-leftist-laura-loomer-rips-tucker-carlson-for-meltdown-over-trump-mocking-islam-101775526375931.html)
 
@@ -241,12 +241,12 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 [https://www.msn.com/en-us/news/world/laura-loomer-airs-old-texts-with-tucker-carlson-after-he-brands-her-world-s-creepiest-human/ar-AA1HkmY7?ocid=hpmsn&cvid=b7551cc93dce49eca38c4ac2078c7ccd&ei=17](https://www.msn.com/en-us/news/world/laura-loomer-airs-old-texts-with-tucker-carlson-after-he-brands-her-world-s-creepiest-human/ar-AA1HkmY7?ocid=hpmsn&cvid=b7551cc93dce49eca38c4ac2078c7ccd&ei=17)
 
 
-2026-03-16 Megyn Kelly criticized Trump’s foreign policy direction and interventionism.
+2026-03-16 Megyn Kelly criticized Trump's interventionist foreign-policy direction.
 
 [https://thehill.com/homenews/media/5786121-greene-megyn-kelly-iran-trump-mark-levin/](https://thehill.com/homenews/media/5786121-greene-megyn-kelly-iran-trump-mark-levin/)
 
 
-2026-03-17 Joe Kent criticized interventionist policy direction (Iran/foreign wars).
+2026-03-17 Joe Kent criticized interventionist policies and the Iran conflict.
 
 [https://www.youtube.com/watch?v=FqVvvuOq5jI](https://www.youtube.com/watch?v=FqVvvuOq5jI)
 
@@ -272,12 +272,12 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.nbcnews.com/politics/justice-department/trump-frustrated-pam-bondi-ousting-justice-department-rcna266396](https://www.nbcnews.com/politics/justice-department/trump-frustrated-pam-bondi-ousting-justice-department-rcna266396)
 
-2026-04-02 Paula White sparks MAGA backlash after comparing Trump to Jesus.
+2026-04-02 Paula White drew criticism from MAGA supporters after comparing Trump to Jesus.
 
 [https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus](https://www.ms.now/opinion/paula-white-sparks-maga-backlash-after-comparing-trump-to-jesus)
 
  
-2026-04-02 Rand Paul opposed Trump’s tariffs / national emergency powers, prompting Trump to attack him as “disloyal.”
+2026-04-02 Rand Paul opposed Trump's tariffs and use of emergency powers, prompting Trump to label him disloyal
 
 [https://www.aol.com/trump-attacks-four-disloyal-republicans-180330318.html](https://www.aol.com/trump-attacks-four-disloyal-republicans-180330318.html)
 
@@ -303,7 +303,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 
 
-2026-04-04 Tucker Carlson criticized Trump’s support for strikes on Iran and Israel alignment, arguing it violated “America First.”
+2026-04-04 Tucker Carlson criticized Trump's support for military action against Iran and alignment with Israel, arguing it violated "America First" principles.
 
 [https://www.msn.com/en-us/news/insight/tucker-carlson-denounces-trump-s-iran-strikes/gm-GM40C96E2F](https://www.msn.com/en-us/news/insight/tucker-carlson-denounces-trump-s-iran-strikes/gm-GM40C96E2F)
 
@@ -315,20 +315,20 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 
 
-2026-04-06 An exchange between Rick Scott and Thomas Massey on X underscores a growing divide within the party, particularly over large spending priorities.
+2026-04-06 Rick Scott and Thomas Massie publicly clashed about spending priorities.
 
 [https://www.aol.com/news/republican-senator-called-claiming-trump-152823055.html](https://www.aol.com/news/republican-senator-called-claiming-trump-152823055.html)
 
 
 
-2026-04-07 Alex Jones distanced himself from Trump amid Iran escalation concerns.
+2026-04-07 Alex Jones distanced himself from Trump amid Iran war escalations.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-maga-allies-push-back-iran-war-time-say-no-rcna267061](https://www.nbcnews.com/politics/donald-trump/trump-maga-allies-push-back-iran-war-time-say-no-rcna267061)
 
 [https://www.rollingstone.com/politics/politics-news/trump-iran-25th-amendment-aoc-alex-jones-pope-1235543368/](https://www.rollingstone.com/politics/politics-news/trump-iran-25th-amendment-aoc-alex-jones-pope-1235543368/)
 
 
-2026-04-07 Lisa Murkowski called Trump’s threat to “destroy Iran” an “affront to U.S. ideals.”
+2026-04-07 Lisa Murkowski called Trump's threat to "destroy Iran" an affront to American ideals.
 
 [https://abcnews.com/Politics/trump-ally-sen-ron-johnson-breaks-president-iran/story?id=131800928](https://abcnews.com/Politics/trump-ally-sen-ron-johnson-breaks-president-iran/story?id=131800928)
 

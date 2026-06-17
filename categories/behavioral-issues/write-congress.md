@@ -440,7 +440,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-16 Michael Savage proposed homeless internment camps during a Newsmax interview. 
 
-2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
+2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s violent rhetoric, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
 
 2026-03-18 Kash Patel launched his own Nikes, which feature a Punisher logo, the number 9, and his podcaster moniker Ka$h.
 

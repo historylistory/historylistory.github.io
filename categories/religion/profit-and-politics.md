@@ -230,18 +230,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
 
-2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, ***“Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.***
-
-[https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor](https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor)
-
-[https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes](https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes)
-
-[https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s](https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s)
-
-[https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
-
-
-2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. 
+2026-03-26 Hegseth delivered a Pentagon sermon invoking God’s role in war, prayed for eternal damnation and overwhelming violence in the name of God and claimed the United States was righteous.
 
 [https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
 

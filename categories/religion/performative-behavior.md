@@ -58,7 +58,7 @@ permalink: /categories/religion/performative-behavior/
 
 ### 2026 March
 
-2026-03-26 Hegseth gave a sermon at the Pentagon about God’s involvement in battle, praying for eternal damnation and overwhelming violence in the name of God and claiming the United States as righteous in this war in Iran. Weaponizing faith for domination and power might be a sin. 
+2026-03-26 Hegseth delivered a Pentagon sermon invoking God’s role in war, prayed for eternal damnation and overwhelming violence in the name of God and claimed the United States was righteous.
 
 [https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s](https://www.youtube.com/watch?v=gsqVj3G0cmA&list=WL&index=11&t=215s)
 

@@ -186,7 +186,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116216801278101254](https://truthsocial.com/@realDonaldTrump/posts/116216801278101254)
 
-2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
+2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s violent rhetoric, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
 
 Potteiger: ”…public enemies. These are the orcs at the gate. You’re not called to love the barbarian horde that is planning to break into your city and – you know – pillage, plunder, rape, and mutilate you and your people. You don’t love that horde. That is your enemy! And you pray! This is where you have imprecatory Psalms. This is where you pray strongly. The Psalmnist [not a word] is not shy. God, destroy them! Make them as dung on the ground…I pray that God kills him. Ultimately, that means killing his heart and raising him up to new life in Christ. That’s the first thing…”
 
@@ -204,15 +204,6 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
 
-2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, ***“Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.***
-
-[https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor](https://www.theguardian.com/us-news/2026/mar/25/james-talarico-pete-hegseth-pastor)
-
-[https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes](https://www.ms.now/opinion/james-talarico-texas-senate-death-wish-potteiger-haymes)
-
-[https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s](https://www.youtube.com/watch?v=TMHQ_gtdEIk&list=WL&index=12&t=224s)
-
-[https://x.com/jamestalarico/status/2036647988182036730?s=20](https://x.com/jamestalarico/status/2036647988182036730?s=20)
 
 2026-03-30 Trump threatened strikes against Iranian desalination facilities, power plants, and oil infrastructure. Bombing civilian power and infrastructure is a war crime. 
 
