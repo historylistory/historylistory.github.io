@@ -38,7 +38,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 [https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post](https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post)
 
-2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
 
 [https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
 
@@ -46,7 +46,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 [https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes](https://www.kqed.org/news/12049405/muir-woods-national-monument-exhibit-removal-trump-executive-order-national-parks-history-under-construction-sticky-notes)
 
-2025-07-25 Data centers and mining operations increasingly threatened indigenous lands and sovereignty.
+2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 [https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
 
@@ -63,7 +63,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 ### 2025 August
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. For context, the Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. Also noteworthy, China has invested billions of dollars in this project, so the argument is where does the responsibility lay, with wealthy Chinese investors or the American people.
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. 
 
 [https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go](https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go)
 

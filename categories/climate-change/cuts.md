@@ -142,7 +142,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2025 July
 
-2025-07-01 The Trump administration purged climate-change reports and globalchange.gov.
+2025-07-01 The administration erased climate-change reports and the website GlobalChange.gov.
 
 [https://nca2023.globalchange.gov/](https://nca2023.globalchange.gov/) NO LONGER WORKING
 
@@ -150,13 +150,13 @@ permalink: /categories/climate-change/cuts/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
-2025-07-18 The EPA issued a press release stating they had cut 23% of its personnel.
+2025-07-18 The EPA cut 23% of its personnel.
 
 [https://www.epa.gov/newsreleases/epa-announces-reduction-force-reorganization-efforts-save-taxpayers-nearly-three](https://www.epa.gov/newsreleases/epa-announces-reduction-force-reorganization-efforts-save-taxpayers-nearly-three)
 
 ### 2025 August
 
-2025-08-04 Trump pushed to end two NASA satellite missions designed to measure atmospheric CO2 and plant health. Still under debate, NASA is considering moving these instruments to the ISS and maintaining them through private funding.
+2025-08-04 Trump pushed to end two NASA satellite missions monitoring atmospheric CO₂ and plant health. NASA considered relocating the instruments to the ISS with private funding.
 
 [https://www.iflscience.com/this-is-illegal-nasa-reportedly-ordered-to-destroy-important-oco-satellite-80280](https://www.iflscience.com/this-is-illegal-nasa-reportedly-ordered-to-destroy-important-oco-satellite-80280)
 

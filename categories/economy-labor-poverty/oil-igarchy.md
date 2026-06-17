@@ -76,6 +76,16 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 [https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary](https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary)
 
+### 2025 July
+
+2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt while eliminating renewable energy subsidies by modifying or terminating clean energy incentives in the Inflation Reduction Act of 2022.
+
+[https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape](https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape)
+
+2025-07-10 Trump ended federal subsidies for electric vehicles.
+
+[https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html](https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html)
+
 ### 2026 March
 
 2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.

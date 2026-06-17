@@ -8,7 +8,7 @@ permalink: /categories/climate-change/ai-impacts/
 
 ### 2025 July
 
-2025-07-25 Data centers and mining operations increasingly threatened indigenous lands and sovereignty.
+2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 [https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
 

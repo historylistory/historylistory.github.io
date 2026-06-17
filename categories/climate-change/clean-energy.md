@@ -41,7 +41,11 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 [https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape](https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape)
 
-2025-07-21 A Nebraska attorney fought against wind and solar power in Nebraska. 
+2025-07-10 Trump ended federal subsidies for electric vehicles.
+
+[https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html](https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html)
+
+2025-07-21 A Nebraska attorney publicly opposed wind and solar energy development in Nebraska.
 
 [https://www.norfolkneradio.com/news/omaha-attorney-defending-knox-county-against-big-wind/article_da851b05-4e40-4ef6-ad65-d5e30fe801c9.html](https://www.norfolkneradio.com/news/omaha-attorney-defending-knox-county-against-big-wind/article_da851b05-4e40-4ef6-ad65-d5e30fe801c9.html)
 
@@ -50,17 +54,17 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 [https://www.kcau9.com/news/local-news/social-media-posts-lead-to-charges-against-special-knox-county-attorney/](https://www.kcau9.com/news/local-news/social-media-posts-lead-to-charges-against-special-knox-county-attorney/)
 
 
-2025-07-25 During a visit to Scotland, Trump objected to windmills ruining the view of his golf course and ordered leadership to "stop the windmills, you're ruining your countries. I really mean it”.
+2025-07-25 While visiting Scotland, Trump again criticized wind turbines, claiming they spoiled the view from his golf course and urging leaders to stop building them, “Stop the windmills, you’re ruining your countries. I really mean it”. Trump sued the Scottish government in 2012 over offshore wind turbines and lost in 2015. 
 
 {% include youtubePlayer.html id="GkiKpMDEREE" %}
 
-2025-07-27 During a meeting with the President of the European Commission, Trump complained about windmills, calling them a "very ugly energy" and asserting "wind is the most expensive form of energy and it destroys the beauty of your fields and your plains and your waterways".
+2025-07-27 During a meeting with the President of the European Commission, Trump complained about windmills, calling them a “very ugly energy” and asserting “wind is the most expensive form of energy, and it destroys the beauty of your fields and your plains and your waterways”.
 
 {% include youtubePlayer.html id="1Asznj3uWKA" %}
 
 ### 2025 August
 
-2025-08-26 During a press conference, Trump denounced windmills after having just cancelled a nearly complete offshore wind project ( Revolution Wind in RI and CT) and announced his plans to "drill-baby-drill" stating, "We don't call it coal, we call it clean coal, and even very very clean coal".
+2025-08-26 Trump cancelled a nearly complete offshore wind project (Revolution Wind in RI and CT) and announced his plans to “drill-baby-drill” stating, “We don’t call it coal, we call it clean coal, and even very very clean coal”.
 
 {% include youtubePlayer.html id="sp97kSwaBfQ" %}
 

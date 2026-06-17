@@ -49,7 +49,7 @@ permalink: /categories/climate-change/disaster-recovery/
 
 ### 2025 August
 
-2025-08-27 FEMA members were placed on leave after signing a Katrina Declaration warning of the effects on funding cuts.
+2025-08-27 FEMA members were placed on leave after signing a Katrina Declaration warning on the effects of funding cuts.
 
 [https://www.pbs.org/newshour/show/fema-employees-critical-of-trump-placed-on-leave-amid-crackdown-on-dissent](https://www.pbs.org/newshour/show/fema-employees-critical-of-trump-placed-on-leave-amid-crackdown-on-dissent)** **
 

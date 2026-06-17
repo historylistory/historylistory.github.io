@@ -34,7 +34,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2025 July
 
-2025-07-01 The Trump administration purged climate-change reports and globalchange.gov.
+2025-07-01 The administration erased climate-change reports and the website GlobalChange.gov.
 
 [https://nca2023.globalchange.gov/](https://nca2023.globalchange.gov/) NO LONGER WORKING
 
@@ -42,7 +42,7 @@ permalink: /categories/climate-change/endangerment/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
-2025-07-25 Data centers and mining operations increasingly threatened indigenous lands and sovereignty.
+2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 [https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)
 

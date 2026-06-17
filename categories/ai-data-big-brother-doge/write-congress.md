@@ -113,7 +113,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-07-17 Grok malfunctioned, called itself “MechaHitler,” and posted antisemitic content.
 
-2025-07-25 Data centers and mining operations increasingly threatened indigenous lands and sovereignty.
+2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 2025-08-03 Companies increasingly used AI for job interviews.
 

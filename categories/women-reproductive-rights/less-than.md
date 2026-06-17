@@ -78,7 +78,7 @@ UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogy
 
 ### 2023 
 
-2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
 
 [https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
 

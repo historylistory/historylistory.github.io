@@ -105,7 +105,12 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 June
 
-2025-06-29 Trump’s EPA lowered efficiency standards on appliances. This agenda is outlined on page 378 of Project 2025.
+2025-06-23 Trump rescinded the Roadless Rule, which protected 58 million acres of national forest, citing wildfire prevention and timber production.
+
+[https://www.npr.org/2025/06/23/g-s1-74136/trump-to-rescind-roadless-rule-which-protects-58-million-acres-of-forest-land](https://www.npr.org/2025/06/23/g-s1-74136/trump-to-rescind-roadless-rule-which-protects-58-million-acres-of-forest-land) 
+
+
+2025-06-29 The EPA lowered appliance-efficiency standards, consistent with goals outlined in Project 2025 (page 378).
 
 [https://www.cnbc.com/2025/06/29/trump-energy-star-homeowner-appliances-electric-bill-cost.html](https://www.cnbc.com/2025/06/29/trump-energy-star-homeowner-appliances-electric-bill-cost.html)
 
@@ -131,7 +136,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.justice.gov/opa/pr/statement-revocation-biden-harris-executive-order-competition](https://www.justice.gov/opa/pr/statement-revocation-biden-harris-executive-order-competition)
 
-2025-07-10 Trump ended subsidies for electric vehicles.
+2025-07-10 Trump ended federal subsidies for electric vehicles.
 
 [https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html](https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html)
 
@@ -147,7 +152,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 August
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. For context, the Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. Also noteworthy, China has invested billions of dollars in this project, so the argument is where does the responsibility lay, with wealthy Chinese investors or the American people.
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. 
 
 [https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go](https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go)
 

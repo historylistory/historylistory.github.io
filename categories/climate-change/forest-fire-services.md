@@ -56,7 +56,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2025 June
 
-2025-06-23 Trump rescinded the “Roadless Rule” that protects 58 million acres of the National Forest system, claiming it is to allow for fire prevention and timber production.
+2025-06-23 Trump rescinded the Roadless Rule, which protected 58 million acres of national forest, citing wildfire prevention and timber production.
 
 [https://www.npr.org/2025/06/23/g-s1-74136/trump-to-rescind-roadless-rule-which-protects-58-million-acres-of-forest-land](https://www.npr.org/2025/06/23/g-s1-74136/trump-to-rescind-roadless-rule-which-protects-58-million-acres-of-forest-land) 
 

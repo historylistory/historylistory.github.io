@@ -31,7 +31,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 June
 
-2025-06-10 The Trump administration forced national parks to place QR codes so visitors could report any exhibits deemed “too woke” or disparaging (i.e. information about slavery or hurting Native Americans), or anything related to climate change and pollution.
+2025-06-10 National parks were instructed to post QR codes allowing visitors to report exhibits deemed “too woke,” including content about climate change, pollution, slavery, or Native American history.
 
 [https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs](https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs)
 
@@ -42,7 +42,7 @@ permalink: /categories/climate-change/climate-change-denial/
 [https://www.npca.org/articles/9287-make-them-hear-you](https://www.npca.org/articles/9287-make-them-hear-you)
 
 
-2025-06-26 During an interview with the New York Times, Peter Thiel made a bizarre comment suggesting that the antichrist will work through ***climate activists like child activist Greta Thunberg as “legionnaires of the Antichrist”.***
+2025-06-26 Peter Thiel suggested in a New York Times interview that climate activists, including Greta Thunberg, could serve as “legionnaires of the Antichrist.”
 
 [https://www.theguardian.com/us-news/2025/oct/10/peter-thiel-lectures-antichrist#:~:text=Or%20Christian%20democracy%2C%20which%20is,disclaimer%20that%20I%20just%20gave](https://www.theguardian.com/us-news/2025/oct/10/peter-thiel-lectures-antichrist).
 
@@ -52,7 +52,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 July
 
-2025-07-01 The Trump administration purged climate-change reports and globalchange.gov.
+2025-07-01 The administration erased climate-change reports and the website GlobalChange.gov.
 
 [https://nca2023.globalchange.gov/](https://nca2023.globalchange.gov/) NO LONGER WORKING
 
@@ -60,7 +60,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
-2025-07-23 The Trump administration forced Muir Woods National Monument to remove displays about redwood trees helping curb climate change, history about indigenous people, and displays pertaining to women’s contributions. 
+2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
 
 [https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
 
@@ -71,7 +71,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 August
 
-2025-08-12 The Union of Concerned Scientists filed a lawsuit against Trump, alleging that Energy Secretary Chris Wright ***"quietly arranged for five hand-picked skeptics of the effects of climate change"*** to compile the government's climate report and violated the law by creating the report with "only one point of view".
+2025-08-12 The Union of Concerned Scientists filed a lawsuit against Trump, alleging that Energy Secretary Chris Wright “quietly arranged for five hand-picked skeptics of the effects of climate change” to compile the government’s climate report and violated the law by creating the report with “only one point of view”.
 
 [https://www.npr.org/2025/09/02/nx-s1-5521384/energy-report-scientists-climate-change](https://www.npr.org/2025/09/02/nx-s1-5521384/energy-report-scientists-climate-change)
 

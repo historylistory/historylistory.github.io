@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 ### 2025 August - Copper Mining
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. For context, the Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. Also noteworthy, China has invested billions of dollars in this project, so the argument is where does the responsibility lay, with wealthy Chinese investors or the American people.
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. 
 
 [https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go](https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go)
 
@@ -19,6 +19,10 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 [https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa](https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa)
 
 {% include youtubePlayer.html id="F6doRiySIB0" %}
+
+2025-08-26 Trump cancelled a nearly complete offshore wind project (Revolution Wind in RI and CT) and announced his plans to “drill-baby-drill” stating, “We don’t call it coal, we call it clean coal, and even very very clean coal”.
+
+{% include youtubePlayer.html id="sp97kSwaBfQ" %}
 
 ### 2025 October
 
