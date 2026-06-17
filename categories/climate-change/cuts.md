@@ -8,7 +8,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2017
 
-2017-01-01 Trump proposed a 16% cut to NOAA's budget and deeper cuts to the Office of Oceanic and Atmospheric Research. Both proposals were rejected by Congress.
+2017-01-01 Trump proposed a 16% cut to NOAA and deeper cuts to the Office of Oceanic and Atmospheric Research. Congress rejected both. 
 
 [https://www.aip.org/fyi/2017/trump-budget-cuts-noaa-16-slashes-research-funding-even-deeper](https://www.aip.org/fyi/2017/trump-budget-cuts-noaa-16-slashes-research-funding-even-deeper)
 
@@ -21,7 +21,7 @@ permalink: /categories/climate-change/cuts/
 
 ### 2025 January
 
-2025-01-20 Pages 674 and 675 of Project 2025 label organizations like The National Weather Service as climate-change alarmists and call for action to dismantle them, The National Ocean Service, The Oceanic and Atmospheric Research, The National Environmental Satellite, Data and information Service, The national Marine Fisheries Service, and the Office of Marine and Aviation Operations and NOAA Corps.
+2025-01-20 Project 2025 (pp. 674–675) labels several NOAA-related agencies as climate alarmists and calls for dismantling or restructuring them (The National Ocean Service, The Oceanic and Atmospheric Research, The National Environmental Satellite, Data and information Service, The national Marine Fisheries Service, and the Office of Marine and Aviation Operations and NOAA Corps).
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 
@@ -36,6 +36,10 @@ permalink: /categories/climate-change/cuts/
 2025-01-20 Trump rescinded Executive Order 14027 Establishment of the Climate Change Support Office.
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/) 
+
+2025-01-20 Trump rescinded Executive Order 14030 Climate-Related Financial Risk.
+
+[https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
 ### 2025 February
 

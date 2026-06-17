@@ -8,13 +8,13 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2019
 
-2019-11-25 During an episode of Fox News, news anchor Tomi Lahren called environmental protests "tantrums" and said, quote, ***"I'm sick and tired of the crybabies"***.
+2019-11-25 Fox commentator Tomi Lahren dismissed environmental protests as “tantrums,” saying, “I’m sick and tired of the crybabies.”
 
 [https://www.foxnews.com/media/tomi-lahren-climate-protesters-harvard-yale-football](https://www.foxnews.com/media/tomi-lahren-climate-protesters-harvard-yale-football)
 
 ### 2025 January
 
-2025-01-20 Pages 674 and 675 of Project 2025 label organizations like The National Weather Service as ***climate-change alarmists*** and call for action to dismantle them, The National Ocean Service, The Oceanic and Atmospheric Research, The National Environmental Satellite, Data and information Service, The national Marine Fisheries Service, and the Office of Marine and Aviation Operations and NOAA Corps.
+2025-01-20 Project 2025 (pp. 674–675) labels several NOAA-related agencies as climate alarmists and calls for dismantling or restructuring them (The National Ocean Service, The Oceanic and Atmospheric Research, The National Environmental Satellite, Data and information Service, The national Marine Fisheries Service, and the Office of Marine and Aviation Operations and NOAA Corps).
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 

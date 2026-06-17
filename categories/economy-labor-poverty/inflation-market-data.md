@@ -88,7 +88,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2024
 
-2024-04-01 Due to global climate change, cocoa hit its highest spike in price. Companies used shrinkflation tactics like less than 10% chocolate in some of their products and replacing them with chocolate compound. Companies also replaced cocoa butter with palm kernel oil. The FDA required those companies to re-label their products as “chocolate candy” or “chocolatey” in lieu of “milk chocolate” when reaching below-10% margins. It is estimated that due to climate change chocolate production could come to a halt around 2050. 
+2024-04-01 Climate-related cocoa shortages drove prices to record highs. Some manufacturers reduced cocoa content, substituted palm kernel oil for cocoa butter, and relabeled products under FDA rules. Some estimates suggest chocolate production could become severely threatened by 2050.
 
 [https://www.pbs.org/newshour/show/candy-makers-quietly-change-recipes-as-climate-change-hits-cocoa-industry](https://www.pbs.org/newshour/show/candy-makers-quietly-change-recipes-as-climate-change-hits-cocoa-industry)
 

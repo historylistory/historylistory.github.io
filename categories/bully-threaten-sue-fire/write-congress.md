@@ -30,7 +30,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2000-01-01 Trump frequently used derogatory nicknames and insults against political opponents. 
 
-2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. 
+2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
+
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 

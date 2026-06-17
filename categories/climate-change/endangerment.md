@@ -8,7 +8,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2019
 
-2019-06-27 Ohio House Bill 6 “Clean Air Program” was seen as a bailout to provide subsidies to very specific companies in Ohio like FirstEnergy. Context: FirstEnergy dumped arsenic coal waste in 2013.
+2019-06-27 Ohio House Bill 6’s “Clean Air Program” was viewed as a bailout benefiting specific companies, including FirstEnergy, which had dumped arsenic-laden coal waste in 2013.
 
 [https://www.legislature.ohio.gov/legislation/133/hb6](https://www.legislature.ohio.gov/legislation/133/hb6)
 
@@ -21,7 +21,7 @@ permalink: /categories/climate-change/endangerment/
 
 ### 2023
 
-2023-09-08 Reports of concern surrounding Nebraska Governor Jim Pillen’s family farm and nitrates in the local drinking water.
+2023-09-08 Reports raised concerns about Nebraska Governor Jim Pillen’s family farm and nitrate contamination in local drinking water.
 
 [https://nebraskapublicmedia.org/es/news/news-articles/pillens-water-high-nitrate-detected-on-hog-farms-owned-by-nebraskas-governor/](https://nebraskapublicmedia.org/es/news/news-articles/pillens-water-high-nitrate-detected-on-hog-farms-owned-by-nebraskas-governor/)
 

@@ -12,7 +12,8 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 ### 2012
 
-2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. 
+2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
+
 
 [https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641](https://www.bbc.com/news/uk-scotland-north-east-orkney-shetland-47400641)
 

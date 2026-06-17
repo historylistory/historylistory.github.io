@@ -18,7 +18,7 @@ permalink: /categories/climate-change/paris-climate-agreement/
 
 ### 2017
 
-2017-06-01 Trump withdrew the U.S. from the Paris Climate Accord.
+2017-06-01 Trump withdrew the United States from the Paris Climate Accord.
 
 [https://globalaffairs.org/research/public-opinion-survey/despite-us-withdrawal-paris-agreement-majority-still-supports-it](https://globalaffairs.org/research/public-opinion-survey/despite-us-withdrawal-paris-agreement-majority-still-supports-it)
 

@@ -8,7 +8,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2017
 
-2017-01-01 Trump proposed deep budget cuts to the U.S. Forest Service.
+2017-01-01 Trump proposed major budget cuts to the U.S. Forest Service.
 
 [https://www.eesi.org/articles/view/what-is-cut-in-trumps-usda-budget-a-lot-it-turns-out#:~:text=The%20White%20House%20budget%20proposal%20for%202017,of%20the%20Rural%20Business%20and%20Cooperative%20Service%E2%80%9D](https://www.eesi.org/articles/view/what-is-cut-in-trumps-usda-budget-a-lot-it-turns-out)
 
@@ -24,7 +24,7 @@ permalink: /categories/climate-change/forest-fire-services/
 
 ### 2018
 
-2018-01-01 The Trump administration attempted to eliminate the Joint Fire Science Program entirely, which supports research on fire prevention and management.
+2018-01-01 The Trump administration tried to eliminate the Joint Fire Science Program, which funds wildfire prevention and management research.
 
 [https://www.motherjones.com/environment/2018/08/as-wildfires-rage-trump-administration-plans-to-slash-fire-science-funding/](https://www.motherjones.com/environment/2018/08/as-wildfires-rage-trump-administration-plans-to-slash-fire-science-funding/)
 

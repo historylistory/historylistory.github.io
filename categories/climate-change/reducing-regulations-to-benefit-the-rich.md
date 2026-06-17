@@ -11,13 +11,13 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2016
 
-2016-12-31 During his podcast, RFK warned that Trump will try to eliminate environmental protections including things like safe water.
+2016-12-31 On his podcast, RFK Jr. warned that Trump would attempt to dismantle environmental protections, including safe-water safeguards.
 
 [https://www.cnn.com/2024/11/21/politics/kfile-rfk-jr-trump-critique](https://www.cnn.com/2024/11/21/politics/kfile-rfk-jr-trump-critique)
 
 ### 2017
 
-2017-01-26 US National Parks began posting on social media in protest of Trump’s policy on climate change. This came after Trump signed executive orders to push forward with two major oil pipelines, archived climate change information to the obamawhitehouse.archives website and threatened to take down EPA websites.
+2017-01-26 National Parks social media accounts protested Trump’s climate policies after he advanced two major oil pipelines, archived climate 
 
 [https://www.bbc.com/news/world-us-canada-38745829](https://www.bbc.com/news/world-us-canada-38745829)
 
@@ -29,13 +29,13 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2018
 
-2018-03-14 The Heritage Foundation published an article calling for the repeal of NEPA, which is the National Environmental Policy Act requiring federal agencies to assess the environmental effects of public works projects. The article reads, “On February 12, 2018, the Trump administration unveiled a $1.5 trillion initiative to repair the nation’s roads, bridges, airports and railways. The first step should be to reduce the regulatory barriers that impede infrastructure projects and vastly inflate their costs”.
+2018-03-14 The Heritage Foundation called for repealing NEPA, arguing environmental reviews slow and increase the cost of infrastructure projects.
 
 [https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa](https://www.heritage.org/government-regulation/report/time-repeal-the-obsolete-national-environmental-policy-act-nepa)
 
 ### 2019
 
-2019-06-27 Ohio House Bill 6 “Clean Air Program” was seen as a bailout to provide subsidies to very specific companies in Ohio like FirstEnergy. Context: FirstEnergy dumped arsenic coal waste in 2013.
+2019-06-27 Ohio House Bill 6’s “Clean Air Program” was viewed as a bailout benefiting specific companies, including FirstEnergy, which had dumped arsenic-laden coal waste in 2013.
 
 [https://www.legislature.ohio.gov/legislation/133/hb6](https://www.legislature.ohio.gov/legislation/133/hb6)
 
@@ -47,13 +47,13 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2024
 
-2024-07-02 During an interview on Breaking Points, RFK talked about regulatory agencies in the hands of corporations and stated, quote, "When a regulatory agency becomes captured by corporations, it also functions to widen corporate power".
+2024-07-02 On Breaking Points, RFK Jr. said, “When a regulatory agency becomes captured by corporations, it also functions to widen corporate power”.
 
 {% include youtubePlayer.html id="Ke08e2Bfz00" %}
 
 ### 2025 January
 
-2025-01-20 Page 377 of Project 2025 outlines Trump's goal to boost the coal industry, which aligned with him signing an executive order to do so.
+2025-01-20 Project 2025 (p. 377) outlines the goal to expand coal production.
 
 {% include youtubePlayer.html id="LnGsyz4-xf4" %}
 
