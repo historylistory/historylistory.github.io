@@ -362,7 +362,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 ### 2025 December
 
 
-2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
+2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
 [https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/)
 
@@ -438,7 +438,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
 
-2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed.
+2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He ran Honduras as a narco state and accepted millions of dollars in bribes. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed. In May 2026 leaked audio revealed that the US, Israel and Honduras were involved in a joint scheme together to target leftist governments in Latin America. 
 
 [https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
 
@@ -449,6 +449,13 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
 
 [https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
+
+[https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments](https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments)
+
+[https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/](https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/)
+
+TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+
 
 2026-01-21 The FCC again threatened ABC's broadcast license over programming involving Jimmy Kimmel and Stephen Colbert. 
 

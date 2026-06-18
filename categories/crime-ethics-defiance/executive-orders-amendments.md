@@ -24,7 +24,7 @@ permalink: /categories/crime-ethics-defiance/executive-orders-amendments/
 
 ### 2025 November
 
-2025-11-28 Trump announced plans to revoke all Biden autopen executive orders.
+2025-11-28 Trump announced he would revoke all executive orders Biden signed with an autopen.
 
 [https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373](https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373)
 

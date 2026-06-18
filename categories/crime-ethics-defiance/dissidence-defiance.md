@@ -230,7 +230,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 December
 
-2025-12-08 The Supreme Court gathered to hear arguments to expand presidential power which would allow the president to fire anyone for any reason regardless of merit. The vote was poised to take place later in June 2026, and the decision could restructure the checks and balances of power within the federal government.
+2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority. A decision expected in June 2026 could reshape federal checks and balances.
 
 [https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive](https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive)
 
@@ -238,7 +238,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464](https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464)
 
-2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
+2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
 [https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/)
 
@@ -246,7 +246,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/](https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/)
 
-2025-12-20 The DOJ released only part of the Epstein files, and what they did release was heavily redacted and incomplete. Some news outlets reported that some of the files that had included Trump quickly disappeared from the DOJ website. Since this date, the DOJ had repeatedly violated and ignored the Epstein Files Transparency Act by redacting, hiding, or “forgetting” to include documents that referred to Trump, and waited until March 2026 before releasing three pages related to a sexual assault allegation from a 13-year-old girl against Trump.
+2025-12-20 The DOJ released only a heavily redacted portion of the Epstein files. Reports alleged some files mentioning Trump appeared then quickly disappeared from the DOJ website. Critics accused the DOJ of repeatedly withholding or redacting relevant documents, including a sexual-assault allegation against Trump involving a 13-year-old girl.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/4405](https://www.congress.gov/bill/119th-congress/house-bill/4405)
 

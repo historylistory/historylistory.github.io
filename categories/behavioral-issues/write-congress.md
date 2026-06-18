@@ -302,7 +302,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
 
-2025-11-28 Trump announced plans to revoke all Biden autopen executive orders.
+2025-11-28 Trump announced he would revoke all executive orders Biden signed with an autopen.
 
 2025-11-29 Trump declared Venezuelan airspace should be closed even though he does not have the authority to close another country’s airspace.
 

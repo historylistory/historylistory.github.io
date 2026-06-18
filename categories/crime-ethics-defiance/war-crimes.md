@@ -99,7 +99,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2025 December
 
-2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
+2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
 [https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10/)
 

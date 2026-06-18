@@ -243,7 +243,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies](https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies)
 
-2025-11-28 Trump announced plans to revoke all Biden autopen executive orders.
+2025-11-28 Trump announced he would revoke all executive orders Biden signed with an autopen.
 
 [https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373](https://www.nbcnews.com/politics/trump-administration/trump-cancelling-biden-executive-orders-signed-autopen-rcna246373)
 

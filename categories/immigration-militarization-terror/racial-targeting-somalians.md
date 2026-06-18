@@ -62,7 +62,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 ### 2026 January
 
-2026-01-09 The Mississippi Free Press published an article reminding readers that former director of the Mississippi Department of Human Services was arrested six years prior for diverting millions of federal welfare dollars, giving those fraudulent funds to people like former WWE wrestlers and other athletes for personal use. For context, this article was published shortly after the Trump administration launched its attack on Minnesota for welfare fraud, specifically targeting Somali residents.
+2026-01-09 The Mississippi Free Press published an article reminding readers that former director of the Mississippi Department of Human Services was arrested six years prior for diverting millions of federal welfare dollars, giving those fraudulent funds to people like former WWE wrestlers and other athletes for personal use. This article was published shortly after the Trump administration launched its attack on Minnesota for welfare fraud, specifically targeting Somali residents.
 
 [https://mississippitoday.org/2026/01/09/disgraced-welfare-director-takes-stand/](https://mississippitoday.org/2026/01/09/disgraced-welfare-director-takes-stand/)
 

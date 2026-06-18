@@ -105,6 +105,28 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 [https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
 
+### Mohammed bin Salman
+
+2025-11-18 The White House hosted Saudi Crown Prince Mohammed bin Salman for talks involving Trump family investments, AI chips, nuclear energy, and the Abraham Accords. The crown prince had previously faced scrutiny over the brutal dismemberment and killing of journalist Jamal Khashoggi. Jared Kushner has business ties with Saudi Arabia, has helped broker the Abraham Accords, and is a close friend with Salman.
+
+[https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/](https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/)
+
+[https://www.reuters.com/world/us/trump-welcome-saudi-crown-prince-with-offer-fighter-jets-business-deals-2025-11-18/](https://www.reuters.com/world/us/trump-welcome-saudi-crown-prince-with-offer-fighter-jets-business-deals-2025-11-18/)
+
+[https://www.npr.org/2025/11/18/nx-s1-5608100/saudi-prince-white-house-visit](https://www.npr.org/2025/11/18/nx-s1-5608100/saudi-prince-white-house-visit)
+
+[https://apnews.com/article/trump-saudi-crown-prince-mbs-505b32527e58d4bd49d5bc917efb4936](https://apnews.com/article/trump-saudi-crown-prince-mbs-505b32527e58d4bd49d5bc917efb4936)
+
+[https://www.bbc.com/news/world-europe-45812399](https://www.bbc.com/news/world-europe-45812399)
+
+[https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi](https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi)
+
+[https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html](https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html)
+
+FRIENDSHIPS: [https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486](https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486)
+
+BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire](https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire)
+
 
 
 ### Israeli Investors

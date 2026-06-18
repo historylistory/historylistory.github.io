@@ -368,8 +368,6 @@ Manhattan grand jury in the hush-money case.
 
 2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
 
-2025-12-01 Trump announced plans to pardon Honduras president Juan Orlando Hernandez just ahead of current elections. Hernandez was in prison for directing a massive cocaine trafficking operation while holding the presidency from 2014 to 2022. He ran Honduras as a narco state and accepted millions of dollars in bribes. For context, Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals. Later Trump threatened there would be “Hell to Pay” if the Honduras presidential election results were changed, insinuating that there may be election tampering. Trump actually pardoned him in January 2026. Hernandez helped flood the U.S. with over 400 tons of cocaine. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. 
-
 2025-12-01 Senator Mark Kelly and his wife received increased death threats after Trump threatened him with execution.
 
 2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
@@ -378,7 +376,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-12-10 Trump accused The New York Times and others of sedition and treason for questioning his mental fitness. 
 
-2025-12-10 Reuters reported that the administration sought changes to the International Criminal Court's governing framework and threatened sanctions if those changes were not made. Trump and his senior officials allegedly demanded the ICC not investigate or prosecute them for any war crimes. 
+2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
 2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
 
@@ -401,6 +399,8 @@ Manhattan grand jury in the hush-money case.
 2026-01-16 Trump threatened tariffs against countries unwilling to support U.S. control of Greenland
 
 2026-01-19 Trump demanded the Nobel Prize in a message to the Norwegian Prime Minister Jonas Gahr Store while insisting on “complete and total control of Greenland.” He added, “I no longer feel an obligation to think purely of Peace”.
+
+2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He ran Honduras as a narco state and accepted millions of dollars in bribes. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed. In May 2026 leaked audio revealed that the US, Israel and Honduras were involved in a joint scheme together to target leftist governments in Latin America. 
 
 2026-01-21 The FCC again threatened ABC's broadcast license over programming involving Jimmy Kimmel and Stephen Colbert. 
 

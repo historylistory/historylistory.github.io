@@ -49,7 +49,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight](https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight)
 
-2026-01-20 When Trump pardoned 1500 J6 insurrectionists (including Proud Boys leader Enrique Tarrio), he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods. 
+2026-01-20 When Trump pardoned 1500 J6 insurrectionists (including Proud Boys leader Enrique Tarrio), he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods.
 
 [https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735](https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735)
 
@@ -70,7 +70,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
-2026-01-20 Trump pardoned Andrew Paul Johnson, who was charged for storming the Capitol. Once released, he sexually abused a child, then tried to buy the child’s silence by telling the child victim he was going to give them $10M. 
+2026-01-20 Trump pardoned Andrew Paul Johnson, a Capitol-riot defendant who was later accused of sexually abusing a child and attempting to buy the child's silence with a promised $10 million payment.
 
 [https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627](https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627)
 
@@ -78,13 +78,13 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf](https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf)
 
-2026-01-20 Due to Trumps pardons, he has taken a $1.3B away from victims and survivors in restitution. 
+2026-01-20 Trump's pardons eliminated approximately $1.3 billion in restitution owed to victims and survivors.
 
 [https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/](https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/)
 
 [https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/](https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/)
 
-2026-01-20 Of the many people who petitioned for pardons, Trump granted clemency to only 10 through the formal process. He personally selected the rest, often without providing a clear rationale. There is a recurring pattern though: significant media attention, financial connections, or Trump's personal interests and vanity.
+2026-01-20 Of the many clemency petitions submitted, Trump granted only 10 through the formal review process. All pardons followed a pattern: significant media attention, financial connections, or Trump’s personal interests and vanity.
 
 [https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists](https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists)
 
@@ -273,7 +273,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/](https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/)
 
-2025-11-30 Trump commuted the sentence of fraudster David Gentile. For context, David Gentile was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
+2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
 [https://abcnews.go.com/US/wireStory/trump-commutes-prison-sentence-former-private-equity-executive-127985735](https://abcnews.go.com/US/wireStory/trump-commutes-prison-sentence-former-private-equity-executive-127985735)
 
@@ -302,13 +302,13 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://inewsource.org/2026/01/16/trump-pardons-south-bay-fraud/](https://inewsource.org/2026/01/16/trump-pardons-south-bay-fraud/)
 
-2026-01-16 Trump pardoned 21 repeat offenders of fraud, insider trading, finance violations, and other schemes.
+2026-01-16 Trump pardoned 21 repeat offenders of fraud, insider trading, finance violations, and related crimes.
 
 [https://apnews.com/article/trump-pardons-donor-twice-convicted-fraud-99263a04b8a60ce8c081b9c5feaffd2e](https://apnews.com/article/trump-pardons-donor-twice-convicted-fraud-99263a04b8a60ce8c081b9c5feaffd2e)
 
 [https://www.cnn.com/2026/01/16/politics/wanda-vazquez-trump-pardon-puerto-rico](https://www.cnn.com/2026/01/16/politics/wanda-vazquez-trump-pardon-puerto-rico)
 
-2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed.
+2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He ran Honduras as a narco state and accepted millions of dollars in bribes. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed. In May 2026 leaked audio revealed that the US, Israel and Honduras were involved in a joint scheme together to target leftist governments in Latin America. 
 
 [https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela](https://www.wbur.org/hereandnow/2025/12/01/trump-honduras-venezuela)
 
@@ -319,6 +319,13 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 [https://www.bbc.com/news/articles/cx2dgp8mvmno](https://www.bbc.com/news/articles/cx2dgp8mvmno)
 
 [https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/](https://www.middleeastmonitor.com/20251201-trump-warns-honduras-back-my-preferred-candidate-or-risk-losing-us-aid/)
+
+[https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments](https://www.democracynow.org/2026/5/8/headlines/us_and_israel_worked_with_disgraced_ex_president_of_honduras_to_destabilize_leftist_governments)
+
+[https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/](https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/)
+
+TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+
 
 ### 2026 February
 

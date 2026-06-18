@@ -276,7 +276,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.bbc.com/news/articles/cvgv653v1vjo](https://www.bbc.com/news/articles/cvgv653v1vjo)
 
-2025-11-18 During a press conference, Mike Johnson said the discharge petition for the Epstein files would put victims at risk and create new victims and said he talked to Senate leader Thune about amending the petition.
+2025-11-18 Speaker Mike Johnson claimed that releasing the Epstein files through a discharge petition could endanger victims and said he discussed possible changes with Senate Majority Leader John Thune.
 
 [https://www.politico.com/live-updates/2025/11/18/congress/johnson-thune-epstein-files-gop-00658475](https://www.politico.com/live-updates/2025/11/18/congress/johnson-thune-epstein-files-gop-00658475)
 
@@ -286,7 +286,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2025 December
 
-2025-12-20 The DOJ released only part of the Epstein files, and what they did release was heavily redacted and incomplete. Some news outlets reported that some of the files that had included Trump quickly disappeared from the DOJ website. Since this date, the DOJ had repeatedly violated and ignored the Epstein Files Transparency Act by redacting, hiding, or “forgetting” to include documents that referred to Trump, and waited until March 2026 before releasing three pages related to a sexual assault allegation from a 13-year-old girl against Trump.
+2025-12-20 The DOJ released only a heavily redacted portion of the Epstein files. Reports alleged some files mentioning Trump appeared then quickly disappeared from the DOJ website. Critics accused the DOJ of repeatedly withholding or redacting relevant documents, including a sexual-assault allegation against Trump involving a 13-year-old girl.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/4405](https://www.congress.gov/bill/119th-congress/house-bill/4405)
 
@@ -296,11 +296,14 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2026 January
 
-2026-01-13 Trump’s House Oversight Committee announced they would hold Clinton in contempt for not responding to a subpoena over the Epstein case. Up to this date, the Trump administration still had failed to release the Epstein files and had only released about 1%.
+2026-01-13 The House Oversight Committee tried to hold Bill Clinton in contempt over an Epstein-related subpoena. At that point, only about 1% of the Epstein files had been released. Both Bill and Hillary Clinton asked for a public testimony for full transparency and were denied.  
 
 [https://www.nbcnews.com/politics/congress/house-gop-seeks-hold-clinton-contempt-skipping-epstein-deposition-rcna253780](https://www.nbcnews.com/politics/congress/house-gop-seeks-hold-clinton-contempt-skipping-epstein-deposition-rcna253780)
 
 [https://www.bbc.com/news/articles/c79l38vl3lwo](https://www.bbc.com/news/articles/c79l38vl3lwo)
+
+[https://www.pbs.org/newshour/politics/hillary-clinton-calls-for-public-hearing-in-house-epstein-investigation](https://www.pbs.org/newshour/politics/hillary-clinton-calls-for-public-hearing-in-house-epstein-investigation)
+
 
 ### 2026 February
 

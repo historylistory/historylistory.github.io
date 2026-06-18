@@ -98,7 +98,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2025 December
 
-2025-12-08 The Supreme Court gathered to hear arguments to expand presidential power which would allow the president to fire anyone for any reason regardless of merit. The vote was poised to take place later in June 2026, and the decision could restructure the checks and balances of power within the federal government.
+2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority. A decision expected in June 2026 could reshape federal checks and balances.
 
 [https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive](https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive)
 

@@ -72,10 +72,9 @@ PAY WALL [https://www.washingtonpost.com/business/2025/10/27/private-equity-hosp
 [https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/](https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/)
 
 
-
-
 ### 2025 
-2025-11-30 Trump commuted the sentence of fraudster David Gentile. For context, David Gentile was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
+
+2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
 [https://apnews.com/article/trump-clemency-commutation-david-gentile-fraud-4901d5e2f710b47ee0372a3f0835fa6c](https://apnews.com/article/trump-clemency-commutation-david-gentile-fraud-4901d5e2f710b47ee0372a3f0835fa6c)
 
