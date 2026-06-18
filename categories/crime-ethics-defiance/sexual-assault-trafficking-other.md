@@ -58,7 +58,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 2022 February
 
-2022-02-15 Prince Andrew settled a sex settlement case to Virginia Giuffre.
+2022-02-15 Prince Andrew settled a sex settlement case of Virginia Giuffre.
 
 [https://www.npr.org/2022/02/15/1080884945/prince-andrew-settles-with-virginia-giuffre-in-sexual-abuse-lawsuit](https://www.npr.org/2022/02/15/1080884945/prince-andrew-settles-with-virginia-giuffre-in-sexual-abuse-lawsuit)
 

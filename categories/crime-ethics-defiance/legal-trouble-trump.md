@@ -70,7 +70,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://protectdemocracy.org/wp-content/uploads/2023/01/Combined-NDAs-PDF.pdf](https://protectdemocracy.org/wp-content/uploads/2023/01/Combined-NDAs-PDF.pdf)
 
-2020-07-02 The ACLU and a priest both filed lawsuits against the Attorney General & others for rushing the execution of Wesley Purkey.
+2020-07-02 The ACLU and a Catholic priest filed separate lawsuits challenging the federal government's expedited execution of Wesley Purkey.
 
 [https://www.nbcnews.com/news/us-news/buddhist-priest-sues-halt-federal-execution-because-coronavirus-risk-n1232777](https://www.nbcnews.com/news/us-news/buddhist-priest-sues-halt-federal-execution-because-coronavirus-risk-n1232777)
 
@@ -78,7 +78,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.aclu.org/press-releases/aclu-immigrants-rights-groups-sue-trump-administration-over-new-census-order](https://www.aclu.org/press-releases/aclu-immigrants-rights-groups-sue-trump-administration-over-new-census-order)
 
-2020-12-21 The NAACP sued Trump over allegations to disenfranchise Black voters in Michigan.
+2020-12-21 The NAACP sued Trump over allegations that the administration is deliberately trying to disenfranchise Black voters in Michigan.
 
 [https://naacp.org/articles/naacp-sues-president-trump-systematically-trying-disenfranchise-black-voters](https://naacp.org/articles/naacp-sues-president-trump-systematically-trying-disenfranchise-black-voters)
 
@@ -88,17 +88,17 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 ### 2021 January
 
-2021-01-06 J6 RIOTS - I have a separate section specifically for the insurrection. Multiple lawsuits were filed for damages and bodily harm incurred from the J6 insurrection.
+2021-01-06 January 6 riots. Multiple lawsuits were filed seeking damages for injuries and losses related to the insurrection. (Covered separately.)
 
 [https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election](https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election)
 
 [https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf](https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf)
 
-2021-01-11 The House introduced resolution 24 to impeach Trump for insurrection, but it failed a majority vote February 2021
+2021-01-11 The House introduced Resolution 24 to impeach Trump for incitement of insurrection; it failed to secure a majority vote in February 2021.
 
 [https://guides.loc.gov/federal-impeachment/donald-trump](https://guides.loc.gov/federal-impeachment/donald-trump)
 
-2021-01-15 Attorney General Letitia James probed Trump's company for inflating property values on annual financial statements.
+2021-01-15 New York Attorney General Letitia James investigated Trump's company for allegedly inflating property values on financial statements.
 
 [https://www.cnbc.com/2021/01/15/trump-criminal-investigation-manhattan-da-probes-seven-springs-estate.html](https://www.cnbc.com/2021/01/15/trump-criminal-investigation-manhattan-da-probes-seven-springs-estate.html)
 
@@ -116,7 +116,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/why-trump-organization-reportedly-facing-new-criminal-inquiry-n1282047](https://www.msnbc.com/rachel-maddow-show/maddowblog/why-trump-organization-reportedly-facing-new-criminal-inquiry-n1282047)
 
-2021-10-31 Financial regulators investigated Trump's SPAC. Articles referenced topics like securities fraud violations and insider trading.
+2021-10-31 Financial regulators investigated Trump's SPAC amid allegations involving securities violations and insider trading.
 
 [https://www.cnbc.com/2021/12/06/trump-spac-investigated-by-federal-regulators-including-sec.html](https://www.cnbc.com/2021/12/06/trump-spac-investigated-by-federal-regulators-including-sec.html)
 
@@ -124,13 +124,13 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 ### 2021 November
 
-2021-11-05 A Delaware county voting machine warehouse supervisor sued Trump for defamation after the employee received threats of violence.
+2021-11-05 A Delaware County voting machine warehouse supervisor sued Trump for defamation after receiving threats following election-related claims.
 
 [https://www.phillyvoice.com/donald-trump-lawsuit-defamation-delaware-county-2020-election-fraud-pennsylvania/](https://www.phillyvoice.com/donald-trump-lawsuit-defamation-delaware-county-2020-election-fraud-pennsylvania/)
 
 ### 2022 January
 
-2022-01-31 This date marks the beginning timeline for the classified documents incident at Mar-a-Lago.
+2022-01-31 Approximate start date of the Mar-a-Lago classified documents investigation timeline.
 
 [https://www.pbs.org/newshour/politics/a-timeline-of-events-leading-up-to-the-fbi-search-of-trumps-florida-estate](https://www.pbs.org/newshour/politics/a-timeline-of-events-leading-up-to-the-fbi-search-of-trumps-florida-estate)
 

@@ -99,7 +99,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his
 
-2021-01-17 An upside-down flag was spotted hanging outside Samuel Alito’s Virginia home, and an “An Appeal to Heaven” flag was hanging outside his second home in New Jersey. Both versions of the flag displays have been associated with ultra right-wing Christian Nationalist causes.
+2021-01-17 An upside-down U.S. flag was displayed outside Justice Samuel Alito's Virginia home, and an "Appeal to Heaven" flag flew at his New Jersey property. Both symbols have been linked to far-right Christian nationalist movements.
 
 [https://www.brennancenter.org/our-work/analysis-opinion/alito-and-his-upside-down-flag-make-case-supreme-court-term-limits](https://www.brennancenter.org/our-work/analysis-opinion/alito-and-his-upside-down-flag-make-case-supreme-court-term-limits)
 

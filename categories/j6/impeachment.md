@@ -8,7 +8,7 @@ permalink: /categories/j6/impeachment/
 
 ### 2021
 
-2021-01-11 The House introduced resolution 24 to impeach Trump for insurrection, but it failed by a majority vote in February 2021.
+2021-01-11 The House introduced Resolution 24 to impeach Trump for incitement of insurrection; it failed to secure a majority vote in February 2021.
 
 [https://guides.loc.gov/federal-impeachment/donald-trump](https://guides.loc.gov/federal-impeachment/donald-trump)
 
