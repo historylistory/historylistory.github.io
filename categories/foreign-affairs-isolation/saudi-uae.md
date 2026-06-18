@@ -29,14 +29,6 @@ permalink: /categories/foreign-affairs-isolation/saudi-uae/
 
 [https://www.irishtimes.com/news/world/us/maureen-dowd-saudis-medieval-barbarity-is-enabled-by-us-faustian-pact-1.3670842#:~:text=Faustian%20deal,obliterated%20under%20a%20black%20tarp](https://www.irishtimes.com/news/world/us/maureen-dowd-saudis-medieval-barbarity-is-enabled-by-us-faustian-pact-1.3670842).
 
-### 2017 Kushner Conflict of Interest
-
-2017-01-01 Sources reported that Jared Kushner is close friends with Netanyahu and Muhammed bin Salman, and even though he is not part of the White House staff he has helped broker Abraham Accords. He has business ties with Saudi Arabia, and this is a huge conflict of interest that the US government has been overlooking since Trump took office his second term.
-
-[https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486](https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486)
-
-[https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire](https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire)
-
 ### 2018 NBS Killed a Journalist
 
 2018-10-02 Trump ignored the fact that Saudi journalist and Washington Post columnist Jamal Khashoggi was murdered inside the Saudi consulate in Istanbul, Turkey.
@@ -62,13 +54,36 @@ permalink: /categories/foreign-affairs-isolation/saudi-uae/
 [https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/](https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/)
 
 
-### 2025
+### 2025 May
 
 2025-05-21 Saudi Arabia gifted Trump with a luxury jetliner.
 
 [https://www.cnn.com/2025/05/14/politics/video/trump-plan-accept-qatari-jet-digvid](https://www.cnn.com/2025/05/14/politics/video/trump-plan-accept-qatari-jet-digvid)
 
 [https://www.cnn.com/2025/05/14/world/video/qatar-pm-becky-anderson-trump-luxury-jet-digvid](https://www.cnn.com/2025/05/14/world/video/qatar-pm-becky-anderson-trump-luxury-jet-digvid)
+
+### 2025 November
+
+2025-11-18 The White House hosted Saudi Crown Prince Mohammed bin Salman for talks involving Trump family investments, AI chips, nuclear energy, and the Abraham Accords. The crown prince had previously faced scrutiny over the brutal dismemberment and killing of journalist Jamal Khashoggi. Jared Kushner has business ties with Saudi Arabia, has helped broker the Abraham Accords, and is a close friend with Salman.
+
+[https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/](https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/)
+
+[https://www.reuters.com/world/us/trump-welcome-saudi-crown-prince-with-offer-fighter-jets-business-deals-2025-11-18/](https://www.reuters.com/world/us/trump-welcome-saudi-crown-prince-with-offer-fighter-jets-business-deals-2025-11-18/)
+
+[https://www.npr.org/2025/11/18/nx-s1-5608100/saudi-prince-white-house-visit](https://www.npr.org/2025/11/18/nx-s1-5608100/saudi-prince-white-house-visit)
+
+[https://apnews.com/article/trump-saudi-crown-prince-mbs-505b32527e58d4bd49d5bc917efb4936](https://apnews.com/article/trump-saudi-crown-prince-mbs-505b32527e58d4bd49d5bc917efb4936)
+
+[https://www.bbc.com/news/world-europe-45812399](https://www.bbc.com/news/world-europe-45812399)
+
+[https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi](https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi)
+
+[https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html](https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html)
+
+FRIENDSHIPS: [https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486](https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486)
+
+BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire](https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire)
+
 
 ### 2026 January
 

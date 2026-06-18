@@ -89,7 +89,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2025 November
 
-. 2025-11-11 A Louisiana girl was expelled after hitting a boy who repeatedly shared AI-generated deepfake nudes of her.
+2025-11-11 A Louisiana girl was expelled after hitting a boy who repeatedly shared AI-generated deepfake nudes of her.
 
 [https://www.wwnytv.com/2025/11/12/girl-13-expelled-hitting-classmate-who-made-deepfake-porn-image-her-lawyers-say/](https://www.wwnytv.com/2025/11/12/girl-13-expelled-hitting-classmate-who-made-deepfake-porn-image-her-lawyers-say/)
 

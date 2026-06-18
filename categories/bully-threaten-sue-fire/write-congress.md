@@ -356,7 +356,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-30 Trump threatened to use a "nuclear option" to reopen the government. 
 
-2025-11-03 Reports alleged Kash Patel fired FBI veteran Steven Palmer shortly after scrutiny over Patel's use of a government jet to visit is girlfriend. 
+2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency's aircraft fleet.
 
 2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
 

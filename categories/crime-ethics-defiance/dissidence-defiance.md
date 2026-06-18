@@ -220,7 +220,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.notus.org/courts/ronald-reagan-appointed-federal-judge-resign-quit-trump](https://www.notus.org/courts/ronald-reagan-appointed-federal-judge-resign-quit-trump)
 
-2025-11-12 Due to Republican defiance, Adelita Grijalva was only finally sworn in **seven weeks after she won a special election** in Arizona. She would then become a key member set to vote to release the Epstein files.
+2025-11-12 Adelita Grijalva was sworn into Congress seven weeks after winning a special election in Arizona and was expected to vote on releasing the Epstein files.
 
 [https://abcnews.go.com/Politics/rep-elect-grijalva-sworn-months-after-special-election/story?id=127417242](https://abcnews.go.com/Politics/rep-elect-grijalva-sworn-months-after-special-election/story?id=127417242)
 

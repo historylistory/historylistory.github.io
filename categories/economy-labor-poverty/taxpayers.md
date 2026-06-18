@@ -150,6 +150,13 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2025 November
 
+2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency's aircraft fleet.
+
+[https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html](https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html)
+
+[https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use](https://www.theguardian.com/us-news/2025/nov/02/fbi-fires-top-official-kash-patel-jet-use)
+
+
 2025-11-14 Kristi Noem allegedly funneled $143M of the $220M in taxpayer money to a Virginia media company for her ad campaign. 
 
 [https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group](https://www.propublica.org/article/kristi-noem-dhs-ad-campaign-strategy-group)

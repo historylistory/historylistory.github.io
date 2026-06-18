@@ -243,7 +243,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://www.pbs.org/newshour/nation/jan-6-rioter-pardoned-by-trump-charged-with-threatening-to-kill-hakeem-jeffries](https://www.pbs.org/newshour/nation/jan-6-rioter-pardoned-by-trump-charged-with-threatening-to-kill-hakeem-jeffries)
 
-2025-10-23 Trump pardoned Changpeng Zhao founder of Binance. Later in October 2025 Trump told 60 Minutes he didn’t know who the guy was. For context, Zhao was convicted of money laundering. Also for context, Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons).
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump's family.
 
 [https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/](https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/)
 
@@ -251,7 +251,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://x.com/cz_binance/status/1981404850832494666](https://x.com/cz_binance/status/1981404850832494666)
 
-2025-10-27 Trump pardoned Heather Morgan, aka Razzlekhan, who was convicted of laundering billions of dollars of Bitcoin in the 2016 Bitfinex hack.
+2025-10-27 Trump pardoned Heather Morgan ("Razzlekhan"), who was convicted of laundering billions in cryptocurrency tied to the 2016 Bitfinex hack.
 
 [https://www.coindesk.com/policy/2025/10/28/heather-razzlekhan-morgan-s-release-from-prison-wasn-t-us-white-house-says](https://www.coindesk.com/policy/2025/10/28/heather-razzlekhan-morgan-s-release-from-prison-wasn-t-us-white-house-says)
 
@@ -259,15 +259,15 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 ### 2025 November
 
-2025-11-07 Trump pardoned former Tennessee House Speaker Glen Casada after he was sentenced for fraud and corruption charges.
+2025-11-07 Trump pardoned former Tennessee House Speaker Glen Casada after his conviction on fraud and corruption charges.
 
 [https://www.wjhl.com/news/regional/tennessee/former-tn-house-speaker-pardoned-by-president-trump-after-corruption-conviction/](https://www.wjhl.com/news/regional/tennessee/former-tn-house-speaker-pardoned-by-president-trump-after-corruption-conviction/)
 
-2025-11-07 Trump pardoned ex-MLB star Darryl Strawberry who was convicted of tax evasion.
+2025-11-07 Trump pardoned former MLB star Darryl Strawberry, who had been convicted of tax evasion.
 
 [https://www.cnn.com/2025/11/07/politics/trump-pardons-mlb-great-darryl-strawberry-on-1995-tax-evasion-charge](https://www.cnn.com/2025/11/07/politics/trump-pardons-mlb-great-darryl-strawberry-on-1995-tax-evasion-charge)
 
-2025-11-08 News outlets reported that a high profile J6-er John Banuelos was arrested on sexual assault and kidnapping charges. For context, Trump pardoned this person.
+2025-11-08 Prominent January 6 defendant John Banuelos, who had been pardoned by Trump, was arrested on sexual assault and kidnapping charges.
 
 [https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
 

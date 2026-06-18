@@ -67,7 +67,7 @@ permalink: /categories/j6/pardons/
 
 ### 2025 November
 
-2025-11-08 High profile J6-er John Banuelos was arrested on sexual assault and kidnapping charges. Trump pardoned this person.
+2025-11-08 Prominent January 6 defendant John Banuelos, who had been pardoned by Trump, was arrested on sexual assault and kidnapping charges.
 
 [https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
 

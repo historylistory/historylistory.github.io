@@ -136,7 +136,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 November
 
-2025-11-03 Reports alleged Kash Patel fired FBI veteran Steven Palmer shortly after scrutiny over Patel's use of a government jet to visit is girlfriend. 
+2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency's aircraft fleet.
 
 [https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html](https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html)
 

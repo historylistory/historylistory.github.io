@@ -183,7 +183,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-11-10 Eight Democratic senators joined Republicans in voting to reopen the government without additional concessions, and nobody voted to take back the $40B bailout that Trump gave to Argentina. 
 
-2025-11-14 Megyn Kelly said she had it “on good authority” that Epstein was not a pedophile, but rather, he liked 15-year-old girls. One article quoted Kelly as saying, “I’m definitely not trying to make an excuse for this - I’m just giving you facts. That he wasn’t into, like, 8-year-olds, but he liked the very young teen types that could pass for even younger than they were, but would look legal to a passerby”. 
+2025-11-14 Megyn Kelley said she had it on “good authority” that Epstein was not a pedophile, but rather, he liked 15-year-old girls.
 
 2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows that Israeli forces shot the child in the back, then stood around and watch the child struggle in agony as he bled to death for over 30 minutes before he finally died.
 

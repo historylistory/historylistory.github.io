@@ -212,7 +212,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2025 November
 
-2025-11-11 During a press conference Karoline Leavitt asserted that recent Epstein emails were a “manufactured hoax” by Democrats, that the emails only prove nothing other than the fact that President Trump “did nothing wrong”, and that the meeting Trump had with Lauren Boebert of Colorado only shows transparency, but she would not detail that conversation.
+2025-11-11 Karoline Leavitt called recently released Epstein-related emails a "manufactured hoax," said they showed Trump "did nothing wrong."
 
 [https://www.pbs.org/newshour/politics/watch-leavitt-says-boebert-meeting-over-epstein-files-shows-trump-administration-transparency](https://www.pbs.org/newshour/politics/watch-leavitt-says-boebert-meeting-over-epstein-files-shows-trump-administration-transparency)
 
@@ -222,7 +222,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.theguardian.com/us-news/2025/nov/12/trump-karoline-leavitt-jeffrey-epstein](https://www.theguardian.com/us-news/2025/nov/12/trump-karoline-leavitt-jeffrey-epstein)
 
-2025-11-12 Due to Republican defiance, Adelita Grijalva was only finally sworn in **seven weeks after she won a special election** in Arizona. She would then become a key member set to vote to release the Epstein files.
+2025-11-12 Adelita Grijalva was sworn into Congress seven weeks after winning a special election in Arizona and was expected to vote on releasing the Epstein files.
 
 [https://abcnews.go.com/Politics/rep-elect-grijalva-sworn-months-after-special-election/story?id=127417242](https://abcnews.go.com/Politics/rep-elect-grijalva-sworn-months-after-special-election/story?id=127417242)
 
@@ -236,13 +236,13 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.miamiherald.com/news/local/crime/article312917423.html](https://www.miamiherald.com/news/local/crime/article312917423.html)
 
-2025-11-12 Trump’s name appeared over 1600 times in the new Epstein files that were released.
+2025-11-12 Trump's name appeared more than 1,600 times in newly released Epstein documents.
 
 [https://www.npr.org/2025/11/12/nx-s1-5605582/epstein-files-release-trump-email-grijalva-massie](https://www.npr.org/2025/11/12/nx-s1-5605582/epstein-files-release-trump-email-grijalva-massie)
 
 [https://ca.news.yahoo.com/epstein-files-name-trump-1-011136358.html](https://ca.news.yahoo.com/epstein-files-name-trump-1-011136358.html)
 
-2025-11-13 Epstein emails showed that Trump knew about the victims. Some of the news outlets have emails available to view.
+2025-11-13 Released Epstein emails indicated Trump was aware of some victims.
 
 [https://www.nytimes.com/2025/11/12/us/politics/trump-epstein-emails.html](https://www.nytimes.com/2025/11/12/us/politics/trump-epstein-emails.html)
 
@@ -254,7 +254,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.pbs.org/newshour/politics/read-jeffrey-epsteins-newly-released-emails-about-trump](https://www.pbs.org/newshour/politics/read-jeffrey-epsteins-newly-released-emails-about-trump)
 
-2025-11-14 Megyn Kelly said she had it “on good authority” that Epstein was not a pedophile, but rather, he liked 15-year-old girls. One article quoted Kelly as saying, “I’m definitely not trying to make an excuse for this - I’m just giving you facts. That he wasn’t into, like, 8-year-olds, but he liked the very young teen types that could pass for even younger than they were, but would look legal to a passerby”. 
+2025-11-14 Megyn Kelley said she had it on “good authority” that Epstein was not a pedophile, but rather, he liked 15-year-old girls.
 
 [https://www.cnn.com/2025/11/14/business/video/megyn-kelly-questions-epstein-pedophile-digvid](https://www.cnn.com/2025/11/14/business/video/megyn-kelly-questions-epstein-pedophile-digvid)
 
@@ -266,7 +266,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://pagesix.com/2025/11/16/celebrity-news/christina-ricci-shades-megyn-kelly-for-downplaying-jeffrey-epsteins-crimes/](https://pagesix.com/2025/11/16/celebrity-news/christina-ricci-shades-megyn-kelly-for-downplaying-jeffrey-epsteins-crimes/)
 
-2025-11-14 Trump asked the DOJ to open an investigation to tie prominent Democrats to the Epstein files.
+2025-11-14 Trump asked the DOJ to open an investigation to specifically tie prominent Democrats to the Epstein files.
 
 [https://www.cnn.com/2025/11/14/politics/trump-epstein-doj-investigate-enemies](https://www.cnn.com/2025/11/14/politics/trump-epstein-doj-investigate-enemies)
 

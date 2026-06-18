@@ -283,9 +283,17 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2025 October
 
-2025-10-12 In response to the scandal involving Tom Homan caught on tape accepting a $50K bribe, JD Vance buckled down in an interview with ABC George Stephanopoulos, stating, “George, you’ve covered the story ad nauseum. Tom Homan did not take a bribe. It’s a ridiculous smear…”. He repeatedly circumvented the question and refused to answer or confirm the bribe that was caught on tape.
+2025-10-12 Asked about allegations that Tom Homan accepted a $50,000 bribe, JD Vance denied the claim in an ABC interview, “George, you’ve covered the story ad nauseum. Tom Homan did not take a bribe. It’s a ridiculous smear…”.
 
 [https://www.politico.com/news/2025/10/12/jd-vance-george-stephanopoulos-00605032](https://www.politico.com/news/2025/10/12/jd-vance-george-stephanopoulos-00605032)
+
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump's family.
+
+[https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/](https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/)
+
+[https://www.nbcnews.com/tech/crypto/binance-pardon-trump-changpeng-zhao-crypto-rcna239371](https://www.nbcnews.com/tech/crypto/binance-pardon-trump-changpeng-zhao-crypto-rcna239371)
+
+[https://x.com/cz_binance/status/1981404850832494666](https://x.com/cz_binance/status/1981404850832494666)
 
 2025-10-24 Open AI announced plans to sell erotica to boost sales. For context, **AI has a massive environmental impact**. It is also unregulated at the demands of the Trump administration.
 
@@ -319,7 +327,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits](https://www.cnn.com/2025/11/07/politics/trump-administration-supreme-court-snap-benefits)
 
-2025-11-03 Reports alleged Kash Patel fired FBI veteran Steven Palmer shortly after scrutiny over Patel's use of a government jet to visit is girlfriend. 
+2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency's aircraft fleet.
 
 [https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html](https://www.syracuse.com/politics/2025/11/patel-enraged-official-fired-after-stories-over-fbi-jet-use.html)
 
@@ -334,7 +342,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/](https://www.gallego.senate.gov/news/press-releases/gallego-leads-colleagues-in-calling-for-investigation-into-secretary-noems-220-million-ad-campaign/)
 
 
-2025-11-18 In a lawsuit between the International Association of Cruise Lines and the State of Hawaii, the cruise line was challenging a new tourism tax on ships that stop in Hawaii. They hired Brad Bondi as their lawyer. The DOJ intervened in the lawsuit on behalf of the cruise lines. 
+2025-11-18 In litigation over Hawaii's cruise-ship tourism tax, the DOJ intervened on behalf of cruise lines represented by attorney Brad Bondi (Pam Bondi’s brother).
 
 [https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii](https://www.travelweekly.com/Cruise-Travel/DOJ-seeks-intervene-CLIA-lawsuit-against-Hawaii)
 
@@ -348,7 +356,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.thedailybeast.com/attorney-general-pam-bondi-faces-fresh-nightmare-over-brother-brad-bondis-legal-wins/](https://www.thedailybeast.com/attorney-general-pam-bondi-faces-fresh-nightmare-over-brother-brad-bondis-legal-wins/)
 
-2025-11-18 The White House rolled out the red carpet for the Saudi crowned prince to discuss Trump family investments in Saudi Arabia, AI chips, nuclear energy, and the Abraham accord to name a few. For context, this leader was investigated for the brutal murder and dismembering of a Washington Post journalist.
+2025-11-18 The White House hosted Saudi Crown Prince Mohammed bin Salman for talks involving Trump family investments, AI chips, nuclear energy, and the Abraham Accords. The crown prince had previously faced scrutiny over the brutal dismemberment and killing of journalist Jamal Khashoggi. Jared Kushner has business ties with Saudi Arabia, has helped broker the Abraham Accords, and is a close friend with Salman.
 
 [https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/](https://thehill.com/homenews/5610821-trump-white-house-red-carpet-saudi-crown-prince-photos/)
 
@@ -363,6 +371,11 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi](https://en.wikipedia.org/wiki/Assassination_of_Jamal_Khashoggi)
 
 [https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html](https://www.nytimes.com/2025/11/18/world/middleeast/trump-family-business-saudi-arabia.html)
+
+FRIENDSHIPS: [https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486](https://www.jpost.com/american-politics/when-netanyahu-slept-at-the-kushners-and-other-media-tales-of-trumps-jewish-confidantes-481486)
+
+BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire](https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire)
+
 
 ### 2026 February
 
