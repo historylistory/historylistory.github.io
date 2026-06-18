@@ -136,17 +136,15 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 ### 2022 June
 
-2022-06-06 The House Oversight Committee investigated Trump over foreign gifts totaling more than $250,000.
+2022-06-06 The House Oversight Committee investigated Trump's receipt of more than $250,000 in foreign gifts.
 
-[https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to#:~:text=Saudi%20Arabia%20and%20the%20United,Saudi%20gifts%2C%20including%20the%20dagger](https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to).
+[https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to](https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to)
 
 [https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/](https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/)
 
 ### 2022 August
 
-2022-08-08 The FBI seized more than 11,000 government documents  at Mar-a-Lago. The case was dropped February 10, 2025 after Republicans took control of the House.
-
-{% include youtubePlayer.html id="r5_8d474iv0" %}
+2022-08-08 The FBI seized over 11,000 government documents from Mar-a-Lago. The federal case was later dismissed on February 10, 2025 after Republicans took control of the House.
 
 {% include youtubePlayer.html id="r5_8d474iv0" %}
 

@@ -46,15 +46,18 @@ permalink: /categories/foreign-affairs-isolation/saudi-uae/
 
 ### 2022
 
-2022-04-10 The House Oversight Committee investigated a $2B Saudi Arabia investment into Jared Kushner's firm (Trump’s son in law).
+2022-04-10 The House Oversight Committee investigated a $2 billion Saudi investment in Jared Kushner's firm and Trump’s receipt of more than $250,000 in foreign gifts. In an article with CBS, Kushner stated he was not interested in rejoining the White House if Trump won the 2024 presidential election. In 2025, Kushner DID JOIN the White House as Trump’s special envoy in foreign affairs. 
+
+[https://www.nytimes.com/2022/04/10/us/jared-kushner-saudi-investment-fund.html](https://www.nytimes.com/2022/04/10/us/jared-kushner-saudi-investment-fund.html)
 
 [https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805](https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805)
 
 [https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/](https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/)
 
-2022-06-06 The House Oversight Committee investigated Trump over foreign gifts totaling more than $250,000.
 
-[https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to#:~:text=Saudi%20Arabia%20and%20the%20United,Saudi%20gifts%2C%20including%20the%20dagger](https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to).
+2022-06-06 The House Oversight Committee investigated Trump's receipt of more than $250,000 in foreign gifts.
+
+[https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to](https://oversightdemocrats.house.gov/news/press-releases/oversight-democrats-release-evidence-showing-trump-first-family-failed-to)
 
 [https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/](https://www.cbsnews.com/news/trump-foreign-gifts-missing-house-democrats-report/)
 

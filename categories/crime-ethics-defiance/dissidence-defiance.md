@@ -18,7 +18,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2022
 
-2022-12-03 Trump claimed on social media that the election results were a massive fraud and allows for termination of rules found in the Constitution. He wrote, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+2022-12-03 Trump posted that alleged widespread election fraud could justify terminating constitutional rules and suggested either overturning the 2020 election or holding a new one, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
 [https://www.bbc.com/news/world-us-canada-63851751](https://www.bbc.com/news/world-us-canada-63851751)
 
@@ -27,6 +27,9 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social](https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social)
 
 [https://archive.ph/u0vZk](https://archive.ph/u0vZk)
+
+[https://truthsocial.com/@realDonaldTrump/posts/109449803240069864](https://truthsocial.com/@realDonaldTrump/posts/109449803240069864)
+
 
 ### 2024 April
 

@@ -352,9 +352,14 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### 2022 Saudi Arabia Invests in Kushner
 
-2022-04-10 Saudi Arabia invested $2B into Jared Kushner’s private equity company.
+2022-04-10 The House Oversight Committee investigated a $2 billion Saudi investment in Jared Kushner's firm and Trump’s receipt of more than $250,000 in foreign gifts. In an article with CBS, Kushner stated he was not interested in rejoining the White House if Trump won the 2024 presidential election. In 2025, Kushner DID JOIN the White House as Trump’s special envoy in foreign affairs. 
 
 [https://www.nytimes.com/2022/04/10/us/jared-kushner-saudi-investment-fund.html](https://www.nytimes.com/2022/04/10/us/jared-kushner-saudi-investment-fund.html)
+
+[https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805](https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805)
+
+[https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/](https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/)
+
 
 ### 2024
 

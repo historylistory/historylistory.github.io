@@ -151,15 +151,13 @@ OTHER SHADY BUSINESS
 
 [https://en.wikipedia.org/wiki/Larry_Ellison](https://en.wikipedia.org/wiki/Larry_Ellison)
 
-2022-12-03 Trump continued to post false claims that the 2020 election results were a massive fraud and allowed termination of Constitution rules.
+2022-12-03 Trump posted that alleged widespread election fraud could justify terminating constitutional rules and suggested either overturning the 2020 election or holding a new one, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
 [https://www.bbc.com/news/world-us-canada-63851751](https://www.bbc.com/news/world-us-canada-63851751)
 
 [https://www.cbsnews.com/news/donald-trump-claims-grounds-termination-us-constitution-twitter/](https://www.cbsnews.com/news/donald-trump-claims-grounds-termination-us-constitution-twitter/)
 
 [https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social](https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social)
-
-[https://archive.ph/u0vZk](https://archive.ph/u0vZk)
 
 [https://archive.ph/u0vZk](https://archive.ph/u0vZk)
 
