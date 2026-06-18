@@ -413,7 +413,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 [https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/](https://foreignpolicy.com/2026/03/03/witkoff-kushner-trump-fail-diplomacy-iran-ukraine-gaza/)
 
-2026-02-28 The United States and Israel bombed an all-girl’s school on day 1 of the war in Iran and killed at least 170 schoolgirls. 
+2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
 
 [https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
 
@@ -451,7 +451,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 [https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096](https://www.dw.com/en/why-the-us-says-india-can-buy-russian-oil-again/a-76250096)
 
-2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
+2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 

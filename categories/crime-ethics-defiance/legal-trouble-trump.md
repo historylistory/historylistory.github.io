@@ -230,7 +230,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 ### 2026 January
 
-2026-01-22 Trump attacked former special counsel Jack Smith on Truth Social. Jack Smith was the prosecutor in the case against Trump for election tampering and concealing classified documents at Mar-a-Lago.
+2026-01-22 Trump criticized Special Counsel Jack Smith on Truth Social. Smith had prosecuted Trump in cases involving election interference and classified documents at Mar-a-Lago.
 
 [https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228](https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228)
 

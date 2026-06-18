@@ -112,7 +112,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.commondreams.org/news/bernie-sanders-trump-economy](https://www.commondreams.org/news/bernie-sanders-trump-economy)
 
-2026-02-13 “The Epstein Class War”. Rules do not apply to the super rich. They are insulated from consequences. 
+2026-02-13 “The Epstein Class War”: the wealthy and well-connected remain insulated from consequences as they hold all the political power.  
 
 [https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/](https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/)
 

@@ -155,7 +155,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://finance.yahoo.com/news/tariff-costs-triple-midsized-us-050100454.html](https://finance.yahoo.com/news/tariff-costs-triple-midsized-us-050100454.html)
 
-2026-02-20 During the State of the Union, Trump accused the Supreme Court of being unpatriotic and disloyal to the Constitution, and a disgrace to our nation, after the justices ruled 6-to-3 to invalidate his illegal tariffs. The next day he raised the global tariff to 15%.
+2026-02-20 After the Supreme Court struck down his tariffs in a 6–3 ruling, Trump criticized the Court as disloyal to the Constitution and unpatriotic. The following day, he raised global tariffs to 15% in retaliation.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948](https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948)
 

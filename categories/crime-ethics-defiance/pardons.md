@@ -70,37 +70,6 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
-2026-01-20 Trump pardoned Andrew Paul Johnson, a Capitol-riot defendant who was later accused of sexually abusing a child and attempting to buy the child's silence with a promised $10 million payment.
-
-[https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627](https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627)
-
-[https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison](https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison)
-
-[https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf](https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf)
-
-2026-01-20 Trump's pardons eliminated approximately $1.3 billion in restitution owed to victims and survivors.
-
-[https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/](https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/)
-
-[https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/](https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/)
-
-2026-01-20 Of the many clemency petitions submitted, Trump granted only 10 through the formal review process. All pardons followed a pattern: significant media attention, financial connections, or Trump’s personal interests and vanity.
-
-[https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists](https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists)
-
-[https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful](https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful)
-
-[https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy](https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy)
-
-[https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
-
-2026-01-21 Trump pardoned Russ Ulbricht who founded the dark web’s Silk Road marketplace which listed more than 13,000 illegal substances for sale.   
-
-[https://www.justice.gov/pardon/media/1386096/dl?inline](https://www.justice.gov/pardon/media/1386096/dl?inline)
-
-[https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht](https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht)
-
-[https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi](https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi)
 
 
 
@@ -326,10 +295,50 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
 
+2026-01-20 Trump pardoned Andrew Paul Johnson, a Capitol-riot defendant who was later accused of sexually abusing a child and attempting to buy the child's silence with a promised $10 million payment.
+
+[https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627](https://www.nbcnews.com/news/us-news/pardoned-capitol-rioter-tried-bribe-child-sex-victim-promise-jan-6-pay-rcna244627)
+
+[https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison](https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison)
+
+[https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf](https://docs.house.gov/meetings/JU/JU00/20260305/118995/HMKP-119-JU00-20260305-SD006.pdf)
+
+2026-01-20 Trump's pardons eliminated approximately $1.3 billion in restitution owed to victims and survivors.
+
+[https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/](https://thehill.com/homenews/house/5354967-trumps-pardons-restitution-avoided-judiciary-report/)
+
+[https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/](https://www.politifact.com/factchecks/2025/jun/06/liz-oyer/donald-trump-pardons-wipe-out-billion-debts/)
+
+2026-01-20 Of the many clemency petitions submitted, Trump granted only 10 through the formal review process. All pardons followed a pattern: significant media attention, financial connections, or Trump’s personal interests and vanity.
+
+[https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists](https://www.pbs.org/newshour/show/a-look-at-trumps-controversial-pardons-for-political-allies-and-loyalists)
+
+[https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful](https://cohen.house.gov/media-center/press-releases/congressman-cohen-trump-uses-pardons-benefit-rich-and-powerful)
+
+[https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy](https://www.newyorker.com/magazine/2026/05/04/donald-trumps-pardon-economy)
+
+[https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
+
+2026-01-21 Trump pardoned Ross Ulbricht, founder of the Silk Road marketplace, which facilitated the sale of over 13,000 illegal substances online.
+
+[https://www.justice.gov/pardon/media/1386096/dl?inline](https://www.justice.gov/pardon/media/1386096/dl?inline)
+
+[https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht](https://www.npr.org/2025/01/21/nx-s1-5270051/trump-pardons-dark-web-marketplace-creator-ross-ulbricht)
+
+[https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi](https://www.pbs.org/newshour/nation/the-webs-biggest-illegal-drug-marketplace-is-shut-down-by-the-fbi)
 
 ### 2026 February
 
-2026-02-12 Trump pardoned 5 former NFL players for crimes ranging from perjury to drug trafficking.
+2026-02-09 Ghislaine Maxwell invoked the Fifth Amendment during a deposition. Her attorney stated she would be, ““prepared to speak fully and honestly if granted clemency by President Trump”.
+
+[https://abcnews.com/Politics/maxwell-expected-invoke-amendment-closed-virtual-house-oversight/story?id=129991066](https://abcnews.com/Politics/maxwell-expected-invoke-amendment-closed-virtual-house-oversight/story?id=129991066)
+
+[https://www.cleveland13news.com/story/ghislaine-maxwell-invokes-fifth-amendment-in-congressional-hearing-offers-to-cooperate-if-trump-gra](https://www.cleveland13news.com/story/ghislaine-maxwell-invokes-fifth-amendment-in-congressional-hearing-offers-to-cooperate-if-trump-gra)
+
+[https://www.bbc.com/news/articles/cvgv5yre39zo](https://www.bbc.com/news/articles/cvgv5yre39zo)
+
+
+2026-02-12 Trump pardoned five former NFL players convicted of crimes ranging from perjury to drug trafficking.
 
 [https://www.nbcnews.com/politics/trump-administration/trump-pardons-former-nfl-players-crimes-perjury-drug-trafficking-rcna258909](https://www.nbcnews.com/politics/trump-administration/trump-pardons-former-nfl-players-crimes-perjury-drug-trafficking-rcna258909)
 

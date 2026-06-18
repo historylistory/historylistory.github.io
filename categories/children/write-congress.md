@@ -215,7 +215,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-02-27 Pete Hegseth said the US armed forces would continue to support Scouting America only if they complied with Executive Order 14173 and end DEI including the welcoming of trans kids, offering the Citizenship in Society merit badge, among other things. Hegseth wrote in X, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
 
-2026-02-28 The United States and Israel bombed an all-girl’s school on day 1 of the war in Iran and killed at least 170 schoolgirls. 
+2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
 
 2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
 

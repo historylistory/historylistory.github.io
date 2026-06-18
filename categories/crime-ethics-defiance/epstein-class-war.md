@@ -8,7 +8,8 @@ permalink: /categories/crime-ethics-defiance/epstein-class-war/
 
 ### 2026 February
 
-2026-02-13 “The Epstein Class War”. Rules do not apply to the super rich. They are insulated from consequences. 
+2026-02-13 “The Epstein Class War”: the wealthy and well-connected remain insulated from consequences as they hold all the political power.  
+
 [https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/](https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/)
 
 [https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite](https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite)

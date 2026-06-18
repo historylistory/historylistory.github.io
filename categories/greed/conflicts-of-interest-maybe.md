@@ -127,7 +127,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### 2026 February
 
-2026-02-01 News outlets reported on the Trump family cryptocurrency business World Financial selling 49% of its crypto to Emirati royal family.
+2026-02-01 Trump family's World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
 
 [https://www.theguardian.com/us-news/2026/feb/02/trump-uae-crypto-deal](https://www.theguardian.com/us-news/2026/feb/02/trump-uae-crypto-deal)
 

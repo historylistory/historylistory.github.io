@@ -346,7 +346,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/](https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/)
 
-2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
+2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 

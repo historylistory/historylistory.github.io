@@ -178,7 +178,7 @@ OTHER SHADY BUSINESS
 
 [https://www.cnn.com/2026/02/04/politics/gabbard-office-obtained-voting-machines-puerto-rico](https://www.cnn.com/2026/02/04/politics/gabbard-office-obtained-voting-machines-puerto-rico)
 
-2026-02-27 Trump tried pushing an Executive Order to grant him emergency oversight of upcoming elections, claiming once again that the 2020 elections were fraudulent and China tampered with them.
+2026-02-27 Trump tried to push an executive order granting him total emergency federal oversight of upcoming elections, again alleging fraud in the 2020 election and interference by China.
 
 [https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/](https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/)
 

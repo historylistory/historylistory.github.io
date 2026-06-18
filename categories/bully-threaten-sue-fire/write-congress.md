@@ -404,7 +404,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-01-21 The FCC again threatened ABC's broadcast license over programming involving Jimmy Kimmel and Stephen Colbert. 
 
-2026-01-22 Trump attacked former special counsel Jack Smith on Truth Social. Jack Smith was the prosecutor in the case against Trump for election tampering and concealing classified documents at Mar-a-Lago.
+2026-01-22 Trump criticized Special Counsel Jack Smith on Truth Social. Smith had prosecuted Trump in cases involving election interference and classified documents at Mar-a-Lago.
 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 

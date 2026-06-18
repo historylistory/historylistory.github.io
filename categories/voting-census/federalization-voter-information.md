@@ -45,7 +45,7 @@ permalink: /categories/voting-census/federalization-voter-information/
 
 ### 2026 February
 
-2026-02-03 Trump called on Republicans to push to nationalize future elections.
+2026-02-03 Trump urged Republicans to pursue nationalized elections.
 
 [https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections](https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections)
 

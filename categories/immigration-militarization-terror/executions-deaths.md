@@ -132,7 +132,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/](https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/)
 
-2026-01-26 Despite a judicial warrant signed by a judge, federal agents defied the order and continued to block the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
+2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
 [https://abcnews.go.com/Politics/wireStory/investigations-minneapolis-shooting-death-alex-pretti-129581708](https://abcnews.go.com/Politics/wireStory/investigations-minneapolis-shooting-death-alex-pretti-129581708)
 

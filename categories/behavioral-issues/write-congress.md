@@ -396,7 +396,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They told them to find their own way out.
 
-2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
+2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
 2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
 

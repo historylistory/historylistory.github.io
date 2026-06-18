@@ -467,7 +467,7 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf](https://docs.fcc.gov/public/attachments/DA-26-68A1.pdf)
 
-2026-01-22 Trump attacked former special counsel Jack Smith on Truth Social. Jack Smith was the prosecutor in the case against Trump for election tampering and concealing classified documents at Mar-a-Lago.
+2026-01-22 Trump criticized Special Counsel Jack Smith on Truth Social. Smith had prosecuted Trump in cases involving election interference and classified documents at Mar-a-Lago.
 
 [https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228](https://www.politico.com/live-updates/2026/01/22/congress/trumps-tuning-in-to-smiths-testimony-00741228)
 

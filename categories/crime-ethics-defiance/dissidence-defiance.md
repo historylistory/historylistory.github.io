@@ -256,13 +256,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 January
 
-2026-01-26 Despite a judicial warrant signed by a judge, federal agents defied the order and continued to block the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
+2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
 [https://abcnews.go.com/Politics/wireStory/investigations-minneapolis-shooting-death-alex-pretti-129581708](https://abcnews.go.com/Politics/wireStory/investigations-minneapolis-shooting-death-alex-pretti-129581708)
 
 ### 2026 February
 
-2026-02-03 Trump called on Republicans to push to nationalize future elections.
+2026-02-03 Trump urged Republicans to pursue nationalized elections.
 
 [https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections](https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections)
 
@@ -274,7 +274,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security](https://www.dhs.gov/news/2026/02/17/another-democrat-government-shutdown-dramatically-hurts-americas-national-security)
 
-2026-02-20 During the State of the Union, Trump accused the Supreme Court of being unpatriotic and disloyal to the Constitution, and a disgrace to our nation, after the justices ruled 6-to-3 to invalidate his illegal tariffs. The next day he raised the global tariff to 15%.
+2026-02-20 After the Supreme Court struck down his tariffs in a 6–3 ruling, Trump criticized the Court as disloyal to the Constitution and unpatriotic. The following day, he raised global tariffs to 15% in retaliation.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948](https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948)
 
@@ -289,7 +289,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/](https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/)
 
-2026-02-27 Trump tried pushing an Executive Order to grant him emergency oversight of upcoming elections, claiming once again that the 2020 elections were fraudulent and China tampered with them.
+2026-02-27 Trump tried to push an executive order granting him total emergency federal oversight of upcoming elections, again alleging fraud in the 2020 election and interference by China.
 
 [https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/](https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/)
 
@@ -297,7 +297,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 March
 
-2026-03-02 Hegseth promised there would be no “stupid” rules of engagement in Iran.
+2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
 [https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
 
