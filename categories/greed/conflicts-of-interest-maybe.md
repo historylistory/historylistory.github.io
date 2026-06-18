@@ -80,7 +80,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.reuters.com/world/middle-east/wlfs-zach-witkoff-usd1-selected-official-stablecoin-mgx-investment-binance-2025-05-01/](https://www.reuters.com/world/middle-east/wlfs-zach-witkoff-usd1-selected-official-stablecoin-mgx-investment-binance-2025-05-01/)
 
-2025-05-09 During a press conference, reporters asked Karoline Leavitt about Trump meeting business contacts in the Middle East, to which Leavitt berated the reporter  for asking, stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and further stated that this administration holds itself to the “highest of ethical standards”.
+2025-05-09 Reporters asked Karoline Leavitt about conflicts of interest involving Trump's Middle East business contacts. Leavitt berated the reporter stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and claimed that this administration holds itself to the “highest of ethical standards”.
 
 [https://www.facebook.com/watch/?v=1022049649537020](https://www.facebook.com/watch/?v=1022049649537020)
 

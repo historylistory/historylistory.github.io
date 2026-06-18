@@ -187,7 +187,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2025 January
 
-2025-01-29 During a confirmation hearing, Bernie Sanders asked about RFK Jr’s Children's Health Defense's sale of anti-vaccine infant onesies carrying slogans "Unvaxxed – Unafraid” and “No Vax - No Problem”.
+2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 [https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/](https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/)
 
@@ -207,7 +207,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2025 May
 
-2025-05-09 During a press conference, reporters asked Karoline Leavitt about Trump meeting business contacts in the Middle East, to which Leavitt berated the reporter  for asking, stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and further stated that this administration holds itself to the “highest of ethical standards”.
+2025-05-09 Reporters asked Karoline Leavitt about conflicts of interest involving Trump's Middle East business contacts. Leavitt berated the reporter stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and claimed that this administration holds itself to the “highest of ethical standards”.
 
 [https://www.facebook.com/watch/?v=1022049649537020](https://www.facebook.com/watch/?v=1022049649537020)
 
@@ -227,7 +227,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2025 July
 
-2025-07-11 Pam Bondi fired the Justice Department’s top ethics advisor Joseph Tirrell. For context, Joseph Tirrell wanted to investigate Kash Patel for accepting luxury gift items from Connor McGregor because accepting those luxury items violated the FBI ethics codes.
+2025-07-11 Pam Bondi fired Justice Department ethics chief Joseph Tirrell. Tirrell had sought to investigate Kash Patel over luxury gifts allegedly received from Conor McGregor which violated the FBI ethics codes.
 
 [https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/](https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/)
 

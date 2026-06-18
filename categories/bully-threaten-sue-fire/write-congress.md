@@ -208,7 +208,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-07-10 Testimony reportedly indicated DHS used Canary Mission data to compile dossiers on pro-Palestinian activists. This platform has been criticized for doxxing and intimidation.
 
-2025-07-11 Pam Bondi fired the Justice Department’s top ethics advisor Joseph Tirrell. For context, Joseph Tirrell wanted to investigate Kash Patel for accepting luxury gift items from Connor McGregor because accepting those luxury items violated the FBI ethics codes.
+2025-07-11 Pam Bondi fired Justice Department ethics chief Joseph Tirrell. Tirrell had sought to investigate Kash Patel over luxury gifts allegedly received from Conor McGregor which violated the FBI ethics codes.
 
 2025-07-12 Trump threatened via social media to take away Rosie O’Donnel’s citizenship.
 

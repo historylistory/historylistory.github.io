@@ -87,7 +87,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-01-24 The administration cut portions of PEPFAR funding which provided lifesaving treatment for pregnant women, breastfeeding mothers, orphans, and vulnerable children. Reports linked the cuts to disruptions in care and child deaths. 
 
-2025-01-29 During a confirmation hearing, Bernie Sanders asked about RFK Jr’s Children's Health Defense's sale of anti-vaccine infant onesies carrying slogans "Unvaxxed – Unafraid” and “No Vax - No Problem”.
+2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs. 
 

@@ -58,7 +58,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund](https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund)
 
 
-2025-01-23 Trump pardoned 2 DC officers who were convicted in a fatal crash.
+2025-01-23 Trump pardoned two D.C. police officers convicted in a fatal crash.
 
 [https://www.nbcnews.com/news/us-news/trump-pardons-two-dc-officers-convicted-fatal-chase-20-year-old-man-co-rcna188920](https://www.nbcnews.com/news/us-news/trump-pardons-two-dc-officers-convicted-fatal-chase-20-year-old-man-co-rcna188920)
 
@@ -66,7 +66,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://thehill.com/regulation/court-battles/5101493-trump-pardons-dc-officers/](https://thehill.com/regulation/court-battles/5101493-trump-pardons-dc-officers/)
 
-2025-01-23 Trump pardoned anti-abortion activists who blockaded clinic entrances, violated the FACE Act by severely harassing doctors and patients. Page 558 of **Project 2025 outlines recommendations to question and/or dismantle the FACE Act**.
+2025-01-23 Trump pardoned anti-abortion activists convicted under the FACE Act for blockading clinics and harassing patients and providers (Page 558 of Project 2025 outlines recommendations to question and/or dismantle the FACE Act.)
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
@@ -117,13 +117,13 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.gov.ca.gov/2026/03/05/trumpcriminals3/](https://www.gov.ca.gov/2026/03/05/trumpcriminals3/)
 
-2025-03-26 Trump pardoned Devon Archer who was convicted of a $60M tribal bond scheme of the Oglala Sioux Nation.
+2025-03-26 Trump pardoned Devon Archer who was convicted of a $60M tribal bond scheme involving the Oglala Sioux Nation.
 
 [https://www.whitehouse.gov/presidential-actions/2025/03/executive-grant-of-clemency-for-devon-archer/](https://www.whitehouse.gov/presidential-actions/2025/03/executive-grant-of-clemency-for-devon-archer/)
 
 [https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m](https://tribalbusinessnews.com/sections/policy-and-law/15067-trump-pardons-devon-archer-who-defrauded-oglala-sioux-nation-of-60m)
 
-2025-03-27 Trump pardoned Trevor Milton. Trevor Milton was convicted of a massive fraud scheme. The DOJ sought over $600M in restitution. Trevor Milton founded a fraudulent electric trucking company, Nikola. They claimed the trucks were zero-emission. As admitted by employees later, the trucks were towed to the top of hills and allowed to roll down, so they used that to claim “zero emissions”. 
+2025-03-27 Trump pardoned Trevor Milton, founder of Nikola, who was convicted of fraud. Prosecutors sought more than $600 million in restitution related to deceptive claims about the company's electric trucks.
 
 [https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
 

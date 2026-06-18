@@ -36,7 +36,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 ### 2025 March
 
-2025-03-16 Ignoring a ruling to turn a deportation plane around, Tom Homan said "I don't care what the judges think". Trump also responded to the ruling, demanding to impeach the judge who ordered the turnaround. President of El Salvador Nayib Bukele posted an obnoxious "oopsie, too late" followed by a laugh-cry emoji.
+2025-03-16 After a court ordered a deportation flight turned around, Tom Homan said, "I don't care what the judges think." Trump called for the judge's impeachment, while El Salvador's President Nayib Bukele mocked the ruling on social media, “oopsie, too late” and a laugh-cry emoji.
 
 [https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181](https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181)
 

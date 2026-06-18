@@ -86,17 +86,18 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2025 June
 
-2025-06-18 Trump called the attention to the Epstein files a "Democrat hoax" and evaded questions.
+2025-06-18 Trump called attention to the Epstein files a "Democrat hoax" and evaded related questions.
 
 [https://www.bbc.com/news/articles/cvgqnn4ngvdo](https://www.bbc.com/news/articles/cvgqnn4ngvdo)
 
 ### 2025 July
 
-2025-07-07 During a press conference Karoline Leavitt was asked about the Epstein Files. The press quoted a previous inquiry, “John Roberts of Fox News said, ‘DOJ may be releasing the list Jeffrey Epstein’s clients, will that really happen?” to which the Attorney General responded, “It’s sitting on my desk right now to review”. Karoline Leavitt referred the media to the DOJ for any further questions.
+2025-07-07 Journalists asked Karoline Leavitt about an earlier statement she made on the Epstein files, “It’s sitting on my desk right now to review”. She evaded and referred the journalists to the DOJ.
+
+[https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department](https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department)
 
 {% include youtubePlayer.html id="rM3xqO_KJZ8" %}
 
-[https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department](https://www.npr.org/2025/07/15/g-s1-77698/pam-bondi-jeffrey-epstein-justice-department)
 
 2025-07-12 Trump advised his Truth Social followers to quit asking about the Epstein files.
 

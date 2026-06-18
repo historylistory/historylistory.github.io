@@ -39,7 +39,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 ### 2025 January
 
-2025-01-29 During a confirmation hearing, Bernie Sanders asked about RFK Jr’s Children's Health Defense's sale of anti-vaccine infant onesies carrying slogans "Unvaxxed – Unafraid” and “No Vax - No Problem”.
+2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 [https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/](https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/)
 

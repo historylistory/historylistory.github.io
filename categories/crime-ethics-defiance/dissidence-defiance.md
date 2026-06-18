@@ -84,13 +84,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522](https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522)
 
-2025-01-28 The Trump administration began freezing funds that were already pre-approved by Congress; Eric Schmitt said on video he supported this.
+2025-01-28 The Trump administration froze funds that were already pre-approved by Congress; Eric Schmitt said on video he supported this.
 
 {% include youtubePlayer.html id="O7viIDwJHws" %}
 
 ### 2025 February
 
-2025-02-09 In a tweet, JD Vance incorrectly claimed that judges were not allowed to check executive power. Vance wrote, “If a judge tried to tell a general how to conduct a military operation, that would be illegal. If a judge tried to command the attorney general in how to use her discretion as a prosecutor, that’s also illegal. Judges aren’t allowed to control the executive’s legitimate power”.
+2025-02-09 JD Vance claimed on social media that judges cannot direct the executive branch's legitimate exercise of power, “If a judge tried to tell a general how to conduct a military operation, that would be illegal. If a judge tried to command the attorney general in how to use her discretion as a prosecutor, that’s also illegal. Judges aren’t allowed to control the executive’s legitimate power”.
 
 [https://www.theguardian.com/us-news/2025/feb/10/jd-vance-judges-trump](https://www.theguardian.com/us-news/2025/feb/10/jd-vance-judges-trump)
 
@@ -110,7 +110,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 March
 
-2025-03-16 Ignoring a ruling to turn a deportation plane around, Tom Homan said "I don't care what the judges think". Trump also responded to the ruling, demanding to impeach the judge who ordered the turnaround. President of El Salvador Nayib Bukele posted an obnoxious "oopsie, too late" followed by a laugh-cry emoji.
+2025-03-16 After a court ordered a deportation flight turned around, Tom Homan said, "I don't care what the judges think." Trump called for the judge's impeachment, while El Salvador's President Nayib Bukele mocked the ruling on social media, “oopsie, too late” and a laugh-cry emoji.
 
 [https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181](https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181)
 
@@ -118,13 +118,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://x.com/nayibbukele/status/1901238762614517965?lang=en](https://x.com/nayibbukele/status/1901238762614517965?lang=en)
 
-2025-03-23 News outlets reported an "unprecedented degree of resistance" to court rulings and a forceful attack on the American judiciary.
+2025-03-23 News reports described an “unprecedented degree of resistance” to court rulings and a forceful attack on the American judiciary.
 
 [https://www.theguardian.com/us-news/2025/mar/23/judges-trump-court-rulings](https://www.theguardian.com/us-news/2025/mar/23/judges-trump-court-rulings)
 
 ### 2025 April
 
-2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders and proceeding with their own agendas without taking heed for judicial orders. The journalist asked pointe-blank, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt’s snarky response, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior...”
+2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
 
 [https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
 
@@ -143,11 +143,11 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 May
 
-2025-05-04 Trump said he didn’t know whether he had to hold up the Fifth Amendment. When asked if he had to hold up the Constitution, he replied, “I don’t know”.
+2025-05-04 When asked whether he was required to uphold the Constitution, Trump replied, "I don't know”.
 
 {% include youtubePlayer.html id="aoNxKK2IJII" %}
 
-2025-05-12 Steve Bannon called out a "Constitutional Crisis" during an interview. He said, quote, "If they can hold it together they can control the government for 50-75 years"
+2025-05-12 Steve Bannon called out a “Constitutional Crisis”, saying, “If they can hold it together they can control the government for 50-75 years”
 
 {% include youtubePlayer.html id="PCe4pt5MlTo" %}
 

@@ -70,7 +70,7 @@ permalink: /categories/free-speech-manipulation/purge/
 
 ### 2025 July
 
-2025-07-11 Pam Bondi fired the Justice Department’s top ethics advisor Joseph Tirrell. For context, Joseph Tirrell wanted to investigate Kash Patel for accepting luxury gift items from Connor McGregor because accepting those luxury items violated the FBI ethics codes.
+2025-07-11 Pam Bondi fired Justice Department ethics chief Joseph Tirrell. Tirrell had sought to investigate Kash Patel over luxury gifts allegedly received from Conor McGregor which violated the FBI ethics codes.
 
 [https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/](https://www.democracydocket.com/news-alerts/trump-justice-department-purge-top-ethics-adviser/)
 

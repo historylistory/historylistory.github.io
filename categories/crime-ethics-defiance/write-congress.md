@@ -18,7 +18,7 @@ You can start it however you'd like.
 
 Dear Sir or Madam,
 
-I am deeply disturbed by the criminal, unethical, and corrupt behavior in our nation's capital. Incidents involving election interference, sexual misconduct, fraud, insurrection, acceptance of luxury gifts, protection of sexual predators, support for genocide, bribery, and the pardoning of violent criminals and repeat offenders have severely damaged public trust.
+I am deeply disturbed by the criminal, unethical, and corrupt behavior in our nation's capital. Incidents involving election interference, sexual misconduct, fraud, insurrection, acceptance of luxury gifts, protection of sexual predators, blatant defiance of Congress and the judicial system, blatant defiance of the will of the people, support for genocide, bribery, and the pardoning of violent criminals and repeat offenders have severely damaged public trust.
 
 Donald Trump bears responsibility for inciting the January 6th insurrection, an attack that sought to disrupt the peaceful transfer of power and undermine our democratic institutions. I am also troubled by his decision to pardon numerous individuals whose actions caused significant harm and who have shown little remorse or accountability for their conduct. In many cases, these pardons denied victims the justice and restitution they deserved, leaving billions of dollars in damages and losses unaddressed.
 

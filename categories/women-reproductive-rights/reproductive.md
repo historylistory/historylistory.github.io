@@ -237,9 +237,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 [https://reproductiverights.org/abortion-deleted-from-all-hhs-web-pages/](https://reproductiverights.org/abortion-deleted-from-all-hhs-web-pages/)
 
-2025-01-23 Trump pardoned anti-abortion activists who blockaded clinic entrances, violated the FACE Act, and severely harassed both doctors and patients. 
-
-Page 558 of **Project 2025 outlines recommendations to question and/or dismantle the FACE Act**.
+2025-01-23 Trump pardoned anti-abortion activists convicted under the FACE Act for blockading clinics and harassing patients and providers (Page 558 of Project 2025 outlines recommendations to question and/or dismantle the FACE Act.)
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
