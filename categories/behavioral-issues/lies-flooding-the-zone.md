@@ -35,7 +35,7 @@ This is certainly not a full list - just a few samples. When it comes to the Tru
 
 ### 2024
 
-2024-09-10 During an ABC news presidential debate, Trump declared "I have nothing to do with Project 2025".
+2024-09-10 During an ABC news presidential debate, Trump falsely claimed “I have nothing to do with Project 2025”.
 
 {% include youtubePlayer.html id="aUnunvxzpgE" %}
 

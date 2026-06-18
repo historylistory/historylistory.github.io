@@ -158,21 +158,21 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 2023-03-30 A Manhattan grand jury indicted Trump on state charges of falsifying business records.
 
-[https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump/#:~:text=He%20is%20expected%20to%20be%20sentenced%20on,the%20CEO%20of%20American%20Media%20Inc.%20(AMI)](https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump/#:~:text=He%20is%20expected%20to%20be%20sentenced%20on,the%20CEO%20of%20American%20Media%20Inc.%20(AMI)).
+[https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump](https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump)
 
 ### 2023 August
 
-2023-08-14 Trump was a co-defendant in the Georgia election interference case along with 18 others; the case is currently stalled.
+2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
 
 [https://www.wabe.org/fulton-election-case/](https://www.wabe.org/fulton-election-case/)
 
 ### 2024 February
 
-2024-02-01 A NY State Supreme Court judge ruling found that Trump engaged in a scheme to manipulate his net worth and property values.
+2024-02-01 A New York State Supreme Court judge ruled that Trump engaged in a scheme to manipulate his net worth and property valuations.
 
 [https://www.propublica.org/article/trump-fraud-ruling-property-valuation-michael-cohen](https://www.propublica.org/article/trump-fraud-ruling-property-valuation-michael-cohen)
 
-[https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case#:~:text=Share%20on%20Twitter-,Judge%20imposes%20$364%20million%20penalty%20in%20Trump's%20New%20York%20civil,setback%20for%20the%20former%20president](https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case).
+[https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case](https://www.pbs.org/newshour/politics/judge-imposes-364-million-penalty-in-trumps-new-york-civil-fraud-case)
 
 {% include youtubePlayer.html id="NfiMna_u204" %}
 
@@ -192,7 +192,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/](https://www.opb.org/article/2024/05/06/trump-second-gag-order-fine/)
 
-2024-05-30 Trump was convicted on 34 felony counts of falsifying business records but received an unconditional discharge January 10, 2025.
+2024-05-30 Trump was convicted on 34 felony counts of falsifying business records but received an unconditional discharge on January 10, 2025.
 
 [https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump/](https://manhattanda.org/d-a-bragg-announces-34-count-felony-trial-conviction-of-donald-j-trump/)
 

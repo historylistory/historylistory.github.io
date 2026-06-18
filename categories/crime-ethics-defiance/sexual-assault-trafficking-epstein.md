@@ -78,7 +78,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2024
 
-2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events.
+2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events. Did You Know? Lolita is a controversial 1955 novel by Vladimir Nabokov about predatory manipulation of a 14-year-old girl?
 
 [https://x.com/MiamiHerald/status/1823099687538184446](https://x.com/MiamiHerald/status/1823099687538184446)
 

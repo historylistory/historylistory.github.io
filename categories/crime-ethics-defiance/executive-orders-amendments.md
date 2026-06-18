@@ -16,7 +16,7 @@ permalink: /categories/crime-ethics-defiance/executive-orders-amendments/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
-2025-01-23 Republican House Member Andy Ogles of Tennessee introduced a resolution to amend the Constitution to allow a third term.
+2025-01-23 Representative Andy Ogles introduced a constitutional amendment allowing a third presidential term.
 
 [https://ogles.house.gov/media/press-releases/rep-ogles-proposes-amending-22nd-amendment-allow-trump-serve-third-term](https://ogles.house.gov/media/press-releases/rep-ogles-proposes-amending-22nd-amendment-allow-trump-serve-third-term)
 
@@ -38,4 +38,4 @@ permalink: /categories/crime-ethics-defiance/executive-orders-amendments/
 
 ### OTHER
 
-**2024-09-10 During an ABC news presidential debate, Trump declared "I have nothing to do with Project 2025".**
+2024-09-10 During an ABC news presidential debate, Trump falsely claimed “I have nothing to do with Project 2025”.

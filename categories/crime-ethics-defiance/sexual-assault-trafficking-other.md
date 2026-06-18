@@ -82,7 +82,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 2025 January
 
-2025-01-14 Pete Hegseth was questioned during a confirmation hearing about sexual assault and a $50K settlement he paid.
+2025-01-14 During his confirmation hearing, Pete Hegseth was questioned about sexual assault allegations and a $50,000 settlement payment.
 
 [https://19thnews.org/2025/01/pete-hegseth-settlement-amount/](https://19thnews.org/2025/01/pete-hegseth-settlement-amount/)
 

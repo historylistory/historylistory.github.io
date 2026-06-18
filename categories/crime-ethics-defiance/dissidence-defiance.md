@@ -49,7 +49,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2024 July
 
-2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+2024-07-01 Trump argued that presidents have absolute immunity from criminal prosecution. In 2026, he invoked the Supreme Court's immunity ruling in arguing for protection regarding "official acts."
 
 [https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
 
@@ -80,7 +80,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 January
 
-2025-01-22 The U.S. Constitution temporarily disappeared from the White House website following Trump taking oath. This would be the first of two instances the public would notice it disappearing in 2025.
+2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 [https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522](https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522)
 
@@ -365,18 +365,6 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
 
-
-2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
-
-[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
-
-[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
-
-[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
-
-[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
-
-[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
 2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
 

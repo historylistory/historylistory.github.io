@@ -46,8 +46,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2024
 
-
-2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+2024-07-01 Trump argued that presidents have absolute immunity from criminal prosecution. In 2026, he invoked the Supreme Court's immunity ruling in arguing for protection regarding "official acts."
 
 [https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
 
@@ -142,18 +141,6 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 [https://home.treasury.gov/news/press-releases/sb0425](https://home.treasury.gov/news/press-releases/sb0425)
 
 ### 2026 April
-
-2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
-
-[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
-
-[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
-
-[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
-
-[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
-
-[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
 2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
 

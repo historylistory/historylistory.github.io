@@ -34,7 +34,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 ### 2024 July
 
 
-2024-07-01 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
+2024-07-01 Trump argued that presidents have absolute immunity from criminal prosecution. In 2026, he invoked the Supreme Court's immunity ruling in arguing for protection regarding "official acts."
 
 [https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
 
@@ -206,20 +206,6 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
-
-
-
-2026-04-07 In July of 2024 Trump argued that a President has absolute immunity from criminal prosecution. In 2026 Trump invoked the 2024 ruling to argue for broad immunity from criminal prosecution regarding “official acts”.
-
-[https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf](https://www.supremecourt.gov/opinions/23pdf/23-939_e2pg.pdf)
-
-[https://www.congress.gov/crs-product/LSB11194](https://www.congress.gov/crs-product/LSB11194)
-
-[https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033](https://abcnews.com/Politics/after-sweeping-scotus-presidential-immunity-ruling-trump-wields/story?id=131541033)
-
-[https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law](https://www.aclu.org/press-releases/supreme-court-grants-trump-broad-immunity-for-official-acts-placing-presidents-above-the-law)
-
-[https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
 
 

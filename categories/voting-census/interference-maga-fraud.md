@@ -75,7 +75,7 @@ OTHER SHADY BUSINESS
 
 [https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf](https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf)
 
-2023-08-14 Trump was a co-defendant in the Georgia election interference case along with 18 others; **the case is currently stalled**.
+2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
 
 [https://www.wabe.org/fulton-election-case/](https://www.wabe.org/fulton-election-case/)
 

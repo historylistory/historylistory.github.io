@@ -137,9 +137,9 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 [https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
 
 
-2023-09-15 Starting as early as 2023, multiple articles have been published about an alleged open affair between Kristi Noem and Corey Lewandowski.
+2023-09-15 Beginning in 2023, multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
 
-[https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair#:~:text=Caption%20Options&text=Noem%20stoked%20speculation%20that%20she's,the%20indicted%20man%20for%20president.&text=Lewandowski%20became%20a%20key%20adviser,apologize%20to%20staffers%20for%20him.%E2%80%9D](https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair)
+[https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair](https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair)
 
 [https://www.thedailybeast.com/ice-barbie-kristi-noems-alleged-lover-corey-lewandowski-caught-leching-about-her-body/](https://www.thedailybeast.com/ice-barbie-kristi-noems-alleged-lover-corey-lewandowski-caught-leching-about-her-body/)
 
@@ -149,13 +149,13 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 ### 2024 March
 
-2024-03-06 A news article reported about a podcast from this date where, RFK allegedly boasted about his friendships with multiple sex offenders.
+2024-03-06 RFK Jr. allegedly boasted about friendships with multiple sex offenders.
 
 [https://www.rawstory.com/rfk-jeffrey-epstein/](https://www.rawstory.com/rfk-jeffrey-epstein/)
 
 ### 2024 August
 
-2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events.
+2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events. Did You Know? Lolita is a controversial 1955 novel by Vladimir Nabokov about predatory manipulation of a 14-year-old girl?
 
 [https://x.com/MiamiHerald/status/1823099687538184446](https://x.com/MiamiHerald/status/1823099687538184446)
 
