@@ -46,6 +46,22 @@ permalink: /categories/health/pseudoscience/
 
 [https://www.bbc.com/news/articles/cdr268m5pxro](https://www.bbc.com/news/articles/cdr268m5pxro)
 
+2025-11-20 The CDC website was altered to promote claims linking vaccines and autism.
+
+[https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/](https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/)
+
+[https://autismsciencefoundation.org/press_releases/cdc-webpage/](https://autismsciencefoundation.org/press_releases/cdc-webpage/)
+
+[https://www.ama-assn.org/press-center/ama-press-releases/ama-statement-cdc-changes-website-autism-and-vaccines](https://www.ama-assn.org/press-center/ama-press-releases/ama-statement-cdc-changes-website-autism-and-vaccines)
+
+[https://www.bmj.com/content/391/bmj.r2470](https://www.bmj.com/content/391/bmj.r2470)
+
+[https://www.pbs.org/newshour/health/cdc-vaccine-safety-webpage-changed-to-contradict-scientific-conclusion-that-vaccines-dont-cause-autism](https://www.pbs.org/newshour/health/cdc-vaccine-safety-webpage-changed-to-contradict-scientific-conclusion-that-vaccines-dont-cause-autism)
+
+[https://www.cdc.gov/autism/faq/index.html](https://www.cdc.gov/autism/faq/index.html)
+
+{% include youtubePlayer.html id="0ZqvODLY7zI" %}
+
 ### 2026 February
 
 2026-02-06 RFK claimed the keto diet can cure schizophrenia with no actual data or supporting evidence.

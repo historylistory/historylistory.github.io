@@ -68,9 +68,7 @@ permalink: /categories/conspiracies/immigrants/
 
 ### 2025 December
 
-2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. 
-
-It is also important to note – for context – that the Heritage Foundation Project 2025 has a mandate in their text to dismantle and defund childcare, so **demonizing childcare in this country is****actually part****of the Trump and Heritage Foundation agenda**. Pages 482 and 486 outlines a plan to completely dismantle availability to childcare so women will be forced out of the workplace. That includes single mothers that they love to demonize.
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare?
 
 [https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
 
@@ -82,6 +80,6 @@ It is also important to note – for context – that the Heritage Foundation Pr
 
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 
-2025-12-27 JD Vance tweeted about Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.
+2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.”
 
 [https://x.com/JDVance/status/2005064947437650251?lang=en](https://x.com/JDVance/status/2005064947437650251?lang=en)

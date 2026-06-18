@@ -28,7 +28,7 @@ permalink: /categories/conspiracies/antifa-protesters/
 
 ### 2026 January
 
-2026-01-09 Fox “news” and Laura Ingraham continue to peddle the conspiracy that anti-ICE protesters were being paid. During an interview with Tom Homan, Laura Ingraham perpetuated misinformation that protesters were being paid and that protests were not “organic”.
+2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
 [https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest](https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest)
 

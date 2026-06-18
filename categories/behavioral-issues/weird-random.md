@@ -98,7 +98,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html](https://www.dailymail.co.uk/news/article-15654257/Kash-Patel-savaged-fashion-statement-UFC.html)
 
-2026-03-20 FEMA official George Phillips claimed supernatural experiences of truck levitation and teleportation and promoted voter-fraud conspiracies.
+2026-03-20 FEMA official George Phillips claimed his truck levitated 40 miles and he was teleported to a Waffle House. Phillips promoted voter fraud allegations in 2016. 
 
 [https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile](https://www.cnn.com/2026/03/20/politics/fema-official-gregg-phillips-violent-rhetoric-teleported-kfile)
 

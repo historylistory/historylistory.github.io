@@ -46,9 +46,7 @@ permalink: /categories/conspiracies/health/
 
 ### 2025 November
 
-2025-11-20 The CDC website was changed to promote false and unfounded claims that vaccines cause autism.
-
-{% include youtubePlayer.html id="0ZqvODLY7zI" %}
+2025-11-20 The CDC website was altered to promote claims linking vaccines and autism.
 
 [https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/](https://www.cbsnews.com/video/cdc-website-changes-to-include-false-claim-about-autism-and-vaccines/)
 
@@ -61,3 +59,5 @@ permalink: /categories/conspiracies/health/
 [https://www.pbs.org/newshour/health/cdc-vaccine-safety-webpage-changed-to-contradict-scientific-conclusion-that-vaccines-dont-cause-autism](https://www.pbs.org/newshour/health/cdc-vaccine-safety-webpage-changed-to-contradict-scientific-conclusion-that-vaccines-dont-cause-autism)
 
 [https://www.cdc.gov/autism/faq/index.html](https://www.cdc.gov/autism/faq/index.html)
+
+{% include youtubePlayer.html id="0ZqvODLY7zI" %}

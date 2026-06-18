@@ -56,7 +56,7 @@ s
 
 ### 2025 November: Obama collected Obamacare royalties
 
-2025-11-09 Trump claimed on a social media post that Obama collected royalties from Obamacare.
+2025-11-09 Trump claimed Obama collected royalties from Obamacare.
 
 [https://www.yahoo.com/news/articles/cnn-jake-tapper-mocks-insane-151543065.html](https://www.yahoo.com/news/articles/cnn-jake-tapper-mocks-insane-151543065.html)
 

@@ -301,7 +301,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2025 December
 
-2025-12-15 Trump used “Trump Derangement Syndrome” rhetoric while posting about a murder case involving Rob Reiner.
+2025-12-15 Trump invoked “Trump Derangement Syndrome” while posting about the murder of director Rob Reiner and his wife.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115724141568860081](https://truthsocial.com/@realDonaldTrump/posts/115724141568860081)
 
