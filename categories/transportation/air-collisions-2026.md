@@ -72,3 +72,8 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7](https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7)
 
+2026-06-16 A private jet crashed in Laredo Texas.
+
+[https://cbsaustin.com/news/local/1-dead-after-netjets-private-plane-crashes-onto-laredo-texas-highway-bursts-into-flames-texas-mexico-border-loop-20-los-cabos-international-airport-aviation-accident](https://cbsaustin.com/news/local/1-dead-after-netjets-private-plane-crashes-onto-laredo-texas-highway-bursts-into-flames-texas-mexico-border-loop-20-los-cabos-international-airport-aviation-accident)
+
+[https://www.cbsnews.com/news/small-plane-crash-dramatic-rescue-efforts-laredo-texas/](https://www.cbsnews.com/news/small-plane-crash-dramatic-rescue-efforts-laredo-texas/)

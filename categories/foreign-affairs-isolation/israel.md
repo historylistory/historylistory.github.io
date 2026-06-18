@@ -263,6 +263,14 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
 
+2026-06-15 Iran said the Memorandum of Understanding deal requires Israel to withdraw from Lebanon. 
+
+[https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/](https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/)
+
+[https://apnews.com/article/iran-us-war-israel-lebanon-oil-june-16-2026-d79458506c46e3f4a78aef0f9d8b9250](https://apnews.com/article/iran-us-war-israel-lebanon-oil-june-16-2026-d79458506c46e3f4a78aef0f9d8b9250)
+
 2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
 
 [https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)
+
+

@@ -60,7 +60,7 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 ### 2026 May
 
-2025-05-22 Trump continued to harass Greenland. 
+2026-05-22 Trump continued to harass Greenland. 
 
 [https://www.youtube.com/watch?v=m21ycbDEVro&list=WL&index=1](https://www.youtube.com/watch?v=m21ycbDEVro&list=WL&index=1)
 

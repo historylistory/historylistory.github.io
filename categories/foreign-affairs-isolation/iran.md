@@ -1830,3 +1830,19 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
 
 [https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)
+
+2026-06-15 Trump said he may or may not personally show up to sign the Memorandum of Understanding. 
+
+[https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html](https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html)
+
+[https://www.youtube.com/watch?v=mDm_xDq3gNg](https://www.youtube.com/watch?v=mDm_xDq3gNg)
+
+2026-06-15 Iran said the Memorandum of Understanding deal requires Israel to withdraw from Lebanon. 
+
+[https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/](https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/)
+
+[https://apnews.com/article/iran-us-war-israel-lebanon-oil-june-16-2026-d79458506c46e3f4a78aef0f9d8b9250](https://apnews.com/article/iran-us-war-israel-lebanon-oil-june-16-2026-d79458506c46e3f4a78aef0f9d8b9250)
+
+2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
+
+[https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)

@@ -141,8 +141,6 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-04-13 Arsons set fire to Pennsylvania Democratic Governor Josh Shapiro’s home.
 
-2025-05-22 Secret Service shot and killed an armed man outside the White House.
-
 2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
 
 2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. This was the same day Trump posted on Truth Social that protesters in Los Angeles should be arrested for wearing masks. 
@@ -461,6 +459,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-05-20 Army veteran Kerry Sheron was assaulted outside his Trump-themed home and later died from his injuries.
 
 2026-05-21 Senate Majority Leader John Thune responded to Trump’s J-6 Insurrectionist slush fund, “I think it’s hard to divorce anything that happens here from what’s happening in the political atmosphere around us”.
+
+2026-05-22 Secret Service shot and killed an armed man outside the White House.
 
 2026-05-23 Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”.
 

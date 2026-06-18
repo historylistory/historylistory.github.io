@@ -459,3 +459,13 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/](https://time.com/article/2026/06/03/federal-grants-omb-proposal-trump-review-anti-american/)
 
 [https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal](https://www.theguardian.com/us-news/2026/jun/03/trump-public-funding-proposal)
+
+2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
+
+[https://www.democracynow.org/2026/6/18/abre_conner_naacp](https://www.democracynow.org/2026/6/18/abre_conner_naacp)
+
+[https://www.motherjones.com/politics/2026/06/trump-departement-justice-elon-musk-xai-grok-naacp-data-center-pollution-lawsuit-mississippi/](https://www.motherjones.com/politics/2026/06/trump-departement-justice-elon-musk-xai-grok-naacp-data-center-pollution-lawsuit-mississippi/)
+
+[https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai](https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai)
+
+THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant](https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant)

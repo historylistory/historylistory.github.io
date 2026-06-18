@@ -414,6 +414,16 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8](https://www.youtube.com/watch?v=QIP177C73Hc&list=WL&index=8)
 
 
-2025-05-22 Secret Service shot and killed an armed man outside the White House.
+2026-05-22 Secret Service shot and killed an armed man outside the White House.
 
 [https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2](https://www.youtube.com/watch?v=muWzhhh9UJg&list=WL&index=2)
+
+### 2026 June
+
+2026-06-14 People were arrested for planning to incite a revolution at the White House UFC fight. One person charged had confirmed affiliation with a Christian extremist group, sympathizing with Hitler, and homicidal ideations.
+
+[https://www.cnn.com/2026/06/16/politics/fbi-arrests-ufc-fight](https://www.cnn.com/2026/06/16/politics/fbi-arrests-ufc-fight)
+
+[https://www.espn.com/mma/story/_/id/49081439/fbi-arrests-suspects-planned-attacks-white-house-ufc-event](https://www.espn.com/mma/story/_/id/49081439/fbi-arrests-suspects-planned-attacks-white-house-ufc-event)
+
+[https://www.pbs.org/newshour/nation/fbis-patel-announces-multiple-arrests-connected-to-planned-attacks-targeting-white-house-ufc-show](https://www.pbs.org/newshour/nation/fbis-patel-announces-multiple-arrests-connected-to-planned-attacks-targeting-white-house-ufc-show)

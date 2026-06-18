@@ -117,3 +117,11 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 [https://abc7.com/post/los-angeles-county-accuses-roblox-exposing-children-online-predators-new-lawsuit/18623326/](https://abc7.com/post/los-angeles-county-accuses-roblox-exposing-children-online-predators-new-lawsuit/18623326/)
 
 PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/news/articles/cd6l07wwvlpo)
+
+### 2026 June
+
+2026-06-16 Police officers shot and killed a 1-year-old in response to a shoplifting call. 
+
+[https://www.mississippifreepress.org/anger-mounts-in-senatobia-over-police-killing-of-1-year-old-kohen-wiley/](https://www.mississippifreepress.org/anger-mounts-in-senatobia-over-police-killing-of-1-year-old-kohen-wiley/)
+
+[https://www.nbcnews.com/news/us-news/mississippi-1-year-old-dies-walmart-shoplifting-police-incident-rcna350260](https://www.nbcnews.com/news/us-news/mississippi-1-year-old-dies-walmart-shoplifting-police-incident-rcna350260)

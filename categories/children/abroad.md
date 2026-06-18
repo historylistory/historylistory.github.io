@@ -228,3 +228,11 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 2026-06-11 Bipartisan Congressmembers urged Trump to halt deportation of hundreds of Afghan refugees to the Congo after they served the U.S. in Afghanistan. The group includes over 400 children and family of US servicemembers. 
 
 [https://www.theguardian.com/world/2026/jun/11/us-lawmakers-trump-afghans-drc](https://www.theguardian.com/world/2026/jun/11/us-lawmakers-trump-afghans-drc)
+
+2026-06-17 Ongoing US drone strikes in Somalia killed 12 civilians. In 2025 alone, the US conducted 123 airstrikes. Several children have been killed.
+
+[https://somaliatoday.com/society/us-drone-strike-killed-12-civilians-in-somalia-report-says-2026-06-17/](https://somaliatoday.com/society/us-drone-strike-killed-12-civilians-in-somalia-report-says-2026-06-17/)
+
+[https://www.democracynow.org/2026/6/17/headlines/guardian_us_military_strike_in_somalia_killed_12_civilians_including_8_children](https://www.democracynow.org/2026/6/17/headlines/guardian_us_military_strike_in_somalia_killed_12_civilians_including_8_children)
+
+[https://www.theguardian.com/global-development/2026/jun/16/somalia-us-trump-war-alshabaab-islamists-drone-airstrikes-civilian-deaths-children](https://www.theguardian.com/global-development/2026/jun/16/somalia-us-trump-war-alshabaab-islamists-drone-airstrikes-civilian-deaths-children)

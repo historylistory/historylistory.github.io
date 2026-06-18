@@ -60,3 +60,12 @@ permalink: /categories/agriculture/farm-food-safety/
 [https://time.com/7336883/epa-pfas-pesticides-health-risks/](https://time.com/7336883/epa-pfas-pesticides-health-risks/)
 
 [https://waterkeeper.org/news/poisoned-produce-epa-approvals-threaten-public-health/](https://waterkeeper.org/news/poisoned-produce-epa-approvals-threaten-public-health/)
+
+### 2026 June
+
+2026-06-05 Texas issued a State of Disaster due to flesh-eating screwworms found in cattle, goats and dogs.
+
+[https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
+
+[https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)
+

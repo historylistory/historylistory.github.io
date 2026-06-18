@@ -269,6 +269,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-12 Elon Musk officially became the first trillionaire. 
 
+2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
 
 
 

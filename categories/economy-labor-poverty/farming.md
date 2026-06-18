@@ -254,6 +254,12 @@ permalink: /categories/economy-labor-poverty/farming/
 
 [https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5](https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5)
 
+2026-06-05 Texas issued a State of Disaster due to flesh-eating screwworms found in cattle, goats and dogs.
+
+[https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
+
+[https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)
+
 2026-06-05 Trump visited a swing district in Wisconsin amidst rising costs for American farmers.  Experts reported numerous farmers are asset heavy and going bankrupt. Farm families held up banners while Trump talked about his reflecting pool project. 
 
 [https://www.youtube.com/watch?v=XtJcWtYqxRI&list=WL&index=1&t=152s](https://www.youtube.com/watch?v=XtJcWtYqxRI&list=WL&index=1&t=152s)

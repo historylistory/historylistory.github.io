@@ -66,3 +66,14 @@ permalink: /categories/health/world-health/
 
 [https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s](https://www.youtube.com/watch?v=ueeK3nv23pQ&list=WL&index=6&t=15s)
 
+### 2026 June
+
+2026-06-16 The Ebola outbreak in Africa is the worst in history. 
+
+[https://www.cidrap.umn.edu/ebola/africa-cdc-head-warns-ebola-outbreak-could-be-worst-ever](https://www.cidrap.umn.edu/ebola/africa-cdc-head-warns-ebola-outbreak-could-be-worst-ever)
+
+[https://www.usnews.com/news/world/articles/2026-06-16/red-cross-says-congo-ebola-epidemic-yet-to-peak-may-last-a-year](https://www.usnews.com/news/world/articles/2026-06-16/red-cross-says-congo-ebola-epidemic-yet-to-peak-may-last-a-year)
+
+[https://www.aljazeera.com/news/2026/6/17/why-are-experts-warning-latest-ebola-outbreak-could-be-worst-ever](https://www.aljazeera.com/news/2026/6/17/why-are-experts-warning-latest-ebola-outbreak-could-be-worst-ever)
+
+[https://www.cnn.com/2026/06/16/africa/drc-ebola-cdc-intl-latam-afr](https://www.cnn.com/2026/06/16/africa/drc-ebola-cdc-intl-latam-afr)

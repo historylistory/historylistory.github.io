@@ -620,3 +620,9 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte](https://www.npr.org/2026/06/12/nx-s1-5856291/fisa-702-surveillance-expiration-bill-pulte)
 
 [https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798](https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798)
+
+2026-06-15 Trump said he may or may not personally show up to sign the Memorandum of Understanding. 
+
+[https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html](https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html)
+
+[https://www.youtube.com/watch?v=mDm_xDq3gNg](https://www.youtube.com/watch?v=mDm_xDq3gNg)

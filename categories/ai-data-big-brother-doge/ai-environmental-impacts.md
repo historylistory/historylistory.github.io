@@ -76,3 +76,14 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 
 [https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/](https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/)
 
+### 2026 June
+
+2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
+
+[https://www.democracynow.org/2026/6/18/abre_conner_naacp](https://www.democracynow.org/2026/6/18/abre_conner_naacp)
+
+[https://www.motherjones.com/politics/2026/06/trump-departement-justice-elon-musk-xai-grok-naacp-data-center-pollution-lawsuit-mississippi/](https://www.motherjones.com/politics/2026/06/trump-departement-justice-elon-musk-xai-grok-naacp-data-center-pollution-lawsuit-mississippi/)
+
+[https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai](https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai)
+
+THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant](https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant)

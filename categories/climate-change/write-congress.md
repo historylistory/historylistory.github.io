@@ -256,3 +256,5 @@ The following examples highlight these concerns, while some are included for his
 2026-05-21 Trump rolled back refrigerant regulations intended to reduce emissions, arguing the move would lower grocery costs.
 
 2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
+
+2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
