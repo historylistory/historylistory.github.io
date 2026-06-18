@@ -54,7 +54,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2019
 
-2019-07-09 Democratic leaders like Lois Frankel and Debbie Schultz demanded continued investigation into the Epstein case, particularly for the handling of the case, Epstein’s death, and the lenient 2008 plea deal from U.S. Attorney Alex Acosta (for context, Acosta was later the Trump administration Labor Secretary).
+2019-07-09 Democratic leaders including Lois Frankel and Debbie Wasserman Schultz called for continued investigation into Epstein, including his 2008 plea deal, his death, and the handling of his case. The 2008 plea deal was negotiated by then–U.S. Attorney Alex Acosta, who later became Trump's Labor Secretary.
 
 [https://www.congress.gov/bill/119th-congress/house-bill/4405](https://www.congress.gov/bill/119th-congress/house-bill/4405)
 
@@ -64,7 +64,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.npr.org/2019/08/10/750172199/after-epsteins-death-political-leaders-demand-continued-investigation](https://www.npr.org/2019/08/10/750172199/after-epsteins-death-political-leaders-demand-continued-investigation)
 
-2019-09-10 Epstein died by suicide on this date during Trump’s first term. In 2026 new details were revealed about his alleged suicide including missing video footage and possibly someone entering his cell just before his death.
+2019-09-10 Epstein died by suicide during Trump's first term. In 2026, reports raised new questions about missing video footage and alleged activity near his cell before his death.
 
 [https://www.cbsnews.com/news/epstein-files-jail-cell-death-video-logs/](https://www.cbsnews.com/news/epstein-files-jail-cell-death-video-logs/)
 

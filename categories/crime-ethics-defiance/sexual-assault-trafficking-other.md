@@ -44,7 +44,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 2017
 
-2017-10-01 According to news outlets, Larry Elder downplayed sexual assault allegations on Trump, calling the behavior “child’s play”. This was during his appearance on Fox & Friends in October, where he stated, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
+2017-10-01 During an appearance on Fox & Friends Larry Elder downplayed sexual assault allegations, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
 [https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009](https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009)
 

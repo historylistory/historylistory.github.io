@@ -30,15 +30,15 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 ### 2016
 
-2016-01-01 There were multiple allegations of multiple crimes involving Trump properties back in 2016.
+2016-01-01 Multiple allegations of criminal activity involving Trump properties emerged in 2016.
 
 [https://www.politico.com/story/2016/06/trump-dc-hotel-investigation-labor-department-224678](https://www.politico.com/story/2016/06/trump-dc-hotel-investigation-labor-department-224678)
 
-2016-10-01 Trump’s former attorney Michael Cohen paid Stormy Daniels $130,000 to stay silent about an alleged affair. In 2018 Michael Cohen pleaded guilty in federal court to campaign finance violations related to hush money payments.
+2016-10-01 Trump’s former attorney Michael Cohen paid Stormy Daniels $130,000 to remain silent about an alleged affair with Trump. In 2018, Cohen plead guilty to campaign finance violations related to the payment.
 
 [https://www.wosu.org/2018-05-12/who-paid-michael-cohen](https://www.wosu.org/2018-05-12/who-paid-michael-cohen)
 
-[https://www.justice.gov/usao-sdny/pr/michael-cohen-pleads-guilty-manhattan-federal-court-eight-counts-including-criminal-tax?bm-verify=AAQAAAAM______CgJbJhipzM5p2kI9kMJtWsY8mUdyTQn7zgDsqffUqCExccQwGn_VAUkgP3YV74ueocsrp5YZbSWe9MDBe5mgm4lx53ly2D0EmhTtOrNjyxtwSMGNO8GCMfDqiU-LBH8VqtZcENHTMJlU4vvL-mBv4FRwR73vgaoNJQhOO01FP2w8ehUY2FZ2OcnaqyEgQVyMV2NWddOLB-L15UCvNEOw6aTW2ZjsqtCroXbdvgPcjJ8KFkWcrf6R1h-BH00wHCl1XqhJpdwy3yzgSXaY8EMs54oS2cX71mIQgIv4Z4cXVEwbF_k1J8D5Pt_miakSBHdcXwLdCSnP_lTGNIstlnd_JYC2MGlT1wRa_FnKAOTyi7ajBHrQ0q0oa8yLDs7Dnnt9ZKB6wPh3VUvPYnyaXbhg](https://www.justice.gov/usao-sdny/pr/michael-cohen-pleads-guilty-manhattan-federal-court-eight-counts-including-criminal-tax?bm-verify=AAQAAAAM______CgJbJhipzM5p2kI9kMJtWsY8mUdyTQn7zgDsqffUqCExccQwGn_VAUkgP3YV74ueocsrp5YZbSWe9MDBe5mgm4lx53ly2D0EmhTtOrNjyxtwSMGNO8GCMfDqiU-LBH8VqtZcENHTMJlU4vvL-mBv4FRwR73vgaoNJQhOO01FP2w8ehUY2FZ2OcnaqyEgQVyMV2NWddOLB-L15UCvNEOw6aTW2ZjsqtCroXbdvgPcjJ8KFkWcrf6R1h-BH00wHCl1XqhJpdwy3yzgSXaY8EMs54oS2cX71mIQgIv4Z4cXVEwbF_k1J8D5Pt_miakSBHdcXwLdCSnP_lTGNIstlnd_JYC2MGlT1wRa_FnKAOTyi7ajBHrQ0q0oa8yLDs7Dnnt9ZKB6wPh3VUvPYnyaXbhg)
+[https://www.justice.gov/usao-sdny/pr/michael-cohen-pleads-guilty-manhattan-federal-court-eight-counts-including-criminal-tax](https://www.justice.gov/usao-sdny/pr/michael-cohen-pleads-guilty-manhattan-federal-court-eight-counts-including-criminal-tax)
 
 [https://www.pbs.org/newshour/politics/how-michael-cohen-broke-campaign-finance-law](https://www.pbs.org/newshour/politics/how-michael-cohen-broke-campaign-finance-law)
 
@@ -54,7 +54,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.axios.com/2025/09/03/trump-e-jean-carroll-verdict-scotus](https://www.axios.com/2025/09/03/trump-e-jean-carroll-verdict-scotus)
 
-2019-12-18 House of Representatives Impeached Trump on charges of abuse of power and obstruction of justice (acquitted).
+2019-12-18 The House of Representatives impeached Trump for abuse of power and obstruction of justice. Trump was acquitted.
 
 [https://www.nytimes.com/2019/12/18/us/politics/trump-impeached.html](https://www.nytimes.com/2019/12/18/us/politics/trump-impeached.html)
 

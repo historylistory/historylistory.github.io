@@ -17,7 +17,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 [https://www.prisonology.com/blog/trump-makes-news-with-more-pardons-and-commutations](https://www.prisonology.com/blog/trump-makes-news-with-more-pardons-and-commutations)
 
 
-2017-08-25 Trump pardoned sheriff Joe Arpaio who was found guilty of criminal contempt of court for defying a federal judge’s orders to stop his deputies from racially profiling and detaining Latino motorists suspected of being undocumented.
+2017-08-25 Trump pardoned Sheriff Joe Arpaio after Arpaio was convicted of criminal contempt for defying a federal court order to stop racially profiling Latino motorists.
 
 [https://trumpwhitehouse.archives.gov/briefings-statements/president-trump-pardons-sheriff-joe-arpaio/](https://trumpwhitehouse.archives.gov/briefings-statements/president-trump-pardons-sheriff-joe-arpaio/)
 
