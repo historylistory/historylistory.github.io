@@ -161,7 +161,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2025 August
 
-2025-08-07 The public noticed portions of the U.S. Constitution had temporarily disappeared from the Library of Congress for a second time. This time the White House blamed it on a coding error.
+2025-08-07 Portions of the U.S. Constitution temporarily disappeared from the Library of Congress website for a second time; the White House attributed it to a coding error.
 
 [https://takano.house.gov/newsroom/press-releases/library-of-congress-erases-parts-of-constitution-from-website-rep-takano-demands-answers](https://takano.house.gov/newsroom/press-releases/library-of-congress-erases-parts-of-constitution-from-website-rep-takano-demands-answers)
 

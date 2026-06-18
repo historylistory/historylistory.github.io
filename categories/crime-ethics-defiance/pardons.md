@@ -200,7 +200,8 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 ### 2025 August
 
-2025-08-06 Carolina Amesty, an elected official in Florida was charged by the Justice Department for taking over $100,000 in fraudulent COVID-19 relief funds. She hired Pam Bondi’s brother Brad Bondi. In August 2025 the DOJ dropped all charges against her. 
+2025-08-06 Florida official Carolina Amesty was charged with fraudulently obtaining more than $100,000 in COVID-19 relief funds. After hiring Brad Bondi, Pam Bondi's brother, the DOJ dropped the charges later that month.
+
 [https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5](https://www.youtube.com/watch?v=9200it2zr9s&list=WL&index=5)
 
 [https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud](https://www.justice.gov/usao-mdfl/pr/windermere-woman-charged-covid-relief-fraud)
@@ -208,6 +209,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 [https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/](https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/)
 
 2025-08-28 Real-estate developer Sid Chakraverty was charged with illegally claiming millions of dollars in tax incentives. Pam Bondi’s brother Brad Bondi was on his defense team. In August 2025 the DOJ dismissed charges against him. 
+
 [https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
 
 [https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney](https://www.stlpr.org/show/st-louis-on-the-air/2025-10-01/how-developers-charged-with-fraud-in-st-louis-caught-a-break-from-trumps-u-s-attorney)

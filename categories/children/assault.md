@@ -52,7 +52,7 @@ Epstein files, because if you wouldn’t want pedophiles working in your schools
 
 ### 2025 August
 
-2025-08-01 Ghislane Maxwell was transferred to a much nicer, lower-security federal prison.
+2025-08-01 Ghislaine Maxwell was transferred to a lower-security federal prison.
 
 [https://www.nbcnews.com/politics/justice-department/ghislaine-maxwell-moved-federal-prison-texas-rcna222497](https://www.nbcnews.com/politics/justice-department/ghislaine-maxwell-moved-federal-prison-texas-rcna222497)
 

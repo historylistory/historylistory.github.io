@@ -214,7 +214,7 @@ permalink: /categories/crime-ethics-defiance/legal-trouble-trump/
 
 [https://www.warren.senate.gov/newsroom/press-releases/warren-calls-for-investigation-into-paramount-settlement-with-trump](https://www.warren.senate.gov/newsroom/press-releases/warren-calls-for-investigation-into-paramount-settlement-with-trump)
 
-2025-07-24 Senators requested an investigation into corruption and bribery for the Paramount megamerger.
+2025-07-24 Senators requested an investigation into corruption and bribery related to the Paramount megamerger.
 
 [https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president#:~:text=Warren%20on%20Trump%20Administration%20Approving,Wyden%20(D%2DOre.)](https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president)
 

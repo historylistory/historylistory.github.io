@@ -17,7 +17,7 @@ permalink: /categories/foreign-affairs-isolation/sudan/
 
 ### 2025 July
 
-2025-07-13 News outlets reported Israel and the U.S. pushing efforts to relocate Palestinians to Sudan or Libya.
+2025-07-13 The United States and Israel pursued joint efforts to relocate Palestinians to Sudan or Libya.
 
 [https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 

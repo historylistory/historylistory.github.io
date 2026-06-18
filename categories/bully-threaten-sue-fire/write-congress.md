@@ -228,7 +228,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-07-27 Trump called for Beyoncé to be prosecuted over her endorsement of Kamala Harris. 
 
-2025-07-29 Trump sued The Wall Street Journal for $10 billion for defamation over reporting on the Epstein files.. 
+2025-07-28 Trump filed a $10B lawsuit against the Wall Street Journal for reporting on the Epstein files.
 
 2025-07-30 Trump imposed an additional 40% tariff on Brazilian imports after the arrest of Jair Bolsonaro. 
 

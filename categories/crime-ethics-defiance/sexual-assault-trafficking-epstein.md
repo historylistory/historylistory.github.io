@@ -103,7 +103,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114842356238631061](https://truthsocial.com/@realDonaldTrump/posts/114842356238631061)
 
-2025-07-15 Charlie Kirk called on the Trump administration to release the Epstein files, then advised he was done talking about the Epstein files.
+2025-07-15 Charlie Kirk initially urged the Trump administration to release the Epstein files, then announced he was done discussing the issue.
 
 [https://www.axios.com/2025/07/15/trump-epstein-maga-charlie-kirk](https://www.axios.com/2025/07/15/trump-epstein-maga-charlie-kirk)
 
@@ -131,13 +131,15 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/](https://firstamendment.mtsu.edu/post/trump-sues-wall-street-journal-rupert-murdoch-over-reporting-on-epstein-ties/)
 
+[https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit](https://www.npr.org/2025/07/29/nx-s1-5482955/trump-epstein-murdoch-deposition-lawsuit)
+
 2025-07-29 Trump told the media he had a falling out with Epstein after Epstein "stole" a spa worker from him in 2000. Virginia Giuffre would have been 16 in 2000.
 
 [https://www.bbc.com/news/articles/cyvn7ee3539o](https://www.bbc.com/news/articles/cyvn7ee3539o)
 
 ### 2025 August
 
-2025-08-01 Ghislane Maxwell was transferred to a much nicer, lower-security federal prison.
+2025-08-01 Ghislaine Maxwell was transferred to a lower-security federal prison.
 
 [https://www.nbcnews.com/politics/justice-department/ghislaine-maxwell-moved-federal-prison-texas-rcna222497](https://www.nbcnews.com/politics/justice-department/ghislaine-maxwell-moved-federal-prison-texas-rcna222497)
 

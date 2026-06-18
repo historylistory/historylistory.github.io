@@ -155,7 +155,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://www.bbc.com/news/articles/c5ypylq0vnko](https://www.bbc.com/news/articles/c5ypylq0vnko)
 
-2025-07-24 Senators requested an investigation into corruption and bribery for the Paramount megamerger.
+2025-07-24 Senators requested an investigation into corruption and bribery related to the Paramount megamerger.
 
 [https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president#:~:text=Warren%20on%20Trump%20Administration%20Approving,Wyden%20(D%2DOre.)](https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president)
 
