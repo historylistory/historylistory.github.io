@@ -16,6 +16,16 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.amnesty.org.uk/licence-discriminate-trumps-muslim-refugee-ban](https://www.amnesty.org.uk/licence-discriminate-trumps-muslim-refugee-ban)
 
+### 2019 
+
+2019-10-25 United Healthcare used racial bias in their healthcare algorithms. 
+
+[https://www.science.org/doi/10.1126/science.aax2342](https://www.science.org/doi/10.1126/science.aax2342)
+
+[https://www.theguardian.com/society/2019/oct/25/healthcare-algorithm-racial-biases-optum](https://www.theguardian.com/society/2019/oct/25/healthcare-algorithm-racial-biases-optum)
+
+[https://pubmed.ncbi.nlm.nih.gov/31649194/](https://pubmed.ncbi.nlm.nih.gov/31649194/)
+
 ### 2025 January
 
 2025-01-20 Trump rescinded Executive Order 14012 Restoring Faith in Our Legal Immigration Systems and Strengthening Integration and Inclusion Efforts for New Americans.

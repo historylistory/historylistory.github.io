@@ -51,6 +51,13 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 ### 2023
 
+2023-04-01 MAGA boycotted Bud Light for featuring transgender influencer Dylan Mulvaney in one of their commercials. 
+
+[https://en.wikipedia.org/wiki/Bud_Light_boycott](https://en.wikipedia.org/wiki/Bud_Light_boycott)
+
+[https://www.forbes.com/sites/brianbushard/2024/02/06/trump-questions-bud-light-boycott-calling-anheuser-busch-not-a-woke-company/](https://www.forbes.com/sites/brianbushard/2024/02/06/trump-questions-bud-light-boycott-calling-anheuser-busch-not-a-woke-company/)
+
+
 2023-11-30 The Russian Supreme Court labelled LGBT as a movement and an “extremist organization”.
 
 [https://www.hrw.org/news/2023/11/30/russia-supreme-court-bans-lgbt-movement-extremist](https://www.hrw.org/news/2023/11/30/russia-supreme-court-bans-lgbt-movement-extremist)
