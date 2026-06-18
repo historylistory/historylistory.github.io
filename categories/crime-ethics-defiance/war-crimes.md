@@ -53,14 +53,14 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 
 ### 2025 August 
-2025-08-30 The U.S. Navy deployed warships into international waters and shot down a boat from Venezuela. News outlets reported Venezuela took this as an invasion, and many speculated this was a war crime.
+2025-08-30 The U.S. Navy sank a Venezuelan vessel in international waters.
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-venezuela-drug-boat-attack-video-b2819566.html](https://www.the-independent.com/news/world/americas/us-politics/trump-venezuela-drug-boat-attack-video-b2819566.html)
 
 
 ### 2025 September 
 
-2025-09-06 JD Vance posted on social media, "**killing cartel members who poison our fellow citizens is the highest and best use of our military**". Brian Krassenstein replied, "killing the citizens of another nation who are civilians without any due process is called a war crime". JD Vance responded, "**I don't give a shit what you call it**". Vance also wrote, **“****Democrats:****let’s send your kids to die in Russia…****Republicans:****actually let’s protect our people from the scum of the earth”.**
+2025-09-06 JD Vance posted on social media, “killing cartel members who poison our fellow citizens is the highest and best use of our military”. Brian Krassenstein replied, “killing the citizens of another nation who are civilians without any due process is called a war crime”. JD Vance responded, “I don’t give a shit what you call it”. Vance also wrote, “Democrats:let’s send your kids to die in Russia…Republicans:actually let’s protect our people from the scum of the earth”.
 
 [https://x.com/JDVance/status/1964341094226743787](https://x.com/JDVance/status/1964341094226743787)
 
@@ -69,11 +69,11 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.democracynow.org/2025/9/11/headlines/trump_administration_reportedly_considers_military_strikes_on_venezuela](https://www.democracynow.org/2025/9/11/headlines/trump_administration_reportedly_considers_military_strikes_on_venezuela)
 
 
-2025-09-10 A news outlet reported initial survivors to the boat strike, and that the U.S. turned back to finish the job.  According to news outlets, if this was true it would be **considered a breach of Rules of Engagement** and an **act of murder**.
+2025-09-10 News reports alleged there were survivors to the Venezuelan boat strike, and that the U.S. turned back to finish the job.  If this was true it would be considered a breach of Rules of Engagement and an act of murder.
 
 [https://theintercept.com/2025/09/10/u-s-attacked-boat-near-venezuela-multiple-times-to-kill-survivors/](https://theintercept.com/2025/09/10/u-s-attacked-boat-near-venezuela-multiple-times-to-kill-survivors/)
 
-2025-09-11 After their return from a fact-finding mission, Democratic Senators Chris Van Holland and Jeff Merkley released a report accusing Israel of collective punishment and ethnic cleansing.
+2025-09-11 After a fact-finding mission, Democratic Senators Chris Van Holland and Jeff Merkley released a report accusing Israel of collective punishment and ethnic cleansing.
 
 {% include youtubePlayer.html id="KQ7C5EOf274" %}
 

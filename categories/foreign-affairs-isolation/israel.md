@@ -61,6 +61,13 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
+### 2025 September
+
+2025-09-16 The UN Independent International Commission issued a 72-page report condemning the Israeli government of violating 4-out-of-5 acts prohibited under the 1948 Genocide Convention.
+
+[https://www.bbc.com/news/articles/c8641wv0n4go](https://www.bbc.com/news/articles/c8641wv0n4go)
+
+
 ### 2025 November
 
 2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows Israeli forces shoot the child in the back, then stand around and watch the child struggle in agony as he bled to death for over 30 minutes before finally dying. 

@@ -31,7 +31,7 @@ permalink: /categories/foreign-affairs-isolation/the-un/
 [https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding](https://www.theguardian.com/us-news/2025/feb/27/trump-un-hiv-aids-funding)
 
 
-2025-08-28 The Trump administration withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. ACLU issued a press release calling this an attempt to evade accountability.
+2025-08-28 Trump withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
 [https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record](https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record)
 

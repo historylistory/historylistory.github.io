@@ -251,7 +251,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115057235181892448](https://truthsocial.com/@realDonaldTrump/posts/115057235181892448)
 
-2025-08-28 Real-estate developer Sid Chakraverty was charged with illegally claiming millions of dollars in tax incentives. Pam Bondi’s brother Brad Bondi was on his defense team. In August 2025 the DOJ dismissed charges against him. 
+2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges later that month.  
 
 [https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
 
@@ -263,7 +263,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335](https://abcnews.com/US/doj-drops-charges-client-ag-pam-bondis-brother/story?id=125073335)
 
-2025-08-28 The Trump administration withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
+2025-08-28 Trump withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
 [https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record](https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record)
 
@@ -275,7 +275,7 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
-2025-09-20 Footage from 2024 was uncovered of Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, **MAGA does not care** if Tom Homan took a bribe or not.
+2025-09-20 Footage from 2024 showed Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, MAGA does not care if Tom Homan took a bribe or not.
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/judiciary-democrats-demand-doj-fbi-release-recordings-of-tom-homan-receiving-50000-cash-bribe](https://democrats-judiciary.house.gov/media-center/press-releases/judiciary-democrats-demand-doj-fbi-release-recordings-of-tom-homan-receiving-50000-cash-bribe)
 

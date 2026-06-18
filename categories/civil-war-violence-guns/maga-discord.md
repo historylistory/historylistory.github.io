@@ -110,6 +110,15 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 ### 2025 September
 
+2025-09-03 Trump supporters ousted Representative Thomas Massie after he pushed for release of the Epstein files.
+
+[https://www.politico.com/news/2025/09/03/massie-gop-release-epstein-files-00541753](https://www.politico.com/news/2025/09/03/massie-gop-release-epstein-files-00541753)
+
+[https://abc7.com/post/gop-leaders-help-rep-thomas-massies-reelection-bid-pres-donald-trump-plots-ouster-amid-jeffrey-epstein-files-fight/17764799/](https://abc7.com/post/gop-leaders-help-rep-thomas-massies-reelection-bid-pres-donald-trump-plots-ouster-amid-jeffrey-epstein-files-fight/17764799/)
+
+[https://www.lpm.org/news/2025-09-28/targeted-by-trump-rep-thomas-massie-teams-up-with-rand-paul-for-district-tour](https://www.lpm.org/news/2025-09-28/targeted-by-trump-rep-thomas-massie-teams-up-with-rand-paul-for-district-tour)
+
+[https://www.cincinnati.com/story/news/2025/09/25/thomas-massie-rally-adelita-grijalva-epstein-files-vote/86296223007/](https://www.cincinnati.com/story/news/2025/09/25/thomas-massie-rally-adelita-grijalva-epstein-files-vote/86296223007/)
 
 2025-09-08 Scott Bessent reportedly threatened Bill Pulte during a MAGA dinner.
 

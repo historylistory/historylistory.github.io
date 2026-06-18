@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/war/
 
 ### 2025 September
 
-2025-09-06 JD Vance posted on social media, "**killing cartel members who poison our fellow citizens is the highest and best use of our military**". Brian Krassenstein replied, "killing the citizens of another nation who are civilians without any due process is called a war crime". JD Vance responded, "**I don't give a shit what you call it**". Vance also wrote, **“****Democrats:****let’s send your kids to die in Russia…****Republicans:****actually let’s protect our people from the scum of the earth”.**
+2025-09-06 JD Vance posted on social media, “killing cartel members who poison our fellow citizens is the highest and best use of our military”. Brian Krassenstein replied, “killing the citizens of another nation who are civilians without any due process is called a war crime”. JD Vance responded, “I don’t give a shit what you call it”. Vance also wrote, “Democrats:let’s send your kids to die in Russia…Republicans:actually let’s protect our people from the scum of the earth”.
 
 [https://x.com/JDVance/status/1964341094226743787](https://x.com/JDVance/status/1964341094226743787)
 

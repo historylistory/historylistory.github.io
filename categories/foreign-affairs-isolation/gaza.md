@@ -148,7 +148,7 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 {% include youtubePlayer.html id="96Mlan_IaTY" %}
 
-2025-09-11 After their return from a fact-finding mission, Democratic Senators Chris Van Holland and Jeff Merkley released a report accusing Israel of collective punishment and ethnic cleansing.
+2025-09-11 After a fact-finding mission, Democratic Senators Chris Van Holland and Jeff Merkley released a report accusing Israel of collective punishment and ethnic cleansing.
 
 {% include youtubePlayer.html id="KQ7C5EOf274" %}
 

@@ -175,6 +175,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-08-31 Pope Leo called school shootings in America a "pandemic of arms".
 
+2025-09-03 Trump supporters ousted Representative Thomas Massie after he pushed for release of the Epstein files.
+
 2025-09-05 The DOJ considered banning guns specifically from anyone transgender.
 
 2025-09-09 Newsmax host Rob Schmidt villainized, “For the last several years the Democrats have destabilized this country by installing agents of chaos…” and suggested Democrats are trying to “intentionally sabotage the country” and “shred faith in the system”.

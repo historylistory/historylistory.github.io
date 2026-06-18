@@ -208,7 +208,7 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/](https://floridapolitics.com/archives/750470-amnesty-for-carolina-amesty-feds-wont-pursue-criminal-case-over-covid-loans-defense-lawyer-says/)
 
-2025-08-28 Real-estate developer Sid Chakraverty was charged with illegally claiming millions of dollars in tax incentives. Pam Bondi’s brother Brad Bondi was on his defense team. In August 2025 the DOJ dismissed charges against him. 
+2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges later that month.  
 
 [https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
 

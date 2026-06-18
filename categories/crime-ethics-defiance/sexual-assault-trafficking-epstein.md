@@ -147,13 +147,13 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2025 September
 
-2025-09-02 Epstein victims met privately with lawmakers on the 2nd, and had a press conference September 3rd.
+2025-09-02 Epstein victims met privately with lawmakers; a public press conference followed on September 3.
 
 [https://www.c-span.org/program/news-conference/house-oversight-committee-democrats-on-meeting-with-jeffry-epsteins-victims/665041](https://www.c-span.org/program/news-conference/house-oversight-committee-democrats-on-meeting-with-jeffry-epsteins-victims/665041)
 
 {% include youtubePlayer.html id="AKMuuNxPyrg" %}
 
-2025-09-03 Trump supporters ousted Republican Thomas Massie for pushing to release the Epstein files.
+2025-09-03 Trump supporters ousted Representative Thomas Massie after he pushed for release of the Epstein files.
 
 [https://www.politico.com/news/2025/09/03/massie-gop-release-epstein-files-00541753](https://www.politico.com/news/2025/09/03/massie-gop-release-epstein-files-00541753)
 
@@ -163,17 +163,14 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.cincinnati.com/story/news/2025/09/25/thomas-massie-rally-adelita-grijalva-epstein-files-vote/86296223007/](https://www.cincinnati.com/story/news/2025/09/25/thomas-massie-rally-adelita-grijalva-epstein-files-vote/86296223007/)
 
-2025-09-04 Mike Johnson said during a press conference that Trump was an FBI informant on Epstein, and that Democrats have impure motives.
+2025-09-04 Speaker Mike Johnson claimed that Trump had acted as an FBI informant regarding Epstein and claimed Democrats have impure motives. He walked his comment back 2025-09-07. 
 
 [https://www.snopes.com/news/2025/09/08/trump-fbi-informant-mike-johnson/](https://www.snopes.com/news/2025/09/08/trump-fbi-informant-mike-johnson/)
 
-2025-09-07 Mike Johnson walked back his former statement that Trump was an FBI informant.
-
 {% include youtubePlayer.html id="vnzNl0E--rI" %}
 
- 
 
-2025-09-08 The House Oversight Committee released documents from the Epstein estate including the letter allegedly written by Trump. Trump told NBC it was a dead issue.
+2025-09-08 The House Oversight Committee released documents from the Epstein estate including the birthday letter written by Trump. Trump told NBC it was a dead issue.
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-epstein-birthday-letter-dead-issue-rcna230042](https://www.nbcnews.com/politics/donald-trump/trump-calls-epstein-birthday-letter-dead-issue-rcna230042)
 
@@ -191,7 +188,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.reuters.com/world/us/us-senate-republicans-narrowly-reject-schumer-bid-force-vote-epstein-files-2025-09-10/](https://www.reuters.com/world/us/us-senate-republicans-narrowly-reject-schumer-bid-force-vote-epstein-files-2025-09-10/)
 
-2025-09-17 An unverified and unsubstantiated video went viral, suggesting the DOJ will make heavy redactions to Republican names on the Epstein files .
+2025-09-17 An unverified video claimed the DOJ planned extensive redactions of Republican names in the Epstein files.
 
 {% include youtubePlayer.html id="tx5F6llyaVw" %}
 
