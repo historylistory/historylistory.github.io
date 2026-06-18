@@ -18,7 +18,7 @@ permalink: /categories/women-reproductive-rights/assault/
 
 ### 1987
 
-1987-03-01 Multimillionaire televangelist Jim Bakker was accused of drugging and raping a 21-year-old woman Jessica Hahn in 1980 in a Florida hotel room.
+1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
 
 [https://www.history.com/this-day-in-history/october-4/jim-bakker-is-indicted-on-federal-charges](https://www.history.com/this-day-in-history/october-4/jim-bakker-is-indicted-on-federal-charges)
 

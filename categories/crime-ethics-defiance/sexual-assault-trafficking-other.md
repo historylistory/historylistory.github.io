@@ -8,7 +8,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 1970
 
-1970 Donald J Trump has faced numerous allegations of sexual assault dating back to the 70’s.
+1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 
 
 [https://19thnews.org/2023/10/donald-trump-associates-sexual-misconduct-allegations/](https://19thnews.org/2023/10/donald-trump-associates-sexual-misconduct-allegations/)
 
@@ -18,7 +18,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 1987
 
-1987-03-01 Multimillionaire televangelist Jim Bakker was accused of drugging and raping a 21-year-old woman Jessica Hahn in 1980 in a Florida hotel room.
+1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
 
 [https://www.history.com/this-day-in-history/october-4/jim-bakker-is-indicted-on-federal-charges](https://www.history.com/this-day-in-history/october-4/jim-bakker-is-indicted-on-federal-charges)
 
@@ -38,7 +38,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
 
 ### 2001
 
-2001-01-01 According to articles, Stephen Miller would call in to the conservative Larry Elder Show during high school. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
+2001-01-01 Stephen Miller reportedly called into Larry Elder's radio show while in high. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
 
 [https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
 

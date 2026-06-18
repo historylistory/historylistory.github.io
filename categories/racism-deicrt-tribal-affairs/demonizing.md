@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 1989
 
-1989 Trump called for the reinstatement of the death penalty and paid for full-page advertisements in several New York City newspapers. For context, in 1989 five Black and Latino men were wrongfully convicted of raping a woman.
+1989-01-01 Trump called for reinstating the death penalty and funded full-page newspaper ads in New York City following the case involving five Black and Latino boys who were later wrongfully convicted of rape
 
 [https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york](https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york)
 

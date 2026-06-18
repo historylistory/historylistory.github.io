@@ -8,7 +8,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 1996
 
-1996-01-01  Epstein had been accused of sexual assault dating back to 1996. 
+1996-01-01 Jeffrey Epstein faced sexual assault allegations dating back to 1996. 
 
 [https://www.jamesmarshlaw.com/jeffrey-epstein-sex-trafficking/](https://www.jamesmarshlaw.com/jeffrey-epstein-sex-trafficking/)
 
@@ -20,7 +20,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2000
 
-2000-01-01 This is the year Trump stated Epstein "stole" one of his spa workers. Virginia Giuffre would have been 16.
+2000-01-01 Trump said Epstein had "stolen" one of his spa employees; Virginia Giuffre would have been 16 at the time.
 
 [https://www.youtube.com/shorts/eatJjtwMow8](https://www.youtube.com/shorts/eatJjtwMow8)
 
@@ -32,7 +32,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 ### 2003
 
-2003-01-01 This is the year the Epstein birthday book was compiled, including a letter from Trump of a naked woman’s outline, his signature mimicking pubic hair, and the following cryptic poem, “Voice Over – There must be more to live than having everything. Donald – Yes, there is, but I won’t tell you what it is. Jeffrey – Nor will I, since I also know what it is. Donald – We have certain things in common, Jeffrey. Jeffrey – Yes, we do, come to think of it. Donald – Enigmas never age, have you noticed that? Jeffrey – As a matter of fact, it was clear to me the last time I saw you. Donald – A pal is a wonderful thing. Happy Birthday – and may every day be another wonderful secret”.
+2003-01-01 This is the year the Epstein birthday book was compiled, including a letter from Trump of a naked woman’s outline and the following, “Voice Over – There must be more to live than having everything. Donald – Yes, there is, but I won’t tell you what it is. Jeffrey – Nor will I, since I also know what it is. Donald – We have certain things in common, Jeffrey. Jeffrey – Yes, we do, come to think of it. Donald – Enigmas never age, have you noticed that? Jeffrey – As a matter of fact, it was clear to me the last time I saw you. Donald – A pal is a wonderful thing. Happy Birthday – and may every day be another wonderful secret”.
 
 [https://time.com/7315609/epsteins-birthday-book-trump-clinton/](https://time.com/7315609/epsteins-birthday-book-trump-clinton/)
 
