@@ -644,7 +644,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west](https://www.aljazeera.com/news/2026/4/21/israeli-soldiers-and-settlers-kill-11-palestinians-across-gaza-west)
 
-2026-04-21 Amnesty International labeled Israel, Russia, and the U.S. “voracious predators” in its annual human-rights report.
+2026-04-21 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict 
 
 [https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
 

@@ -566,7 +566,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364](https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364)
 
-2026-04-14 All at once, two Congressional members resigned from their positions, and two House members faced expulsion for the first time in the 237-year history of the chamber. Democrat Congressman Eric Salwell officially resigned after sexual assault allegations. Republican Congressman Tony Gonzales resigned after admitting an affair with an aide who died by suicide.  Two other house members faced expulsion for ethics concerns.
+2026-04-14 Two members of Congress resigned, and two others faced expulsion proceedings in an unprecedented series of ethics scandals. Eric Swalwell resigned amid sexual-assault allegations, while Tony Gonzales resigned after acknowledging an affair with an aide who later died by suicide.
 
 [https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates)
 

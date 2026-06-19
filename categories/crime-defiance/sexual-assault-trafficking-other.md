@@ -112,6 +112,24 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 
 PAY WALL [https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/](https://www.washingtonexaminer.com/news/4517288/newly-released-texts-show-tony-gonzales-pursued-another-affair-staffer/)
 
+2026-04-14 Two members of Congress resigned, and two others faced expulsion proceedings in an unprecedented series of ethics scandals. Eric Swalwell resigned amid sexual-assault allegations, while Tony Gonzales resigned after acknowledging an affair with an aide who later died by suicide.
+
+[https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/apr/14/house-swalwell-gonzales-trump-congress-iran-politics-latest-news-updates)
+
+[https://www.thedailybeast.com/california-dem-star-eric-swalwell-resigning-from-congress-after-vile-sex-claims/](https://www.thedailybeast.com/california-dem-star-eric-swalwell-resigning-from-congress-after-vile-sex-claims/)
+
+[https://www.foxnews.com/live-news/swalwell-gonzales-announce-resignations-in-wake-of-allegations-shaking-up-congress](https://www.foxnews.com/live-news/swalwell-gonzales-announce-resignations-in-wake-of-allegations-shaking-up-congress)
+
+[https://www.foxnews.com/politics/he-should-go-senate-dems-turned-on-swalwell-before-he-even-announced-resignation](https://www.foxnews.com/politics/he-should-go-senate-dems-turned-on-swalwell-before-he-even-announced-resignation)
+
+[https://www.cnn.com/2026/04/13/politics/eric-swalwell-congress-resignation](https://www.cnn.com/2026/04/13/politics/eric-swalwell-congress-resignation)
+
+[https://thehill.com/homenews/house/5830215-swalwell-resigns-sexual-misconduct/](https://thehill.com/homenews/house/5830215-swalwell-resigns-sexual-misconduct/)
+
+[https://www.bbc.com/news/articles/c0700pd0xx1o](https://www.bbc.com/news/articles/c0700pd0xx1o)
+
+[https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel](https://www.axios.com/2026/04/13/swalwell-gonzales-cherfilus-mccormick-mills-expel)
+
 2026-04-16 An online “rape academy” was exposed by CNN where abusers feature sleeping or medically incapacitated women and unthinkable acts. Most of the victims are married, and the abusers are their own husbands. 
 
 [https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8](https://www.youtube.com/watch?v=8poO2b7cky8&list=WL&index=8)

@@ -24,7 +24,7 @@ This is specifically for any Global Human Right council activity or events.
 
 ### 2026
 
-2026-04-21 Amnesty International labeled Israel, Russia, and the U.S. “voracious predators” in its annual human-rights report.
+2026-04-21 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict 
 
 [https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
 

@@ -67,7 +67,7 @@ permalink: /categories/crime-defiance/other/
 
 [https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates](https://www.cnn.com/2026/04/22/politics/kalshi-prediction-site-suspend-political-candidates)
 
-2026-04-23 The International Criminal Court unanimously confirmed all the charges against Duterte. Charges include crimes against humanity (murder and attempted murder), paying a central roll in a plan to kill “suspected” drug offenders and labeling others as criminals, using State structures to carry out crimes, and systematic attack on civilians. Consider parallels with the Trump regime. 
+2026-04-23 The International Criminal Court unanimously confirmed crimes-against-humanity charges against former Philippine President Rodrigo Duterte.
 
 [https://www.icc-cpi.int/philippines/duterte](https://www.icc-cpi.int/philippines/duterte)
 

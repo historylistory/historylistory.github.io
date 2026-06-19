@@ -255,7 +255,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific](https://www.theguardian.com/us-news/2026/apr/14/us-military-boat-strike-eastern-pacific)
 
-2026-04-16 Democrats filed articles of impeachment on Pete Hegseth for high crimes and misdemeanors. 
+2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 
 [https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html](https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html)
 
@@ -284,7 +284,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.jpost.com/international/article-893675](https://www.jpost.com/international/article-893675)
 
 
-2026-04-21 Amnesty International labeled Israel, Russia, and the U.S. “voracious predators” in its annual human-rights report.
+2026-04-21 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict 
 
 [https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
 
@@ -318,13 +318,13 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z](https://en.royanews.tv/news/69174/NBC-poll-shows-massive-%E2%80%9Csympathy%E2%80%9D-for-Palestinians-among-American-Gen-Z)
 
-2026-04-24 Israel continued to kill more citizens in Gaza amid a ceasefire.
+2026-04-24 Israeli forces continued their killings in Gaza despite a ceasefire.
 
 [https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire](https://www.aljazeera.com/news/2026/4/24/israel-kills-at-least-12-palestinians-in-gaza-amid-ceasefire)
 
 [https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/)
 
-2026-04-26 The U.S. struck another boat, claiming without merit it was transporting narcotics. This would make the death toll on boats in international waters roughly 185 people
+2026-04-26 The U.S. struck another boat, claiming once again without merit it was transporting narcotics. 
 
 [https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242](https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242)
 

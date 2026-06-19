@@ -46,6 +46,14 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 
 [https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
 
+2026-04-21 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict 
+
+[https://www.amnesty.org/en/documents/pol10/0320/2026/en/](https://www.amnesty.org/en/documents/pol10/0320/2026/en/)
+
+[https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump](https://www.democracynow.org/2026/4/21/headlines/amnesty_international_blasts_predatory_world_order_of_netanyahu_putin_and_trump)
+
+[https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline](https://www.aljazeera.com/news/2026/4/20/predators-amnesty-slams-netanyahu-putin-trump-as-human-rights-decline)
+
 2026-04-24 Internal Pentagon documents reportedly outlined plans to pressure NATO allies that did not support the Iran war effort. 
 
 [https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103](https://www.dw.com/en/spain-responds-to-reported-us-plans-to-punish-nato-allies/a-76923103)

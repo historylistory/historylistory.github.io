@@ -378,7 +378,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
 
-2026-04-23 The GOP used a reconciliation measure to bypass Democratic vote and get an additional $70B in ICE funding.
+2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
 
 [https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)
 

@@ -397,7 +397,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 ### 2026 April
 
-2026-04-23 The GOP used a reconciliation measure to bypass Democratic vote and get an additional $70B in ICE funding.
+2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
 
 [https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)
 

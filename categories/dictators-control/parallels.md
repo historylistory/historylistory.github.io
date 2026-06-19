@@ -70,7 +70,7 @@ permalink: /categories/dictators-control/parallels/
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 
-2026-04-23 The International Criminal Court unanimously confirmed all the charges against Duterte. Charges include crimes against humanity (murder and attempted murder), paying a central roll in a plan to kill “suspected” drug offenders and labeling others as criminals, using State structures to carry out crimes, and systematic attack on civilians. Consider parallels with the Trump regime. 
+2026-04-23 The International Criminal Court unanimously confirmed crimes-against-humanity charges against former Philippine President Rodrigo Duterte.
 
 [https://www.icc-cpi.int/philippines/duterte](https://www.icc-cpi.int/philippines/duterte)
 

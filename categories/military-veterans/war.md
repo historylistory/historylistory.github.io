@@ -265,7 +265,7 @@ VIDEO [https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3](https://www.
 
 SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/](https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/)
 
-2026-04-16 Democrats filed articles of impeachment on Pete Hegseth for high crimes and misdemeanors. 
+2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 
 [https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html](https://www.military.com/daily-news/investigations-and-features/2026/04/16/democrats-move-impeach-hegseth-over-iran-strikes-civilian-claims.html)
 
