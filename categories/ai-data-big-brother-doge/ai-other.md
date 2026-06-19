@@ -79,3 +79,11 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 
 PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
 
+### 2026 June
+
+2026-06-18 NVIDIA revealed AI robots that taught themselves to install GPUs.
+
+[https://www.tomshardware.com/tech-industry/artificial-intelligence/nvidia-reveals-ai-robots-that-taught-themselves-to-install-gpus-into-motherboards-video-shows-robot-solve-high-precision-tasks-like-installing-gpus-all-by-itself](https://www.tomshardware.com/tech-industry/artificial-intelligence/nvidia-reveals-ai-robots-that-taught-themselves-to-install-gpus-into-motherboards-video-shows-robot-solve-high-precision-tasks-like-installing-gpus-all-by-itself)
+
+[https://www.techzine.eu/news/infrastructure/142271/ai-agents-take-over-robot-training-at-nvidia/](https://www.techzine.eu/news/infrastructure/142271/ai-agents-take-over-robot-training-at-nvidia/)
+

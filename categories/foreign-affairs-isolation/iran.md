@@ -1805,3 +1805,9 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 2026-06-16 Netanyahu announced he has no intentions of withdrawing from Lebanon. 
 
 [https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)
+
+2026-06-17 Trump signed the 14-point Memorandum of Understanding.
+
+[https://www.cnn.com/2026/06/17/middleeast/us-iran-war-mou-text-intl](https://www.cnn.com/2026/06/17/middleeast/us-iran-war-mou-text-intl)
+
+[https://www.foxnews.com/politics/read-it-full-text-us-iran-memorandum-understanding](https://www.foxnews.com/politics/read-it-full-text-us-iran-memorandum-understanding)

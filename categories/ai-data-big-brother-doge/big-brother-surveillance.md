@@ -21,6 +21,7 @@ Think About:
 
 [https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole](https://www.theguardian.com/technology/2014/feb/19/google-glass-advice-smartglasses-glasshole)
 
+
 2025-09-30 Meta launched Ray-Ban Display smart glasses.
 
 [https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/](https://www.meta.com/blog/meta-ray-ban-display-ai-glasses-connect-2025/)
@@ -30,6 +31,16 @@ Think About:
 [https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg](https://www.theverge.com/tech/882030/smart-glasses-in-court-meta-mark-zuckerberg)
 
 [https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/](https://epic.org/the-verge-smart-glasses-in-court-are-a-privacy-nightmare/)
+
+2026-05-13 Google unveiled facial recognition technology with their smart glasses. 
+
+[https://www.bbc.com/news/articles/cj37z8357e5o](https://www.bbc.com/news/articles/cj37z8357e5o)
+
+2026-06-16 Snap Inc. released SPECS augmented reality glasses. 
+
+[https://newsroom.snap.com/introducing-specs-augmented-reality-glasses](https://newsroom.snap.com/introducing-specs-augmented-reality-glasses)
+
+[https://www.wired.com/story/snaps-new-ar-specs-cost-2195/](https://www.wired.com/story/snaps-new-ar-specs-cost-2195/)
 
 ### 2003 
 
@@ -346,3 +357,7 @@ Think About:
 2026-05-10 Malware infecting robot dogs raised national-security concerns.
 
 RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8WuXDXfcI](https://www.youtube.com/watch?v=lA8WuXDXfcI)
+
+2026-05-13 Google unveiled facial recognition technology with their smart glasses. 
+
+[https://www.bbc.com/news/articles/cj37z8357e5o](https://www.bbc.com/news/articles/cj37z8357e5o)

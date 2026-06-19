@@ -197,4 +197,9 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies](https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies)
 
+2026-06-18 SanDisk drives prices soared to almost $3000.
+
+[https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/](https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/)
+
+[https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase)
 

@@ -152,3 +152,13 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.forbes.com/sites/pr/2026/06/12/forbes-declares-elon-musk-as-the-worlds-first-trillionaire/](https://www.forbes.com/sites/pr/2026/06/12/forbes-declares-elon-musk-as-the-worlds-first-trillionaire/)
 
 [https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016](https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016)
+
+2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump.
+
+[https://www.businessinsider.com/anthropic-dario-amodei-openai-sam-altman-demis-hassabis-g7-lunch-2026-6](https://www.businessinsider.com/anthropic-dario-amodei-openai-sam-altman-demis-hassabis-g7-lunch-2026-6)
+
+[https://news.sky.com/story/ais-most-powerful-bosses-deliver-message-to-world-leaders-and-its-not-very-reassuring-13555183](https://news.sky.com/story/ais-most-powerful-bosses-deliver-message-to-world-leaders-and-its-not-very-reassuring-13555183)
+
+[https://www.cnbc.com/2026/06/17/anthropic-amodei-google-hassabis-us-ai-coalition-g7.html](https://www.cnbc.com/2026/06/17/anthropic-amodei-google-hassabis-us-ai-coalition-g7.html)
+
+[https://www.ft.com/content/573925dd-6d41-4185-810d-2b848195903d?syn-25a6b1a6=1](https://www.ft.com/content/573925dd-6d41-4185-810d-2b848195903d?syn-25a6b1a6=1)

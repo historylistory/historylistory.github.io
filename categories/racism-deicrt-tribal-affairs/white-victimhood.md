@@ -104,3 +104,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 [https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s](https://www.youtube.com/watch?v=mPEkfzfWTeE&list=WL&index=6&t=57s)
 
 GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s](https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index=2&t=114s)
+
+### 2026 May
+
+2026-05-04 Druski whiteface satire about Erika Kirk went viral and received backlash from the MAGA community for racism. 
+
+[https://theconversation.com/druskis-viral-whiteface-skit-isnt-racism-its-satire-that-punches-up-at-power-279460](https://theconversation.com/druskis-viral-whiteface-skit-isnt-racism-its-satire-that-punches-up-at-power-279460)
+
+[https://deadline.com/2026/06/druski-whiteface-bet-awards-promo-1236961489/](https://deadline.com/2026/06/druski-whiteface-bet-awards-promo-1236961489/)
+

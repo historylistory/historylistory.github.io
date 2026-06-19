@@ -157,3 +157,11 @@ permalink: /categories/economy-labor-poverty/big-tech/
 [https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145](https://www.politico.com/news/2026/01/22/deal-for-us-ownership-of-tiktok-is-closed-company-says-00743145)
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
+
+### 2026 June
+
+2026-06-18 SanDisk drives prices soared to almost $3000.
+
+[https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/](https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/)
+
+[https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase)

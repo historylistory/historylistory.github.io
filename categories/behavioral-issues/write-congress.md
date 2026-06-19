@@ -616,6 +616,10 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
 
+2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
+
+2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
+
 2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
 
 2026-06-15 Trump said he may or may not personally show up to sign the Memorandum of Understanding. 

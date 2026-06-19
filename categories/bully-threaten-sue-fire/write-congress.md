@@ -540,4 +540,6 @@ Manhattan grand jury in the hush-money case.
 
 2026-06-12 The State Department opened an investigation into Trita Parsi for reporting on the war in Iran, and now he faces deportation.
 
+2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
+
 2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”

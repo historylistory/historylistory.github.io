@@ -259,6 +259,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-05-10 Malware infecting robot dogs raised national-security concerns.
 
+2026-05-13 Google unveiled facial recognition technology with their smart glasses. 
+
 2026-05-22 More reports linked data centers to major environmental damage.
 
 2026-05-25 Pope Leo called for AI to be “disarmed” and more heavily regulated.
@@ -271,7 +273,14 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
 
+2026-06-16 Snap Inc. released SPECS augmented reality glasses. 
 
+
+2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump.
+
+2026-06-18 SanDisk drives prices soared to almost $3000.
+
+2026-06-18 NVIDIA revealed AI robots that taught themselves to install GPUs.
 
 
 

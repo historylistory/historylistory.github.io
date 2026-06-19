@@ -709,3 +709,16 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 
 PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press](https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press)
 
+2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
+
+[https://www.cnn.com/2026/06/18/us/live-news/knicks-championship-parade-new-york-city](https://www.cnn.com/2026/06/18/us/live-news/knicks-championship-parade-new-york-city)
+
+[https://www.npr.org/sections/the-picture-show/2026/06/18/g-s1-128953/in-photos-the-knicks-celebrate-their-first-nba-championship-in-more-than-50-years](https://www.npr.org/sections/the-picture-show/2026/06/18/g-s1-128953/in-photos-the-knicks-celebrate-their-first-nba-championship-in-more-than-50-years)
+
+[https://www.espn.com/nba/story/_/id/49061940/inside-new-york-knicks-celebration-53-years-making-2026-nba-finals-san-antonio-spurs](https://www.espn.com/nba/story/_/id/49061940/inside-new-york-knicks-celebration-53-years-making-2026-nba-finals-san-antonio-spurs)
+
+[https://bloodyelbow.com/2026/06/15/ufc-fans-held-down-and-handcuffed-at-the-ellipse-in-bloody-brawl-during-the-freedom-250-main-event/](https://bloodyelbow.com/2026/06/15/ufc-fans-held-down-and-handcuffed-at-the-ellipse-in-bloody-brawl-during-the-freedom-250-main-event/)
+
+2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
+
+[https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event](https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event)
