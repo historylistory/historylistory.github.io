@@ -428,7 +428,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-04-07 Lisa Murkowski called Trump's threat to "destroy Iran" an affront to American ideals.
 
-2026-04-07 Ro Khanna and Martha MacCallum debated Trump's threat to destroy Iranian civilization.
+2026-04-07 Ro Khanna and Martha MacCallum argued over Trump's threat to exterminate the Iranian civilization.
 
 2026-04-07 Roger Stone and Laura Loomer publicly feuded over the Iran war.
 

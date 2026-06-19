@@ -256,7 +256,7 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 ### 2026 April
 
-2026-04-13 The US military struck another boat in the Pacific, killing two people. The Pentagon offered no evidence that they were carrying narcotics. Death toll at this date: approximately 170. 
+2026-04-13 The U.S. military struck another vessel in the Pacific, killing two people. The Pentagon did not provide any evidence the vessel was involved in narcotics trafficking.
 
 [https://www.youtube.com/watch?v=Z4ZKsiMUAyY](https://www.youtube.com/watch?v=Z4ZKsiMUAyY)
 

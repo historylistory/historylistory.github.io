@@ -209,7 +209,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 
 
-2026-04-07 Ro Khanna and Martha MacCallum debated Trump's threat to destroy Iranian civilization.
+2026-04-07 Ro Khanna and Martha MacCallum argued over Trump's threat to exterminate the Iranian civilization.
 
 [https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
 
@@ -233,7 +233,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/](https://www.washingtonpost.com/national-security/2026/04/07/trump-iran-bombing-civilization-war-crime/)
 
-2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press the Pentagon had a target list that they were ready to hit and insisted that Trump had the moral high ground. She also said, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
+2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
 
 [https://www.youtube.com/watch?v=l0Gy6lLRu6U](https://www.youtube.com/watch?v=l0Gy6lLRu6U)
 
@@ -249,7 +249,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
 
-2026-04-13 The US military struck another boat in the Pacific, killing two people. The Pentagon offered no evidence that they were carrying narcotics. Death toll at this date: approximately 170. 
+2026-04-13 The U.S. military struck another vessel in the Pacific, killing two people. The Pentagon did not provide any evidence the vessel was involved in narcotics trafficking.
 
 [https://www.youtube.com/watch?v=Z4ZKsiMUAyY](https://www.youtube.com/watch?v=Z4ZKsiMUAyY)
 

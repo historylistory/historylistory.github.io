@@ -209,7 +209,7 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
 
 
-2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
+2026-04-09 Pam Bondi refused to comply with a subpoena requiring testimony about the Epstein investigation because she was no longer serving as Attorney General.
 
 [https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
 

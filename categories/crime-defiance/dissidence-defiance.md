@@ -366,7 +366,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 [https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/](https://www.thedailybeast.com/hegseth-makes-shock-announcement-after-cringe-kid-rock-stunt/)
 
 
-2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
+2026-04-09 Pam Bondi refused to comply with a subpoena requiring testimony about the Epstein investigation because she was no longer serving as Attorney General.
 
 [https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
 

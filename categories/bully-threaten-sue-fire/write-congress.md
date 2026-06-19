@@ -474,7 +474,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-04-13 Trump admonished Pope Leo XIV for not supporting war. Trump said, “He’s a very liberal person, and he’s a man that doesn’t believe in stopping crime. He’s a man that doesn’t think that we should be toying with a country that wants a nuclear weapon so they can blow up the world. I’m not a fan of Pope Leo”. Pope Leo said, “I have no fear of the Trump administration”.
 
-2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal concerning reporting on an alleged Epstein birthday letter. 
+2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal for reporting on his Epstein birthday letter contribution. 
 
 2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
 

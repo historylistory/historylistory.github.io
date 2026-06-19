@@ -377,7 +377,7 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-epstein/
 
 ### 2026 April
 
-2026-04-09 Pam Bondi skipped a subpoenaed Epstein-files deposition.
+2026-04-09 Pam Bondi refused to comply with a subpoena requiring testimony about the Epstein investigation because she was no longer serving as Attorney General.
 
 [https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/](https://thehill.com/homenews/house/5821724-pam-bondi-oversight-deposition-epstein-files/)
 
@@ -404,7 +404,7 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/](https://www.whitehouse.gov/briefings-statements/2026/04/first-lady-melania-trump-statement/)
 
-2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal concerning reporting on an alleged Epstein birthday letter. 
+2026-04-13 A judge dismissed Trump's lawsuit against The Wall Street Journal for reporting on his Epstein birthday letter contribution. 
 
 [https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html](https://www.cnbc.com/2026/04/13/trump-epstein-murdoch-wsj-lawsuit-dismissed.html)
 

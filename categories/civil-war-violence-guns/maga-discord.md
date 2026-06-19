@@ -345,7 +345,7 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 
 [https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/](https://www.alaskasnewssource.com/2026/04/08/saber-rattling-murkowski-condemns-trumps-whole-civilization-will-die-iran-threat-president-now-suspends-attack/)
 
-2026-04-07 Ro Khanna and Martha MacCallum debated Trump's threat to destroy Iranian civilization.
+2026-04-07 Ro Khanna and Martha MacCallum argued over Trump's threat to exterminate the Iranian civilization.
 
 [https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html](https://www.yahoo.com/news/videos/destroying-90-million-people-ro-204813913.html)
 
