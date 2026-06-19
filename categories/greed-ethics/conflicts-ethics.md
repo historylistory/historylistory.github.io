@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Ethics Issues
+title: Conflicts & Ethics
 category_slug: greed-ethics
-subcategory_slug: ethics-issues
-permalink: /categories/greed-ethics/ethics-issues/
+subcategory_slug: conflicts-ethics
+permalink: /categories/greed-ethics/conflicts-ethics/
 ---
 
 ### 1989
@@ -23,6 +23,7 @@ permalink: /categories/greed-ethics/ethics-issues/
 [https://entertainmentnow.com/news/central-park-five-donald-trump/](https://entertainmentnow.com/news/central-park-five-donald-trump/)
 
 [https://en.wikipedia.org/wiki/Central_Park_jogger_case](https://en.wikipedia.org/wiki/Central_Park_jogger_case)
+
 
 ### 2008
 
@@ -46,32 +47,31 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://bresslerriskblog.com/supreme-conflicts-allegations-commentary-and-analysis-on-alito-accusations](https://bresslerriskblog.com/supreme-conflicts-allegations-commentary-and-analysis-on-alito-accusations)
 
-
 ### 2009
 
 2009-05-30 In 2009 Republicans pissed their pants over the Obamas attending a Broadway play, yet in 2025 through 2026 they took little accountability for:
-~~~ list
-~~~ JD Vance pressuring the Army Corps of Engineers to release river water for his birthday,
-~~~ Kash Patel using a government jet to visit his girlfriend numerous times,
-~~~ Kristi Noem spending $250M in taxpayer money to fund a selfie-campaign disguised as ICE commercials,
-~~~ Trump destroying the White House for his ballroom,
-~~~ The Trump administration stealing of SNAP funds from children,
-~~~ The Trump administration spending billions and trillions in taxpayer money to fund an elective war in Iran,
-~~~ Trump suing the DOJ and making taxpayers give him $230M,
-~~~ Trump sending $40B in American taxpayer dollars to fund Argentina,
-~~~ DOGE firings that cost American taxpayers roughly $135B,
-~~~ Forcing American taxpayers to fund rich private schools while cutting funding to public schools,
-~~~ Passing tariff costs onto American taxpayers,
-~~~ Charging American taxpayers $125M to rebrand the Department of Defense as the Department of War,
-~~~ Forcing taxpayers to foot the bill for a lawsuit Trump filed with the IRS and Treasury for $10B, or
-~~~ Rerouting $8B in national emergency funds into building the border wall.
-~~~
+
+1. JD Vance pressuring the Army Corps of Engineers to release river water for his birthday,
+2. Kash Patel using a government jet to visit his girlfriend numerous times,
+3. Kristi Noem spending $250M in taxpayer money to fund a selfie-campaign disguised as ICE commercials,
+4. Trump destroying the White House for his ballroom,
+5. The Trump administration stealing of SNAP funds from children,
+6. The Trump administration spending billions and trillions in taxpayer money to fund an elective war in Iran,
+7. Trump suing the DOJ and making taxpayers give him $230M,
+8. Trump sending $40B in American taxpayer dollars to fund Argentina,
+9. DOGE firings that cost American taxpayers roughly $135B,
+10. Forcing American taxpayers to fund rich private schools while cutting funding to public schools,
+11. Passing tariff costs onto American taxpayers,
+12. Charging American taxpayers $125M to rebrand the Department of Defense as the Department of War,
+13. Forcing taxpayers to foot the bill for a lawsuit Trump filed with the IRS and Treasury for $10B, or
+14. Rerouting $8B in national emergency funds into building the border wall.
 
 [https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/](https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/)
 
 [https://www.latimes.com/archives/blogs/top-of-the-ticket/story/2009-06-01/opinion-republicans-slam-obama-date-night-in-nyc-as-pricey-and-out-of-touch#:~:text=Oh%2C%20the%20dinner%20for%20two,Americans%20are%20out%20of%20work](https://www.latimes.com/archives/blogs/top-of-the-ticket/story/2009-06-01/opinion-republicans-slam-obama-date-night-in-nyc-as-pricey-and-out-of-touch).
 
 [https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans](https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans)
+
 
 ### 2020
 
@@ -95,6 +95,7 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.citizensforethics.org/reports-investigations/crew-reports/trump-incited-january-6-defendants/](https://www.citizensforethics.org/reports-investigations/crew-reports/trump-incited-january-6-defendants/)
 
+
 ### 2021
 
 2021-01-17 An upside-down U.S. flag was displayed outside Justice Samuel Alito's Virginia home, and an "Appeal to Heaven" flag flew at his New Jersey property. Both symbols have been linked to far-right Christian nationalist movements.
@@ -108,9 +109,9 @@ permalink: /categories/greed-ethics/ethics-issues/
 [https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/](https://ipmnewsroom.org/justice-alitos-home-flew-a-us-flag-upside-down-after-trumps-stop-the-steal-claims-a-report-says/)
 
 {% include youtubePlayer.html id="cPx2tc3MLi4" %}
-.
 
 ### 2022
+
 
 2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
@@ -123,7 +124,6 @@ permalink: /categories/greed-ethics/ethics-issues/
 [https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805](https://www.nbcnews.com/politics/congress/house-oversight-investigating-2b-saudi-investment-jared-kushners-firm-rcna31805)
 
 [https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/](https://www.cbsnews.com/news/jared-kushner-post-white-house-business-moves-saudis-wealth-fund-mohammed-bin-salman-jamal-khashoggi/)
-
 
 ### 2023
 
@@ -148,21 +148,25 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 {% include youtubePlayer.html id="4oVboO9cRCk" %}
 
-### 2024 March
+### 2024
+
+2024-02-15 During an interview at Harvard University, Trump's son-in-law Jared Kushner called Gaza's waterfront property very valuable, stating he believed declaring Palestine as a State would be rewarding terrorism.
+
+[https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev](https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev)
 
 2024-03-06 RFK Jr. allegedly boasted about friendships with multiple sex offenders.
 
 [https://www.rawstory.com/rfk-jeffrey-epstein/](https://www.rawstory.com/rfk-jeffrey-epstein/)
 
-### 2024 August
+2024-06-20 News articles reported that convicted "pharma bro" Martin Shkreli claimed partnership with Barron Trump and are behind the new DJT Coin.
+
+[https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147](https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147)
 
 2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events. Did You Know? Lolita is a controversial 1955 novel by Vladimir Nabokov about predatory manipulation of a 14-year-old girl?
 
 [https://x.com/MiamiHerald/status/1823099687538184446](https://x.com/MiamiHerald/status/1823099687538184446)
 
 [https://www.facebook.com/watch/?v=1514436049193330](https://www.facebook.com/watch/?v=1514436049193330)
-
-### 2024 November
 
 2024-11-29 News outlets reported that Pete Hegseth’s own mother wrote him a letter back in 2018 accusing him of being an abuser, then later defended her son and apologized for the letter December of 2024.
 
@@ -176,7 +180,6 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.yahoo.com/news/fact-check-hegseths-mother-accused-005200776.html](https://www.yahoo.com/news/fact-check-hegseths-mother-accused-005200776.html)
 
-### 2024 December
 
 2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls. 
 
@@ -187,6 +190,18 @@ permalink: /categories/greed-ethics/ethics-issues/
 [https://www.npr.org/2024/12/23/nx-s1-5233060/matt-gaetz-ethics-report-released](https://www.npr.org/2024/12/23/nx-s1-5233060/matt-gaetz-ethics-report-released)
 
 ### 2025 January
+
+2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor.
+
+[https://news.kalshi.com/p/donald-trump-jr-strategic-advisor](https://news.kalshi.com/p/donald-trump-jr-strategic-advisor)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.youtube.com/shorts/oQdttmT5rb0](https://www.youtube.com/shorts/oQdttmT5rb0)
+
+[https://www.youtube.com/watch?v=-8F2z0_Qedk](https://www.youtube.com/watch?v=-8F2z0_Qedk)
+
+SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html](https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-prediction-markets.html)
 
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
@@ -214,18 +229,62 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.washingtonpost.com/national-security/2025/03/07/justice-department-trump-firings/](https://www.washingtonpost.com/national-security/2025/03/07/justice-department-trump-firings/)
 
+### 2025 April
+
+2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
+
+[https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
+
+[https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/](https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/)
+
+[https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/](https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/)
+
+[https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies](https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies)
+
+[https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/](https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/)
+
+[https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C](https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C)
+
+PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364](https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364)
+
+
+
+2025-04-09 Democrats called for an investigation into insider trading, calling notice to Truth Social **posts about when to buy correlating with stock surges**. At 9:37AM Trump posted “THIS IS A GREAT TIME TO BUY!!! DJT”.
+
+[https://truthsocial.com/@realDonaldTrump/posts/114308272725981913](https://truthsocial.com/@realDonaldTrump/posts/114308272725981913)
+
+[https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html](https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html)
+
+[https://www.cbsnews.com/news/s-p-500-market-rebound-near-record-high/](https://www.cbsnews.com/news/s-p-500-market-rebound-near-record-high/)
+
+[https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
 ### 2025 May
+
+2025-05-01 News outlets reported a ruling that United Arab Emirates family invested **$2B (billion)** into **Trump &****Witcoff****family cryptocurrencies through World Financial Liberty**.
+
+[https://www.nytimes.com/2025/09/15/us/politics/trump-uae-chips-witkoff-world-liberty-takeaways.html](https://www.nytimes.com/2025/09/15/us/politics/trump-uae-chips-witkoff-world-liberty-takeaways.html)
+
+[https://www.reuters.com/world/middle-east/wlfs-zach-witkoff-usd1-selected-official-stablecoin-mgx-investment-binance-2025-05-01/](https://www.reuters.com/world/middle-east/wlfs-zach-witkoff-usd1-selected-official-stablecoin-mgx-investment-binance-2025-05-01/)
 
 2025-05-09 Reporters asked Karoline Leavitt about conflicts of interest involving Trump's Middle East business contacts. Leavitt berated the reporter stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and claimed that this administration holds itself to the “highest of ethical standards”.
 
 [https://www.facebook.com/watch/?v=1022049649537020](https://www.facebook.com/watch/?v=1022049649537020)
+
 
 2025-05-21 Saudi Arabia gifted Trump with a luxury jetliner.
 
 [https://www.cnn.com/2025/05/14/politics/video/trump-plan-accept-qatari-jet-digvid](https://www.cnn.com/2025/05/14/politics/video/trump-plan-accept-qatari-jet-digvid)
 
 [https://www.cnn.com/2025/05/14/world/video/qatar-pm-becky-anderson-trump-luxury-jet-digvid](https://www.cnn.com/2025/05/14/world/video/qatar-pm-becky-anderson-trump-luxury-jet-digvid)
+
+2025-05-22 Trump hosted his meme coin dinner. While some experts expressed concern over conflict of interest, Karoline Leavitt asserted Trump was "doing this in his personal time".
+
+[https://www.cnbc.com/2025/05/23/trump-meme-coin-dinner.html](https://www.cnbc.com/2025/05/23/trump-meme-coin-dinner.html)
+
+[https://www.axios.com/2025/05/22/trump-meme-coin-dinner](https://www.axios.com/2025/05/22/trump-meme-coin-dinner)
+
+[https://www.reuters.com/world/us/trump-draws-global-crypto-investors-with-148-million-meme-coin-dinner-2025-05-22/](https://www.reuters.com/world/us/trump-draws-global-crypto-investors-with-148-million-meme-coin-dinner-2025-05-22/)
 
 ### 2025 June
 
@@ -247,7 +306,18 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.warren.senate.gov/newsroom/press-releases/warren-moskowitz-blumenthal-raskin-stansbury-introduce-new-bill-to-rein-in-potential-corruption-through-presidential-library-donations](https://www.warren.senate.gov/newsroom/press-releases/warren-moskowitz-blumenthal-raskin-stansbury-introduce-new-bill-to-rein-in-potential-corruption-through-presidential-library-donations)
 
+
 ### 2025 August
+
+2025-08-01 Donald Trump Jr. became an investor and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital. 
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
+
+[https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU](https://www.msn.com/en-us/money/other/trump-jr-joins-polymarket-advisory-board-as-1789-ups-stake/ar-AA1Lg5OU)
+
+[https://www.bbc.com/news/articles/cge0grppe3po](https://www.bbc.com/news/articles/cge0grppe3po)
+
+[https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
 
 2025-08-06 Florida official Carolina Amesty was charged with fraudulently obtaining more than $100,000 in COVID-19 relief funds. After hiring Brad Bondi, Pam Bondi's brother, the DOJ dropped the charges later that month.
 
@@ -277,6 +347,7 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record](https://www.aclu.org/press-releases/aclu-comment-on-trump-administration-boycott-of-united-nations-review-of-us-human-rights-record)
 
+
 ### 2025 September
 
 2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
@@ -285,6 +356,7 @@ permalink: /categories/greed-ethics/ethics-issues/
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
+
 2025-09-20 Footage from 2024 showed Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, MAGA does not care if Tom Homan took a bribe or not.
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/judiciary-democrats-demand-doj-fbi-release-recordings-of-tom-homan-receiving-50000-cash-bribe](https://democrats-judiciary.house.gov/media-center/press-releases/judiciary-democrats-demand-doj-fbi-release-recordings-of-tom-homan-receiving-50000-cash-bribe)
@@ -292,6 +364,10 @@ permalink: /categories/greed-ethics/ethics-issues/
 [https://x.com/megynkelly/status/1969520771115385206](https://x.com/megynkelly/status/1969520771115385206)
 
 ### 2025 October
+
+2025-10-01 When asked why Trump's son-in-law Jared Kushner is allowed to indulge in huge financial involvements overseas, Leavitt accused the reporter of being despicable for trying to suggest that behavior was inappropriate.
+
+[https://www.thedailybeast.com/karoline-leavitt-snaps-over-jared-kushners-business-dealings/](https://www.thedailybeast.com/karoline-leavitt-snaps-over-jared-kushners-business-dealings/)
 
 2025-10-12 Asked about allegations that Tom Homan accepted a $50,000 bribe, JD Vance denied the claim in an ABC interview, “George, you’ve covered the story ad nauseum. Tom Homan did not take a bribe. It’s a ridiculous smear…”.
 
@@ -387,6 +463,7 @@ FRIENDSHIPS: [https://www.jpost.com/american-politics/when-netanyahu-slept-at-th
 BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire](https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-mideast-business-ceasefire)
 
 
+
 ### 2026 February
 
 2026-02-01 Trump family's World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
@@ -413,6 +490,13 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo](https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo)
 
+2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, sources reported that Trump administration officials were devising legal strategies to keep the billions of dollars acquired from the tariffs.
+
+[https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union](https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union)
+
+[https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774](https://www.politico.com/news/2026/02/26/trumps-next-tariff-fight-keeping-the-money-00799774)
+
+[https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/](https://fortune.com/2026/02/27/trump-tariff-refunds-ieepa-revenue-lawsuits-supreme-court-international-trade/)
 
 ### 2026 March
 
@@ -436,6 +520,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
 
+
 2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
@@ -443,7 +528,6 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 [https://www.cnbc.com/2026/03/25/donald-trump-jr-subpoena.html](https://www.cnbc.com/2026/03/25/donald-trump-jr-subpoena.html)
 
 [https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454](https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454)
-
 
 2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
 
@@ -456,6 +540,13 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 [https://x.com/ChrisMurphyCT/status/2036277990489764135](https://x.com/ChrisMurphyCT/status/2036277990489764135)
 
 [https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html](https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html)
+
+
+2026-03-27 Trump attended a Saudi investor meeting in Miami.
+
+[https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455](https://www.c-span.org/program/white-house-event/president-trump-speaks-at-saudi-investors-forum-in-miami/676455)
+
+[https://www.youtube.com/watch?v=vEuuPpq_AMQ](https://www.youtube.com/watch?v=vEuuPpq_AMQ)
 
 ### 2026 April
 

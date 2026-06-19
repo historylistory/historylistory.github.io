@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Sexual Assault & Trafficking - Other"
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: sexual-assault-trafficking-other
-permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-other/
+permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 ---
 
 ### 1970

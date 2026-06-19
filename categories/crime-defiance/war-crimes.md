@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: War Crimes
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: war-crimes
-permalink: /categories/crime-ethics-defiance/war-crimes/
+permalink: /categories/crime-defiance/war-crimes/
 ---
 
 ### 1980

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Epstein Class War
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: epstein-class-war
-permalink: /categories/crime-ethics-defiance/epstein-class-war/
+permalink: /categories/crime-defiance/epstein-class-war/
 ---
 
 ### 2026 February

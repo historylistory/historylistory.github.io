@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: WRITE CONGRESS
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: write-congress
-permalink: /categories/crime-ethics-defiance/write-congress/
+permalink: /categories/crime-defiance/write-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

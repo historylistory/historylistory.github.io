@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Ethics Issues
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: ethics-issues
-permalink: /categories/crime-ethics-defiance/ethics-issues/
+permalink: /categories/crime-defiance/ethics-issues/
 ---
 
 ### 1989

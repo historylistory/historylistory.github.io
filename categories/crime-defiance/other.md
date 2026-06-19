@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: OTHER
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: other
-permalink: /categories/crime-ethics-defiance/other/
+permalink: /categories/crime-defiance/other/
 ---
 
 ### 2009 

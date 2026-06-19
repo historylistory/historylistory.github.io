@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Pardons
-category_slug: crime-ethics-defiance
+category_slug: crime-defiance
 subcategory_slug: pardons
-permalink: /categories/crime-ethics-defiance/pardons/
+permalink: /categories/crime-defiance/pardons/
 ---
 
 ### ABOUT PARDONS
