@@ -363,7 +363,7 @@ permalink: /categories/crime-ethics-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.theguardian.com/us-news/2026/mar/11/titanic-statue-trump-epstein-national-mall](https://www.theguardian.com/us-news/2026/mar/11/titanic-statue-trump-epstein-national-mall)
 
-2026-03-18 Pam Bondi and Todd Blanche attended a briefing at Capitol Hill to brief a committee on the Epstein investigation. It was the same committee that subpoenaed Bondi during a deposition. Democrat Summer Lee and Republican James Comer had a heated exchange. Another source reported past clashes between the two. 
+2026-03-18 Pam Bondi and Todd Blanche briefed a congressional committee on the Epstein investigation. The hearing included a heated exchange between Representatives Summer Lee and James Comer.
 
 [https://www.youtube.com/watch?v=xEU7POr7ar8&list=WL&index=6](https://www.youtube.com/watch?v=xEU7POr7ar8&list=WL&index=6)
 

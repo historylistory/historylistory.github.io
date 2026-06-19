@@ -235,7 +235,7 @@ OTHER SHADY BUSINESS
 
 ### 2026
 
-2026-03-31 Trump signed an Executive Order to force a federal voter list. It instructs DHS to gather a list of voters in each state and have the USPS transmit ballots ONLY to persons enrolled in the list. It forces nationalizing voting, puts the postal service in the role of an election enforcement agency, creates a huge financial strain, challenges the Constitution, complicates mail-in ballots and forces the case to eliminate mail-in ballots (a third of US voters use mail-in ballots). It’s just another GOP attempt to suppress and interfere with votes.  There has been no proof of voter fraud. The GOP simply wants to tamper with results because they can’t win a fair election and they have no integrity.
+2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
 [https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order](https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order)
 

@@ -593,7 +593,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller](https://www.advocate.com/politics/national/scott-bessent-empathy-trump-mueller)
 
-2026-03-24 The UN demanded immediate release of Dr. Hussam Abu Safiya by Israel. In the demands they condemned Israel for severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
+2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 
 [https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya](https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya)
 
@@ -602,7 +602,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe](https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe)
 
 
-2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
 [https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
 
@@ -612,7 +612,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 ### 2026 April
 
-2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
 [https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
 

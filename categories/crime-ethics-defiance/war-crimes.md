@@ -138,7 +138,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2026 March
 
-2026-03-24 The UN demanded immediate release of Dr. Hussam Abu Safiya by Israel. In the demands they condemned Israel for severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
+2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 
 [https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya](https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya)
 
@@ -147,7 +147,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe](https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe)
 
 
-2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
 [https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
 
@@ -156,7 +156,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28](https://www.reuters.com/world/middle-east/israeli-military-kills-15-year-old-palestinian-west-bank-health-ministry-says-2026-03-28)
 
 
-2026-03-30 Trump threatened strikes against Iranian desalination facilities, power plants, and oil infrastructure. Bombing civilian power and infrastructure is a war crime. 
+2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which are war crimes. When asked, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists expressed war-crime concerns, Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
 
 [https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
 
@@ -174,7 +174,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2026 April
 
-2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
 [https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
 

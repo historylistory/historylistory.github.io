@@ -321,7 +321,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 {% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
 
 
-2026-03-27 During CPAC Franklin Graham said we have to get Trump re-elected for a third term. Later on he said in a statement to reporters that he “mis-spoke” and meant we had to get Trump’s policies re-elected.
+2026-03-27 At CPAC, Franklin Graham said Trump should be reelected for a third term before later stating he misspoke and meant Trump's policies should continue.
 
 [https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 ](https://www.newsweek.com/cpac-crowd-urged-to-do-everything-we-can-to-get-trump-reelected-11743902 )
 
@@ -330,7 +330,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 [https://www.christianpost.com/news/franklin-graham-says-he-misspoke-in-cpac-speech.html](https://www.christianpost.com/news/franklin-graham-says-he-misspoke-in-cpac-speech.html)
 
 
-2026-03-31 Trump signed an Executive Order to force a federal voter list. It instructs DHS to gather a list of voters in each state and have the USPS transmit ballots ONLY to persons enrolled in the list. It forces nationalizing voting, puts the postal service in the role of an election enforcement agency, creates a huge financial strain, challenges the Constitution, complicates mail-in ballots and forces the case to eliminate mail-in ballots (a third of US voters use mail-in ballots). It’s just another GOP attempt to suppress and interfere with votes.  There has been no proof of voter fraud. The GOP simply wants to tamper with results because they can’t win a fair election and they have no integrity.
+2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
 [https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order](https://www.npr.org/2026/03/31/nx-s1-5508948/trump-voter-list-mail-ballots-executive-order)
 
@@ -353,7 +353,7 @@ permalink: /categories/crime-ethics-defiance/dissidence-defiance/
 
 ### 2026 April
 
-2026-04-01 Hegseth nullified the investigation into the pilot who used an Apache helicopter to perform a low fly-by of Kid Rock’s mansion. So now MAGA leaders are undermining Army control over investigations into military matters. In an X post Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
+2026-04-01 Hegseth nullified the Army’s investigation into the pilot who used an Apache helicopter to perform a low fly-by of Kid Rock’s mansion. In an X post Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
 
 [https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html](https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html)
 

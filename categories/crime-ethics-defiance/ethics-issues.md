@@ -435,7 +435,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump](https://www.npr.org/2025/12/18/nx-s1-5648844/tiktok-deal-oracle-trump)
 
-2026-03-25 House GOP leaders blocked a motion to subpoena Donald Trump Jr. over his venture capital firm investing in a rare earth mineral company months before it **received a $620M loan from the Pentagon.**
+2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
@@ -444,7 +444,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 [https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454](https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454)
 
 
-2026-03-26 Reports raised insider-trading concerns tied to PolyMarket and Trump associates, including a $1.5B in S&P 500 futures sold minutes before Trump announced a 5-day pause on U.S. strikes in Iran.
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
@@ -458,7 +458,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 ### 2026 April
 
-2026-04-06 Headline, “Gulf Funds Agree to Back Paramount’s $81 Billion Takeover of Warner”. L’imad wealth fund owned by Abu Dhabi’s crowned price was one of the biggest backers. 
+2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
 
 [https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
 

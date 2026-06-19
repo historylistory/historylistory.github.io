@@ -1130,7 +1130,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 
 
-2026-03-30 Trump threatened strikes against Iranian desalination facilities, power plants, and oil infrastructure. Bombing civilian power and infrastructure is a war crime. 
+2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which are war crimes. When asked, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists expressed war-crime concerns, Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
 
 [https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
 
@@ -1176,7 +1176,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 April
 
-2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
 [https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
 
@@ -1246,22 +1246,6 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 [https://truthsocial.com/@realDonaldTrump/posts/116351998782539414](https://truthsocial.com/@realDonaldTrump/posts/116351998782539414)
 
 [https://x.com/mb_ghalibaf/status/2040823145251090462](https://x.com/mb_ghalibaf/status/2040823145251090462)
-
-2026-04-06 (CONTEXT) Headline, “Gulf Funds Agree to Back Paramount’s $81 Billion Takeover of Warner”. L’imad wealth fund owned by Abu Dhabi’s crowned price was one of the biggest backers. 
-
-[https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
-
-[https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/](https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/)
-
-[https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/](https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/)
-
-[https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies](https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies)
-
-[https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/](https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/)
-
-[https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C](https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C)
-
-PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364](https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364)
 
 
 

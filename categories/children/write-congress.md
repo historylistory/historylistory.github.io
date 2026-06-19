@@ -229,7 +229,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-03-25 Parents were warned about increasing reports of online predators targeting children through Roblox. 
 
-2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
 2026-04-04 Trump requested a $1.5 trillion Pentagon budget and argued that military spending should take precedence over federal programs such as daycare, Medicaid, and Medicare. Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”. 
 

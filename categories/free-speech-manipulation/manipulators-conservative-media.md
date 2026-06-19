@@ -295,7 +295,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2026 April
 
-2026-04-06 Headline, “Gulf Funds Agree to Back Paramount’s $81 Billion Takeover of Warner”. L’imad wealth fund owned by Abu Dhabi’s crowned price was one of the biggest backers. 
+2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
 
 [https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
 

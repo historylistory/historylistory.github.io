@@ -123,7 +123,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4](https://www.youtube.com/watch?v=89x3FvuhJ2A&list=WL&index=4)
 
-2026-03-27 Israeli soldiers fatally shot and killed 15-year-old Adma Dahman in the abdomen south of Bethlehem.
+2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
 [https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp](https://www.dci-palestine.org/israeli_forces_fatally_shoot_15_year_old_palestinian_boy_in_dheisheh_refugee_camp)
 

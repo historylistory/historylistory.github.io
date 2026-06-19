@@ -112,7 +112,7 @@ permalink: /categories/crime-ethics-defiance/pardons/
 
 [https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html](https://www.cnbc.com/2025/03/28/trump-commutes-sentences-of-ozy-media-founder-carlos-watson-and-company.html)
 
-2026-03-31 Since the J6 pardons, several of them reoffended and had been charged with assault, harassment, and murder plots.
+2026-03-31 Several January 6 defendants pardoned by Trump were later charged with new offenses, including assault, harassment, and alleged murder plots.
 
 PAY WALL [https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-recidivism.html](https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-recidivism.html)
 

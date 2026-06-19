@@ -466,7 +466,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. 
 
-2026-03-26 Reports raised insider-trading concerns tied to PolyMarket and Trump associates, including a $1.5B in S&P 500 futures sold minutes before Trump announced a 5-day pause on U.S. strikes in Iran.
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
 
 2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
 
@@ -496,7 +496,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
 
-2026-04-02 Trump proudly posted footage of bombing a civilian suspension bridge in Tehran. The bombing killed 8 people and wounded 95.
+2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
 2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides.
 
