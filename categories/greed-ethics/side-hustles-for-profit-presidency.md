@@ -176,7 +176,7 @@ USA TODAY SAYS THEY ARE SHIPPING THE PHONES: [https://www.usatoday.com/story/tec
 
 TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1)
 
-2026-05-18 Financial disclosure forms released by the US Office of Government Ethics showed Trump made between $220-$750M in trades in his first 3 months of 2026.
+2026-05-18 Financial disclosures showed Trump earned an estimated $220–750 million from trading activity during the first three months of 2026.
 
 [https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/](https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/)
 

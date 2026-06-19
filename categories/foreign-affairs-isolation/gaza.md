@@ -374,7 +374,7 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 
 2024 [https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/](https://www.cbsnews.com/sanfrancisco/news/bay-bridge-78-gaza-ceasefire-protesters-announce-agreement-avoid-jail-time/)
 
-2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
+2026-05-04 Captured activists from the Global Sumud Flotilla reported that Israeli forces subjected detainees to beatings and torture so severe that captives were passing out.
 
 [https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)
 

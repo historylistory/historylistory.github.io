@@ -335,7 +335,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 ### 2026 May
 
 
-2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -347,7 +347,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
-2026-05-03 Israel displaced residents of ten (10) towns in Lebanon and killed 2659 civilians since March 2 2026. 
+2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 
 [https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon](https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon)
 
@@ -365,7 +365,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence](https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence)
 
-2026-05-04 Captured Global Sumud Flotilla activists reported Israeli forces administering torture and beatings causing detainees to pass out. 
+2026-05-04 Captured activists from the Global Sumud Flotilla reported that Israeli forces subjected detainees to beatings and torture so severe that captives were passing out.
 
 [https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/](https://globalsumudflotilla.org/press/11-nations-global-legal-bodies-and-amnesty-international-demand-release-of-flotilla-activists-as-israeli-interrogators-issue-death-threats/)
 
@@ -373,7 +373,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings](https://www.democracynow.org/2026/5/4/headlines/israel_jails_flotilla_activists_seized_in_international_waters_as_lawyers_report_torture_beatings)
 
-2026-05-04 Israel carried out separate attacks in Gaza killing three Palestinians and leaving several others badly injured. Israel reported a 60% occupation of the strip at this date. They also shot 26-year-old Naif Smaro in the head during a raid in Nablus when he was just dropping his wife off at the hospital to give birth to their first child. During the raid at least 4 others including 2 children were struck by ammunition. 
+2026-05-04 Israel carried out separate attacks in Gaza killing three Palestinians and leaving several others badly injured. They also shot 26-year-old Naif Smaro in the head during a raid in Nablus as he was  dropping his wife off at the hospital to give birth to their first child. During the raid at least 4 others including 2 children were struck by ammunition. 
 
 TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s](https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=166s)
 
@@ -385,7 +385,7 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 [https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2](https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2)
 
-2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. USCENTCOM confirmed they attacked several boats, but insisted they were threatening commercial vessels. 
+2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. U.S. Central Command claimed the vessels threatened commercial shipping.
 
 [https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html](https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html)
 
@@ -393,7 +393,7 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 [https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom](https://risingkashmir.com/iran-us-strait-of-hormuz-attack-civilian-boats-claim-centcom-project-freedom)
 
-2026-05-05 Nobel Peace Laureate Narges Muhammadi was hospitalized in critical condition after collapsing in prison from a heart condition. She had been imprisoned in Iran for the past twenty years for activism and had been repeatedly denied medical care even after two heart attacks. 
+2026-05-05 Nobel Peace Prize laureate Narges Mohammadi was hospitalized in critical condition after collapsing in an Iranian prison. She had reportedly been denied medical care despite prior heart attacks.
 
 [https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death](https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death)
 
@@ -411,14 +411,14 @@ TIMESTAMP 2:48 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=16
 
 TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s)
 
-2026-05-22 Democrat Congressman after Republicans cancelled the Iran war powers vote, “…these chickenhawk motherfuckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullshit argument, and every American should be absolutely outraged about this. It’s a disgrace.”
+2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “…these chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
 [https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
 
 
 ### 2026 June
 
-2026-06-03 Republicans joined Democrats in a House vote 215 to 208 to end the war in Iran. It is only symbolic; even if it passes the Senate it would still require Trump’s signature.
+2026-06-03 Republicans joined Democrats in a 215–208 House vote to end the Iran conflict. The measure remained largely symbolic because it still required Senate approval and Trump's signature.
 
 [https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/](https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/)
 

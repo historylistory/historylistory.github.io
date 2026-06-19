@@ -146,7 +146,7 @@ permalink: /categories/military-veterans/war/
 
 {% include youtubePlayer.html id="AXwyCbAm6t4" %}
 
-2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+2028-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
 
 [https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
 
@@ -328,7 +328,7 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 ### 2026 May
 
 
-2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 

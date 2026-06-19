@@ -304,7 +304,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
 
 
-2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+2028-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
 
 [https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
 
@@ -401,7 +401,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 ### 2026 May
 
-2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -429,12 +429,12 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 [https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
 
 
-2026-05-14 The House failed to advance an Iran war powers resolution tied 212 to 212.
+2026-05-14 The House failed to advance an Iran war-powers resolution after a 212–212 tie vote.
 
 [https://www.cbsnews.com/news/house-iran-war-powers-resolution/](https://www.cbsnews.com/news/house-iran-war-powers-resolution/)
 
 
-2026-05-22 Democrat Congressman after Republicans cancelled the Iran war powers vote, “…these chickenhawk motherfuckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullshit argument, and every American should be absolutely outraged about this. It’s a disgrace.”
+2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “…these chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
 [https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
 

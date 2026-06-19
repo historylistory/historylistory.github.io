@@ -143,7 +143,7 @@ PAY WALL [https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-
 
 ### 2025 May
 
-2026-05-13 Trump announced the possible pardons of 250 more criminals for America’s 250th. 
+2026-05-13 Trump announced he would pardon 250 more criminals for America’s 250th.
 
 PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-to-mark-americas-250th-20fccfbc](https://www.wsj.com/politics/policy/white-house-explores-250-pardons-to-mark-americas-250th-20fccfbc)
 

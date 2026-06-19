@@ -504,7 +504,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-04-28 Former FBI Director James Comey was indicted again over a 2025 social-media post after an earlier case had been dismissed. 
 
-2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after her 2025 dismissal from the Justice Department. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. 
+2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after Trump fired her in 2025. She was the lead prosecutor in the Epstein Case and secured a conviction against Gislaine Maxwell. 
 
 2026-04-28 Shortly after Trump and Melania Trump demanded Jimmy Kimmel's dismissal, the FCC opened an investigation into ABC and Disney's DEI practices.
 

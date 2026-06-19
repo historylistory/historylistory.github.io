@@ -414,7 +414,7 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-epstein/
 
 [https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge](https://www.cnn.com/2026/04/13/media/trump-wsj-lawsuit-epstein-dismissed-judge)
 
-2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after her 2025 dismissal from the Justice Department. She was the lead prosecutor in the Epstein Case securing conviction against Gislaine Maxwell. 
+2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after Trump fired her in 2025. She was the lead prosecutor in the Epstein Case and secured a conviction against Gislaine Maxwell. 
 
 [https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
 

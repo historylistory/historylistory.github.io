@@ -81,7 +81,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-03 Israel displaced residents of ten (10) towns in Lebanon and killed 2659 civilians since March 2 2026. 
+2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 
 [https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon](https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon)
 

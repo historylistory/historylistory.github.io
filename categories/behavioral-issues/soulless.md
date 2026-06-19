@@ -707,8 +707,8 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 
 SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/](https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/)
 
-2026-05-05 Nobel Peace Laureate Narges Muhammadi was hospitalized in critical condition after collapsing in prison from a heart condition. She had been imprisoned in Iran for the past twenty years for activism and had been repeatedly denied medical care even after two heart attacks. 
-
+2026-05-05 Nobel Peace Prize laureate Narges Mohammadi was hospitalized in critical condition after collapsing in an Iranian prison. She had reportedly been denied medical care despite prior heart attacks.
+s
 [https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death](https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death)
 
 [https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)

@@ -637,13 +637,13 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 [https://www.youtube.com/watch?v=1wTxdxRGpAc](https://www.youtube.com/watch?v=1wTxdxRGpAc)
 
 
-2026-05-14 Head of the US Border Patrol Michael Banks resigned weeks after the Washington Examiner reported he bragged about paying for sex with prostitutes while traveling in Columbia and Thailand. This prompted investigation which ended abruptly as Kristi Noem served as DHS head.
+2026-05-14 Border Patrol Chief Michael Banks resigned following reports that he had boasted about paying for sex while traveling abroad. The investigation ended abruptly once Kristi Noem served as DHS head.
 
 [https://www.bbc.com/news/articles/c0k2zl6evk5o](https://www.bbc.com/news/articles/c0k2zl6evk5o)
 
 [https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482](https://apnews.com/article/border-patrol-chief-michael-banks-immigration-846fb883c40bb4643a81e73139249482)
 
-2026-05-18 Financial disclosure forms released by the US Office of Government Ethics showed Trump made between $220-$750M in trades in his first 3 months of 2026.
+2026-05-18 Financial disclosures showed Trump earned an estimated $220–750 million from trading activity during the first three months of 2026.
 
 [https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/](https://www.reuters.com/legal/government/trump-ethics-filing-reveals-thousands-trades-tied-us-corporate-securities-2026-05-14/)
 
@@ -657,7 +657,7 @@ SUB WALL [https://www.politico.com/news/2026/05/06/howard-lutnick-commerce-epste
 
 [https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)
 
-2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+2026-05-21 Applications opened for a $1.8 billion compensation fund benefiting January 6 defendants and other Trump allies, including Enrique Tarrio, Mike Lindell, George Santos, Rod Blagojevich, and Adam Johnson.
 
 [https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
 
@@ -677,7 +677,7 @@ FROM DEC 2025: [https://finance.yahoo.com/news/company-backed-donald-trump-jr-19
 
 FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789](https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789)
 
-2026-05-29 Trump allegedly spent thousands on TKO stock while promoting the White House UFC event. 
+2026-05-29 Reports alleged Trump purchased significant amounts of TKO stock while promoting a White House UFC event.
 
 [https://www.nytimes.com/athletic/7319008/2026/05/29/trump-white-house-ufc-fight-stock/](https://www.nytimes.com/athletic/7319008/2026/05/29/trump-white-house-ufc-fight-stock/)
 
@@ -685,7 +685,7 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 
 [https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html](https://www.yahoo.com/news/politics/articles/trump-bought-stock-ufcs-parent-021909968.html)
 
-2026-05-31 On Fox, Ken Paxton responded to the interview question about being called ‘scandal plagued’, “The reality is they could say the same thing about Donald Trump…”
+2026-05-31 On Fox, Ken Paxton responded to being called ‘scandal plagued’, “The reality is they could say the same thing about Donald Trump…”
 
 [https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html](https://www.yahoo.com/news/politics/articles/trump-endorsed-candidate-mistakenly-disses-193237864.html)
 

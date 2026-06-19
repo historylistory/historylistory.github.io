@@ -156,7 +156,7 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 ### 2026 May
 
-2026-05-05 The Trump administration renamed the name of Operations in Iran from Operation Epic Fury to Project Freedom.
+2026-05-12 The Pentagon renamed Operation Epic Fury as Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
 
 [https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
 

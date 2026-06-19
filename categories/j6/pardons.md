@@ -109,7 +109,7 @@ permalink: /categories/j6/pardons/
 
 ### 2026 May
 
-2026-05-21 People began applying for the $1.8B slush fund benefits designed to pay off J6 insurrectionists and other Trump allies. Among those include leader of the white supremacist group Proud Boys Enrique Tarrio, MyPillow CEO Mike Lindell, former Congressman George Santos, ex-Governor Rod Blagojevich, and Adam Johnson “the lectern guy”.
+2026-05-21 Applications opened for a $1.8 billion compensation fund benefiting January 6 defendants and other Trump allies, including Enrique Tarrio, Mike Lindell, George Santos, Rod Blagojevich, and Adam Johnson.
 
 [https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)
 

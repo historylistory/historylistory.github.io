@@ -994,7 +994,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 March Week #4
 
-2028-03-22 During a GOP fundraising event Trump told the audience that if you call it a “military operation” instead of a “war” you don’t have to ask for permission.  He said, quote, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.  He has also referred to the war as “an excursion”. 
+2028-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
 
 [https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
 
@@ -1578,7 +1578,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 ### 2026 May
 
 
-2026-05-01 This date marked the 60th day of the war in Iran. Trump claimed he doesn’t need Congressional approval under the War Powers Act to continue the war.
+2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -1590,7 +1590,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
-2026-05-03 Israel displaced residents of ten (10) towns in Lebanon and killed 2659 civilians since March 2 2026. 
+2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 
 [https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon](https://www.aljazeera.com/news/2026/5/3/israel-issues-new-forced-displacement-orders-in-southern-lebanon)
 
@@ -1608,7 +1608,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 
 [https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence](https://www.euronews.com/2026/05/04/tehran-regime-executes-three-protesters-one-without-evidence)
 
-2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. USCENTCOM confirmed they attacked several boats, but insisted they were threatening commercial vessels. 
+2026-05-04 Iranian State Media reported the U.S. fired on small cargo boats and passengers, killing five civilians. U.S. Central Command claimed the vessels threatened commercial shipping.
 
 [https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html](https://www.aol.com/articles/iran-claims-5-civilians-killed-121333505.html)
 
@@ -1642,7 +1642,7 @@ TRUMP POST [https://truthsocial.com/@realDonaldTrump/posts/116517438678419639](h
 
 PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html](https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-trapped-ships.html)
 
-2026-05-05 Nobel Peace Laureate Narges Muhammadi was hospitalized in critical condition after collapsing in prison from a heart condition. She had been imprisoned in Iran for the past twenty years for activism and had been repeatedly denied medical care even after two heart attacks. 
+2026-05-05 Nobel Peace Prize laureate Narges Mohammadi was hospitalized in critical condition after collapsing in an Iranian prison. She had reportedly been denied medical care despite prior heart attacks.
 
 [https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death](https://www.theguardian.com/world/2026/may/05/jailed-iranian-nobel-prize-winner-narges-mohammadi-between-life-and-death)
 
@@ -1651,7 +1651,7 @@ PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-tra
 [https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
 
 
-2026-05-05 The Trump administration renamed the name of Operations in Iran from Operation Epic Fury to Project Freedom.
+2026-05-12 The Pentagon renamed Operation Epic Fury as Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
 
 [https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
 
@@ -1715,7 +1715,7 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 
 
-2026-05-14 The House failed to advance an Iran war powers resolution tied 212 to 212.
+2026-05-14 The House failed to advance an Iran war-powers resolution after a 212–212 tie vote.
 
 [https://www.cbsnews.com/news/house-iran-war-powers-resolution/](https://www.cbsnews.com/news/house-iran-war-powers-resolution/)
 
@@ -1755,7 +1755,7 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 
 
-2026-05-22 Democrat Congressman after Republicans cancelled the Iran war powers vote, “…these chickenhawk motherfuckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullshit argument, and every American should be absolutely outraged about this. It’s a disgrace.”
+2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “…these chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
 [https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s](https://www.youtube.com/watch?v=pvb6YVTe_0s&list=WL&index=7&t=50s)
 
@@ -1763,7 +1763,7 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 ### 2026 June
 
-2026-06-03 Republicans joined Democrats in a House vote 215 to 208 to end the war in Iran. It is only symbolic; even if it passes the Senate it would still require Trump’s signature.
+2026-06-03 Republicans joined Democrats in a 215–208 House vote to end the Iran conflict. The measure remained largely symbolic because it still required Senate approval and Trump's signature.
 
 [https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/](https://www.reuters.com/world/us/us-house-backs-resolution-curbing-trump-iran-war-powers-2026-06-03/)
 
