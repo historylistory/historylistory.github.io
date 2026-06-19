@@ -18,15 +18,15 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 [https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits](https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits)
 
-[https://www.americanprogress.org/article/the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security/#:~:text=Under%20the%20RSC%20proposal%2C%20when,income%20and%20middle%2Dincome%20seniors](https://www.americanprogress.org/article/the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security/#:~:text=Under%20the%20RSC%20proposal%2C%20when,income%20and%20middle%2Dincome%20seniors)
+[https://www.americanprogress.org/article/the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security](https://www.americanprogress.org/article/the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security)
 
-[https://www.americanprogress.org/press/release-the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security/#:~:text=According%20to%20Roll%20Call%2C%20the,and%20author%20of%20the%20column.&text=For%20more%20information%20on%20this,at%20snadeau@americanprogress.org](https://www.americanprogress.org/press/release-the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security/#:~:text=According%20to%20Roll%20Call%2C%20the,and%20author%20of%20the%20column.&text=For%20more%20information%20on%20this,at%20snadeau@americanprogress.org).
+[https://www.americanprogress.org/press/release-the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security](https://www.americanprogress.org/press/release-the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security)
 
-[https://www.cnbc.com/2024/03/22/how-social-security-benefits-may-change-under-republican-democrat-proposals.html#:~:text=Both%20Social%20Security%20and%20Medicare,programs%20is%20projected%20to%20grow.&text=The%20trust%20funds%20that%20Social,as%20of%20fiscal%20year%202023.&text=This%20week%2C%20the%20Republican%20Study,these%20budgets%2C%22%20Sprick%20said](https://www.cnbc.com/2024/03/22/how-social-security-benefits-may-change-under-republican-democrat-proposals.html#:~:text=Both%20Social%20Security%20and%20Medicare,programs%20is%20projected%20to%20grow.&text=The%20trust%20funds%20that%20Social,as%20of%20fiscal%20year%202023.&text=This%20week%2C%20the%20Republican%20Study,these%20budgets%2C%22%20Sprick%20said).
+[https://www.cnbc.com/2024/03/22/how-social-security-benefits-may-change-under-republican-democrat-proposals.html](https://www.cnbc.com/2024/03/22/how-social-security-benefits-may-change-under-republican-democrat-proposals.html)
 
 [https://www.nbcnews.com/politics/congress/republican-budget-raise-age-retirement-social-security-medicare-rcna144341](https://www.nbcnews.com/politics/congress/republican-budget-raise-age-retirement-social-security-medicare-rcna144341)
 
-[https://democrats-budget.house.gov/news/press-releases/cbo-finds-gop-social-security-plans-would-slash-benefits-thousands-dollars-fail#:~:text=Democrats%20will%20never%20stop%20fighting,increasing%20expenditures%20for%20that%20program](https://democrats-budget.house.gov/news/press-releases/cbo-finds-gop-social-security-plans-would-slash-benefits-thousands-dollars-fail#:~:text=Democrats%20will%20never%20stop%20fighting,increasing%20expenditures%20for%20that%20program).
+[https://democrats-budget.house.gov/news/press-releases/cbo-finds-gop-social-security-plans-would-slash-benefits-thousands-dollars-fail](https://democrats-budget.house.gov/news/press-releases/cbo-finds-gop-social-security-plans-would-slash-benefits-thousands-dollars-fail)
 
 ### 2025 February
 
@@ -91,6 +91,14 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 [https://www.cnbc.com/select/401k-hardship-withdrawals/](https://www.cnbc.com/select/401k-hardship-withdrawals/)
 
 [https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70](https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70)
+
+2026-03-18 Trump signed an anti-fraud executive order creating a task force chaired by JD Vance. The order focused on immigration fraud, welfare programs, touts a claim of “staggering fraud and waste in Minnesota alone”, and alleged misuse of federal funds while expanding federal oversight and coordination with Homeland Security.
+
+[https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/)
+
+[https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/fact-sheets/2026/03/fact-sheet-president-donald-j-trump-establishes-the-task-force-to-eliminate-fraud/)
+
+[https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6](https://www.youtube.com/watch?v=ZYOqdjApDtI&list=WL&index=6)
 
 ### 2026 April
 

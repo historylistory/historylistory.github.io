@@ -289,7 +289,7 @@ Think About:
 
 [https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8](https://www.youtube.com/watch?v=_ISY16GtwLI&list=WL&index=8)
 
-2026-03-18 The White House signed an executive order to eliminate fraud. The new task force will be chaired by JD Vance. The executive order claims immigration fraud, “staggering fraud and waste in Minnesota alone”, and assistance programs. One section of the order reads, “Making matters worse, the previous administration adopted policies that weakened the Federal Government’s oversight of State administration and distribution of Federal funds…”. It also states the Task Force would coordinate directly with Homeland Security. Not only does it specifically target the administration’s perceived threats; it outlines more Federal oversight and control. This executive order was signed by a President who had committed fraud and pardoned multiple fraudsters. 
+2026-03-18 Trump signed an anti-fraud executive order creating a task force chaired by JD Vance. The order focused on immigration fraud, welfare programs, touts a claim of “staggering fraud and waste in Minnesota alone”, and alleged misuse of federal funds while expanding federal oversight and coordination with Homeland Security.
 
 [https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/](https://www.whitehouse.gov/presidential-actions/2026/03/establishing-the-task-force-to-eliminate-fraud/)
 

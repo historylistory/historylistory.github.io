@@ -108,7 +108,7 @@ permalink: /categories/greed/side-hustles-for-profit-presidency/
 {% include youtubePlayer.html id="Q6NLxtfZk00" %}
 
 
-2026-03-14 Trump brokered TikTok’s sale to Larry Ellison, The Trump administration allegedly gained a $10B transactional payout, which is 70% of the company’s $14B worth.
+2026-03-14 After brokering TikTok's sale to Larry Ellison, the Trump administration reportedly received a $10 billion transaction payment, representing roughly 70% of the company's $14B worth.
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 

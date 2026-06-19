@@ -205,6 +205,15 @@ permalink: /categories/crime-ethics-defiance/ethics-issues/
 
 [https://www.ms.now/top-stories/latest/read-danielle-sassoon-letter-pam-bondi-eric-adams-pdf-rcna192144](https://www.ms.now/top-stories/latest/read-danielle-sassoon-letter-pam-bondi-eric-adams-pdf-rcna192144)
 
+### 2025 March
+
+2025-03-07 The Trump administration fired head of the Office of Professional Responsibility Jeffrey Ragsdale. 
+
+[https://democrats-judiciary.house.gov/sites/evo-subsites/democrats-judiciary.house.gov/files/migrated/UploadedFiles/2025.01.29_Fact_Sheet_on_DOJ_Changes.pdf](https://democrats-judiciary.house.gov/sites/evo-subsites/democrats-judiciary.house.gov/files/migrated/UploadedFiles/2025.01.29_Fact_Sheet_on_DOJ_Changes.pdf)
+
+[https://www.washingtonpost.com/national-security/2025/03/07/justice-department-trump-firings/](https://www.washingtonpost.com/national-security/2025/03/07/justice-department-trump-firings/)
+
+
 ### 2025 May
 
 2025-05-09 Reporters asked Karoline Leavitt about conflicts of interest involving Trump's Middle East business contacts. Leavitt berated the reporter stating it was “frankly ridiculous” that anyone “would suggest that President Trump is doing anything for his own benefit” and claimed that this administration holds itself to the “highest of ethical standards”.
@@ -406,7 +415,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 ### 2026 March
 
-2026-03-05 Pam Bondi attempted to limit ethics probes into DOJ lawyers.
+2026-03-05 Pam Bondi sought to limit ethics investigations involving DOJ attorneys by proposing a regulation which would allow the DOJ to head off state bar investigations. 
 
 [https://www.democracydocket.com/news-alerts/justice-department-attorneys-state-bar-investigations-newrule/](https://www.democracydocket.com/news-alerts/justice-department-attorneys-state-bar-investigations-newrule/)
 
@@ -414,7 +423,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office#:~:text=Former%20Senior%20Official%20for%20the,it%20produced%20in%20federal%20court](https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office).
 
-2026-03-14 Trump brokered TikTok’s sale to Larry Ellison, The Trump administration allegedly gained a $10B transactional payout, which is 70% of the company’s $14B worth.
+2026-03-14 After brokering TikTok's sale to Larry Ellison, the Trump administration reportedly received a $10 billion transaction payment, representing roughly 70% of the company's $14B worth.
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 
