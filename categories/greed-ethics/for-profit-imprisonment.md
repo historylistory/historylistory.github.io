@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: For Profit Imprisonment
-category_slug: greed
+category_slug: greed-ethics
 subcategory_slug: for-profit-imprisonment
-permalink: /categories/greed/for-profit-imprisonment/
+permalink: /categories/greed-ethics/for-profit-imprisonment/
 ---
 
 ### the Geo Group

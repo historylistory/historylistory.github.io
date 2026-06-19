@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Crypto & Bitcoin"
-category_slug: greed
+category_slug: greed-ethics
 subcategory_slug: crypto-bitcoin
-permalink: /categories/greed/crypto-bitcoin/
+permalink: /categories/greed-ethics/crypto-bitcoin/
 ---
 
 ### 2019

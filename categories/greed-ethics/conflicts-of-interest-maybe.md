@@ -1,10 +1,32 @@
 ---
 layout: subcategory
 title: Conflicts of Interest, Maybe?
-category_slug: greed
+category_slug: greed-ethics
 subcategory_slug: conflicts-of-interest-maybe
-permalink: /categories/greed/conflicts-of-interest-maybe/
+permalink: /categories/greed-ethics/conflicts-of-interest-maybe/
 ---
+
+### 2008
+
+2008-07-01 Justice Samuel Alito – the person who helped overturn Roe v. Wade – took luxury fishing trips with GOP mega donors Leonard Leo and Paul Singer. Alito wrote an opinion article in the Wall Street Journal claiming ProPublica misleads its readers and that he didn’t have to report on the luxury trip. After the trip, Alito did not recuse himself from a case before the Supreme Court involving Paul Singer, or from a 2023 tax case involving an attorney who interviewed him for articles in the Wall Street Journal. It wasn’t until 2026 when Alito did recuse himself from an oil industry case due to a discovered conflict with his ConocoPhillips stock.
+
+[https://www.propublica.org/article/samuel-alito-luxury-fishing-trip-paul-singer-scotus-supreme-court](https://www.propublica.org/article/samuel-alito-luxury-fishing-trip-paul-singer-scotus-supreme-court)
+
+[https://dailymontanan.com/2023/07/02/justice-alito-took-luxury-fishing-vacation-with-gop-billionaire-who-later-had-cases-before-the-court/](https://dailymontanan.com/2023/07/02/justice-alito-took-luxury-fishing-vacation-with-gop-billionaire-who-later-had-cases-before-the-court/)
+
+[https://www.pbs.org/newshour/show/supreme-court-justice-alito-faces-scrutiny-over-undisclosed-luxury-trip-from-gop-donor](https://www.pbs.org/newshour/show/supreme-court-justice-alito-faces-scrutiny-over-undisclosed-luxury-trip-from-gop-donor)
+
+[https://www.theguardian.com/law/2023/jun/21/samuel-alito-undisclosed-gifts-billionaire-paul-singer-supreme-court](https://www.theguardian.com/law/2023/jun/21/samuel-alito-undisclosed-gifts-billionaire-paul-singer-supreme-court)
+
+[https://www.npr.org/2023/06/21/1183578265/supreme-court-justice-samuel-alitos-ethics-come-into-question-with-propublica-re](https://www.npr.org/2023/06/21/1183578265/supreme-court-justice-samuel-alitos-ethics-come-into-question-with-propublica-re)
+
+[https://www.pbs.org/newshour/show/supreme-court-justice-alito-faces-scrutiny-over-undisclosed-luxury-trip-from-gop-donor](https://www.pbs.org/newshour/show/supreme-court-justice-alito-faces-scrutiny-over-undisclosed-luxury-trip-from-gop-donor)
+
+[https://fixthecourt.com/2026/01/alito-recusal/](https://fixthecourt.com/2026/01/alito-recusal/)
+
+[https://www.nbcnews.com/politics/supreme-court/samuel-alito-says-no-valid-reason-step-supreme-court-case-involving-la-rcna104082](https://www.nbcnews.com/politics/supreme-court/samuel-alito-says-no-valid-reason-step-supreme-court-case-involving-la-rcna104082)
+
+[https://bresslerriskblog.com/supreme-conflicts-allegations-commentary-and-analysis-on-alito-accusations](https://bresslerriskblog.com/supreme-conflicts-allegations-commentary-and-analysis-on-alito-accusations)
 
 ### 2022
 

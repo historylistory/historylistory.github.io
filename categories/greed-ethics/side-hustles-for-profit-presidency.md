@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Side Hustles & For-Profit Presidency"
-category_slug: greed
+category_slug: greed-ethics
 subcategory_slug: side-hustles-for-profit-presidency
-permalink: /categories/greed/side-hustles-for-profit-presidency/
+permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
 ---
 
 ### 1995
