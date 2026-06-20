@@ -24,6 +24,10 @@ These concerns represent only a few examples of the issues that have led me to t
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
+1952-01-01 The US put support behind Cuban dictator Fulgencio Batista.
+
+1955-05-04 The CIA trained torturers serving Fulgencio Batista's regime in Cuba.
+
 1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
 
 1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
@@ -39,6 +43,8 @@ These concerns represent only a few examples of the issues that have led me to t
 2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
 
 2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
+
+2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
