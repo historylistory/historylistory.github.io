@@ -6,9 +6,20 @@ subcategory_slug: veterans
 permalink: /categories/disabled-elderly-veteran/veterans/
 ---
 
+### 1964
+
+1964-1968 Trump received five deferments to serving the Army: four student deferments and one medical deferment for bone spurs. 
+
+[https://www.teenvogue.com/story/donald-trump-dodged-the-draft-5-times](https://www.teenvogue.com/story/donald-trump-dodged-the-draft-5-times)
+
+[https://abcnews.com/Politics/donald-trumps-vietnam-draft-records-secret-documents-deferments/story?id=13492639](https://abcnews.com/Politics/donald-trumps-vietnam-draft-records-secret-documents-deferments/story?id=13492639)
+
+[https://www.newsweek.com/donald-trump-military-draft-avoidance-iran-war-11653751](https://www.newsweek.com/donald-trump-military-draft-avoidance-iran-war-11653751)
+
+
 ### 2015
 
-2015-07-18 Trump (who dodged the draft) said John McCain wasn’t a war hero, stating, “He’s not a war hero. He’s a war hero because he was captured. I like people that **weren’t** captured”. In March of 2019, Trump wrote, “So it was indeed (just proven in court papers) “last in his class” (Annapolis) John McCain that sent the Fake Dossier ot the FBI and Media hoping to have it printed BEFORE the Election. He & the Dems, working together, failed (as usual). Even the Fake News refused this garbage!”
+2015-07-18 Trump said about John McCain, “He’s not a war hero. He’s a war hero because he was captured. I like people that weren’t captured”. In March of 2019, Trump wrote, “So it was indeed (just proven in court papers) “last in his class” (Annapolis) John McCain that sent the Fake Dossier to the FBI and Media hoping to have it printed BEFORE the Election. He & the Dems, working together, failed (as usual). Even the Fake News refused this garbage!”
 
 [https://www.c-span.org/clip/campaign-2016/donald-trump-on-john-mccain-hes-a-war-hero-because-he-was-captured-i-like-people-that-werent-captured/4545110](https://www.c-span.org/clip/campaign-2016/donald-trump-on-john-mccain-hes-a-war-hero-because-he-was-captured-i-like-people-that-werent-captured/4545110)
 
@@ -20,7 +31,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2020
 
-2020-09-04 Reports emerged that Trump called fallen soldiers ‘suckers’ and ‘losers’.
+2020-09-04 Trump called fallen soldiers, “suckers” and “losers”.
 
 [https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/](https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/)
 
@@ -32,7 +43,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2025 February
 
-2025-02-24 The Trump administration started integrating AI to automate both general population healthcare and VA health care claims.
+2025-02-24 AI automation was integrated into health care claims. 
 
 [https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials](https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials)
 
@@ -42,11 +53,11 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2025 March
 
-2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
+2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels. 
 
 {% include youtubePlayer.html id="ESzZHsqqHGM" %}
 
-2025-03-05 A military news outlet Military.com published an article speaking out on behalf of millions of Veterans who feel that privatized healthcare will rapidly eat into the VA budget.
+2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 
 [https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html](https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html)
 

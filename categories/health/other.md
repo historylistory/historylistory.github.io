@@ -24,7 +24,7 @@ permalink: /categories/health/other/
 
 ### 2025 February
 
-2025-02-24 The Trump administration started integrating AI to automate both general population healthcare and VA health care claims.
+2025-02-24 AI automation was integrated into health care claims. 
 
 [https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials](https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials)
 

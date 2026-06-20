@@ -16,7 +16,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2023
 
-2023-02-08 During a State of the Union address, Biden was booed and heckled after he warned that Republicans would make cuts to Medicare and Medicaid.
+2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
 
 {% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
@@ -41,23 +41,23 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 January
 
-2025-01-20 Page 465 of Project 2025 outlines a plan to increase Medicare Part D prescription prices. 
+2025-01-20 Page 465 of Project 2025 outlines a plan to increase Medicare Part D prescription prices and expose seniors to higher out-of-pocket expenses.
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 
 ### 2025 March
 
-2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
+2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels. 
 
 {% include youtubePlayer.html id="ESzZHsqqHGM" %}
 
-2025-03-05 A military news outlet Military.com published an article speaking out on behalf of millions of Veterans who feel that privatized healthcare will rapidly eat into the VA budget.
+2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 
 [https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html](https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html)
 
 ### 2025 April
 
-2025-04-01 The Trump administration made cuts to Meals on Wheels and other services for seniors and disabled. The Trump administration also **made cuts to the Low-Income Home Energy Assistance Program**, **which provides energy assistance, weatherization, equipment, and crisis assistance to the elderly and disabled**.
+2025-04-01 The Trump administration made cuts to Meals on Wheels, the Low-Income Home Energy Assistance Program, and crisis assistance to the elderly and disabled.
 
 [https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl](https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl)
 

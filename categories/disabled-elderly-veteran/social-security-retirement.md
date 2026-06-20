@@ -8,13 +8,13 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 ### 2024
 
-2024-12-08 During an interview with Meet the Press, Trump formally stated, "we are not touching Social Security" and "we are not raising ages".
+2024-12-08 During an interview with Meet the Press, Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
 
 [https://www.nbcnews.com/meet-the-press/video/trump-says-we-re-not-touching-social-security-in-proposed-cuts-to-government-spending-226493509716](https://www.nbcnews.com/meet-the-press/video/trump-says-we-re-not-touching-social-security-in-proposed-cuts-to-government-spending-226493509716)
 
 ### 2025 January
 
-2025-01-20 The Republican Study Committee proposed a budget to raise the retirement age to 69, which would especially hurt low-income retirees. This type of decision requires recommendations from people like RFK and Bessent, and approval by Congress. 
+2025-01-20 The Republican Study Committee proposed a budget to raise the retirement age to 69. 
 
 [https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits](https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits)
 
@@ -30,19 +30,19 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 ### 2025 February
 
-2025-02-28 During an interview with Joe Rogan, Elon Musk called social security a “Ponzi scheme". 
+2025-02-28 Elon Musk claimed social security was a “Ponzi scheme”. 
 
 [https://www.nbcnews.com/politics/trump-administration/elon-musk-social-security-concern-trump-allies-rcna197527](https://www.nbcnews.com/politics/trump-administration/elon-musk-social-security-concern-trump-allies-rcna197527)
 
 ### 2025 March
 
-2025-03-01 According to a news outlet, an email from the Social Security Commissioner was supposedly leaked which allegedly referred to privatizing Social Security, ""we need to revitalize SSA operations by streamlining activities, out-source nonessential functions to industry experts, and reinstating human judgment and common sense into every decision at every level."
+2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call centers staffed by people trained to help seniors sort out complex problems.
 
 [https://larson.house.gov/media-center/in-the-news/here-comes-trumps-privatization-social-security-administration](https://larson.house.gov/media-center/in-the-news/here-comes-trumps-privatization-social-security-administration)
 
  
 
-2025-03-04 During a joint address to Congress, Trump made unfounded claims that over 15M people were illegally receiving Social Security, stating recipients ranged in age from 100 to 360 years old.  The statistics he gave were Millions (non-specific) ages 100-109, 3.6M ages 110-119, 3.47M ages 120-129, 3.5M ages 140-149, 1.3M ages 150-159, 130K over the age of 160, 1039 people aged 220-229, 1 person somewhere between 240 and 249, 1 person age 360, making a total well over 16M.
+2025-03-04 Trump falsely claimed that well over 16 million people aged 100 to 360 were illegally receiving Social Security, including millions supposedly over 100 and even individuals allegedly aged 240–249 and 360.
 
 [https://www.cbpp.org/blog/setting-the-record-straight-on-social-security](https://www.cbpp.org/blog/setting-the-record-straight-on-social-security)
 

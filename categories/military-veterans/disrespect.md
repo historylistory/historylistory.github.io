@@ -6,9 +6,20 @@ subcategory_slug: disrespect
 permalink: /categories/military-veterans/disrespect/
 ---
 
+### 1964
+
+1964-1968 Trump received five deferments to serving the Army: four student deferments and one medical deferment for bone spurs. 
+
+[https://www.teenvogue.com/story/donald-trump-dodged-the-draft-5-times](https://www.teenvogue.com/story/donald-trump-dodged-the-draft-5-times)
+
+[https://abcnews.com/Politics/donald-trumps-vietnam-draft-records-secret-documents-deferments/story?id=13492639](https://abcnews.com/Politics/donald-trumps-vietnam-draft-records-secret-documents-deferments/story?id=13492639)
+
+[https://www.newsweek.com/donald-trump-military-draft-avoidance-iran-war-11653751](https://www.newsweek.com/donald-trump-military-draft-avoidance-iran-war-11653751)
+
+
 ### 2015
 
-2015-07-18 Trump (who dodged the draft) said John McCain wasn’t a war hero, stating, “He’s not a war hero. He’s a war hero because he was captured. I like people that **weren’t** captured”. In March of 2019, Trump wrote, “So it was indeed (just proven in court papers) “last in his class” (Annapolis) John McCain that sent the Fake Dossier ot the FBI and Media hoping to have it printed BEFORE the Election. He & the Dems, working together, failed (as usual). Even the Fake News refused this garbage!”
+2015-07-18 Trump said about John McCain, “He’s not a war hero. He’s a war hero because he was captured. I like people that weren’t captured”. In March of 2019, Trump wrote, “So it was indeed (just proven in court papers) “last in his class” (Annapolis) John McCain that sent the Fake Dossier to the FBI and Media hoping to have it printed BEFORE the Election. He & the Dems, working together, failed (as usual). Even the Fake News refused this garbage!”
 
 [https://www.c-span.org/clip/campaign-2016/donald-trump-on-john-mccain-hes-a-war-hero-because-he-was-captured-i-like-people-that-werent-captured/4545110](https://www.c-span.org/clip/campaign-2016/donald-trump-on-john-mccain-hes-a-war-hero-because-he-was-captured-i-like-people-that-werent-captured/4545110)
 
@@ -22,7 +33,7 @@ permalink: /categories/military-veterans/disrespect/
 
 ### 2020
 
-2020-09-04 Trump called fallen soldiers ‘suckers’ and ‘losers’.
+2020-09-04 Trump called fallen soldiers, “suckers” and “losers”.
 
 [https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/](https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997/)
 

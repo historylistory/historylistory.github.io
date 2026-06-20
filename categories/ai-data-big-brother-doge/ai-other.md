@@ -6,6 +6,17 @@ subcategory_slug: ai-other
 permalink: /categories/ai-data-big-brother-doge/ai-other/
 ---
 
+### 2025 February
+
+2025-02-24 AI automation was integrated into health care claims. 
+
+[https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials](https://www.ama-assn.org/press-center/ama-press-releases/physicians-concerned-ai-increases-prior-authorization-denials)
+
+[https://news.stanford.edu/stories/2026/01/ai-algorithms-health-insurance-care-risks-research](https://news.stanford.edu/stories/2026/01/ai-algorithms-health-insurance-care-risks-research)
+
+[https://department.va.gov/ai/ai-use-case-inventory/](https://department.va.gov/ai/ai-use-case-inventory/)
+
+
 ### 2025 November
 
 2025-11-24 The open-source AI agent framework OpenClaw launched, enabling shell commands, file management, and browser automation on behalf of the user. 

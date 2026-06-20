@@ -18,7 +18,7 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2023
 
-2023-02-08 During a State of the Union address, Biden was booed and heckled after he warned that Republicans would make cuts to Medicare and Medicaid.
+2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
 
 {% include youtubePlayer.html id="1A9EZh2aVpw" %}
 
@@ -30,7 +30,7 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2025 January
 
-2025-01-20 Page 465 of Project 2025 outlines a plan to increase Medicare Part D prescription prices. 
+2025-01-20 Page 465 of Project 2025 outlines a plan to increase Medicare Part D prescription prices and expose seniors to higher out-of-pocket expenses.
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 

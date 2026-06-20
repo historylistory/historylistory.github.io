@@ -37,7 +37,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 March
 
-2025-03-05 A military news outlet Military.com published an article speaking out on behalf of millions of Veterans who feel that privatized healthcare will rapidly eat into the VA budget.
+2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 
 [https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html](https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html)
 

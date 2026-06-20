@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/jobs-va-staffing/
 
 ### 2025 March
 
-2025-03-05 Veteran Eric Rodriguez spoke out after the Trump administration cut 400,000 jobs, dragging the VA back to 2019 staffing levels.
+2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels. 
 
 {% include youtubePlayer.html id="ESzZHsqqHGM" %}
 

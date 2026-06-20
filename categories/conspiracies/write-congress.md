@@ -155,7 +155,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-02-20 After a viral post claimed Fort Knox gold was missing, Trump announced in a press conference they “might be going to Fort Knox” to verify.
 
-2025-03-04 During a joint address to Congress, Trump made unfounded claims that over 15M people were illegally receiving Social Security, stating recipients ranged in age from 100 to 360 years old.  The statistics he gave were Millions (non-specific) ages 100-109, 3.6M ages 110-119, 3.47M ages 120-129, 3.5M ages 140-149, 1.3M ages 150-159, 130K over the age of 160, 1039 people aged 220-229, 1 person somewhere between 240 and 249, 1 person age 360, making a total well over 16M.
+2025-03-04 Trump falsely claimed that well over 16 million people aged 100 to 360 were illegally receiving Social Security, including millions supposedly over 100 and even individuals allegedly aged 240–249 and 360.
 
 2025-03-05 Missouri Attorney General Andrew Bailey called for an investigation into Biden’s use of an autopen, arguing it could invalidate executive actions.
 
