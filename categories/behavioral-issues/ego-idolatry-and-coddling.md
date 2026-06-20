@@ -81,7 +81,6 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 [https://x.com/WhiteHouse/status/1892295984928993698](https://x.com/WhiteHouse/status/1892295984928993698)
 
 2025-02-26 Trump posted an AI-generated video depicting Gaza as a luxury resort and himself as a golden idol.
-
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 
 {% include youtubePlayer.html id="PslOp883rfI" %}

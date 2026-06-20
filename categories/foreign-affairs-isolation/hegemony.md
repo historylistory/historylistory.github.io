@@ -20,7 +20,7 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 
 ### 2026
 
-2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 
@@ -75,7 +75,7 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 
 [https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
 
-2026-06-08 Citizens of France accosted Pete Hegseth for delivering a speech at a memorial ceremony in Normandy where he compared the immigration of migrants into Europe to a modern “invasion”. Citizens called the speech “toxic” and criticized “people trying to interfere in our democracy’. 
+2026-06-08 Citizens of France accosted Pete Hegseth after a Normandy memorial speech in which he called immigration into Europe to a modern “invasion.” France called out the remarks for being toxic and cited Hegseth of “trying to interfere” with their democracy.
 
 [https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html](https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html)
 

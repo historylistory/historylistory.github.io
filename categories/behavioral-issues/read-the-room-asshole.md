@@ -202,7 +202,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 ### 2026 April
 
-2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery. 
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 
@@ -289,7 +289,7 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 
 [https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4](https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4)
 
-2026-06-08 Citizens of France accosted Pete Hegseth for delivering a speech at a memorial ceremony in Normandy where he compared the immigration of migrants into Europe to a modern “invasion”. Citizens called the speech “toxic” and criticized “people trying to interfere in our democracy’. 
+2026-06-08 Citizens of France accosted Pete Hegseth after a Normandy memorial speech in which he called immigration into Europe to a modern “invasion.” France called out the remarks for being toxic and cited Hegseth of “trying to interfere” with their democracy.
 
 [https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html](https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html)
 

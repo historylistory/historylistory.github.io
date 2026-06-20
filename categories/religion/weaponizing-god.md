@@ -145,7 +145,8 @@ SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-tr
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
 
-2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
+2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
+
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)

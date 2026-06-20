@@ -234,7 +234,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 ### 2025 December
 
-2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority. A decision expected in June 2026 could reshape federal checks and balances.
+2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority and reshape federal checks and balances.
 
 [https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive](https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive)
 

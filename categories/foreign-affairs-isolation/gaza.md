@@ -173,11 +173,11 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 [https://www.bbc.com/news/articles/c8641wv0n4go](https://www.bbc.com/news/articles/c8641wv0n4go)
 
 
-2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
-
-{% include youtubePlayer.html id="0_Bwix9IjOE" %}
+2025-09-18 Israel’s finance minister described postwar Gaza as a “real-estate bonanza,” claimed the “demolition phase” was complete, and said a business plan was on Trump’s desk.
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
+
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 2025-09-21 Britain, Canada, Australia, and Portugal formally recognized Gaza as a State.
 
@@ -311,7 +311,8 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
 
-2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
+2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
+
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)

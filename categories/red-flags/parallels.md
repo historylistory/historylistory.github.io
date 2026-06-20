@@ -70,7 +70,7 @@ permalink: /categories/dictators-control/parallels/
 
 ### 2026 April
 
-2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery. 
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 

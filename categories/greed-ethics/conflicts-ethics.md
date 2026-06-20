@@ -350,11 +350,11 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### 2025 September
 
-2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
-
-{% include youtubePlayer.html id="0_Bwix9IjOE" %}
+2025-09-18 Israel’s finance minister described postwar Gaza as a “real-estate bonanza,” claimed the “demolition phase” was complete, and said a business plan was on Trump’s desk.
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
+
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
 
 
 2025-09-20 Footage from 2024 showed Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, MAGA does not care if Tom Homan took a bribe or not.

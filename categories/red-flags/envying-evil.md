@@ -25,8 +25,7 @@ permalink: /categories/dictators-control/envying-evil/
 
 {% include youtubePlayer.html id="4LxWg1n58CE" %}
 
-2025-11-08 Trump met with his idol Viktor Orban to discuss granting Hungary an exemption on Russian oil and gas sanctions.
-
+2025-11-08 Trump met with Viktor Orbán to discuss exempting Hungary from Russian oil and gas sanctions.
 
 [https://www.theguardian.com/us-news/2025/nov/07/trump-orban-hungary-russian-oil](https://www.theguardian.com/us-news/2025/nov/07/trump-orban-hungary-russian-oil)
 
@@ -34,7 +33,7 @@ permalink: /categories/dictators-control/envying-evil/
 
 [https://www.aljazeera.com/news/2025/11/7/hungarian-leader-viktor-orban-to-meet-us-president-donald-trump](https://www.aljazeera.com/news/2025/11/7/hungarian-leader-viktor-orban-to-meet-us-president-donald-trump)
 
-2026-02-13 Trump endorsed Viktor Orban ahead of their upcoming elections in April. Trump also sent Rubio and Vance to visit him. 
+2026-02-13 Trump endorsed Viktor Orbán ahead of Hungary’s April elections and sent Marco Rubio and JD Vance to visit him.
 
 [https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest](https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest)
 
@@ -44,7 +43,7 @@ permalink: /categories/dictators-control/envying-evil/
 
 [https://thehill.com/homenews/administration/5737415-donald-trump-endorses-viktor-orban-hungary/](https://thehill.com/homenews/administration/5737415-donald-trump-endorses-viktor-orban-hungary/)
 
-2026-04-09 JD Vance travelled to Hungary in support for Victor Orban in the upcoming elections. After Vance visited, polls showed a decline in support for Orban.
+2026-04-09 After JD Vance travelled to Hungary to support Victor Orban in upcoming elections polls dropped. 
 
 [https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/](https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/)
 
@@ -66,11 +65,11 @@ permalink: /categories/dictators-control/envying-evil/
 
 ### Jair Bolsonaro (Brazil)
 
-2025-07-08 Trump posted a message on Truth Social about Bolsonaro, calling the arrest among other things a "witch hunt".
+2025-07-08 Trump posted a message on Truth Social claiming Bolsonaro’s arrest was a “witch hunt”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/114820873191783674](https://truthsocial.com/@realDonaldTrump/posts/114820873191783674)
 
-2025-09-11 Bolsonaro (Brazil) was sentenced to 27 years for a coup after the 2022 election. Trump spoke out, calling him a "good man". The headline for a New York Times article read “On Even of Election, Bolsonaro’s Party Attacks Brazil’s Voting System” and below the caption read, “Four days before Brazilians vote, President Jair Bolsonaro’s political party formally claimed, without evidence, that government employees could alter ballots”.
+2025-09-11 Bolsonaro was sentenced to 27 years for a coup after his party formally claimed, without evidence, that government employees altered 2022 election ballots. Trump defended him, calling him a “good man”. 
 
 [https://www.nytimes.com/2022/09/29/world/americas/election-bolsonaro-brazil-fraud.html](https://www.nytimes.com/2022/09/29/world/americas/election-bolsonaro-brazil-fraud.html)
 
@@ -80,7 +79,7 @@ permalink: /categories/dictators-control/envying-evil/
 
 ### Benjamin Netanyahu (Israel)
 
-2025-09-29 Trump posted out a warm welcome for Netanyahu on Truth Social.
+2025-09-29 Trump posted a warm welcome for Netanyahu on Truth Social.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115288486061498188](https://truthsocial.com/@realDonaldTrump/posts/115288486061498188)
 
@@ -120,13 +119,13 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 ### Israeli Investors
 
-2025-09-18 During an interview, the Israeli Minister said Gaza would be a "real-estate bonanza" after the war. An article quoted Smotrich saying he started negotiations with the US on how to divide Gaza, claiming there was a business plan sitting on Trump’s desk, and declaring the “demolition phase” was complete.
-
-{% include youtubePlayer.html id="0_Bwix9IjOE" %}
+2025-09-18 Israel’s finance minister described postwar Gaza as a “real-estate bonanza,” claimed the “demolition phase” was complete, and said a business plan was on Trump’s desk.
 
 [https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 
-2026-04-29 In a leaked audio that came out in April the U.K. Ambassador Christian Turner stated that the “only country” to have a “special relationship” with the United States was “probably Israel”.
+{% include youtubePlayer.html id="0_Bwix9IjOE" %}
+
+2026-04-29 Leaked audio revealed U.K. Ambassador Christian Turner saying the “only country” to have a “special relationship” with the United States was “probably Israel”.
 
 [https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/](https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/)
 
@@ -141,7 +140,7 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 
 ### Hitler
 
-2025-06-03 A news outlet reported that Trump kept a copy of Adolf Hitler speeches next to his bedside.
+2025-06-03 Allegedly Trump kept a copy of Adolf Hitler speeches next to his bedside.
 
 [https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html](https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html)
 

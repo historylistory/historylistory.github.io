@@ -22,7 +22,7 @@ pending more information
 
 [https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit](https://www.pbs.org/newshour/show/king-charles-calls-for-unity-in-rare-royal-address-to-congressroyal-visit)
 
-2026-04-29 In a leaked audio that came out in April the U.K. Ambassador Christian Turner stated that the “only country” to have a “special relationship” with the United States was “probably Israel”.
+2026-04-29 Leaked audio revealed U.K. Ambassador Christian Turner saying the “only country” to have a “special relationship” with the United States was “probably Israel”.
 
 [https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/](https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/)
 

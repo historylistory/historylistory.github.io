@@ -101,7 +101,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 June
 
-2025-06-03 A news outlet reported that Trump kept a copy of Adolf Hitler speeches next to his bedside.
+2025-06-03 Allegedly Trump kept a copy of Adolf Hitler speeches next to his bedside.
 
 [https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html](https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html)
 

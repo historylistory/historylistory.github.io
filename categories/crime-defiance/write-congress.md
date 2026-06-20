@@ -361,7 +361,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
-2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority. A decision expected in June 2026 could reshape federal checks and balances.
+2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority and reshape federal checks and balances.
 
 2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 

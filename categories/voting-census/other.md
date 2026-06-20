@@ -101,6 +101,14 @@ OTHER SHADY BUSINESS
 
 [https://www.reuters.com/legal/government/us-senate-loosens-rule-speed-confirmation-some-trump-nominees-2025-09-11/](https://www.reuters.com/legal/government/us-senate-loosens-rule-speed-confirmation-some-trump-nominees-2025-09-11/)
 
+2025-09-11 Bolsonaro was sentenced to 27 years for a coup after his party formally claimed, without evidence, that government employees altered 2022 election ballots. Trump defended him, calling him a “good man”. 
+
+[https://www.nytimes.com/2022/09/29/world/americas/election-bolsonaro-brazil-fraud.html](https://www.nytimes.com/2022/09/29/world/americas/election-bolsonaro-brazil-fraud.html)
+
+[https://www.bbc.com/news/articles/c8xrqxk9p4xo](https://www.bbc.com/news/articles/c8xrqxk9p4xo)
+
+{% include youtubePlayer.html id="hTKr6MN1bIE" %}
+
 2025-12-19 Before the 2026 midterms even started, Erika Trump started endorsing JD Vance for 2028.
 
 [https://www.bbc.com/news/articles/cp84p722m3do](https://www.bbc.com/news/articles/cp84p722m3do)

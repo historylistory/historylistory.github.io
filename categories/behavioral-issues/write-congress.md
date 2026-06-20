@@ -528,7 +528,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, **“I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. **
 
-2026-04-15 The White House submitted plans for the Triumphal Arch (estimated to cost at least $125M, overshadows all other memorials including Arlington).
+2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery. 
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
@@ -542,7 +542,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-18 Courts allowed Trump’s $400M White House ballroom construction to continue.
 
-2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
 
 2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 

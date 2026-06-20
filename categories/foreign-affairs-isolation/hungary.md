@@ -36,7 +36,7 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 
 {% include youtubePlayer.html id="4LxWg1n58CE" %}
 
-2025-11-08 Trump met with his idol Viktor Orban to discuss granting Hungary an exemption on Russian oil and gas sanctions.
+2025-11-08 Trump met with Viktor Orbán to discuss exempting Hungary from Russian oil and gas sanctions.
 
 [https://www.theguardian.com/us-news/2025/nov/07/trump-orban-hungary-russian-oil](https://www.theguardian.com/us-news/2025/nov/07/trump-orban-hungary-russian-oil)
 
@@ -46,7 +46,7 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 
 ### 2026 February
 
-2026-02-13 Trump endorsed Viktor Orban ahead of their upcoming elections in April. Trump also sent Rubio and Vance to visit him. 
+2026-02-13 Trump endorsed Viktor Orbán ahead of Hungary’s April elections and sent Marco Rubio and JD Vance to visit him.
 
 [https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest](https://www.theguardian.com/world/2026/mar/22/trump-lauds-viktor-orban-far-right-leaders-gather-budapest)
 
@@ -66,7 +66,7 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 
 ### 2026 April
 
-2026-04-09 JD Vance travelled to Hungary in support for Victor Orban in the upcoming elections. After Vance visited, polls showed a decline in support for Orban.
+2026-04-09 After JD Vance travelled to Hungary to support Victor Orban in upcoming elections polls dropped. 
 
 [https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/](https://www.thedailybeast.com/vance-humiliated-as-voters-turn-out-in-droves-to-reject-his-pleas-and-oust-viktor-orban-in-hungary/)
 

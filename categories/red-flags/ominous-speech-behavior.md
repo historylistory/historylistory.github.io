@@ -73,7 +73,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2025 August
 
-2025-08-25 During an interview Trump quipped "maybe they want a dictator".
+2025-08-25 During an interview Trump quipped “maybe they want a dictator”.
 
 [https://time.com/7312196/trump-americans-maybe-we-like-a-dictator/](https://time.com/7312196/trump-americans-maybe-we-like-a-dictator/)
 
@@ -87,7 +87,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2025 September
 
-2025-09-13 Elon Musk attended a far-right anti-immigration rally in the UK organized by Tommy Robinson. One of the things Elon Musk stated was, “Violence is coming” and “You either fight back or die”.
+2025-09-13 Elon Musk attended a far-right anti-immigration rally in the UK organized by Tommy Robinson where Musk told the audience, “Violence is coming” and “You either fight back or die”.
 
 [https://www.theguardian.com/politics/2025/sep/15/what-did-elon-musk-say-at-far-right-uk-rally-and-did-his-remarks-break-the-law](https://www.theguardian.com/politics/2025/sep/15/what-did-elon-musk-say-at-far-right-uk-rally-and-did-his-remarks-break-the-law)
 
@@ -95,7 +95,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2025 December
 
-2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority. A decision expected in June 2026 could reshape federal checks and balances.
+2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority and reshape federal checks and balances.
 
 [https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive](https://www.npr.org/2025/12/08/nx-s1-5626876/supreme-court-trump-ftc-unitary-executive)
 
@@ -139,7 +139,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2026 April
 
-2026-04-18 Palantir posted a 22-point manifesto promoting American dominance, nuclear superiority, and autonomous AI weapons while calling some cultures “inferior.” In that manifesto, they called on Trump to reinstate the draft, saying free and democratic societies need “hard power to prevail”, and that post war neutering of Germany and Japan must be undone. 
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 

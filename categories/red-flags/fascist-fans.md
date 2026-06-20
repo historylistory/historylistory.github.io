@@ -26,7 +26,7 @@ permalink: /categories/dictators-control/fascist-fans/
 
 ### 2025 July
 
-2025-07-05 After a fallout with Trump, Musk touted his own following: "The American Party" in a social media post.  On July 4 2025 he wrote “Independence Day is the perfect time to ask if you want independence from the two-party (some would say uniparty) system! Should we create the America Party?” and he offered a poll. The next day he wrote, “By a factor of 2 to 1, you want a new political party and you shall have it! When it comes to bankrupting our country with waste & graft, we live in a one-party system, not a democracy. Today, the America Party is formed to give you back your freedom”.
+2025-07-04 After a fallout with Trump, Musk wrote “Independence Day is the perfect time to ask if you want independence from the two-party (some would say uniparty) system! Should we create the America Party?” and he offered a poll. The next day he wrote, “By a factor of 2 to 1, you want a new political party and you shall have it! When it comes to bankrupting our country with waste & graft, we live in a one-party system, not a democracy. Today, the America Party is formed to give you back your freedom”.
 
 [https://x.com/elonmusk/status/1941119099532378580](https://x.com/elonmusk/status/1941119099532378580)
 
@@ -34,7 +34,7 @@ permalink: /categories/dictators-control/fascist-fans/
 
 ### 2025 September
 
-2025-09-13 Elon Musk attended a far-right anti-immigration rally in the UK organized by Tommy Robinson. One of the things Elon Musk stated was, “Violence is coming” and “You either fight back or die”.
+2025-09-13 Elon Musk attended a far-right anti-immigration rally in the UK organized by Tommy Robinson where Musk told the audience, “Violence is coming” and “You either fight back or die”.
 
 [https://www.theguardian.com/politics/2025/sep/15/what-did-elon-musk-say-at-far-right-uk-rally-and-did-his-remarks-break-the-law](https://www.theguardian.com/politics/2025/sep/15/what-did-elon-musk-say-at-far-right-uk-rally-and-did-his-remarks-break-the-law)
 

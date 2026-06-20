@@ -86,7 +86,8 @@ DEATH: [https://www.theguardian.com/commentisfree/2025/apr/23/pope-francis-jd-va
 
 ### 2026 
 
-2026-04-15 JD Vance and Mike Johnson backed up Trump after he admonished the Pope for condemning war. Vance said the pope should “be careful talking about theology.” Mike Johnson said “There’s something called the Just War Doctrine”. The Pope later wrote, “Woe to those who manipulate religion and the very name of God for their own military, economic, and political gain, dragging that which is sacred into darkness and filth,” warning the world is currently “ravaged by a handful of tyrants”. 
+2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
+
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
 
 [https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/](https://www.americamagazine.org/vatican-dispatch/2026/04/16/pope-leo-cameroon-peace/)
@@ -107,7 +108,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
 
-2026-04-29 In a leaked audio that came out in April the U.K. Ambassador Christian Turner stated that the “only country” to have a “special relationship” with the United States was “probably Israel”.
+2026-04-29 Leaked audio revealed U.K. Ambassador Christian Turner saying the “only country” to have a “special relationship” with the United States was “probably Israel”.
 
 [https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/](https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/)
 

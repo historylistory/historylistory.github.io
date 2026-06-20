@@ -115,7 +115,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/news/articles/c4gxgv8j7zlo)
 
-2026-04-29 In a leaked audio that came out in April the U.K. Ambassador Christian Turner stated that the “only country” to have a “special relationship” with the United States was “probably Israel”.
+2026-04-29 Leaked audio revealed U.K. Ambassador Christian Turner saying the “only country” to have a “special relationship” with the United States was “probably Israel”.
 
 [https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/](https://www.cbsnews.com/news/uk-ambassador-leaked-remarks-special-relationship-u-s-israel/)
 
