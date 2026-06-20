@@ -155,6 +155,10 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 {% include youtubePlayer.html id="6KfUXpmtprc" %}
 
+2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
+
+{% include youtubePlayer.html id="6KfUXpmtprc" %}
+
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 [https://www.facebook.com/watch/?v=1948380052635180](https://www.facebook.com/watch/?v=1948380052635180)

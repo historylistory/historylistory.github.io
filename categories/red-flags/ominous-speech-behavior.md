@@ -34,11 +34,11 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 [https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748](https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748)
 
-2023-12-05 Trump quipped about being a dictator “day one” during a speech in Davenport Iowa.
+2023-12-05 Trump joked about being a dictator “on day one” during a speech in Davenport, Iowa.
 
 [https://time.com/7312196/trump-americans-maybe-we-like-a-dictator/](https://time.com/7312196/trump-americans-maybe-we-like-a-dictator/)
 
-2023-12-06 Hannity interviewed Trump. Trump 1) quipped about being a dictator the first day only and 2) called J6 prisoners "hostages”.
+2023-12-06 In an interview with Hannity, Trump repeated his “dictator on day one” remark and referred to January 6 prisoners as “hostages.”
 
 [https://abcnews.go.com/US/kash-patel-tells-members-media-government-after-trumps/story?id=105432592](https://abcnews.go.com/US/kash-patel-tells-members-media-government-after-trumps/story?id=105432592)
 
@@ -59,13 +59,13 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
 
-2024-10-23 During an interview with All Things Considered, Jeffrey Goldberg quoted Trump as having said he needed “the kind of generals Hitler had…People who were totally loyal to him, that follow orders”.
+2024-10-23 Jeffrey Goldberg quoted Trump as saying he wanted “the kind of generals Hitler had…People who were totally loyal to him, that follow orders”.
 
 {% include youtubePlayer.html id="bo9Z4r5olW8" %}
 
 ### 2025 February
 
-2025-02-26 Trump posted an AI-generated Gaza resort video featuring himself as a golden idol.
+2025-02-26 Trump posted an AI-generated video depicting Gaza as a luxury resort and himself as a golden idol.
 
 [https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video](https://www.theguardian.com/us-news/video/2025/feb/26/donald-trump-shares-bizarre-ai-generated-video-of-trump-gaza-video)
 

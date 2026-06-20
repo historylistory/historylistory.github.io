@@ -213,6 +213,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-05-12 Steve Bannon called out a “Constitutional Crisis”, saying, “If they can hold it together they can control the government for 50-75 years”
 
+2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
+
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 2025-05-21 Saudi Arabia gifted Trump with a luxury jetliner.

@@ -146,7 +146,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2025-02-20 Elon Musk waved a chainsaw onstage at CPAC.
 
-2025-02-26 Trump posted an AI-generated Gaza resort video featuring himself as a golden idol.
+2025-02-26 Trump posted an AI-generated video depicting Gaza as a luxury resort and himself as a golden idol.
 
 2025-02-27 Bill HR1761 proposed placing Trump on a $250 bill.
 

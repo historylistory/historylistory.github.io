@@ -24,15 +24,15 @@ permalink: /categories/foreign-affairs-isolation/hungary/
 
 ### 2024
 
-2024-03-08 Trump called Minister of Hungary Viktor Orban "fantastic" while hosting him at Mar-a-Lago.
+2024-03-08 Trump hosted Hungarian Prime Minister Viktor Orbán at Mar-a-Lago and called him “fantastic.”
 
 [https://www.cnn.com/2024/03/08/politics/trump-orban-mar-a-lago](https://www.cnn.com/2024/03/08/politics/trump-orban-mar-a-lago)
 
-2024-04-26 Trump praised Minister of Hungary Viktor Orban again.
+2024-04-26 Trump again praised Viktor Orbán.
 
 {% include youtubePlayer.html id="UQUuuYgFQoE" %}
 
-2024-09-10 Trump praised Minister of Hungary Viktor Orban during a presidential candidate debate.
+2024-09-10 Trump praised Viktor Orbán during a presidential debate.
 
 {% include youtubePlayer.html id="4LxWg1n58CE" %}
 

@@ -14,6 +14,14 @@ permalink: /categories/j6/other/
 
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his)
 
+### 2023 
+
+2023-12-06 In an interview with Hannity, Trump repeated his “dictator on day one” remark and referred to January 6 prisoners as “hostages.”
+
+[https://abcnews.go.com/US/kash-patel-tells-members-media-government-after-trumps/story?id=105432592](https://abcnews.go.com/US/kash-patel-tells-members-media-government-after-trumps/story?id=105432592)
+
+[https://abcnews.go.com/Politics/trump-raises-new-alarms-dictator-except-day/story?id=105416124](https://abcnews.go.com/Politics/trump-raises-new-alarms-dictator-except-day/story?id=105416124)
+
 ### 2024
 
 2024-12-02 Karoline Leavitt deleted old posts condemning January 6 after later running for Congress.

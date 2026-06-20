@@ -20,7 +20,7 @@ permalink: /categories/dictators-control/fascist-fans/
 
 ### 2025 May
 
-2025-05-12 During an interview Steve Bannon declared this as the Era of Trump "like it or not", referenced the "steal of 2020", and stated there are multiple workarounds to serving a third term.
+2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
 
 {% include youtubePlayer.html id="6KfUXpmtprc" %}
 

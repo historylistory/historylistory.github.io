@@ -30,7 +30,7 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 
 [https://www.congress.gov/bill/119th-congress/house-bill/22](https://www.congress.gov/bill/119th-congress/house-bill/22)
 
-2024-07-26 Trump told followers at a Turning Point rally that they **only****have to****vote this one time and won't have to vote again**, because the votes will be "**fixed**".
+2024-07-26 At a Turning Point rally, Trump told supporters they would only need to vote “this one time” because the votes would be “fixed.”
 
 [https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 
