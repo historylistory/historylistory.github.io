@@ -61,3 +61,24 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.jpost.com/international/article-894058](https://www.jpost.com/international/article-894058)
 
 [https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies](https://www.npr.org/2026/04/24/nx-s1-5798597/europe-pushes-back-on-reported-u-s-plans-to-punish-nato-allies)
+
+
+### 2026 June
+
+2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries.
+
+[https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries](https://www.democracynow.org/2026/6/1/headlines/2027_national_defense_authorization_act_proposes_to_integrate_us_and_israeli_militaries)
+
+[https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters](https://www.aljazeera.com/news/2026/5/31/us-congress-moves-to-deepen-military-ties-with-israel-why-it-matters)
+
+[https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+[https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
+
+2026-06-08 Citizens of France accosted Pete Hegseth for delivering a speech at a memorial ceremony in Normandy where he compared the immigration of migrants into Europe to a modern “invasion”. Citizens called the speech “toxic” and criticized “people trying to interfere in our democracy’. 
+
+[https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html](https://www.yahoo.com/news/world/articles/fact-check-residents-french-village-194200410.html)
+
+[https://www.bbc.com/news/articles/c802e7jk458o](https://www.bbc.com/news/articles/c802e7jk458o)
+
+[https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s](https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s)

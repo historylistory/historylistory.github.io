@@ -58,9 +58,6 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 [https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity](https://www.cato.org/blog/trump-v-us-great-power-comes-great-immunity)
 
-2024-07-26 Trump told followers at a Turning Point rally that they **only****have to****vote this one time and won't have to vote again**, because the votes will be "**fixed**".
-
-[https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 
 2024-10-23 During an interview with All Things Considered, Jeffrey Goldberg quoted Trump as having said he needed “the kind of generals Hitler had…People who were totally loyal to him, that follow orders”.
 
