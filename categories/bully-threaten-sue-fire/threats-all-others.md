@@ -16,6 +16,11 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 ### 2023
 
+2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”
+
+[https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748](https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748)
+
+
 2023-12-02 During an interview with Steve Bannon, Kash Patel stated, "We will go out and find the conspirators, not just in government but in the media".
 
 {% include youtubePlayer.html id="hnqLk3FqIJ8" %}

@@ -6,7 +6,7 @@ permalink: /recommended-links/
 
 ### THE SNAKE POEM VIDEO
 
-2017-04-29 **Snake Poem** 
+2017-04-29 Snake Poem 
 
 [https://www.youtube.com/watch?v=qSrOXvoNLwg](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 

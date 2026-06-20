@@ -26,7 +26,7 @@ permalink: /categories/dictators-control/warnings/
 
 {% include youtubePlayer.html id="FcEV5pDK-aM" %}
 
-2016-10-22 On his podcast, RFK compared Trump to Hitler.
+2016-10-22 RFK compared Trump to Hitler on his podcast.
 
 [https://www.politico.com/live-updates/2024/11/21/congress/rfk-jr-trump-hitler-00190944](https://www.politico.com/live-updates/2024/11/21/congress/rfk-jr-trump-hitler-00190944)
 
@@ -72,24 +72,17 @@ permalink: /categories/dictators-control/warnings/
 
 ### Pope Francis
 
-2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil "The Great Liar".
+2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil “The Great Liar”. Pope Francis issued a second warning in 2020, telling people not to have dialogue with the devil, adding that Jesus himself does not enter dialogue with the devil. In 2023 Pope Francis issued a third and final warning not to enter dialogue with the devil. Pope Francis then rebuked the Trump administration for their immigration policy and cruelty, and for JD Vance’s sudden switch to Christianity. He passed away on April 21, 2025 after a visit from JD Vance.
 
-[https://www.vaticannews.va/en/pope-francis/mass-casa-santa-marta/2018-05/pope-francis-santa-marta-devil.html](https://www.vaticannews.va/en/pope-francis/mass-casa-santa-marta/2018-05/pope-francis-santa-marta-devil.html)
+2018 [https://www.vaticannews.va/en/pope-francis/mass-casa-santa-marta/2018-05/pope-francis-santa-marta-devil.html](https://www.vaticannews.va/en/pope-francis/mass-casa-santa-marta/2018-05/pope-francis-santa-marta-devil.html)
 
-2020-03-01 Pope Francis issued a second warning, telling people not to have dialogue with the devil, adding that Jesus himself does not enter dialogue with the devil.
-
-[https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
-
-2023-12-27 Pope Francis issued a third and final warning not to enter dialogue with the devil. He passed away on April 21, 2025 after a visit from JD Vance.
+2020 [https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
 
 {% include youtubePlayer.html id="pbsTj8RrqsI" %}
-:
 
-2025-02-01 Pope Francis and the church rebuked the Trump administration repeatedly for their immigration policies and cruelties, for JD Vance’s sudden switch to Christianity, and for Trump supporters boasting about Christian values they don’t live.
+REBUKE: [https://www.commonwealmagazine.org/francis-trump-vance-migration-usccb-oleynick](https://www.commonwealmagazine.org/francis-trump-vance-migration-usccb-oleynick)
 
-[https://www.commonwealmagazine.org/francis-trump-vance-migration-usccb-oleynick](https://www.commonwealmagazine.org/francis-trump-vance-migration-usccb-oleynick)
-
-[https://www.theguardian.com/commentisfree/2025/apr/23/pope-francis-jd-vance-meeting](https://www.theguardian.com/commentisfree/2025/apr/23/pope-francis-jd-vance-meeting)
+DEATH: [https://www.theguardian.com/commentisfree/2025/apr/23/pope-francis-jd-vance-meeting](https://www.theguardian.com/commentisfree/2025/apr/23/pope-francis-jd-vance-meeting)
 
 ### 2026 
 

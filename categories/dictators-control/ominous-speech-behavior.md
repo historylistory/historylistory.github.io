@@ -21,7 +21,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2017
 
-2017-04-29 **Snake Poem** 
+2017-04-29 Snake Poem 
 
 [https://www.youtube.com/watch?v=qSrOXvoNLwg](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
@@ -30,7 +30,7 @@ permalink: /categories/dictators-control/ominous-speech-behavior/
 
 ### 2023
 
-2023-11-11 During a rally in Claremont NH, Trump compared his political opponents to "vermin" and that he would plan to "root them out".
+2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”
 
 [https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748](https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748)
 

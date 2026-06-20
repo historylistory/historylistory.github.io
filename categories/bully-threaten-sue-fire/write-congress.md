@@ -96,6 +96,8 @@ Manhattan grand jury in the hush-money case.
 
 2023-06-27 Trump sued E Jean Carroll for defamation.
 
+2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”
+
 2023-12-02 During an interview with Steve Bannon, Kash Patel stated, “We will go out and find the conspirators, not just in government but in the media”.
 
 2023-12-12 Georgia election worker Wandrea "Shaye" Moss reported receiving threats against herself and her child after being targeted by voter-fraud allegations promoted by Rudy Giuliani and other Trump allies, including threats of being hanged.

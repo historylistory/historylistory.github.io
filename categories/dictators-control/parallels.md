@@ -24,7 +24,7 @@ permalink: /categories/dictators-control/parallels/
 
 ### 2016
 
-2016-06-30 There are stunning parallels between the Duterte regime in the Philippines and the current US climate including a rhetoric of “war on drugs” involving extrajudicial killing, steady erosion of democratic norms, or using fear and repression to control people.
+2016-06-30 The Duterte regime in the Philippines and the current U.S. climate share parallels, including “war on drugs” rhetoric, extrajudicial killings, democratic backsliding, and governance through fear and repression.
 
 [https://www.hrw.org/tag/philippines-war-on-drugs](https://www.hrw.org/tag/philippines-war-on-drugs)
 
