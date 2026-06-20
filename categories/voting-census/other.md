@@ -8,7 +8,7 @@ permalink: /categories/voting-census/other/
 
 ### 2016
 
-2016-01-23 Trump said he could “shoot somebody” on Fifth Avenue and not lose voters, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
+2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
 [https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters](https://www.pbs.org/newshour/politics/trump-i-could-shoot-somebody-and-wouldnt-lose-any-voters)
 

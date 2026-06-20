@@ -8,7 +8,7 @@ permalink: /categories/free-speech-manipulation/parallels/
 
 ### 2014
 
-2014-07-23 For context, the history of Hungary media suppression and spyware contracts parallel that of the US in 2025.
+2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
 [https://www.refworld.org/reference/annualreport/cpj/2002/en/55962](https://www.refworld.org/reference/annualreport/cpj/2002/en/55962)
 
@@ -18,6 +18,7 @@ permalink: /categories/free-speech-manipulation/parallels/
 
 [https://www.osw.waw.pl/en/publikacje/analyses/2010-08-04/hungary-fidesz-taking-over-state-media#:~:text=On%2023%20July%2C%20the%20Hungarian,the%20NMHH%20as%20it%20wishes](https://www.osw.waw.pl/en/publikacje/analyses/2010-08-04/hungary-fidesz-taking-over-state-media).
 
+[https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president](https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president)
+
 {% include youtubePlayer.html id="WH1ZnfN2AgQ" %}
 
-[https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president](https://www.youtube.com/results?search_query=is+donald+trump+fit+to+be+president)

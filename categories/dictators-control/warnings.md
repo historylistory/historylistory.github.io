@@ -8,7 +8,7 @@ permalink: /categories/dictators-control/warnings/
 
 ### 2014
 
-2014-07-23 According to online sources, in 2014 JD Vance wrote on social media, “But I’m not surprised by Trump’s rise, and I think the entire party has only itself to blame. We are, whether we like it or not, the party of lower-income, lower-education white people, and I have been saying for a long time that we need to offer those people SOMETHING (and hell, maybe even expand our appeal to working class black people in the process) or a demagogue would. We are now at that point. Trump is the fruit of the party’s collective neglect. 3) I go back and forth between thinking Trump is a cynical asshole like Nixon who wouldn’t be that bad (and might even prove useful) or that he’s America’s Hitler. How’s that for discouraging?”.
+2014-07-23 In 2014 JD Vance wrote, “But I’m not surprised by Trump’s rise, and I think the entire party has only itself to blame. We are, whether we like it or not, the party of lower-income, lower-education white people, and I have been saying for a long time that we need to offer those people SOMETHING (and hell, maybe even expand our appeal to working class black people in the process) or a demagogue would. We are now at that point. Trump is the fruit of the party’s collective neglect. 3) I go back and forth between thinking Trump is a cynical asshole like Nixon who wouldn’t be that bad (and might even prove useful) or that he’s America’s Hitler. How’s that for discouraging?”.
 
 [https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/](https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/)
 
@@ -22,7 +22,7 @@ permalink: /categories/dictators-control/warnings/
 
 ### 2016
 
-2016-02-28 Ted Cruz called Trump is a "charming person" who “can turn on you overnight".
+2016-02-28 Ted Cruz said Trump is a “charming person” who “can turn on you overnight”.
 
 {% include youtubePlayer.html id="FcEV5pDK-aM" %}
 

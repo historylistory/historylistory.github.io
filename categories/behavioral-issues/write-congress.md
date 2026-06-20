@@ -40,7 +40,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
 
-2016-01-23 Trump said he could “shoot somebody” on Fifth Avenue and not lose voters, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
+2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
