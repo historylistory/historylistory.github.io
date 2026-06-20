@@ -18,9 +18,7 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 1955-05-04 The CIA trained Fulgencio Batista’s torturers in Cuba.
 
-[https://jacobin.com/2025/08/cia-batista-cuba-anti-communism](https://jacobin.com/2025/08/cia-batista-cuba-anti-communism
-
-)
+[https://jacobin.com/2025/08/cia-batista-cuba-anti-communism](https://jacobin.com/2025/08/cia-batista-cuba-anti-communism)
 
 ### Viktor Orban (Hungary)
 
