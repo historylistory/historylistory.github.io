@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Oligarchy
-category_slug: dictators-control
+category_slug: red-flags
 subcategory_slug: oligarchy
-permalink: /categories/dictators-control/oligarchy/
+permalink: /categories/red-flags/oligarchy/
 ---
 
 ### Is it an oligarchy?

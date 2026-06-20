@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: WRITE CONGRESS
-category_slug: dictators-control
+category_slug: red-flags
 subcategory_slug: write-congress
-permalink: /categories/dictators-control/write-congress/
+permalink: /categories/red-flags/write-congress/
 ---
 
 
