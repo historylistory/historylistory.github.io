@@ -8,6 +8,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 
 ### Victims
 
+1991-03-03 Rodney King. The four officers who beat him to death were acquitted, even though their brutal killing was captured on amateur video by a bystander.
+
+[https://en.wikipedia.org/wiki/Rodney_King](https://en.wikipedia.org/wiki/Rodney_King)
+
+
 2009-01-01 Twenty-two-year-old Oscar Grant was killed by officers in Oakland CA responding to a fight on a transit.
 
 2012-02-26 Trayvon Martin was walking home from a convenience store while visiting a family townhouse at the Retreat at Twin Lakes. He was fatally shot by George Zimmerman who claimed self-defense and cited Florida’s Stand Your Ground law. Zimmerman was only charged and tried a year later after heavy media coverage and protest rallies. 

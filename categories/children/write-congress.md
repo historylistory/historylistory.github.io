@@ -269,3 +269,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-06-11 Bipartisan Congressmembers urged Trump to halt deportation of hundreds of Afghan refugees to the Congo after they served the U.S. in Afghanistan. The group includes over 400 children and family of US servicemembers. 
 
+2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
+

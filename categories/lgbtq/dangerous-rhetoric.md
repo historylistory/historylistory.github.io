@@ -6,6 +6,13 @@ subcategory_slug: dangerous-rhetoric
 permalink: /categories/lgbtq/dangerous-rhetoric/
 ---
 
+### 1992
+
+1992-01-01 The anti-gay propaganda film “The Gay Agenda” was produced by Christian right-wing fundamentalist group Springs of Life Ministries. 
+
+[https://mubi.com/en/us/films/the-gay-agenda](https://mubi.com/en/us/films/the-gay-agenda)
+
+
 ### 2015
 
 2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools (law.cornell.edu). He repeated what he wrote in 2020 in an address to the Federalist Society.

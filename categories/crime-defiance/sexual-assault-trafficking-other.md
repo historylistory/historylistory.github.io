@@ -36,6 +36,13 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 
 [https://hls.harvard.edu/faculty/alan-m-dershowitz/](https://hls.harvard.edu/faculty/alan-m-dershowitz/)
 
+### 1999
+
+1999-01-07 Articles of impeachment were submitted for Clinton for lying under oath about Monica Lewinsky. 
+
+[https://en.wikipedia.org/wiki/Impeachment_of_Bill_Clinton](https://en.wikipedia.org/wiki/Impeachment_of_Bill_Clinton)
+
+
 ### 2001
 
 2001-01-01 Stephen Miller reportedly called into Larry Elder's radio show while in high. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
@@ -145,3 +152,11 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
 
 [https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)
+
+### 2026 June
+
+2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
+
+[https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
+
+[https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)

@@ -52,3 +52,9 @@ permalink: /categories/voting-census/federalization-voter-information/
 [https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260](https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab)
+
+### 2026 June
+
+2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
+
+[https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)

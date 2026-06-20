@@ -282,3 +282,7 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://www.bbc.com/news/articles/c5y7nnjlrd5o](https://www.bbc.com/news/articles/c5y7nnjlrd5o)
 
 SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilot-wins-primary-to-try-unseating-tom-kean-jr-in-new-jerseys-most-contested-house-race-00947722](https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilot-wins-primary-to-try-unseating-tom-kean-jr-in-new-jerseys-most-contested-house-race-00947722)
+
+2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
+
+[https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)

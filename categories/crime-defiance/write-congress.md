@@ -41,6 +41,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 1997-05-07 Alan Dershowitz argued in an article that statutory-rape laws were outdated and that the age of consent should be lowered to 15. Dershowitz later served on Jeffrey Epstein's legal team and got Epstein a plea deal.
 
+1999-01-07 Articles of impeachment were submitted for Clinton for lying under oath about Monica Lewinsky. 
+
 2000-01-01 Trump said Epstein had "stolen" one of his spa employees; Virginia Giuffre would have been 16 at the time.
 
 2001-01-01 Stephen Miller reportedly called into Larry Elder's radio show while in high. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
@@ -433,6 +435,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-03-18 Pam Bondi and Todd Blanche briefed a congressional committee on the Epstein investigation. The hearing included a heated exchange between Representatives Summer Lee and James Comer.
 
+2026-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
+
 2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 
 2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.
@@ -567,4 +571,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-06-03 Republicans joined Democrats in a 215–208 House vote to end the Iran conflict. The measure remained largely symbolic because it still required Senate approval and Trump's signature.
 
-2028-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
+2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
+

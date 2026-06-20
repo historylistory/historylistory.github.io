@@ -395,6 +395,17 @@ It would also make it a felony to give someone information about where to get a
 
 PAY WALL [https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c](https://www.wsj.com/politics/policy/trump-anti-abortion-movement-76393c1c)
 
+2026-05-10 Erika Kirk and her friends kept pushing “have more babies than you can afford”. 
+
+[https://www.rollingstone.com/politics/politics-features/erika-kirk-christian-women-tpusa-1235576963/](https://www.rollingstone.com/politics/politics-features/erika-kirk-christian-women-tpusa-1235576963/)
+
+[https://www.youtube.com/watch?v=padlD7Dp75I&list=WL&index=2&t=5s](https://www.youtube.com/watch?v=padlD7Dp75I&list=WL&index=2&t=5s)
+
+[https://www.tmz.com/2026/05/10/erika-kirk-advises-young-marriage-during-speech/](https://www.tmz.com/2026/05/10/erika-kirk-advises-young-marriage-during-speech/)
+
+[https://www.msn.com/en-gb/news/other/erika-kirks-have-more-kids-speech-fuels-backlash/gm-GMBBB7B3FF](https://www.msn.com/en-gb/news/other/erika-kirks-have-more-kids-speech-fuels-backlash/gm-GMBBB7B3FF)
+
+
 2026-05-12 Dr. Oz said 30% of American women are “under-babied”, saying “You have to get moms healthy enough to do the most creative thing the universe knows, which is making babies”. For context, a Johns Hopkins Bloomberg School of Public Health study cites that even though there is a record low fertility rate in 2024, the birth rate is still higher than the number of deaths, meaning population is not in decline. 
 
 [https://people.com/dr-oz-says-americans-under-babied-11972922](https://people.com/dr-oz-says-americans-under-babied-11972922)

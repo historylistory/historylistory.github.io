@@ -125,3 +125,9 @@ PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/ne
 [https://www.mississippifreepress.org/anger-mounts-in-senatobia-over-police-killing-of-1-year-old-kohen-wiley/](https://www.mississippifreepress.org/anger-mounts-in-senatobia-over-police-killing-of-1-year-old-kohen-wiley/)
 
 [https://www.nbcnews.com/news/us-news/mississippi-1-year-old-dies-walmart-shoplifting-police-incident-rcna350260](https://www.nbcnews.com/news/us-news/mississippi-1-year-old-dies-walmart-shoplifting-police-incident-rcna350260)
+
+2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
+
+[https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
+
+[https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)

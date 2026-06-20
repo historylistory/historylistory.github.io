@@ -994,7 +994,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 ### 2026 March Week #4
 
-2028-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
+2026-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
 
 [https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
 
@@ -1812,3 +1812,7 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.cnn.com/2026/06/17/middleeast/us-iran-war-mou-text-intl](https://www.cnn.com/2026/06/17/middleeast/us-iran-war-mou-text-intl)
 
 [https://www.foxnews.com/politics/read-it-full-text-us-iran-memorandum-understanding](https://www.foxnews.com/politics/read-it-full-text-us-iran-memorandum-understanding)
+
+2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
+
+[https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3](https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3)

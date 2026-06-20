@@ -283,3 +283,11 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://blackchronicle.com/national/louisiana-lawmakers-approve-new-congressional-map-eliminating-majority-black-district/](https://blackchronicle.com/national/louisiana-lawmakers-approve-new-congressional-map-eliminating-majority-black-district/)
 
 [https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat](https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat)
+
+### 2026 June
+
+2026-06-17 Georgia lawmakers reversed a decision to gerrymander after civil rights activists pushed against the effort to disenfranchise Black voters.
+
+[https://www.youtube.com/watch?v=VeKoi2ZqL94&list=WL&index=8](https://www.youtube.com/watch?v=VeKoi2ZqL94&list=WL&index=8)
+
+[https://www.pbs.org/newshour/politics/georgia-republican-legislative-leaders-reject-governors-call-for-2028-redistricting](https://www.pbs.org/newshour/politics/georgia-republican-legislative-leaders-reject-governors-call-for-2028-redistricting)

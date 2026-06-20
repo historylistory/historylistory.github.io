@@ -626,3 +626,7 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html](https://www.yahoo.com/news/politics/articles/trump-says-may-may-not-175931480.html)
 
 [https://www.youtube.com/watch?v=mDm_xDq3gNg](https://www.youtube.com/watch?v=mDm_xDq3gNg)
+
+2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
+
+[https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3](https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3)

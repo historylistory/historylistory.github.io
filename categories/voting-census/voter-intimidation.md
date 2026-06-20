@@ -6,6 +6,13 @@ subcategory_slug: voter-intimidation
 permalink: /categories/voting-census/voter-intimidation/
 ---
 
+### 2020 
+
+2020-04-20 Trump threatened to send law enforcement officials to polling locations. 
+
+[https://www.cnn.com/2020/08/20/politics/trump-election-day-sheriffs](https://www.cnn.com/2020/08/20/politics/trump-election-day-sheriffs)
+
+
 ### 2026 March
 
 2026-03-23 Steve Bannon described ICE deployments at airports as a potential "test run" for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
@@ -46,3 +53,9 @@ permalink: /categories/voting-census/voter-intimidation/
 [https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891](https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891)
 
 [https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
+
+### 2026 May
+
+2026-05-12 Trump threatened – much like in 2020 – to send uniformed agents to polls during midterms. 
+
+[https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/](https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/)

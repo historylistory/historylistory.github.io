@@ -391,3 +391,9 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [phttps://www.npr.org/2026/06/02/nx-s1-5843371/george-santos-kalshi-insider-trading-investigation](https://www.npr.org/2026/06/02/nx-s1-5843371/george-santos-kalshi-insider-trading-investigation)
 
 [https://www.reuters.com/legal/government/kalshi-reports-george-santos-us-prosecutors-over-prediction-market-bets-ap-2026-06-03/](https://www.reuters.com/legal/government/kalshi-reports-george-santos-us-prosecutors-over-prediction-market-bets-ap-2026-06-03/)
+
+2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
+
+[https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
+
+[https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)
