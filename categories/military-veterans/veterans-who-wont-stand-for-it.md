@@ -14,7 +14,7 @@ permalink: /categories/military-veterans/veterans-who-wont-stand-for-it/
 
 [https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html](https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html)
 
-2025-06-06 A military news outlet Military Times covered a Unite4Veterans Washington DC rally cry to stop betraying our Vets.
+2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
 
 [https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits](https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits)
 

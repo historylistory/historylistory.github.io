@@ -14,13 +14,13 @@ permalink: /categories/military-veterans/jobs-va-staffing/
 
 ### 2025 June
 
-2025-06-13 During an interview, a VA nurse cited, "there has been a long-time nursing staffing crisis…on top of that they are saying 'not only are we not going to hire and fill those positions, we're going to get rid of more staff".
+2025-06-13 A VA nurse explained during an interview, “there has been a long-time nursing staffing crisis…on top of that they are saying ‘not only are we not going to hire and fill those positions, we’re going to get rid of more staff”.
 
 {% include youtubePlayer.html id="9387jXfdHeI" %}
 
 ### 2025 August
 
-2025-08-12 An audit of the VA healthcare system showed 139 medical campuses were suffering severe staffing shortages.
+2025-08-12 A VA healthcare audit cited severe staffing shortages on at least 139 medical campuses. 
 
 [https://www.military.com/daily-news/2025/08/13/watchdog-finds-50-increase-va-medical-center-jobs-severe-shortages.html](https://www.military.com/daily-news/2025/08/13/watchdog-finds-50-increase-va-medical-center-jobs-severe-shortages.html)
 

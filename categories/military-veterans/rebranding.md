@@ -34,7 +34,7 @@ permalink: /categories/military-veterans/rebranding/
 
 ### 2025 November
 
-2025-11-11 During a Veterans Day speech Trump stated he wants to rename the federal holiday as Victory Day.
+2025-11-11 Trump told an audience he wanted to rename Veteran’s Day. 
 
 [https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html](https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html)
 

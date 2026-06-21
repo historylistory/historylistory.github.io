@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 June
 
-2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
+2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.
 
 {% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
@@ -16,13 +16,15 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 July
 
-2025-07-10 ICE detained Iraq war veteran George Retes while he was on his way to work.
+2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work. Retes was pepper sprayed, strip searched, denied a lawyer or phone call, and kept for three days. 
 
 [https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable](https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable)
 
 [https://ij.org/press-release/us-citizen-and-army-veteran-submits-claims-for-unconstitutional-immigration-detention/](https://ij.org/press-release/us-citizen-and-army-veteran-submits-claims-for-unconstitutional-immigration-detention/)
 
 [https://www.dhs.gov/news/2025/10/01/dhs-debunks-new-york-times-false-reporting-dhs-does-not-deport-us-citizens](https://www.dhs.gov/news/2025/10/01/dhs-debunks-new-york-times-false-reporting-dhs-does-not-deport-us-citizens)
+
+[https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes](https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes)
 
 2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the time of the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign. 
 
@@ -40,9 +42,6 @@ permalink: /categories/military-veterans/detention/
 
 [https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/](https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/)
 
-2025-07-19 A disabled US Army veteran was detained by ICE during a Camarillo immigration raid.
-
-[https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes](https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes)
 
 ### 2025 September
 
@@ -52,7 +51,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 October
 
-2025-10-04 ICE agents **attacked 84-year-old Laurie Eckman and 84-year-old Richard Eckman**, **knocked** them down, **sprayed them with chemical agents**, and injured the woman by **throwing a projectile at her head**. Her husband – a Vietnam veteran – was harmlessly leaning on a walker just before the assault.
+2025-10-04 ICE agents knocked down and pepper sprayed 84-year-old Vietnam Veteran Richard Eckman while he was leaning on his walker. Agents also launched a projectile at his wife Laurie who sustained a bleeding head injury from the attack. 
 
 [https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html](https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html)
 

@@ -57,11 +57,11 @@ permalink: /categories/health/healthcare-rx/
 
 [https://www.whitehouse.gov/fact-sheets/2025/09/fact-sheet-president-donald-j-trump-announces-first-deal-to-bring-most-favored-nation-pricing-to-american-patients/](https://www.whitehouse.gov/fact-sheets/2025/09/fact-sheet-president-donald-j-trump-announces-first-deal-to-bring-most-favored-nation-pricing-to-american-patients/)
 
-2025-05-30 During an Iowa town hall, Senator Joni Ernst responded to a comment about Medicaid cuts by incorrectly telling constituents the government is paying $1.4M to illegal immigrants in Medicaid. When someone in the crowd yelled out “People are going to die” Erns retorted, “We are all going to die”.
+2025-05-30 When a constituent said, “people are going to die” because of heavy Medicaid cuts, Senator Joni Ernst responded, “We are all going to die”.
 
 [https://www.facebook.com/watch/?v=1036832908023449](https://www.facebook.com/watch/?v=1036832908023449)
 
-2025-05-31 Joni Ernst mocked critics of Medicaid cuts in a sarcastic graveyard video. In the video she said, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
+2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
 [https://www.youtube.com/shorts/gqdwSLKE554](https://www.youtube.com/shorts/gqdwSLKE554)
 

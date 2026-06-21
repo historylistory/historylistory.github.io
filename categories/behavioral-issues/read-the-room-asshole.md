@@ -98,6 +98,16 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://www.cnn.com/2025/10/31/politics/white-house-lincoln-bedroom-bathroom-renovation](https://www.cnn.com/2025/10/31/politics/white-house-lincoln-bedroom-bathroom-renovation)
 
+### 2025 November
+
+2025-11-11 Trump told an audience he wanted to rename Veteran’s Day. 
+
+[https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html](https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html)
+
+[https://www.upi.com/Top_News/US/2025/11/11/trump-veterans-day-speech-victory-day/3501762890394/](https://www.upi.com/Top_News/US/2025/11/11/trump-veterans-day-speech-victory-day/3501762890394/)
+
+[https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/](https://www.usatoday.com/story/news/politics/2025/11/11/donald-trump-veterans-day-victory-day/87143390007/)
+
 ### 2026 February
 
 2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 

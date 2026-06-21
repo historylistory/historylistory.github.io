@@ -112,7 +112,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2025 June
 
-2025-06-30 A news outlet reported that DeSantis vetoed funding on several projects intended to help Floridians including stormwater funding, homeless housing, and $200,000 for a Samaritan Resource Center program to help homeless people get job training and assistance with housing.
+2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County. 
 
 [https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/)
 
@@ -211,7 +211,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2025 May
 
-2025-05-31 Joni Ernst mocked critics of Medicaid cuts in a sarcastic graveyard video. In the video she said, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
+2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
 [https://www.youtube.com/shorts/gqdwSLKE554](https://www.youtube.com/shorts/gqdwSLKE554)
 

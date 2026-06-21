@@ -175,7 +175,7 @@ Plan. On the first day of the war in Iran, the US launched a Tomahawk missile in
 
 2025-05-29 Rep. Greg Steube introduced the “Make Autorail Great Again Act.”
 
-2025-05-31 Joni Ernst mocked critics of Medicaid cuts in a sarcastic graveyard video. In the video she said, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
+2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
 2025-06-03 FEMA head David Richardson admitted he was unaware hurricane season was approaching.
 
@@ -305,6 +305,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2025-11-07 FIFA announced a new “peace prize” after Trump again missed the Nobel Prize.
 
 2025-11-16 Preservation groups sued Trump over plans to repaint the Eisenhower Executive Office.
+
+2025-11-11 Trump told an audience he wanted to rename Veteran’s Day. 
 
 2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
 

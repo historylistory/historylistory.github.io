@@ -48,13 +48,13 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 {% include youtubePlayer.html id="6FaBinmq3Kk" %}
 
-2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
+2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.
 
 {% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
 ### 2025 July
 
-2025-07-10 During a raid in Camarillo, ICE detained disabled Iraq war Veteran George Retes while he was on the way to work. In the interview with NPR, Retes stated he was pepper sprayed, detained, strip searched, refused a lawyer or phone call, and kept for 3 days.
+2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work. Retes was pepper sprayed, strip searched, denied a lawyer or phone call, and kept for three days. 
 
 [https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable](https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable)
 
@@ -100,7 +100,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://chicago.suntimes.com/news/2025/10/03/federal-agent-chemical-irritants-rico-fresh-logan-square](https://chicago.suntimes.com/news/2025/10/03/federal-agent-chemical-irritants-rico-fresh-logan-square)
 
-2025-10-04 ICE agents **attacked 84-year-old Laurie Eckman and 84-year-old Richard Eckman**, **knocked** them down, **sprayed them with chemical agents**, and injured the woman by **throwing a projectile at her head**. Her husband – a Vietnam veteran – was harmlessly leaning on a walker just before the assault.
+2025-10-04 ICE agents knocked down and pepper sprayed 84-year-old Vietnam Veteran Richard Eckman while he was leaning on his walker. Agents also launched a projectile at his wife Laurie who sustained a bleeding head injury from the attack. 
 
 [https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html](https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html)
 

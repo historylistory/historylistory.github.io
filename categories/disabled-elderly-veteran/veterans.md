@@ -69,31 +69,31 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html](https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html)
 
-2025-06-06 A military news outlet Military Times covered a Unite4Veterans Washington DC rally cry to stop betraying our Vets.
+2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
 
 [https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits](https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits)
 
 [https://www.unite4veterans.org/](https://www.unite4veterans.org/)
 
-2025-06-13 During an interview, a VA nurse cited, "there has been a long-time nursing staffing crisis…on top of that they are saying 'not only are we not going to hire and fill those positions, we're going to get rid of more staff".
+2025-06-13 A VA nurse explained during an interview, “there has been a long-time nursing staffing crisis…on top of that they are saying ‘not only are we not going to hire and fill those positions, we’re going to get rid of more staff”.
 
 {% include youtubePlayer.html id="9387jXfdHeI" %}
 
-2025-06-23 A US citizen, US Marine, and father of three Narcisco Barranco was beaten and detained outside a Home Depot while working a landscaping job. DHS tried to assert he assaulted them with a weedwhacker, but footage showed he did not assault anyone.
+2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.
 
 {% include youtubePlayer.html id="Y-iTn5xgLck" %}
 
-2025-06-30 A news outlet reported that DeSantis vetoed $400,000 for the Transition House Homeless Veterans Program in Osceola County.
+2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County. 
 
 [https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/)
 
 ### 2025 July
 
-2025-07-03 A news outlet reported that DeSantis vetoed funds set aside for a veteran program called “Patriot Passport” designed to allow permanent Florida residents who are veterans to ride transit lines for free.
+2025-07-03 DeSantis vetoed funds set aside for “Patriot Passport”, a veteran program designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
 [https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/](https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/)
 
-2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work.
+2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work. Retes was pepper sprayed, strip searched, denied a lawyer or phone call, and kept for three days. 
 
 [https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable](https://www.npr.org/2025/10/24/nx-s1-5582498/a-u-s-citizen-detained-by-ice-is-pushing-to-hold-agents-accountable)
 
@@ -101,17 +101,16 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://www.dhs.gov/news/2025/10/01/dhs-debunks-new-york-times-false-reporting-dhs-does-not-deport-us-citizens](https://www.dhs.gov/news/2025/10/01/dhs-debunks-new-york-times-false-reporting-dhs-does-not-deport-us-citizens)
 
-2025-07-19 A disabled US Army veteran was detained by ICE during a Camarillo immigration raid.
-
 [https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes](https://www.cnn.com/2025/07/19/us/california-immigration-raid-george-retes)
+
 
 ### 2025 August
 
-2025-08-01 The Trump administration announced plans to prevent Veterans from accessing abortion care or counseling.
+2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling. 
 
 [https://reproductiverights.org/5-things-trump-va-abortion-ban/](https://reproductiverights.org/5-things-trump-va-abortion-ban/)
 
-2025-08-12 An audit of the VA healthcare system showed 139 medical campuses were suffering severe staffing shortages.
+2025-08-12 A VA healthcare audit cited severe staffing shortages on at least 139 medical campuses. 
 
 [https://www.military.com/daily-news/2025/08/13/watchdog-finds-50-increase-va-medical-center-jobs-severe-shortages.html](https://www.military.com/daily-news/2025/08/13/watchdog-finds-50-increase-va-medical-center-jobs-severe-shortages.html)
 
@@ -127,13 +126,13 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2025 October
 
-2025-10-04 ICE agents **attacked 84-year-old Laurie Eckman and 84-year-old Richard Eckman**, **knocked** them down, **sprayed them with chemical agents**, and injured the woman by **throwing a projectile at her head**. Her husband – a Vietnam veteran – was harmlessly leaning on a walker just before the assault.
+2025-10-04 ICE agents knocked down and pepper sprayed 84-year-old Vietnam Veteran Richard Eckman while he was leaning on his walker. Agents also launched a projectile at his wife Laurie who sustained a bleeding head injury from the attack. 
 
 [https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html](https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html)
 
 ### 2025 November
 
-2025-11-11 During a Veterans Day speech Trump stated he wants to rename the federal holiday as Victory Day.
+2025-11-11 Trump told an audience he wanted to rename Veteran’s Day. 
 
 [https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html](https://www.military.com/daily-news/2025/05/05/white-house-retreat-trumps-short-lived-proposal-rename-veterans-day.html)
 

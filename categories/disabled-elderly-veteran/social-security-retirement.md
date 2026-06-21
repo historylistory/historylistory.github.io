@@ -58,7 +58,7 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 ### 2025 November
 
-2025-11-04 News outlets report that the Trump administration is planning to make it harder to get Social Security Disability assistance or housing.
+2025-11-04 Trump administration Social Security reforms will now make it harder to attain assistance or housing. 
 
 [https://www.propublica.org/article/dhs-social-security-data-voter-citizenship-trump](https://www.propublica.org/article/dhs-social-security-data-voter-citizenship-trump)
 

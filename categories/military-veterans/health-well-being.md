@@ -24,19 +24,19 @@ permalink: /categories/military-veterans/health-well-being/
 
 ### 2025 June
 
-2025-06-30 DeSantis vetoed $400,000 for the Transition House Homeless Veterans Program in Osceola County.
+2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County. 
 
 [https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money/)
 
 ### 2025 July
 
-2025-07-03 DeSantis vetoed funds set aside for a veteran program called “Patriot Passport” designed to allow permanent Florida residents who are veterans to ride transit lines for free.
+2025-07-03 DeSantis vetoed funds set aside for “Patriot Passport”, a veteran program designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
 [https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/](https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/)
 
 ### 2025 August
 
-2025-08-01 The Trump administration announced plans to prevent Veterans from accessing abortion care or counseling.
+2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling. 
 
 [https://reproductiverights.org/5-things-trump-va-abortion-ban/](https://reproductiverights.org/5-things-trump-va-abortion-ban/)
 
