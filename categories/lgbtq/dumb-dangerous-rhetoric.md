@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Dangerous Rhetoric
+title: Dumb or Dangerous Rhetoric
 category_slug: lgbtq
-subcategory_slug: dangerous-rhetoric
-permalink: /categories/lgbtq/dangerous-rhetoric/
+subcategory_slug: dumb-dangerous-rhetoric
+permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 ---
 
 ### 1992
@@ -50,6 +50,16 @@ permalink: /categories/lgbtq/dangerous-rhetoric/
 [https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt](https://www.foxnews.com/world/lgbtq-groups-condemn-trump-administrations-campaign-to-end-criminalization-of-homosexuality-worldwide-as-stunt)
 
 ### 2023
+
+2023-01-16 Conservatives claimed the green M&M is gay. 
+
+[https://www.lgbtqnation.com/2023/01/conservatives-losing-minds-lesbian-female-mms-marketing/](https://www.lgbtqnation.com/2023/01/conservatives-losing-minds-lesbian-female-mms-marketing/)
+
+[https://www.npr.org/2023/01/23/1150844961/tucker-carlsons-war-on-m-ms](https://www.npr.org/2023/01/23/1150844961/tucker-carlsons-war-on-m-ms)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/republicans-interest-mms-controversy-matters-rcna67152](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-interest-mms-controversy-matters-rcna67152)
+
+[https://www.youtube.com/watch?v=5KoD_78cOVA](https://www.youtube.com/watch?v=5KoD_78cOVA)
 
 2023-03-03 In a news story out of Tennessee Ken Peters of Patriot Church offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
 

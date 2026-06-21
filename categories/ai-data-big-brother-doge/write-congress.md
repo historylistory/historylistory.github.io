@@ -167,6 +167,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-12-17 AOC criticized Trump’s executive order blocking state AI regulation.
 
+2026-01-01 California introduced the Delete Request and Opt-out Platform (DROP) which allows residents to completely delete personal information from data mining sites. 
+
 2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
 2026-01-12 The DOD awarded a Pentagon integration contract to Grok despite reports of glitches and explicit content.

@@ -79,6 +79,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2022-12-03 Trump posted that alleged widespread election fraud could justify terminating constitutional rules and suggested either overturning the 2020 election or holding a new one, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
+2023-01-16 Conservatives claimed the green M&M is gay. 
+
 2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
 2024-01-08 Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.

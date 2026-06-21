@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: AI to Manipulate Consumers
+title: Data Mining & Manipulation
 category_slug: ai-data-big-brother-doge
-subcategory_slug: ai-to-manipulate-consumers
-permalink: /categories/ai-data-big-brother-doge/ai-to-manipulate-consumers/
+subcategory_slug: data-mining-manipulation
+permalink: /categories/ai-data-big-brother-doge/data-mining-manipulation/
 ---
 
 ### 2022
@@ -37,6 +37,12 @@ permalink: /categories/ai-data-big-brother-doge/ai-to-manipulate-consumers/
 [https://www.usatoday.com/story/grocery/2025/12/10/instacart-pricing-investigation-target-safeway/87701184007/](https://www.usatoday.com/story/grocery/2025/12/10/instacart-pricing-investigation-target-safeway/87701184007/)
 
 [https://www.investopedia.com/instacart-was-charging-wildly-diverging-prices-for-different-shoppers-an-investigation-found-so-i-checked-my-costco-orders-11866778](https://www.investopedia.com/instacart-was-charging-wildly-diverging-prices-for-different-shoppers-an-investigation-found-so-i-checked-my-costco-orders-11866778)
+
+### 2026 January
+
+2026-01-01 California introduced the Delete Request and Opt-out Platform (DROP) which allows residents to completely delete personal information from data mining sites. 
+
+[https://privacy.ca.gov/drop/](https://privacy.ca.gov/drop/)
 
 ### 2026 April
 

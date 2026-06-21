@@ -57,6 +57,25 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://therevealer.org/all-aboard-the-orphan-train/](https://therevealer.org/all-aboard-the-orphan-train/)
 
+### 1994
+
+1994-01-01 Evangelicals pushed a national “purity” movement, but a congressional report showed that 80% of programs contained “false, misleading, or distorted information about reproductive health” and included racist stereotypes and anti-LGBTQ+ language. 
+
+[https://retroreport.org/uncategorized/how-an-abstinence-pledge-in-the-90s-shamed-a-generation-of-evangelicals/](https://retroreport.org/uncategorized/how-an-abstinence-pledge-in-the-90s-shamed-a-generation-of-evangelicals/)
+
+[https://wpln.org/post/30-years-later-the-evangelical-purity-movement-still-impacts-sex-education/](https://wpln.org/post/30-years-later-the-evangelical-purity-movement-still-impacts-sex-education/)
+
+[https://www.npr.org/2024/07/31/nx-s1-5051722-e1/30-years-later-the-evangelical-purity-movement-still-impacts-u-s-sex-education](https://www.npr.org/2024/07/31/nx-s1-5051722-e1/30-years-later-the-evangelical-purity-movement-still-impacts-u-s-sex-education)
+
+INTERACTIVE MAP [https://siecus.org/siecus-state-profiles/](https://siecus.org/siecus-state-profiles/)
+
+2022 NIH REPORT [https://pubmed.ncbi.nlm.nih.gov/34556007/](https://pubmed.ncbi.nlm.nih.gov/34556007/)
+
+APRIL 2007 REPORT [https://aspe.hhs.gov/sites/default/files/migrated_legacy_files//42311/report.pdf](https://aspe.hhs.gov/sites/default/files/migrated_legacy_files//42311/report.pdf)
+
+DECEMBER 2004 REPORT [https://spot.colorado.edu/~tooley/HenryWaxman.pdf](https://spot.colorado.edu/~tooley/HenryWaxman.pdf)
+
+
 ### 2012
 
 2012-03-01 Remember Rush Limbaugh? During a live recording, he had a message to women asking for birth control. He said, quote, “So, Ms. Fluke and the rest of you **feminazis**, **here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is.** **We want you to post the videos online so we can all watch**”.
