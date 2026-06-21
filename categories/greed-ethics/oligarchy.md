@@ -8,7 +8,6 @@ permalink: /categories/greed-ethics/oligarchy/
 
 ### Is it an oligarchy?
 
-Is it an oligarchy?
 https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessing-the-rise-of-oligarchy
 
 [https://www.theguardian.com/us-news/2025/jan/23/what-is-oligarchy](https://www.theguardian.com/us-news/2025/jan/23/what-is-oligarchy)
@@ -21,7 +20,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 ### 1971
 
-1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to coordinate and fund the takeover of universities and media that shape American opinion. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer. 
+1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
 
 [https://www.inequalitymedia.org/explainers/v/the-powell-memo](https://www.inequalitymedia.org/explainers/v/the-powell-memo)
 

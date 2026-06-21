@@ -23,7 +23,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2017 June
 
-2017-06-05 During his first term, Trump endorsed a proposal to remove 30,000 FAA workers from the federal payroll and **privatize** the nation’s air traffic control system.
+2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
 [https://www.npr.org/2017/06/05/531574945/trump-announces-plan-to-privatize-air-traffic-control](https://www.npr.org/2017/06/05/531574945/trump-announces-plan-to-privatize-air-traffic-control)
 

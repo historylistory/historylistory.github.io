@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 ### 1987
 
-1987 For context, Regan warned back in the 80’s that tariffs are dangerous.
+1987-01-01 Regan warned about the dangers of tariffs. 
 
 {% include youtubePlayer.html id="Foggkeiwlp0" %}
 
@@ -26,7 +26,7 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 [https://www.cfr.org/article/trumps-new-aluminum-and-steel-tariffs-explained-six-charts](https://www.cfr.org/article/trumps-new-aluminum-and-steel-tariffs-explained-six-charts)
 
-2018-04-01 By April 2018, the U.S. entered a trade war with China.
+2018-04-01 The U.S. entered a trade war with China.
 
 [https://apnews.com/article/tariffs-timeline-trade-war-trump-canada-mexico-china-a9d714eea677488ef9397547d838dbd0](https://apnews.com/article/tariffs-timeline-trade-war-trump-canada-mexico-china-a9d714eea677488ef9397547d838dbd0)
 

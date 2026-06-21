@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 ### 2017
 
-2017-11-24 The Trump administration attempted to dismantle the Consumer Financial Protection Bureau in 2017.
+2017-11-24 Trump attempted to dismantle the Consumer Financial Protection Bureau.
 
 [https://www.politico.com/story/2017/11/24/richard-cordray-successor-cfpb-leandra-english-259612](https://www.politico.com/story/2017/11/24/richard-cordray-successor-cfpb-leandra-english-259612)
 

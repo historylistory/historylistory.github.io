@@ -6,9 +6,9 @@ subcategory_slug: profit-and-politics
 permalink: /categories/religion/profit-and-politics/
 ---
 
-### 1932
+### 1964
 
-1932-01-01 Summer Institute of Linguistics was set up to go to remote regions to proselytize to indigenous people. Some reports cited a political mandate of SIL and that the group would foster subservience and compliance, and banish ideas of community organization or social solidarity. This would be the case in the 60’s when they forced Ecuadorian people onto reservations at the behest of oil companies. 
+1964-01-01 The US-funded Summer Institute of Linguistics proselytized to indigenous people in remote areas, fostered subservience and compliance, forced people onto reservations at the will of oil companies, and helped Brazil assimilate people of the Amazon. 
 
 [https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/](https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/)
 
@@ -17,10 +17,6 @@ permalink: /categories/religion/profit-and-politics/
 [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
 
 PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/](https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/)
-
-### 1964
-
-1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development. 
 
 [https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day](https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day)
 

@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/libya/
 
 ### 2011
 
-2011-04-17 Trump said he would like to seize oil fields in Libya and Iraq.
+2011-04-17 Trump said he wanted to seize oil fields in Libya and Iraq.
 
 [https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html](https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html)
 
@@ -19,7 +19,7 @@ permalink: /categories/foreign-affairs-isolation/libya/
 
 ### 2016
 
-2016-09-21 Trump reportedly said he wanted to take the oil from Iraq. He stated, “You’re not stealing anything. We’re reimbursing ourselves”.
+2016-09-21 Trump said he wanted to take the oil from Iraq, “You’re not stealing anything. We’re reimbursing ourselves”.
 
 [https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis](https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis)
 

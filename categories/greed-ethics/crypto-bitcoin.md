@@ -8,7 +8,7 @@ permalink: /categories/greed-ethics/crypto-bitcoin/
 
 ### 2019
 
-2019-07-11 Trump posted on social media letting his followers know he did not like Bitcoin. This entry is only for context, as this post came just before his launch of TrumpCoin. Trump wrote, “I am not a fan of Bitcoin and other Cryptocurrencies, which are not money, and whose value is highly volatile and based on thin air. Unregulated Crypto Assets can facilitate unlawful behavior, including drug trade and other illegal activity…” Then he launched his own crypto.
+2019-07-11 Trump posted “I am not a fan of Bitcoin and other Cryptocurrencies, which are not money, and whose value is highly volatile and based on thin air. Unregulated Crypto Assets can facilitate unlawful behavior, including drug trade and other illegal activity”. Then he launched his own crypto.
 
 [https://x.com/realDonaldTrump/status/1149472282584072192?lang=en](https://x.com/realDonaldTrump/status/1149472282584072192?lang=en)
 

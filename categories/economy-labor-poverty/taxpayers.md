@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2017
 
-2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017, later renaming it the Trump Tax. According to AI, this legislation widened the deficit in Trump's first term. According to one article, the billionaire “boom” was 120%.
+2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017 which widened the deficit and caused a120% “billionaire boom”.
 
 [https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis](https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis)
 

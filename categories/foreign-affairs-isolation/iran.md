@@ -257,7 +257,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 {% include youtubePlayer.html id="SfZmwYyBSoo" %}
 
-2016-09-21 ***For timeline context only*** Trump reportedly said he wanted to take the oil from Iraq. He stated, “You’re not stealing anything. We’re reimbursing ourselves”.
+2016-09-21 Trump said he wanted to take the oil from Iraq, “You’re not stealing anything. We’re reimbursing ourselves”.
 
 [https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis](https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis)
 

@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/farming/
 
 ### 2018
 
-2018-02-01 The Trump administration proposed $183M in cuts to Conservation Technical Assistance, which was designed to fund a part of the USDA called National Resources Conservation Service that helped farmers implement conservation practices.
+2018-02-01 Trump proposed $183M in cuts to Conservation Technical Assistance, which was designed to help farmers implement conservation practices.
 
 [https://sustainableagriculture.net/blog/trump-budget-proposal-disaster/#:~:text=Some%20of%20the%20biggest%20cuts,a%20farm%20bill%20in%202018](https://sustainableagriculture.net/blog/trump-budget-proposal-disaster/).
 

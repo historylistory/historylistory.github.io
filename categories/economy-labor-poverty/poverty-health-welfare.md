@@ -8,11 +8,12 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2012
 
-2012-01-01 Rush Limbaugh mocked the idea that poor families deserved high-quality food, saying, “Now it has to be the best”. According to AI in 2013, he called compassion for the poor a “part of a partisan agenda”.
+2012-01-01 Rush Limbaugh mocked food programs for hungry American families, “Now it has to be the best”. Limbaugh called compassion for the poor a “part of a partisan agenda”.
+
+[https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
 
 {% include youtubePlayer.html id="sE1Bhzj81Zo" %}
 
-[https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
 
 ### 2023
 

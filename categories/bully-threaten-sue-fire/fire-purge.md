@@ -8,7 +8,7 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 ### 1981 
 
-1981-08-05 President Ronald Regan fired 11,345 air traffic controllers who were on strike demanding better pay, and shorter workweek, and improved working conditions.
+1981-08-05 President Ronald Regan fired 11,345 air traffic controllers because they were on strike demanding better pay and conditions.
 
 [https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers](https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers)
 

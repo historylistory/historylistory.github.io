@@ -23,7 +23,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2020
 
-2020-03-16 During the first Trump administration and the pandemic the stock market crashed. 
+2020-03-16 The stock market crashed.
 
 [https://en.wikipedia.org/wiki/2020_stock_market_crash#:~:text=Though%20the%20crash%20began%20on,Treasury%20securities%20fell%20to%201.59%25.](https://en.wikipedia.org/wiki/2020_stock_market_crash#:~:text=Though%20the%20crash%20began%20on,Treasury%20securities%20fell%20to%201.59%25.)
 

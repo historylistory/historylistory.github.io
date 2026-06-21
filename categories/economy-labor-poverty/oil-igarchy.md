@@ -6,17 +6,9 @@ subcategory_slug: oil-igarchy
 permalink: /categories/economy-labor-poverty/oil-igarchy/
 ---
 
-### Commentary
+### 1964
 
-This section is still in progress, but since Trump took office he has been trying to shut down all other alternative sources of power such as wind, ocean and solar. He has also pushed his drill-baby-drill agenda. Finally, every war he has started since his first year in office has been about oil sanctions. During the first month of the war in Iran there had been 45 worldwide oil refinery "accidents". 
-
-### Oil Dependency 
-
-Oil dependency is the bottom-line for investors, which is why they repeatedly block clean energy and advocate for drilling and mining in protected areas. For more information, see the section ***CLIMATE CHANGE***
-
-### 1932
-
-1932-01-01 Summer Institute of Linguistics was set up to go to remote regions to proselytize to indigenous people. Some reports cited a political mandate of SIL and that the group would foster subservience and compliance, and banish ideas of community organization or social solidarity. This would be the case in the 60’s when they forced Ecuadorian people onto reservations at the behest of oil companies. 
+1964-01-01 The US-funded Summer Institute of Linguistics proselytized to indigenous people in remote areas, fostered subservience and compliance, forced people onto reservations at the will of oil companies, and helped Brazil assimilate people of the Amazon. 
 
 [https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/](https://schoolsforchiapas.org/imperialism-and-the-summer-institute-of-linguistics/)
 
@@ -25,10 +17,6 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s](https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s)
 
 PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/](https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-controversial-linguistics-institute/11d3de59-6f02-4ae3-abb4-ba50c66bd0e8/)
-
-### 1964
-
-1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development. 
 
 [https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day](https://amazonwatch.org/news/2005/1012-remembering-ecuadors-cofan-on-indigenous-peoples-day)
 
@@ -39,7 +27,7 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 ### 1971
 
-1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to coordinate and fund the takeover of universities and media that shape American opinion. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer. 
+1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
 
 [https://www.inequalitymedia.org/explainers/v/the-powell-memo](https://www.inequalitymedia.org/explainers/v/the-powell-memo)
 
@@ -51,7 +39,7 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 ### 2011
 
-2011-04-17 Trump said he would like to seize oil fields in Libya and Iraq.
+2011-04-17 Trump said he wanted to seize oil fields in Libya and Iraq.
 
 [https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html](https://abcnews.go.com/george/2011/04/donald-trumps-solution-on-gas-prices-get-tough-with-saudi-arabia-seize-oil-fields-in-libya-and-iraq.html)
 
@@ -62,7 +50,7 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 ### 2016 
 
-2016-09-21 Trump reportedly said he wanted to take the oil from Iraq. He stated, “You’re not stealing anything. We’re reimbursing ourselves”.
+2016-09-21 Trump said he wanted to take the oil from Iraq, “You’re not stealing anything. We’re reimbursing ourselves”.
 
 [https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis](https://www.theguardian.com/us-news/2016/sep/21/donald-trump-iraq-war-oil-strategy-seizure-isis)
 

@@ -8,7 +8,7 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 1981
 
-1981-08-05 President Ronald Regan fired 11,345 air traffic controllers who were on strike demanding better pay, and shorter workweek, and improved working conditions.
+1981-08-05 President Ronald Regan fired 11,345 air traffic controllers because they were on strike demanding better pay and conditions.
 
 [https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers](https://www.npr.org/2021/08/05/1025018833/looking-back-on-when-president-reagan-fired-air-traffic-controllers)
 
@@ -25,7 +25,7 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2017 June
 
-2017-06-05 During his first term, Trump endorsed a proposal to remove 30,000 FAA workers from the federal payroll and **privatize** the nation’s air traffic control system.
+2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
 [https://www.npr.org/2017/06/05/531574945/trump-announces-plan-to-privatize-air-traffic-control](https://www.npr.org/2017/06/05/531574945/trump-announces-plan-to-privatize-air-traffic-control)
 
