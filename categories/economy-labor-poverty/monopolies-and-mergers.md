@@ -54,6 +54,8 @@ Three companies control roughly 75% of beer production.
 
 ### Apple
 
+2024-03-21 The DOJ sued Apple for monopolizing the smartphone market. 
+
 [https://www.cato.org/commentary/apple-monopoly](https://www.cato.org/commentary/apple-monopoly)
 
 [https://www.justice.gov/archives/opa/pr/justice-department-sues-apple-monopolizing-smartphone-markets](https://www.justice.gov/archives/opa/pr/justice-department-sues-apple-monopolizing-smartphone-markets)
@@ -131,7 +133,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/](https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/)
 
-2025-01-06 The CFPB sued Vanderbilt for setting up borrowers to fail in manufactured home loans. Context: Clayton homes owns 50% of the manufactured home market - that’s mobile homes. The same company that owns Clayton (Berkshire Hathaway) owns the **finance company**, the **lease company**, the **insurance company**, and the **property management company** that owns the land on which the mobile home sits. The allegation was that the company would make the home virtually unaffordable after buyers already settled a deal, then take the property back from the buyer later. Homeowners also complained of quality issues such as a form of linoleum they called “congolium”, particle board, heavy leaks, safety issues, cardboard under the vinyl, sheetrock under insulation, and mold. Also, Berkshire Hathaway also owns three of the largest RV manufacturers in the country, and a record number of people are living in vans and RV’s due to economic pressure and a housing crisis since Trump’s first term. 
+2025-01-06 The CFPB sued Vanderbilt for setting up borrowers to fail in manufactured home loans. Clayton Homes owns 50% of the manufactured house market, Berkshire Hathaway owns its finance, lease, insurance and property management companies. The allegation: the company makes the home virtually unaffordable after buyers already settled a deal, then take the property back from the buyer later. Homeowners also complained of quality issues such as “congolium”, particle board, heavy leaks, safety issues, cardboard under the vinyl, sheetrock under insulation, and mold. 
 
 [https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/](https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/)
 
@@ -151,22 +153,17 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### LiveNation/Ticketmaster
 
-2024-05-23 The Biden Administration and 30 States filed an anti-trust lawsuit against Live Nation and Ticketmaster which the Trump administration later squashed in March of 2026.
+2024-05-23 The Biden Administration and 39 States filed an anti-trust lawsuit against Live Nation and Ticketmaster. In 2026 Trump reached a settlement with Live Nation that required no divestment of Ticketmaster. A coalition of over 30 states rejected the settlement, arguing it was too weak. By April 2026 a federal jury found Live Nation and Ticketmaster liable on every antitrust count submitted. 
 
 [https://en.wikipedia.org/wiki/United_States_v._Live_Nation_Entertainment](https://en.wikipedia.org/wiki/United_States_v._Live_Nation_Entertainment)
 
 [https://www.justice.gov/archives/opa/pr/justice-department-sues-live-nation-ticketmaster-monopolizing-markets-across-live-concert](https://www.justice.gov/archives/opa/pr/justice-department-sues-live-nation-ticketmaster-monopolizing-markets-across-live-concert)
-
-2026-03-09 The Trump Administration’s DOJ made a settlement with Live Nation and Ticketmaster, potentially ending the anti-trust lawsuit against them for monopolizing ticket sales. However, they were still found guilty in April. The Live Nation press release title is “Live Nation Entertainment Reaches Settlement With U.S. Department of Justice” dated March 9, 2026.
 
 [https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/](https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/)
 
 [https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/](https://newsroom.livenation.com/statements/live-nation-entertainment-reaches-settlement-with-u-s-department-of-justice/)
 
 [https://newsroom.livenation.com/news/live-nation-supports-president-trumps-executive-order-on-resale-2/](https://newsroom.livenation.com/news/live-nation-supports-president-trumps-executive-order-on-resale-2/)
-
-
-2026-04-16 After a six-week trial, a New York jury found that Live Nation and it’s subsidiary Ticket Master illegally dominated major concert venues and kept ticket prices too high.
 
 [https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1](https://www.youtube.com/watch?v=EAG1X3VpUHc&list=WL&index=1)
 

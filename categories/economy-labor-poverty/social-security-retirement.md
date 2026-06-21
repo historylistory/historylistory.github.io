@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 
 ### 2024
 
-2024-12-08 During an interview with Meet the Press, Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
+2024-12-08 Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
 
 [https://www.nbcnews.com/meet-the-press/video/trump-says-we-re-not-touching-social-security-in-proposed-cuts-to-government-spending-226493509716](https://www.nbcnews.com/meet-the-press/video/trump-says-we-re-not-touching-social-security-in-proposed-cuts-to-government-spending-226493509716)
 

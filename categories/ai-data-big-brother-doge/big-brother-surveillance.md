@@ -149,7 +149,7 @@ Think About:
 
 ### 2024 December
 
-2024-12-27 Algorithms increasingly tracked user behavior, fueling concerns over tech-billionaire influence and surveillance.
+2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.
 
 [https://thehill.com/business/5054083-trump-embrace-ceos-friends/](https://thehill.com/business/5054083-trump-embrace-ceos-friends/)
 

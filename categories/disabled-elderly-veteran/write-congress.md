@@ -41,7 +41,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2024-08-22 After Tim Walz's son Gus became emotional during the Democratic National Convention, several conservative commentators were criticized for mocking him despite his documented mental health conditions
 
-2024-12-08 During an interview with Meet the Press, Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
+2024-12-08 Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
 
 2025-01-20 Trump rescinded Executive Order 14035 Diversity, Equity, Inclusion, and Accessibility in the Federal Workforce.
 

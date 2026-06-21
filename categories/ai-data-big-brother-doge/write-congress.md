@@ -57,7 +57,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2024-11-12 Trump appointed Elon Musk and Vivek Ramaswamy to DOGE. The White House later alternated between claiming Musk was and was not leading DOGE. Musk was sending out his “What did you do last week” emails.
 
-2024-12-27 Algorithms increasingly tracked user behavior, fueling concerns over tech-billionaire influence and surveillance.
+2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.
 
 2025-01-01 People increasingly formed emotional relationships with AI chatbots.
 

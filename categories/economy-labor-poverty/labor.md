@@ -21,7 +21,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2024
 
-2024-07-24 This marked the date that the federal minimum wage of 7.25 had been stuck at that rate for 15 years. 
+2024-07-24 The federal minimum wage of 7.25 had been stuck at that rate for 15 years.
 
 [https://www.npr.org/2024/07/24/nx-s1-5050573/federal-minimum-wage-increase-15-year-anniversary](https://www.npr.org/2024/07/24/nx-s1-5050573/federal-minimum-wage-increase-15-year-anniversary)
 
@@ -55,7 +55,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 January
 
-2025-01-20 DOGE began making indiscriminate cuts to federal workers for the next 18 months, totaling roughly 271,000 positions up until DOGE was dismantled.
+2025-01-20 DOGE cut roughly 271,000 federal positions over 18 months. 
 
 [https://usafacts.org/articles/what-is-going-on-with-doge/](https://usafacts.org/articles/what-is-going-on-with-doge/)
 
@@ -87,7 +87,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://betterinaunion.org/project-2025](https://betterinaunion.org/project-2025)
 
-2025-01-20 Trump rescinded Executive Order 13999 Protecting Worker Health and Safety. This is very important, because larger companies have historically cut corners at the expense of worker safety. For example, Amazon had received backlash since at least 2011 for allowing warehouses to overheat, and in 2022 Amazon installed air conditioning in warehouses only AFTER one of their employees died from heat exhaustion. In 2024, OSHA found that the company still had not complied with AC installation and instead tried to mitigate heat exhaustion with an “extra 5 minutes” to employee work breaks. 
+2025-01-20 Trump rescinded Executive Order 13999 Protecting Worker Health and Safety. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 

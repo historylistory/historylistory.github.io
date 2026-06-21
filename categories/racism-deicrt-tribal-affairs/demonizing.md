@@ -54,7 +54,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2024
 
-2024-07-10 During a National Conservatism convention, JD Vance stated, *“…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”*
+2024-07-10 During a National Conservatism convention, JD Vance claimed, “…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 [https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve)
 

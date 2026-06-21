@@ -43,7 +43,7 @@ SUB WALL [https://www.politico.com/news/2022/04/27/meatpacking-ceos-congress-hea
 
 ### 2025
 
-2025-02-06 Egg prices soared at the beginning of 2025, due to a strain of bird flu that started back in 2022. When farmers finally rebuilt flocks and replaced sick birds, the prices came down and Trump took the credit.
+2025-02-06 Egg prices soared due to bird flu. When farmers rebuilt flocks and replaced sick birds, Trump took the credit. 
 
 [https://innovateanimalag.org/hpai-costs-2025](https://innovateanimalag.org/hpai-costs-2025)
 

@@ -30,7 +30,7 @@ This section is still in progress
 
 ### 2024
 
-2024-10-24 Yale article on Polymarket
+2024-10-24 Yale reported on the ease of manipulating prediction markets.  
 
 [https://insights.som.yale.edu/insights/dont-trust-the-political-prediction-markets](https://insights.som.yale.edu/insights/dont-trust-the-political-prediction-markets)
 

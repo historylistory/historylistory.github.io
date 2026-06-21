@@ -102,7 +102,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://tradingeconomics.com/commodity/cocoa](https://tradingeconomics.com/commodity/cocoa)
 
-2024-07-18 Trump promised he would reduce inflation on day one.
+2024-07-18 Trump campaigned on the promise that he would reduce inflation on day one.
 
 [https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border](https://www.pbs.org/newshour/classroom/daily-news-lessons/2024/07/trump-claims-greatest-invasion-in-history-happening-at-southern-border)
 
@@ -118,7 +118,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring](https://www.cnn.com/2026/02/05/economy/us-jobs-data-layoffs-hiring)
 
-2025-02-06 Egg prices soared at the beginning of 2025, due to a strain of bird flu that started back in 2022. When farmers finally rebuilt flocks and replaced sick birds, the prices came down and Trump took the credit.
+2025-02-06 Egg prices soared due to bird flu. When farmers rebuilt flocks and replaced sick birds, Trump took the credit. 
 
 [https://innovateanimalag.org/hpai-costs-2025](https://innovateanimalag.org/hpai-costs-2025)
 
