@@ -146,19 +146,44 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 [https://www.theguardian.com/us-news/2025/oct/09/anti-fascism-mark-bray-rutgers-university](https://www.theguardian.com/us-news/2025/oct/09/anti-fascism-mark-bray-rutgers-university)
 
-### 2025 December
+### 2025 November
 
-2025-12-01 Senator Mark Kelly and his wife received increased death threats after Trump threatened him with execution.
+2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 
 [https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
-
-{% include youtubePlayer.html id="GmHoHsEzzBs" %}
 
 [https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d](https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d)
 
 [https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/](https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/)
 
 [https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump](https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump)
+
+[https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/](https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/)
+
+[https://www.bbc.com/news/articles/cx2p2dz9zk2o](https://www.bbc.com/news/articles/cx2p2dz9zk2o)
+
+[https://www.nbcnews.com/politics/white-house/trump-democrats-death-penalty-sedition-military-orders-rcna245003](https://www.nbcnews.com/politics/white-house/trump-democrats-death-penalty-sedition-military-orders-rcna245003)
+
+[https://www.govexec.com/defense/2025/11/trump-accuses-lawmakers-seditious-behavior-encouraging-troops-refuse-illegal-orders/409710/](https://www.govexec.com/defense/2025/11/trump-accuses-lawmakers-seditious-behavior-encouraging-troops-refuse-illegal-orders/409710/)
+
+[https://www.npr.org/2025/11/20/nx-s1-5615190/trump-democrats-military-video-seditious](https://www.npr.org/2025/11/20/nx-s1-5615190/trump-democrats-military-video-seditious)
+
+[https://truthsocial.com/@RFD3/posts/115579824866571287](https://truthsocial.com/@RFD3/posts/115579824866571287)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115582451169685243](https://truthsocial.com/@realDonaldTrump/posts/115582451169685243)
+
+[https://truthsocial.com/@Beersnake/posts/115579833072568656](https://truthsocial.com/@Beersnake/posts/115579833072568656)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115597077845312894](https://truthsocial.com/@realDonaldTrump/posts/115597077845312894)
+
+{% include youtubePlayer.html id="GmHoHsEzzBs" %}
+
+
+
+
+### 2025 December
+
+
 
 2025-12-23 Trump posted attacks on Stephen Colbert and suggested he should be euthanized. 
 

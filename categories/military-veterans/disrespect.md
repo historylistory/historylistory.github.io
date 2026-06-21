@@ -77,7 +77,7 @@ permalink: /categories/military-veterans/disrespect/
 
 ### 2026 January
 
-2026-01-28 The US Embassy in Copenhagen removed flags honoring fallen Danish soldiers who died in Afghanistan for the US. Trump claimed the soldiers “didn’t walk the front line”. Only after public outcry were the flags reinstalled.
+2026-01-28 After the US removed flags honoring fallen Danish soldiers who died in Afghanistan on behalf of the US, Trump claimed it was because they “didn’t walk the front line”. 
 
 [https://www.cnn.com/2026/01/28/europe/us-embassy-copenhagen-removes-flags-danish-soldiers-intl](https://www.cnn.com/2026/01/28/europe/us-embassy-copenhagen-removes-flags-danish-soldiers-intl)
 

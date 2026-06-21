@@ -14,6 +14,6 @@ permalink: /categories/health/lifelines/
 
 ### 2026 January
 
-2026-01-14 In addition to the billions of dollars in cuts already, the Trump administration added millions of dollars in funding cuts against substance abuse and mental health programs.
+2026-01-14 Trump terminated $2B in mental health and addiction programs. 
 
 [https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants](https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants)

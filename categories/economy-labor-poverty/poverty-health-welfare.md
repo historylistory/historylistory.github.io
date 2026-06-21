@@ -308,7 +308,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 December
 
-2025-12-15 Several news outlets reported the Trump administration plans to eliminate tens of thousands of VA health care jobs, reportedly around 35,000.
+2025-12-15 A report cited another 35,000 VA jobs were going to be cut. 
 
 [https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
 
@@ -330,7 +330,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 ### 2026 January
 
 
-2026-01-14 In addition to the billions of dollars in cuts already, the Trump administration added millions of dollars in funding cuts against substance abuse and mental health programs.
+2026-01-14 Trump terminated $2B in mental health and addiction programs. 
 
 [https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants](https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants)
 

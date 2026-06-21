@@ -366,11 +366,9 @@ Manhattan grand jury in the hush-money case.
 
 2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
 
-2025-11-20 Trump called for the execution of Democratic leaders over what he described as "seditious behavior" following a video discussing military personnel's obligations regarding unlawful orders
+2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 
 2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
-
-2025-12-01 Senator Mark Kelly and his wife received increased death threats after Trump threatened him with execution.
 
 2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
 

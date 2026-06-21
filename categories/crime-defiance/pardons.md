@@ -329,6 +329,12 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 ### 2026 February
 
+2026-02-05 Pardoned J6er Jake Lang was arrested in Minneapolis after destroying a sculpture displayed by the local Veteran-ran Common Defense organization. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
+
+[https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang](https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang)
+
+{% include youtubePlayer.html id="IZO1YzK_aEY" %}
+
 2026-02-09 Ghislaine Maxwell invoked the Fifth Amendment during a deposition. Her attorney stated she would be, ““prepared to speak fully and honestly if granted clemency by President Trump”.
 
 [https://abcnews.com/Politics/maxwell-expected-invoke-amendment-closed-virtual-house-oversight/story?id=129991066](https://abcnews.com/Politics/maxwell-expected-invoke-amendment-closed-virtual-house-oversight/story?id=129991066)

@@ -172,13 +172,13 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 December
 
-2025-12-17 During a confirmation hearing for judicial nominees, Senators grilled Justin Olson about his past sermons where he allegedly stated that disabled people should not marry and that wives should be subject to their husbands. He was asked, “You said that God – quote – has called wives to be subject to their husbands – end quote – and to – quote – serve the good of your husband and support his calling – close quote”. To which he responded, “I think I recall saying something along those lines”. When asked what he meant by that, he replied, “So in Christian marriage as explained by the apostles, I was describing our church’s understanding of what Christian marriage ought to look like”. 
-
-{% include youtubePlayer.html id="f1PEAlM0bLw" %}
+2025-12-17 During a confirmation hearing Justin Olson was asked to explain his former statements that disabled people should not marry and that wives should be subject to their husbands. He stated, “I was describing our church’s understanding of what Christian marriage ought to look like”. 
 
 [https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/](https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/)
 
 [https://www.motherjones.com/politics/2025/12/indiana-southern-district-federal-judge-nominee-justin-olson-disabled-people-marriage-benefits-cancellation-medicaid-ssi/](https://www.motherjones.com/politics/2025/12/indiana-southern-district-federal-judge-nominee-justin-olson-disabled-people-marriage-benefits-cancellation-medicaid-ssi/)
+
+{% include youtubePlayer.html id="f1PEAlM0bLw" %}
 
 ### 2026 January
 

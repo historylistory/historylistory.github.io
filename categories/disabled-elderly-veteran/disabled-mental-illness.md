@@ -58,7 +58,7 @@ permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
 
 [https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/](https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/)
 
-2025-12-11 Marco Rubio announced the White House planned to get rid of Calibri font in all their official documents and replace it with Times New Roman, claiming that Calibri font was too “woke”. Prior to this change, Calibri font was used because it was easier for those with disabilities (for example, those with dyslexia or low vision) to read because this font excludes the decorative tops and tails at the ends of letters.
+2025-12-11 The White House claimed Calibri font—which helps people with reading difficulties, including dyslexia and low vision—was too "woke" and replaced it with Times New Roman.
 
 [https://fortune.com/2025/12/11/calibri-is-woke-and-times-new-roman-is-maga-the-culture-wars-come-for-fonts/](https://fortune.com/2025/12/11/calibri-is-woke-and-times-new-roman-is-maga-the-culture-wars-come-for-fonts/)
 
@@ -70,17 +70,17 @@ permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
 
 [https://www.live5news.com/2025/12/15/trump-administration-says-sign-language-services-intrude-trumps-ability-control-his-image/](https://www.live5news.com/2025/12/15/trump-administration-says-sign-language-services-intrude-trumps-ability-control-his-image/)
 
-2025-12-17 During a confirmation hearing for judicial nominees, Senator Kennedy grilled Justin Olson about his past sermons where he allegedly stated things such as disabled people should not marry and that wives should be subject to their husbands.
-
-{% include youtubePlayer.html id="f1PEAlM0bLw" %}
+2025-12-17 During a confirmation hearing Justin Olson was asked to explain his former statements that disabled people should not marry and that wives should be subject to their husbands. He stated, “I was describing our church’s understanding of what Christian marriage ought to look like”. 
 
 [https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/](https://www.reuters.com/legal/government/republican-senator-grills-trump-judicial-nominee-religious-sermons-2025-12-17/)
 
 [https://www.motherjones.com/politics/2025/12/indiana-southern-district-federal-judge-nominee-justin-olson-disabled-people-marriage-benefits-cancellation-medicaid-ssi/](https://www.motherjones.com/politics/2025/12/indiana-southern-district-federal-judge-nominee-justin-olson-disabled-people-marriage-benefits-cancellation-medicaid-ssi/)
 
+{% include youtubePlayer.html id="f1PEAlM0bLw" %}
+
 ### 2026 January
 
-2026-01-14 In addition to the billions of dollars in cuts already, the Trump administration added millions of dollars in funding cuts against substance abuse and mental health programs.
+2026-01-14 Trump terminated $2B in mental health and addiction programs. 
 
 [https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants](https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants)
 

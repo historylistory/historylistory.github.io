@@ -109,7 +109,15 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 November
 
-2025-11-20 Trump called for the execution of Democratic leaders over what he described as "seditious behavior" following a video discussing military personnel's obligations regarding unlawful orders
+2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
+
+[https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
+
+[https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d](https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d)
+
+[https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/](https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/)
+
+[https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump](https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump)
 
 [https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/](https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/)
 
@@ -128,6 +136,8 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://truthsocial.com/@Beersnake/posts/115579833072568656](https://truthsocial.com/@Beersnake/posts/115579833072568656)
 
 [https://truthsocial.com/@realDonaldTrump/posts/115597077845312894](https://truthsocial.com/@realDonaldTrump/posts/115597077845312894)
+
+{% include youtubePlayer.html id="GmHoHsEzzBs" %}
 
 ### 2025 December
 
@@ -178,7 +188,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 [https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
 
-2026-02-10 A grand jury refused to indict the 6 veteran congress members who spoke out about refusal to follow illegal orders.
+2026-02-10 A grand jury refused to indict the veteran lawmakers who urged servicemembers to refuse illegal orders.
 
 [https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/](https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/)
 

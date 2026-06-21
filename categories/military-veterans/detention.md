@@ -71,7 +71,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 December
 
-2025-12-12 The Trump administration collected data on all immigrants who are in any way affiliated with the Department of Veteran’s Affairs. For context, the VA system recruits foreign workers through the use of National Interest Waivers and still suffers a drastic staffing shortage.
+2025-12-12 The Trump administration started collecting data on immigrants affiliated with the VA and the National Interest Waivers program, which still suffers drastic staffing shortages. 
 
 [https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report](https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report)
 
@@ -81,7 +81,7 @@ permalink: /categories/military-veterans/detention/
 
  
 
-2025-12-13 When confronted at a hearing, Representative Seth Magaziner of Rhode Island asked Kristi Noem how many United States military veterans were deported. Noem stated we have not reported any US citizens or military veterans. Representative Magaziner then supplied a Purple Heart recipient via Zoom who was deported and another combat veteran whose wife was deported yet came to the States legally.
+2025-12-13 When Kristi Noem claimed DHS had not detained any US citizens or military veterans Representative Seth Magaziner of Rhode Island provided key testimonies from multiple combat veterans who had been detained and were legal citizens. 
 
 [https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid](https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid)
 

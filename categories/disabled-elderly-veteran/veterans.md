@@ -156,7 +156,15 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://www.denver7.com/news/investigations/jose-barco-the-purple-heart-recipient-in-ice-custody-since-january-has-been-deported-attorney](https://www.denver7.com/news/investigations/jose-barco-the-purple-heart-recipient-in-ice-custody-since-january-has-been-deported-attorney)
 
-2025-11-20 Trump called for the execution of Democratic leaders over what he described as "seditious behavior" following a video discussing military personnel's obligations regarding unlawful orders
+2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
+
+[https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
+
+[https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d](https://www.wkyc.com/article/syndication/associatedpress/experts-doubt-the-pentagon-can-punish-kelly-over-the-illegal-orders-video/616-a0b50b7e-f9d5-4491-bef2-a3a77842e88d)
+
+[https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/](https://www.democracydocket.com/news-alerts/trump-death-threats-defense-department-mark-kelly-review/)
+
+[https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump](https://www.theguardian.com/us-news/2025/nov/21/mark-kelly-gabby-giffords-threats-safety-trump)
 
 [https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/](https://www.reuters.com/world/us/trump-says-democrats-who-told-us-military-refuse-illegal-orders-deserve-death-2025-11-20/)
 
@@ -176,9 +184,11 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115597077845312894](https://truthsocial.com/@realDonaldTrump/posts/115597077845312894)
 
+{% include youtubePlayer.html id="GmHoHsEzzBs" %}
+
 ### 2025 December
 
-2025-12-12 The Trump administration began collecting data on all immigrants who are in any way affiliated with the Department of Veteran’s Affairs. For context, the VA system recruits foreign workers through the use of National Interest Waivers and still suffers a drastic staffing shortage.
+2025-12-12 The Trump administration started collecting data on immigrants affiliated with the VA and the National Interest Waivers program, which still suffers drastic staffing shortages. 
 
 [https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report](https://www.theguardian.com/us-news/2025/dec/12/veterans-affairs-homeland-security-data-report)
 
@@ -188,7 +198,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
  
 
-2025-12-13 When confronted at a hearing, Representative Seth Magaziner of Rhode Island asked Kristi Noem how many United States military veterans were deported. Noem stated we have not reported any US citizens or military veterans. Representative Magaziner then supplied a Purple Heart recipient via Zoom who was deported and another combat veteran whose wife was deported yet came to the States legally.
+2025-12-13 When Kristi Noem claimed DHS had not detained any US citizens or military veterans Representative Seth Magaziner of Rhode Island provided key testimonies from multiple combat veterans who had been detained and were legal citizens. 
 
 [https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid](https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid)
 
@@ -196,7 +206,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 [https://abcnews.go.com/Politics/dhs-secretary-kristi-noem-confronted-veteran-contentious-hearing/story?id=128325824](https://abcnews.go.com/Politics/dhs-secretary-kristi-noem-confronted-veteran-contentious-hearing/story?id=128325824)
 
-2025-12-15 Several news outlets reported the Trump administration plans to eliminate tens of thousands of VA health care jobs, reportedly around 35,000.
+2025-12-15 A report cited another 35,000 VA jobs were going to be cut. 
 
 [https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
 
@@ -208,7 +218,7 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2026 January
 
-2026-01-28 The US Embassy in Copenhagen removed flags honoring fallen Danish soldiers who died in Afghanistan for the US. Trump claimed the soldiers “didn’t walk the front line”. Only after public outcry were the flags reinstalled.
+2026-01-28 After the US removed flags honoring fallen Danish soldiers who died in Afghanistan on behalf of the US, Trump claimed it was because they “didn’t walk the front line”. 
 
 [https://www.cnn.com/2026/01/28/europe/us-embassy-copenhagen-removes-flags-danish-soldiers-intl](https://www.cnn.com/2026/01/28/europe/us-embassy-copenhagen-removes-flags-danish-soldiers-intl)
 
@@ -227,13 +237,14 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
 
 
-2026-02-05 Jake Lang was arrested in Minneapolis after destroying a sculpture the local Veteran-ran Common Defense organization bought permits to display. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
-
-{% include youtubePlayer.html id="IZO1YzK_aEY" %}
+2026-02-05 Pardoned J6er Jake Lang was arrested in Minneapolis after destroying a sculpture displayed by the local Veteran-ran Common Defense organization. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
 
 [https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang](https://krcrtv.com/news/nation-world/senate-candidate-florida-jan-6-pardoned-man-busts-up-prosecute-ice-sculpture-outside-minnesota-capitol-jake-lang)
 
-2026-02-10 A grand jury refused to indict the 6 veteran congress members who spoke out about refusal to follow illegal orders.
+{% include youtubePlayer.html id="IZO1YzK_aEY" %}
+
+
+2026-02-10 A grand jury refused to indict the veteran lawmakers who urged servicemembers to refuse illegal orders.
 
 [https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/](https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/)
 

@@ -97,7 +97,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 ### 2025 December
 
-2025-12-13 When confronted at a hearing, Representative Seth Magaziner of Rhode Island asked Kristi Noem how many United States military veterans were deported. Noem stated we have not reported any US citizens or military veterans. Representative Magaziner then supplied a Purple Heart recipient via Zoom who was deported and another combat veteran whose wife was deported yet came to the States legally.
+2025-12-13 When Kristi Noem claimed DHS had not detained any US citizens or military veterans Representative Seth Magaziner of Rhode Island provided key testimonies from multiple combat veterans who had been detained and were legal citizens. 
 
 [https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid](https://www.cnn.com/2025/12/12/us/video/kristi-noem-congressional-hearing-deported-veteran-vrtc-digvid)
 

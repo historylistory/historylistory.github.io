@@ -403,6 +403,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
+2026-02-05 Pardoned J6er Jake Lang was arrested in Minneapolis after destroying a sculpture displayed by the local Veteran-ran Common Defense organization. One of the Veterans commented, “As a United States Marine, I swore an oath to the Constitution, not a political party; not an agency, the Constitution”. Another Veteran commented, “I gave eight years of my life in service to this country in the military. For a January 6 insurrectionist to destroy our display is an attack on the First Amendment veterans like me fought to defend”.  
+
 2026-02-09 Ghislaine Maxwell invoked the Fifth Amendment during a deposition. Her attorney stated she would be, ““prepared to speak fully and honestly if granted clemency by President Trump”.
 
 2026-02-12 Trump pardoned five former NFL players convicted of crimes ranging from perjury to drug trafficking.
