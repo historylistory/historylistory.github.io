@@ -30,7 +30,7 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 
 ### 2026 April
 
-2026-04-03 The Trump administration demanded $1.5T in defense spending to support Israels war and pay for the “Golden Dome”, while making further cuts to domestic necessities like heating and cooling and food. During an event at the White House Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.  In other words, Trump wants to funnel American taxpayer dollars into funding Israel’s power-grabbing war in the Middle East.
+2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 [https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
 
@@ -44,6 +44,20 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 
 [https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)
 
+[https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania](https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania)
+
+[https://www.youtube.com/watch?v=HSXxofF5lJg&t=33s](https://www.youtube.com/watch?v=HSXxofF5lJg&t=33s)
+
+[https://nebraskapublicmedia.org/en/news/news-articles/shutdown-delays-federal-utility-assistance-payments/](https://nebraskapublicmedia.org/en/news/news-articles/shutdown-delays-federal-utility-assistance-payments/)
+
+[https://www.ncoa.org/article/energy-assistance-beyond-liheap/](https://www.ncoa.org/article/energy-assistance-beyond-liheap/)
+
+[https://democrats-appropriations.house.gov/sites/evo-subsites/democrats-appropriations.house.gov/files/Republicans%E2%80%99%20Even%20More%20Extreme%20Continuing%20Resolution.pdf](https://democrats-appropriations.house.gov/sites/evo-subsites/democrats-appropriations.house.gov/files/Republicans%E2%80%99%20Even%20More%20Extreme%20Continuing%20Resolution.pdf)
+
+[https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/](https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/)
+
+[https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
+
 [https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
 
 [https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3](https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3)
@@ -53,6 +67,8 @@ permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
 [https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK](https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK)
 
 [https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
+
+
 
 ### 2026 May 
 

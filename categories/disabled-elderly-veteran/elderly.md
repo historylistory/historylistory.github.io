@@ -19,7 +19,19 @@ permalink: /categories/disabled-elderly-veteran/elderly/
 [https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl](https://www.npr.org/sections/shots-health-news/2025/04/01/g-s1-57716/hhs-layoffs-seniors-disabled-liheap-acl)
 
 
-2026-04-03 During 2025 the Trump administration made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) which helps 6 million households pay their heating or cooling bills, buy fuel or fix broken heaters: particularly for the elderly. Now at the beginning of 2026 the Trump administration recommended cutting it entirely while simultaneously demanding  $1.5T in defense spending to support Israels war.
+2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
+
+[https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=qEURbAHBPvg](https://www.youtube.com/watch?v=qEURbAHBPvg)
+
+[https://www.youtube.com/watch?v=5GFcmIVM3Yc](https://www.youtube.com/watch?v=5GFcmIVM3Yc)
+
+[https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/](https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007/)
+
+[https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars](https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars)
+
+[https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)
 
 [https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania](https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania)
 
@@ -34,6 +46,18 @@ permalink: /categories/disabled-elderly-veteran/elderly/
 [https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/](https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/)
 
 [https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
+
+[https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
+
+[https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3](https://apnews.com/article/trump-2027-annual-budget-congress-defense-f95715d838be17afd9799208cd3182e3)
+
+[https://www.foxnews.com/politics/trump-unveils-1-5t-defense-surge-deep-domestic-cuts-whats-chopping-block](https://www.foxnews.com/politics/trump-unveils-1-5t-defense-surge-deep-domestic-cuts-whats-chopping-block)
+
+[https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK](https://www.msn.com/en-us/money/topstocks/8-big-winners-from-trump-s-historic-1-5-trillion-defense-request/ar-AA20gikK)
+
+[https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
+
+
 
 ### 2026 May
 

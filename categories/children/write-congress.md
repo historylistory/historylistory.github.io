@@ -231,7 +231,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
-2026-04-04 Trump requested a $1.5 trillion Pentagon budget and argued that military spending should take precedence over federal programs such as daycare, Medicaid, and Medicare. Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”. 
+2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
 

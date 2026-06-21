@@ -348,7 +348,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions](https://www.npr.org/2026/02/02/nx-s1-5696489/kennedy-center-renovation-trump-questions)
 
-2026-02-25 Dr. Mehmet Oz and JD Vance announced a 6-month national moratorium blocking all new enrollments for durable medical equipment, prosthetics, orthotics, supplies across the board. He stated, “These crimes are becoming a major source of fraudulent activity…”. This was implemented in Minnesota. Walz stated in a social media post, “This has nothing to do with fraud. This is a campaign of retribution. Trump is weaponizing the entirety of the federal government to punish blue states like Minnesota”. 
+2026-02-25 Dr. Oz and JD Vance placed a 6-month moratorium on enrollments for medical equipment, prosthetics, orthotics, and supplies, claiming it was all too subject to fraudulent activity. Governor Tim Walz responded, “This has nothing to do with fraud. This is a campaign of retribution. Trump is weaponizing the entirety of the federal government to punish blue states like Minnesota”.
 
 [https://www.reuters.com/world/us-administration-halting-some-medicaid-funding-minnesota-vance-says-2026-02-25/](https://www.reuters.com/world/us-administration-halting-some-medicaid-funding-minnesota-vance-says-2026-02-25/)
 
@@ -401,7 +401,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2026 April
 
-2026-04-03 During 2025 the Trump administration made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) which helps 6 million households pay their heating or cooling bills, buy fuel or fix broken heaters: particularly for the elderly. Now at the beginning of 2026 the Trump administration recommended cutting it entirely while simultaneously demanding  $1.5T in defense spending to support Israels war.
+2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 [https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania](https://www.npr.org/2025/11/06/nx-s1-5598497/government-shutdown-delays-heat-homes-electric-bills-pennsylvania)
 
@@ -416,8 +416,6 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 [https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/](https://thehill.com/policy/energy-environment/5815067-trump-budget-liheap-energy-prices/)
 
 [https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/](https://thehill.com/homenews/administration/5814887-15t-defense-budget-request/)
-
-2026-04-03 The Trump administration demanded $1.5T in defense spending to support Israels war and pay for the “Golden Dome”, while making further cuts to domestic necessities like heating and cooling and food. During an event at the White House Trump said, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.  In other words, Trump wants to funnel American taxpayer dollars into funding Israel’s power-grabbing war in the Middle East.
 
 [https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
 
