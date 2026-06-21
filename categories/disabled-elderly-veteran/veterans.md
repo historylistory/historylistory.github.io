@@ -63,12 +63,6 @@ permalink: /categories/disabled-elderly-veteran/veterans/
 
 ### 2025 June
 
-2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
-
-[https://www.reuters.com/legal/government/doj-lawyer-who-quit-over-adams-case-joins-law-firm-hueston-hennigan-2025-06-02/](https://www.reuters.com/legal/government/doj-lawyer-who-quit-over-adams-case-joins-law-firm-hueston-hennigan-2025-06-02/)
-
-[https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html](https://www.dailymail.co.uk/news/fb-14401037/Read-Resignation-Letter-Hagan-Scotten.html)
-
 2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
 
 [https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits](https://www.pbs.org/newshour/nation/as-u-s-veterans-plan-protest-for-d-day-heres-a-look-at-their-nearly-250-year-history-of-fighting-for-their-benefits)
