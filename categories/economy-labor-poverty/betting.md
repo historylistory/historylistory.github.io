@@ -12,7 +12,7 @@ This section is still in progress
 
 ### 2020
 
-2020-06-01 The online prediction market Polymarket was launched. It gained rapid traction during the 2020 presidential election and again in 2024. In 2026 the prediction market users started targeting and threatening people reporting on stats they were betting on.
+2020-06-01 Polymarket was launched and gained rapid traction during both of Trump’s terms. 
 
 [https://www.wired.com/story/why-this-was-the-wildest-week-for-prediction-markets-yet/](https://www.wired.com/story/why-this-was-the-wildest-week-for-prediction-markets-yet/)
 

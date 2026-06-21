@@ -18,19 +18,19 @@ permalink: /categories/economy-labor-poverty/farming/
 
 ### 2020
 
-2020-05-26 America paid $15M to prevent screwworm, saving American farmers an estimated $796M in damages. 
+2020-05-26 America invested $15M to prevent screwworm and saved farmers an estimated $796M in damages.
 
 [https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/](https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/)
 
 [https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s](https://www.youtube.com/watch?v=_vI3YYSddoM&list=WL&index=1&t=265s)
 
-2020-10-28 Trump handed farmers bailouts after farm sales were destroyed from the first trade war.
+2020-10-28 Trump handed farmers bailouts after his first trade war.
 
 [https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers](https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers)
 
 ### 2021
 
-2021-08-13 News outlets reported that JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
 
 [https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/](https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/)
 

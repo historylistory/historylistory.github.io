@@ -8,7 +8,7 @@ permalink: /categories/agriculture/farm-food-safety/
 
 ### 2020
 
-2020-05-26 America paid $15M to prevent screwworm, saving American farmers an estimated $796M in damages. 
+2020-05-26 America invested $15M to prevent screwworm and saved farmers an estimated $796M in damages.
 
 [https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/](https://www.theatlantic.com/science/archive/2020/05/flesh-eating-worms-disease-containment-america-panama/611026/)
 

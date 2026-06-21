@@ -35,13 +35,13 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2021
 
-2021-02-19 Reports indicated Americans were economically “battered” by the pandemic.
+2021-02-19 Americans were economically “battered” by the pandemic.
 
 [https://www.nefe.org/news/2021/02/majority-of-americans-battered-by-pandemic-unsettled-economy.aspx](https://www.nefe.org/news/2021/02/majority-of-americans-battered-by-pandemic-unsettled-economy.aspx)
 
 [https://www.cbpp.org/research/economy/tracking-the-recovery-from-the-pandemic-recession](https://www.cbpp.org/research/economy/tracking-the-recovery-from-the-pandemic-recession)
 
-2021-10-18 During Trump’s first term and after COVID, numerous suppliers blamed supply chain issues on higher prices and inflation. I haven’t seen prices go down SINCE those claims. 
+2021-10-18 Suppliers blamed supply chain issues for higher prices. 
 
 [https://www.cnbc.com/2021/10/18/supply-chain-chaos-is-hitting-global-growth-and-could-get-worse.html](https://www.cnbc.com/2021/10/18/supply-chain-chaos-is-hitting-global-growth-and-could-get-worse.html)
 
@@ -69,7 +69,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2023
 
-2023-01-01 Concerns of inflated food prices left consumers wondering why prices remained high post-pandemic. Some articles suggested companies were rolling back prices, some suggested price gouging in place of inflation, and some reported the simple economics of price setting.
+2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 
 
 [https://www.cbsnews.com/amp/news/inflation-beef-coffee-bananas-food-prices-cpi/](https://www.cbsnews.com/amp/news/inflation-beef-coffee-bananas-food-prices-cpi/)
 

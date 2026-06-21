@@ -8,7 +8,7 @@ permalink: /categories/agriculture/farmer-assistance/
 
 ### 2020
 
-2020-10-28 Trump handed farmers bailouts after farm sales were destroyed from the first trade war.
+2020-10-28 Trump handed farmers bailouts after his first trade war.
 
 [https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers](https://www.cfr.org/blog/92-percent-trumps-china-tariff-proceeds-has-gone-bail-out-angry-farmers)
 

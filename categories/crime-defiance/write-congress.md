@@ -99,6 +99,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2021-05-17 Joel Greenberg pleaded guilty to six federal charges, including sex trafficking of a minor. He was sentenced in December 2022.
 
+2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+
 2021-10-21 Westchester County investigated Trump for inflating property values on one statement and lowering those values on other statements to avoid taxes.
 
 2021-10-31 Financial regulators investigated Trump's SPAC amid allegations involving securities violations and insider trading.

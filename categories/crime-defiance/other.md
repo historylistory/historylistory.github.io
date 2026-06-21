@@ -12,7 +12,15 @@ permalink: /categories/crime-defiance/other/
 
 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
 
+### 2021
 
+2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+
+[https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/](https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/)
+
+[https://www.cnn.com/2024/08/13/politics/kentucky-startup-appharvest-jd-vance](https://www.cnn.com/2024/08/13/politics/kentucky-startup-appharvest-jd-vance)
+
+[https://thehill.com/homenews/ap/ap-business/ap-jd-vances-firm-invested-in-food-company-now-facing-lawsuits/](https://thehill.com/homenews/ap/ap-business/ap-jd-vances-firm-invested-in-food-company-now-facing-lawsuits/)
 
 ### 2024
 

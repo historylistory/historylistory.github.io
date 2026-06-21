@@ -8,7 +8,7 @@ permalink: /categories/agriculture/farmland/
 
 ### 2021
 
-2021 News outlets reported that JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
 
 [https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/](https://www.seattletimes.com/business/jd-vances-firm-invested-in-food-company-now-facing-lawsuits/)
 

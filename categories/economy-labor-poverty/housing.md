@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/housing/
 
 ### 2022
 
-2022-01-01 During Trump’s first term (2017 to 2021) a peak number of Americans chose the “van life” due to financial constraints. The number of Americans living in vans reached 1.9 million people in 2020 and reached 3.1 million people in 2022. Also, Berkshire Hathaway also owns three of the largest RV manufacturers in the country. 
+2022-01-01 Either due to lifestyle choice or financial constraints, many Americans started living in their vans. The number reached 1.9M in 2020, and escalated to 3.1M in 2022. Berkshire Hathaway gained a corner on the market by owning the largest RV manufacturers in the country. 
 
 [https://www.fiftygrande.com/a-dose-of-reality-before-you-embark-on-vanlife/](https://www.fiftygrande.com/a-dose-of-reality-before-you-embark-on-vanlife/)
 
