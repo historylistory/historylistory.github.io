@@ -6,6 +6,7 @@ subcategory_slug: war-profits
 permalink: /categories/economy-labor-poverty/war-profits/
 ---
 
+
 ### 2009 
 
 2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”. 
