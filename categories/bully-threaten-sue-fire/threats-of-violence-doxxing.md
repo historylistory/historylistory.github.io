@@ -310,3 +310,11 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html](https://www.cnbc.com/2026/03/05/trump-cuba-iran-regime-change.html)
 
 [https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S](https://www.msn.com/en-us/news/politics/trump-says-after-iran-us-may-turn-its-attention-to-cuba-report/ar-AA1XBZ1S)
+
+### 2026 June
+
+2026-06-21 Trump allegedly threatened Iranian officials, “You close it and you won’t have a country…you won’t even make it back to your fucking country…”
+
+[https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/](https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/)
+
+[https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon](https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon)

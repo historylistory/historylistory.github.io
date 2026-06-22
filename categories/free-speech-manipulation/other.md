@@ -106,3 +106,15 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-i
 [https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/](https://www.cbsnews.com/news/trump-abruptly-ends-interview-nbc-news-kristen-welker-election-fraud/)
 
 PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press](https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press)
+
+2026-06-10 Trump is trying to take control over the US Postal Service. 
+
+[https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2](https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2)
+
+[https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/](https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/)
+
+[https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick](https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick)
+
+[https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
+
+[https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)

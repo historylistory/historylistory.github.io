@@ -270,3 +270,11 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://apnews.com/article/trump-reflecting-pool-renovation-1235f9417697bb2e1f56e14e4d2214de](https://apnews.com/article/trump-reflecting-pool-renovation-1235f9417697bb2e1f56e14e4d2214de)
 
 [https://www.nbcnews.com/politics/donald-trump/reflecting-pool-green-algae-trump-rcna350278](https://www.nbcnews.com/politics/donald-trump/reflecting-pool-green-algae-trump-rcna350278)
+
+2026-06-21 Trump blamed the Reflecting Pool algae bloom on vandals and ordered officials to make arrests. 
+
+[https://www.youtube.com/watch?v=wKiwulcaoL8&list=WL&index=4](https://www.youtube.com/watch?v=wKiwulcaoL8&list=WL&index=4)
+
+[https://time.com/article/2026/06/22/lincoln-memorial-reflecting-pool-vandalism-algae-paint-trump-admin/](https://time.com/article/2026/06/22/lincoln-memorial-reflecting-pool-vandalism-algae-paint-trump-admin/)
+
+[https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates)

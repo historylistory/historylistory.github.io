@@ -119,6 +119,19 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.cnn.com/2025/08/14/economy/us-ppi-wholesale-inflation-july](https://www.cnn.com/2025/08/14/economy/us-ppi-wholesale-inflation-july)
 
+2025-08-18 Executive Order 14321 directs federal agencies to prioritize funding to cities that enforce anti-camping ordinances and forced relocations.
+
+[https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/](https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/)
+
+[https://ensorahealth.com/blog/unpacking-executive-order-ending-crime-and-disorder-on-americas-streets/](https://ensorahealth.com/blog/unpacking-executive-order-ending-crime-and-disorder-on-americas-streets/)
+
+[https://www.whitehouse.gov/fact-sheets/2025/07/fact-sheet-president-donald-j-trump-takes-action-to-end-crime-and-disorder-on-americas-streets/](https://www.whitehouse.gov/fact-sheets/2025/07/fact-sheet-president-donald-j-trump-takes-action-to-end-crime-and-disorder-on-americas-streets/)
+
+[https://www.npr.org/2025/07/24/nx-s1-5479139/trump-homelessness-executive-order-civil-commitment-camping](https://www.npr.org/2025/07/24/nx-s1-5479139/trump-homelessness-executive-order-civil-commitment-camping)
+
+[https://www.youtube.com/watch?v=KFi1mcwc9LM&list=WL&index=1&t=198s](https://www.youtube.com/watch?v=KFi1mcwc9LM&list=WL&index=1&t=198s)
+
+
 ### 2025 September
 
 2025-09-03 Utah unveiled a 1300-bed homeless camp near Rose Park.
@@ -599,3 +612,11 @@ SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-h
 [https://x.com/RepMaxwellFrost](https://x.com/RepMaxwellFrost)
 
 [https://www.commondreams.org/news/house-republicans-2677019857](https://www.commondreams.org/news/house-republicans-2677019857)
+
+2026-06-19 The DOJ released a memo undermining the Olmstead mandate designed to provide community-based services to people with disabilities, particularly if they are homeless disabled.
+
+[https://www.justice.gov/olc/media/1446701/dl](https://www.justice.gov/olc/media/1446701/dl)
+
+[https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization](https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization)
+
+[https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities](https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities)

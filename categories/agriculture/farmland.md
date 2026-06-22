@@ -33,3 +33,16 @@ permalink: /categories/agriculture/farmland/
 [https://www.cnn.com/2025/10/28/economy/bessent-soybean-china](https://www.cnn.com/2025/10/28/economy/bessent-soybean-china)
 
 [https://www.tiktok.com/@abcnews/video/7565576442587761933](https://www.tiktok.com/@abcnews/video/7565576442587761933)
+
+### 2026 June
+
+2026-06-11 Trump further advocated on Fox that he wanted the Chinese Communist Party to continue buying up American farmland. 
+
+[https://www.youtube.com/watch?v=hk9Bc2UETpo&list=WL&index=6](https://www.youtube.com/watch?v=hk9Bc2UETpo&list=WL&index=6)
+
+[https://www.yahoo.com/news/articles/fox-news-corners-trump-siding-091420889.html](https://www.yahoo.com/news/articles/fox-news-corners-trump-siding-091420889.html)
+
+[https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997](https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997)
+
+[https://time.com/article/2026/05/17/Chinese-farmland-trump-students/](https://time.com/article/2026/05/17/Chinese-farmland-trump-students/)
+

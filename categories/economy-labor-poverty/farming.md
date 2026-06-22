@@ -269,3 +269,13 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 [https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district](https://www.wpr.org/news/trump-visit-chippewa-falls-wisconsin-rural-agriculture-3rd-district)
 
 SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html](https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers-midterms.html)
+
+2026-06-11 Trump further advocated on Fox that he wanted the Chinese Communist Party to continue buying up American farmland. 
+
+[https://www.youtube.com/watch?v=hk9Bc2UETpo&list=WL&index=6](https://www.youtube.com/watch?v=hk9Bc2UETpo&list=WL&index=6)
+
+[https://www.yahoo.com/news/articles/fox-news-corners-trump-siding-091420889.html](https://www.yahoo.com/news/articles/fox-news-corners-trump-siding-091420889.html)
+
+[https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997](https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997)
+
+[https://time.com/article/2026/05/17/Chinese-farmland-trump-students/](https://time.com/article/2026/05/17/Chinese-farmland-trump-students/)

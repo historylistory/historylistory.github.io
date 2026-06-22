@@ -100,3 +100,17 @@ TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=32
 [https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
 
 [https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)
+
+### 2026 June
+
+2026-06-10 Trump is trying to take control over the US Postal Service. 
+
+[https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2](https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2)
+
+[https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/](https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/)
+
+[https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick](https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick)
+
+[https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
+
+[https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)

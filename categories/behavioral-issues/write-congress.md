@@ -624,6 +624,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 
+2026-06-11 Trump claimed Italian Prime Minister Giorgia Meloni begged for a photo op with him. The Prime Minister refuted the claim, so Trump chastised her for not supporting the war in Iran. 
+
 2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
 
 2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
@@ -638,3 +640,4 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
+2026-06-21 Trump blamed the Reflecting Pool algae bloom on vandals and ordered officials to make arrests. 

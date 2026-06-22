@@ -543,3 +543,6 @@ Manhattan grand jury in the hush-money case.
 2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
 
 2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
+
+
+2026-06-21 Trump allegedly threatened Iranian officials, “You close it and you won’t have a country…you won’t even make it back to your fucking country…”

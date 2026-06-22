@@ -709,6 +709,19 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 
 PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press](https://www.latimes.com/california/story/2026-06-07/president-trump-storms-off-meet-the-press)
 
+2026-06-11 Trump claimed Italian Prime Minister Giorgia Meloni begged for a photo op with him. The Prime Minister refuted the claim, so Trump chastised her for not supporting the war in Iran. 
+
+[https://www.youtube.com/watch?v=_xycCxbvCIg&list=WL&index=5](https://www.youtube.com/watch?v=_xycCxbvCIg&list=WL&index=5)
+
+[https://www.nbcnews.com/world/italy/trump-italy-meloni-begged-photo-fabricated-g7-summit-france-rcna350836](https://www.nbcnews.com/world/italy/trump-italy-meloni-begged-photo-fabricated-g7-summit-france-rcna350836)
+
+[https://time.com/article/2026/06/22/trump-italy-giorgia-meloni-feud-photo/](https://time.com/article/2026/06/22/trump-italy-giorgia-meloni-feud-photo/)
+
+[https://www.pbs.org/newshour/world/trump-decries-italys-meloni-for-siding-with-the-pope-and-not-supporting-iran-war](https://www.pbs.org/newshour/world/trump-decries-italys-meloni-for-siding-with-the-pope-and-not-supporting-iran-war)
+
+[https://www.foxnews.com/politics/trump-says-meloni-wants-friends-again-after-italy-refused-help-us-amid-iran-war](https://www.foxnews.com/politics/trump-says-meloni-wants-friends-again-after-italy-refused-help-us-amid-iran-war)
+
+
 2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
 
 [https://www.cnn.com/2026/06/18/us/live-news/knicks-championship-parade-new-york-city](https://www.cnn.com/2026/06/18/us/live-news/knicks-championship-parade-new-york-city)

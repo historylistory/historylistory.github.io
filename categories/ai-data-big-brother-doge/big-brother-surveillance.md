@@ -361,3 +361,10 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 2026-05-13 Google unveiled facial recognition technology with their smart glasses. 
 
 [https://www.bbc.com/news/articles/cj37z8357e5o](https://www.bbc.com/news/articles/cj37z8357e5o)
+
+### 2026 June
+
+2026-06-18 DHS gave 1300 police departments facial recognition technology.
+
+[https://www.npr.org/2026/06/19/nx-s1-5863058/homeland-security-local-police-facial-recognition-identify-immigrants](https://www.npr.org/2026/06/19/nx-s1-5863058/homeland-security-local-police-facial-recognition-identify-immigrants)
+

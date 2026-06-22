@@ -286,6 +286,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-18 NVIDIA revealed AI robots that taught themselves to install GPUs.
 
+2026-06-18 DHS gave 1300 police departments facial recognition technology.
 
 
 

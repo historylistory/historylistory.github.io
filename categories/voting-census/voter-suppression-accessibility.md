@@ -22,7 +22,7 @@ permalink: /categories/voting-census/voter-suppression-accessibility/
 
 [https://www.democracydocket.com/news-alerts/trump-says-he-plans-to-issue-unconstitutional-order-requiring-voter-id-and-banning-mail-ballots/](https://www.democracydocket.com/news-alerts/trump-says-he-plans-to-issue-unconstitutional-order-requiring-voter-id-and-banning-mail-ballots/)
 
-### 2026
+### 2026 March
 
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
@@ -43,3 +43,17 @@ permalink: /categories/voting-census/voter-suppression-accessibility/
 [https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer](https://www.theguardian.com/us-news/2026/mar/31/trump-order-election-voting-explainer)
 
 [https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html](https://www.nytimes.com/2026/03/31/us/politics/trump-mail-in-ballots-voting-executive-order.html)
+
+### 2026 June
+
+2026-06-10 Trump is trying to take control over the US Postal Service. 
+
+[https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2](https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2)
+
+[https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/](https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/)
+
+[https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick](https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick)
+
+[https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
+
+[https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)

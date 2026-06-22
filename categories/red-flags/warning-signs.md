@@ -291,6 +291,17 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s](https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s)
 
 
+2026-06-10 Trump is trying to take control over the US Postal Service. 
+
+[https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2](https://www.youtube.com/watch?v=rACBdkk-6Zs&list=WL&index=2)
+
+[https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/](https://www.epi.org/publication/president-trump-attacks-the-postal-service-your-questions-answered/)
+
+[https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick](https://www.npr.org/2025/03/10/nx-s1-5311969/usps-privatization-trump-commerce-lutnick)
+
+[https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
+
+[https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)
 
 
 

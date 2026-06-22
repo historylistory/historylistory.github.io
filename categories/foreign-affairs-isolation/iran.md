@@ -1832,3 +1832,10 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
 [https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3](https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3)
+
+
+2026-06-21 Trump allegedly threatened Iranian officials, “You close it and you won’t have a country…you won’t even make it back to your fucking country…”
+
+[https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/](https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/)
+
+[https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon](https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon)

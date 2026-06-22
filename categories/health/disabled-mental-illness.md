@@ -119,3 +119,14 @@ permalink: /categories/health/disabled-mental-illness/
 [https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics](https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics)
 
 [https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
+
+### 2026 June
+
+2026-06-19 The DOJ released a memo undermining the Olmstead mandate designed to provide community-based services to people with disabilities, particularly if they are homeless disabled.
+
+[https://www.justice.gov/olc/media/1446701/dl](https://www.justice.gov/olc/media/1446701/dl)
+
+[https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization](https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization)
+
+[https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities](https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities)
+
