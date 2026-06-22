@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Medicare/Medicaid
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: medicaremedicaid
-permalink: /categories/disabled-elderly-veteran/medicaremedicaid/
+permalink: /categories/health/medicaremedicaid/
 ---
 
 ### 2023

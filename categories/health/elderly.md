@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Elderly
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: elderly
-permalink: /categories/disabled-elderly-veteran/elderly/
+permalink: /categories/health/elderly/
 ---
 
 ### 2025 January

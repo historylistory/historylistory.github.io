@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Disabled + Mental Illness
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: disabled-mental-illness
-permalink: /categories/disabled-elderly-veteran/disabled-mental-illness/
+permalink: /categories/health/disabled-mental-illness/
 ---
 
 ### 2024

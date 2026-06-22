@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Medical Equipment
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: medical-equipment
-permalink: /categories/disabled-elderly-veteran/medical-equipment/
+permalink: /categories/health/medical-equipment/
 ---
 
 ### 2026 February

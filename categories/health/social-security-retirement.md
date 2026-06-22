@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Social Security + Retirement
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: social-security-retirement
-permalink: /categories/disabled-elderly-veteran/social-security-retirement/
+permalink: /categories/health/social-security-retirement/
 ---
 
 ### 2024

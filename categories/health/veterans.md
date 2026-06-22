@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Veterans
-category_slug: disabled-elderly-veteran
+category_slug: health
 subcategory_slug: veterans
-permalink: /categories/disabled-elderly-veteran/veterans/
+permalink: /categories/health/veterans/
 ---
 
 ### 1964
