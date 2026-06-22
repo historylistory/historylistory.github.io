@@ -99,23 +99,19 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 August
 
-2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling. 
-
-[https://reproductiverights.org/5-things-trump-va-abortion-ban/](https://reproductiverights.org/5-things-trump-va-abortion-ban/)
-
 2025-08-10 Trump posted on social media, "The Homeless have to move out, IMMEDIATELY…FAR from the Capital….It's all going to happen very fast, just like the Border….This will be easier - Be prepared! There will be no "MR. NICE GUY." We want our Capital BACK..."
 
 [https://truthsocial.com/@realDonaldTrump/posts/115005075016157889](https://truthsocial.com/@realDonaldTrump/posts/115005075016157889)
 
-2025-08-11 In contrast to his social media post, Trump told the press he wanted to house the homeless DC population. No follow up was made as to the whereabouts or welfare of those individuals removed off the streets of DC.
+2025-08-11 Trump told the press he wanted to shelter the homeless DC population, but then there was no follow up as to what happened to those people. This was after he posted on social media that the homeless needed to move out “far from the capitol”. 
 
 [https://www.bbc.com/news/articles/c1kzz4m3ll1o](https://www.bbc.com/news/articles/c1kzz4m3ll1o)
 
-2025-08-12 The National Alliance to End Homelessness issued a statement, "Homelessness is not a criminal issue. It is an economic issue”. In their statement they outlined that rhetoric only furthers inaccurate stereotypes. They explained that the use of military force makes it **significantly harder for outreach** **and service workers to provide critical assistance**.
+2025-08-12 The National Alliance to End Homelessness issued a statement, “Homelessness is not a criminal issue. It is an economic issue” and cited that Trump’s use of military force is making outreach significantly harder.
 
 [https://endhomelessness.org/media/news-releases/statement-on-white-house-announcement-on-crime-and-homelessness-in-the-nations-capital/](https://endhomelessness.org/media/news-releases/statement-on-white-house-announcement-on-crime-and-homelessness-in-the-nations-capital/)
 
-2025-08-14 More reports showed wholesale inflation surges and tariff costs being passed down to consumers.
+2025-08-14 Wholesale inflation surges and tariff costs are being passed down to consumers.
 
 [https://www.cnn.com/2025/08/14/economy/us-ppi-wholesale-inflation-july](https://www.cnn.com/2025/08/14/economy/us-ppi-wholesale-inflation-july)
 

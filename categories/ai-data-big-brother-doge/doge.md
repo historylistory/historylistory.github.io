@@ -42,7 +42,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 August
 
-2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions. Trump claimed DOGE cuts would be “surgical”.
+2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions.
 
 [https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 

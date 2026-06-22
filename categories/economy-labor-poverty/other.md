@@ -42,7 +42,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 ### 2025 July
 
-2025-07-18 Trump signed "The Genius Act" into law in an effort to regulate the stablecoin industry.
+2025-07-18 Trump signed “The Genius Act” to regulate the stablecoin industry.
 
 [https://www.whitehouse.gov/fact-sheets/2025/07/fact-sheet-president-donald-j-trump-signs-genius-act-into-law/](https://www.whitehouse.gov/fact-sheets/2025/07/fact-sheet-president-donald-j-trump-signs-genius-act-into-law/)
 

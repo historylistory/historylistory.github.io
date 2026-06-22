@@ -8,7 +8,7 @@ permalink: /categories/agriculture/farm-food-cost/
 
 ### TRUMP REVOKED ANTI MONOPOLY LEGISLATION!!!
 
-2025-07-09 Trump revoked Biden’s Executive Order 14036 on Promoting Competition in the American Economy . For context, only 4 major meatpackers control over 80% of the US meat industry. With fewer meat packers bidding for cattle in the U.S., ranchers have less leverage. The Biden administration tried to correct this in 2024 to reduce monopolies by including initiatives to empower the USDA to stop abusive practices. Trump squashed the order preventing food system consolidation, which gives farmers less leverage while increasing our food prices.
+2025-07-09 Trump revoked Biden’s Executive Order 14036 on Promoting Competition in the American Economy, a legislation meant to prevent monopolies and higher food prices.
 
 [https://www.whitehouse.gov/presidential-actions/2025/08/revocation-of-executive-order-on-competition](https://www.whitehouse.gov/presidential-actions/2025/08/revocation-of-executive-order-on-competition)
 

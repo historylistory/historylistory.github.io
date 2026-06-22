@@ -159,7 +159,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.cnbc.com/2025/08/01/us-job-market-jobs-report-july-2025.html](https://www.cnbc.com/2025/08/01/us-job-market-jobs-report-july-2025.html)
 
-2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions. Trump claimed DOGE cuts would be “surgical”.
+2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions.
 
 [https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 
@@ -171,7 +171,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 September
 
-2025-09-09 Job market reports showed that the U.S. added one million **fewer** jobs than previously reported.
+2025-09-09 U.S. added one million fewer jobs to the market than reported.
 
 [https://www.cnbc.com/2025/09/09/us-economy-is-worse-than-thought-with-1point2-million-fewer-jobs-what-that-means-for-the-fed.html](https://www.cnbc.com/2025/09/09/us-economy-is-worse-than-thought-with-1point2-million-fewer-jobs-what-that-means-for-the-fed.html)
 

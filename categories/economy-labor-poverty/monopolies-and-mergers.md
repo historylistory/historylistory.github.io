@@ -15,7 +15,7 @@ permalink: /categories/economy-labor-poverty/monopolies-and-mergers/
 
 ### TRUMP REVOKED ANTI MONOPOLY LEGISLATION!!!
 
-2025-07-09 Trump revoked Biden’s Executive Order 14036 on Promoting Competition in the American Economy . For context, only 4 major meatpackers control over 80% of the US meat industry. With fewer meat packers bidding for cattle in the U.S., ranchers have less leverage. The Biden administration tried to correct this in 2024 to reduce monopolies by including initiatives to empower the USDA to stop abusive practices. Trump squashed the order preventing food system consolidation, which gives farmers less leverage while increasing our food prices.
+2025-07-09 Trump revoked Biden’s Executive Order 14036 on Promoting Competition in the American Economy, a legislation meant to prevent monopolies and higher food prices.
 
 [https://www.whitehouse.gov/presidential-actions/2025/08/revocation-of-executive-order-on-competition](https://www.whitehouse.gov/presidential-actions/2025/08/revocation-of-executive-order-on-competition)
 
@@ -194,14 +194,14 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### Nextar Media
 
-2025-08-19 Nexstar Media, managed by conservative donor Perry Sook and former Fox News Executive/Trump administration official Bill Shine announced plans to acquire TEGNA for $6.2B.
+2025-08-19 Nexstar Media – managed by conservative donor Perry Sook and Fox exec Bill Shine – announced acquisition of TEGNA for $6.2B.
 
 [https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction](https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction)
 
 
 ### Paramount
 
-2025-07-07 (context) Paramount and Skydance announced plans for a merger.
+2025-07-07 Paramount and Skydance announced a merger.
 
 [https://ir.paramount.com/news-releases/news-release-details/skydance-media-and-paramount-global-sign-definitive-agreement](https://ir.paramount.com/news-releases/news-release-details/skydance-media-and-paramount-global-sign-definitive-agreement)
 
@@ -216,7 +216,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 [https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president](https://www.warren.senate.gov/newsroom/press-releases/warren-on-trump-administration-approving-paramount-megamerger-bribery-is-illegal-no-matter-who-is-president)
 
 
-2025-09-05 Paramount announced its intent to buy Free Press for $100M and make its founder Bari Weiss editor in chief of CBS. For context, Free Press featured an article by Michael Ames in May 2025 calling famine in Gaza a myth. For further context, Weiss wrote some of her own articles in the past including her opinions about feminism and fascism. Many people note in their own opinion articles and monologues that Weiss tries to pretend she is a middleman, but she is very much right-leaning and allegedly a propagandist.
+2025-09-05 Paramount announced its intent to buy Free Press for $100M and make its founder Bari Weiss editor in chief of CBS. 
 
 [https://www.timesofisrael.com/paramount-said-prepping-to-buy-free-press-for-100m-give-bari-weiss-senior-role-at-cbs](https://www.timesofisrael.com/paramount-said-prepping-to-buy-free-press-for-100m-give-bari-weiss-senior-role-at-cbs)
 

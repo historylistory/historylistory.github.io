@@ -61,7 +61,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 August 
 
-2025-08-01 Donald Trump Jr. became an investor and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital. 
+2025-08-01 Donald Trump Jr. is an investor for and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital.
 
 [https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html](https://www.cnbc.com/2026/04/15/kalshi-and-polymarket-congress-regulation-washington-influence.html)
 

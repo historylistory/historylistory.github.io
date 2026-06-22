@@ -76,7 +76,7 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 [https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions](https://www.plunkettcooney.com/tax-law-estate-plans-probate-business-succession/gambling-tax-deductions)
 
-2025-07-09 The Trump administration removed a “click to cancel” rule which was intended to make canceling subscriptions (example: Amazon) easier. Some critics claim this is to make cancelling an unwanted subscription tough on purpose.
+2025-07-09 The Trump administration removed a “click to cancel” rule intended to make canceling subscriptions easier.
 
 [https://www.nbcnews.com/business/consumer/click-cancel-rule-intended-make-canceling-subscriptions-easier-blocked-rcna217888](https://www.nbcnews.com/business/consumer/click-cancel-rule-intended-make-canceling-subscriptions-easier-blocked-rcna217888)
 

@@ -156,13 +156,15 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 July
 
-2025-07-30 Trump repeatedly pressured Jerome Powell to lower interest rates. The Federal Reserve pushed back, maintaining that rate cuts are **dependent upon economic data** and **not political pressure**.
+2025-07-30 Trump pressured Jerome Powell to lower interest rates. The Federal Reserve pushed back, maintaining that rate cuts are dependent upon economic data and not political pressure.
 
 [https://www.npr.org/2025/07/30/nx-s1-5482794/trump-powell-federal-reserve-fed-interest-rates-independence](https://www.npr.org/2025/07/30/nx-s1-5482794/trump-powell-federal-reserve-fed-interest-rates-independence)
 
 ### 2025 August
 
 2025-08-05 Trump made several claims about trillions in US income, paying off the debt in large quantities, and issuing dividends to the people.
+
+[https://www.youtube.com/watch?v=Fb7yKvOQE_c](https://www.youtube.com/watch?v=Fb7yKvOQE_c)
 
 {% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 

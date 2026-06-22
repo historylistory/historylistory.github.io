@@ -117,11 +117,11 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
-2025-08-03 Companies increasingly used AI for job interviews.
+2025-08-03 Companies used AI to conduct job interviews. 
 
 2025-08-05 Connecticut resident Erik Soelberg became paranoid after interacting with ChatGPT and killed himself and his mother.
 
-2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions. Trump claimed DOGE cuts would be “surgical”.
+2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions.
 
 2025-08-06 Apple announced a $600B U.S. investment over 4 years. 
 
@@ -129,7 +129,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-08-11 Trump reversed course on Intel’s CEO after a meeting, praising his “success and rise”, writing on Truth Social “The meeting was a very interesting one. His success and rise is an amazing story. Mr. Tan and my Cabinet members are going to spend time together and bring suggestions to me during the next week”.
 
-2025-08-22 The federal government announced a 10% stake purchase in Intel, purchasing 433.3M primary shares.
+2025-08-22 The federal government announced a 10% stake in Intel, purchasing 433.3M primary shares.
 
 2025-09-01 Multiple lawsuits alleged AI chatbots encouraged suicide.
 

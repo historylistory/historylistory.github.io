@@ -26,7 +26,7 @@ permalink: /categories/economy-labor-poverty/ai-job-influence-and-ghosting/
 
 ### 2025 August
 
-2025-08-03 Companies increasingly used AI for job interviews.
+2025-08-03 Companies used AI to conduct job interviews. 
 
 [https://fortune.com/2025/08/03/ai-interviewers-job-seekers-unemployment-hiring-hr-teams/](https://fortune.com/2025/08/03/ai-interviewers-job-seekers-unemployment-hiring-hr-teams/)
 

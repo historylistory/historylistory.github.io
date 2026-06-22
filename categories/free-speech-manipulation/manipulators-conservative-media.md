@@ -147,7 +147,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 July
 
-2025-07-07 (context) Paramount and Skydance announced plans for a merger.
+2025-07-07 Paramount and Skydance announced a merger.
 
 [https://ir.paramount.com/news-releases/news-release-details/skydance-media-and-paramount-global-sign-definitive-agreement](https://ir.paramount.com/news-releases/news-release-details/skydance-media-and-paramount-global-sign-definitive-agreement)
 
@@ -193,13 +193,13 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/](https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/)
 
-2025-08-19 Nexstar Media, managed by conservative donor Perry Sook and former Fox News Executive/Trump administration official Bill Shine announced plans to acquire TEGNA for $6.2B.
+2025-08-19 Nexstar Media – managed by conservative donor Perry Sook and Fox exec Bill Shine – announced acquisition of TEGNA for $6.2B.
 
 [https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction/](https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction/)
 
 ### 2025 September
 
-2025-09-05 Paramount announced its intent to buy Free Press for $100M and make its founder Bari Weiss editor in chief of CBS. For context, Free Press featured an article by Michael Ames in May 2025 calling famine in Gaza a myth. For further context, Weiss wrote some of her own articles in the past including her opinions about feminism and fascism. Many people note in their own opinion articles and monologues that Weiss tries to pretend she is a middleman, but she is very much right-leaning and allegedly a propagandist.
+2025-09-05 Paramount announced its intent to buy Free Press for $100M and make its founder Bari Weiss editor in chief of CBS. 
 
 [https://www.timesofisrael.com/paramount-said-prepping-to-buy-free-press-for-100m-give-bari-weiss-senior-role-at-cbs/](https://www.timesofisrael.com/paramount-said-prepping-to-buy-free-press-for-100m-give-bari-weiss-senior-role-at-cbs/)
 

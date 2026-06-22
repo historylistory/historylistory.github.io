@@ -73,11 +73,11 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2025 August
 
-2025-08-01 Trump’s trade war caused the manufacturing sector to lose 42,000 jobs between April 2025 through August 2025 alone.
+2025-08-01 Trump’s trade war caused the manufacturing sector to lose 42,000 jobs between April 2025 through August 2025.
 
 [https://www.americanprogress.org/article/trumps-trade-war-squeezes-middle-class-manufacturing-employment/](https://www.americanprogress.org/article/trumps-trade-war-squeezes-middle-class-manufacturing-employment/)
 
-2025-08-25 The Congressional Budget Office released a projected tariff revenue of **$3.3T (trillion)** but did not explain how that would weigh against the proposed **$3.4T (trillion)** budget increase proposed by the Trump administration, how to improve the job market, or what percentage of the tariffs consumers would be paying for themselves.
+2025-08-25 The Congressional Budget Office released a projected tariff revenue of $3.3T (trillion) but did not explain how that would weigh against the proposed $3.4T (trillion) budget increase proposed by the Trump administration.
 
 [https://apnews.com/article/cbo-trump-tax-bill-republicans-senate-5f591bea21bd95eec45ba90c93c50687](https://apnews.com/article/cbo-trump-tax-bill-republicans-senate-5f591bea21bd95eec45ba90c93c50687)
 
