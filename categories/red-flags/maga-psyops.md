@@ -6,7 +6,7 @@ subcategory_slug: maga-psyops
 permalink: /categories/red-flags/maga-psyops/
 ---
 
-### 2018 "Flood The Zone With Shit"
+## 2018 "Flood The Zone With Shit"
 
 2018-01-30 Steve Bannon said the strategy against media was to “flood the zone with shit.” In a statement to Michael Lewis, he said, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
@@ -35,10 +35,10 @@ permalink: /categories/red-flags/maga-psyops/
 3. The goal is not to have a constructive debate, but to muddy the waters. 
 
 ### Ad Hominems
-1. AD HOMINEM: the debate tactic of invalidating someone's argument because they cannot draw something from memory is a form of an ad hominem fallacy. The essence of this tactic is to attack the person, rather than the substance of their argument. ***Attack on character/ability:*** The tactic shifts the focus away from the topic and onto a personal trait—the opponent's inability to draw from memory. This artistic or memory-retrieval skill has no bearing on the validity of their actual argument. ***False relevance:*** It creates a false sense of relevance by implying that a person's lack of a specific, irrelevant skill (drawing) proves their argument is weak. ***For example,*** a person does not need to be able to draw a perfect map of a country to be correct about its political history. ***Undermining credibility:*** The goal is to undermine the opponent's overall credibility and distract the audience from the actual points being debated. By mocking their artistic skills, the attacker frames them as generally incompetent, hoping that the audience will transfer that judgment to their position in the debate.
+1. the debate tactic of invalidating someone's argument because they cannot draw something from memory is a form of an ad hominem fallacy. The essence of this tactic is to attack the person, rather than the substance of their argument. ***Attack on character/ability:*** The tactic shifts the focus away from the topic and onto a personal trait—the opponent's inability to draw from memory. This artistic or memory-retrieval skill has no bearing on the validity of their actual argument. ***False relevance:*** It creates a false sense of relevance by implying that a person's lack of a specific, irrelevant skill (drawing) proves their argument is weak. ***For example,*** a person does not need to be able to draw a perfect map of a country to be correct about its political history. ***Undermining credibility:*** The goal is to undermine the opponent's overall credibility and distract the audience from the actual points being debated. By mocking their artistic skills, the attacker frames them as generally incompetent, hoping that the audience will transfer that judgment to their position in the debate.
 
 ### Gish Galloping 
-1. Gish Galloping: a deceptive and unethical maneuver that relies on presenting so many arguments in such a short time that the opponent cannot possibly respond to them all; speaking quickly to overwhelm an opponent and avoid counterargument.
+1. a deceptive and unethical maneuver that relies on presenting so many arguments in such a short time that the opponent cannot possibly respond to them all; speaking quickly to overwhelm an opponent and avoid counterargument.
 
 ### Red Herring 
 
@@ -46,6 +46,16 @@ permalink: /categories/red-flags/maga-psyops/
 2. It involves introducing an irrelevant or misleading argument to shift attention away from the main issue, effectively creating a distraction or smokescreen to confuse or mislead the audience. 
 3. The new information is usually attention-grabbing or emotionally charged. 
 4. In a debate, they will pivot to a controversial issue to rally their base and change the subject.
+
+### Straw Man
+
+1. occurs when someone distorts, exaggerates, or oversimplifies an opponent’s argument. 
+2. They then attack this fake, weaker version of the argument (the "straw man") instead of the actual point. 
+3. This tactic creates the illusion that the original argument has been successfully defeated.
+
+
+
+## Tactics
 
 ### Controlled Opposition
 
