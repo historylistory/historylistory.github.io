@@ -161,6 +161,8 @@ Plan. On the first day of the war in Iran, the US launched a Tomahawk missile in
 
 2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
+2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
+
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
 
 2025-05-02 Trump posted an AI-generated image of himself as the Pope.

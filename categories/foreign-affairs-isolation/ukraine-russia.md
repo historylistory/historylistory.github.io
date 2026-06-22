@@ -52,7 +52,7 @@ permalink: /categories/foreign-affairs-isolation/ukraine-russia/
 
 ### 2025 March
 
-2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire in the Russia-Ukraine war in effort to secure American access to Ukraine’s natural resources. 
+2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire to secure American access to Ukraine’s natural resources.
 
 [https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal](https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal)
 

@@ -145,6 +145,14 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/biggest-avoidable-mistake-trumps-release-jfk-assassination-files-rcna197557](https://www.msnbc.com/rachel-maddow-show/maddowblog/biggest-avoidable-mistake-trumps-release-jfk-assassination-files-rcna197557)
 
+### 2025 April
+
+
+2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
+
+[https://www.theguardian.com/us-news/2025/apr/03/donald-trump-tariffs-antarctica-uninhabited-heard-mcdonald-islands](https://www.theguardian.com/us-news/2025/apr/03/donald-trump-tariffs-antarctica-uninhabited-heard-mcdonald-islands)
+
+
 ### 2025 May
 
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.

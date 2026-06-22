@@ -32,7 +32,7 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 ### 2025 March
 
-2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire in the Russia-Ukraine war in effort to secure American access to Ukraine’s natural resources. 
+2025-03-06 Trump proposed linking a Ukraine minerals deal with a ceasefire to secure American access to Ukraine’s natural resources.
 
 [https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal](https://www.npr.org/2025/04/30/nx-s1-5382384/ukraine-us-minerals-deal)
 
@@ -42,7 +42,7 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 [https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl](https://www.cnn.com/2025/05/01/world/what-we-know-about-trumps-ukraine-mineral-deal-intl)
 
-2025-03-11 During a press conference, an AP journalist asked, “Have you ever paid a tariff? Because I have. They don’t get charged on foreign companies. They get charged on the importers” to which Karoline Leavitt responded, “and ultimately, when we have fair and balanced trade, which the American people have not seen in decades, as I said at the beginning, revenues will stay here, wages will go up, and our country will be made wealthy again. And I think it’s insulting that you are trying to test my knowledge of economics and the decisions that this president has made. I now regret giving a question to the Associated Press”. 
+2025-03-11 A journalist asked, “Have you ever paid a tariff? Because I have. They don’t get charged on foreign companies. They get charged on the importers”. Karoline Leavitt responded, “and ultimately, when we have fair and balanced trade, which the American people have not seen in decades, as I said at the beginning, revenues will stay here, wages will go up, and our country will be made wealthy again. And I think it’s insulting that you are trying to test my knowledge of economics and the decisions that this president has made. I now regret giving a question to the Associated Press”.
 
 TIMESTAMP 29:28 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 
@@ -55,7 +55,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2025 April
 
-2025-04-02 The White House posts reciprocal tariff charts on X which included uninhabited islands. The Commerce Secretary stated placing tariffs on uninhabited islands was intentional to tackle any "loopholes".
+2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
 
 [https://www.theguardian.com/us-news/2025/apr/03/donald-trump-tariffs-antarctica-uninhabited-heard-mcdonald-islands](https://www.theguardian.com/us-news/2025/apr/03/donald-trump-tariffs-antarctica-uninhabited-heard-mcdonald-islands)
 

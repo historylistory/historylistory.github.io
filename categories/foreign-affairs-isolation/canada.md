@@ -8,7 +8,7 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 ### 2025 March
 
-2025-03-10 Canadian visitors boycotted tourism in the U.S., which by 2026 news outlets reported a possible long-term loss in the U.S. economy.
+2025-03-10 Canadian visitors boycotted tourism in the U.S., possibly causing a long-term loss in the U.S. economy.
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/](https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/)
 

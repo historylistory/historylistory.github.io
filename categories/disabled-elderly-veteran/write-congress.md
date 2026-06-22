@@ -57,9 +57,9 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-02-28 Elon Musk claimed social security was a “Ponzi scheme”. 
 
-2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call centers staffed by people trained to help seniors sort out complex problems.
+2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call center staff.
 
-2025-03-04 Trump falsely claimed that well over 16 million people aged 100 to 360 were illegally receiving Social Security, including millions supposedly over 100 and even individuals allegedly aged 240–249 and 360.
+2025-03-04 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security.
 
 2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels. 
 

@@ -56,7 +56,7 @@ permalink: /categories/economy-labor-poverty/farming/
 
 [https://www.theguardian.com/us-news/2025/jan/14/biden-trump-climate-change-funds#:~:text=1%20year%20old-,Biden%20Trump%2Dproofs%20$74bn%20in%20climate%20funding%20but%20$20,becomes%20president%20on%2020%20January](https://www.theguardian.com/us-news/2025/jan/14/biden-trump-climate-change-funds).
 
-2025-04-01 Trump repealed the Salmonella Framework for Raw Poultry Products developed by the Biden administration to place more stringent safety standards in our poultry. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. The links below include a statement from the National Chicken Council explaining their rationale for eliminating the more stringent standards.
+2025-04-01 Trump repealed Biden’s Salmonella Framework for Raw Poultry Products. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. 
 
 [https://civileats.com/2025/11/03/poultry-plants-consistently-violate-salmonella-standards-report-finds/](https://civileats.com/2025/11/03/poultry-plants-consistently-violate-salmonella-standards-report-finds/)
 
@@ -64,7 +64,7 @@ permalink: /categories/economy-labor-poverty/farming/
 
 [https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/](https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/)
 
-[https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
+STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
 
 ### 2025 June
 

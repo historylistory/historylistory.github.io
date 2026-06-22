@@ -36,13 +36,13 @@ permalink: /categories/disabled-elderly-veteran/social-security-retirement/
 
 ### 2025 March
 
-2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call centers staffed by people trained to help seniors sort out complex problems.
+2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call center staff.
 
 [https://larson.house.gov/media-center/in-the-news/here-comes-trumps-privatization-social-security-administration](https://larson.house.gov/media-center/in-the-news/here-comes-trumps-privatization-social-security-administration)
 
  
 
-2025-03-04 Trump falsely claimed that well over 16 million people aged 100 to 360 were illegally receiving Social Security, including millions supposedly over 100 and even individuals allegedly aged 240–249 and 360.
+2025-03-04 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security.
 
 [https://www.cbpp.org/blog/setting-the-record-straight-on-social-security](https://www.cbpp.org/blog/setting-the-record-straight-on-social-security)
 

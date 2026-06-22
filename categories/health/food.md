@@ -38,7 +38,7 @@ permalink: /categories/health/food/
 
 [https://www.pbs.org/newshour/health/bird-flu-virus-has-been-found-in-raw-milk-heres-a-reminder-of-how-pasteurization-improves-safety](https://www.pbs.org/newshour/health/bird-flu-virus-has-been-found-in-raw-milk-heres-a-reminder-of-how-pasteurization-improves-safety)
 
-2025-04-01 Trump repealed the Salmonella Framework for Raw Poultry Products developed by the Biden administration to place more stringent safety standards in our poultry. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. The links below include a statement from the National Chicken Council explaining their rationale for eliminating the more stringent standards.
+2025-04-01 Trump repealed Biden’s Salmonella Framework for Raw Poultry Products. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. 
 
 [https://civileats.com/2025/11/03/poultry-plants-consistently-violate-salmonella-standards-report-finds/](https://civileats.com/2025/11/03/poultry-plants-consistently-violate-salmonella-standards-report-finds/)
 
@@ -46,7 +46,7 @@ permalink: /categories/health/food/
 
 [https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/](https://www.reuters.com/business/healthcare-pharmaceuticals/us-farm-agency-withdraws-proposal-aimed-lowering-salmonella-risks-poultry-2025-04-24/)
 
-[https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
+STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/](https://www.nationalchickencouncil.org/ncc-statement-on-withdrawal-of-salmonella-framework/)
 
 2025-04-08 RFK announced he would tell the CDC to stop recommending fluoride in water.
 

@@ -134,7 +134,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.cato.org/regulation/summer-2020/trump-economy-three-years-volatile-continuity#economic-growth](https://www.cato.org/regulation/summer-2020/trump-economy-three-years-volatile-continuity)
 
-2025-03-12 During an Oval office press conference, Trump stated his administration "did a lot of things" that got the egg prices down substantially, cited that oil was down to $65 a barrel, and that inflation was "way down". He also claimed that his administration had virtually no inflation for 4 years during his last term.
+2025-03-12 Trump claimed his administration had “virtually no inflation” during his last term, took credit for lowered egg prices, and cited oil was $65 a barrel. 
 
 {% include youtubePlayer.html id="J7aJ-zM78AQ" %}
 

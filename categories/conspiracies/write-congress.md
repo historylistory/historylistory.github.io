@@ -157,7 +157,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-02-20 After a viral post claimed Fort Knox gold was missing, Trump announced in a press conference they “might be going to Fort Knox” to verify.
 
-2025-03-04 Trump falsely claimed that well over 16 million people aged 100 to 360 were illegally receiving Social Security, including millions supposedly over 100 and even individuals allegedly aged 240–249 and 360.
+2025-03-04 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security.
 
 2025-03-05 Missouri Attorney General Andrew Bailey called for an investigation into Biden’s use of an autopen, arguing it could invalidate executive actions.
 
