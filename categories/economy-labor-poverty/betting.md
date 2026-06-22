@@ -51,7 +51,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 July 
 
-2025-07-04 Trump signed a bill which changed the rules for gambling loss deductions starting in 2026 from 100% down to 90%, potentially causing what some critics worry will be a "**tax on phantom income**" as well as **unregulated offshore betting**. 
+2025-07-04 Trump signed a bill to change gambling loss deductions, potentially causing a “tax on phantom income” and unregulated offshore betting. 
 
 [https://carry.com/news/gamblers-face-tax-bills-on-losses-starting-2026#:~:text=Starting%20January%201%2C%202026%2C%20millions,stakes%20players%20who%20itemize%20deductions](https://carry.com/news/gamblers-face-tax-bills-on-losses-starting-2026#:~:text=Starting%20January%201%2C%202026%2C%20millions,stakes%20players%20who%20itemize%20deductions).
 

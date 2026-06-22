@@ -65,11 +65,11 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 May
 
-2025-05-06 During an interview with Meet the Press, Trump told the interviewer that girls don't need to have 30 dolls, they can have two or three. Most children don’t have any dolls and can’t afford to take one more for the team.
+2025-05-06 After Trump cut after school programs, weaponized SNAP, dismantled mental health programs, fired working moms and dads, diverted taxpayer dollars to vanity projects, enriched his family business with foreign entanglements, and held lavish dinners for his billionaire friends, he told Meet the Press girls don’t need to have thirty dolls; they can have two or three. 
 
 [https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829](https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829)
 
-2025-05-20 (**for context – because most low wage workers are near, at or below the poverty line**) The Trump administration announced plans to pass a lackluster "No Tax For Tips" bill. The bill ended up being temporary in nature, featured an income cap up to an unlivable $25,000 per year, and excluded  payroll and state taxes. Altogether the bill offered little or no benefit to low-wage workers.
+2025-05-20 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded  payroll and state taxes. 
 
 [https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/](https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/)
 
@@ -92,7 +92,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/](https://floridapolitics.com/archives/746043-gov-desantis-deletes-funding-for-veteran-transit-passes-in-palm-beach-county/)
 
-2025-07-04 The Big Beautiful Bill was signed into law. Part of the bill’s agenda is to sharply reduce the number of Americans receiving food stamps or other programs designed to help struggling families.
+2025-07-04 The Big Beautiful Bill was signed into law, which touts a sweeping agenda to sharply reduce assistance programs for struggling families.
 
 [https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable#:~:text=/-,SNAP%20Cuts%20in%20One%20Big%20Beautiful%20Bill%20Act%20Leave%20Almost,vulnerable%20to%20losing%20that%20assistance](https://www.urban.org/urban-wire/snap-cuts-one-big-beautiful-bill-act-leave-almost-3-million-young-adults-vulnerable).
 

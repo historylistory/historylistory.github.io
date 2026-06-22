@@ -133,7 +133,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 May
 
-2025-05-20 (**for** **context – because most low wage workers are near, at or below the poverty line**) The Trump administration announced plans to pass a lackluster "No Tax For Tips" bill. The bill ended up being temporary in nature, featured an income cap up to an unlivable $25,000 per year, and excluded  payroll and state taxes. Altogether the bill offered little or no benefit to low-wage workers.
+2025-05-20 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded  payroll and state taxes. 
 
 [https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/](https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/)
 
@@ -145,7 +145,7 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 June
 
-2025-06-24 The Trump administration scrambled to rehire federal workers after DOGE cuts reportedly cost taxpayers an estimated $135B.
+2025-06-24 The Trump administration scrambled to rehire federal workers fired by DOGE. Those DOGE cuts cost taxpayers an estimated $135B.
 
 [https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired](https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired)
 

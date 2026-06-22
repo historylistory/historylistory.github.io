@@ -20,7 +20,7 @@ permalink: /categories/ai-data-big-brother-doge/ai-job-influence/
 
 ### 2025 June
 
-2025-06-26 Job applicants increasingly used AI-generated “ghost resumes” and mass applications.
+2025-06-26 In response to ghost job postings applicants started using AI to generate blanket resumes. 
 
 [https://walterareid.medium.com/ghosts-in-the-resume-machine-how-fake-resumes-and-ats-logic-will-eventually-break-hiring-at-scale-83e745c31f9c](https://walterareid.medium.com/ghosts-in-the-resume-machine-how-fake-resumes-and-ats-logic-will-eventually-break-hiring-at-scale-83e745c31f9c)
 

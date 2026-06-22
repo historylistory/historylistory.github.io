@@ -121,7 +121,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-07-01 The administration proposed a 65% budget cut to the U.S. Forest Service 2026 budget.
 
-2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt while eliminating renewable energy subsidies by modifying or terminating clean energy incentives in the Inflation Reduction Act of 2022.
+2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt, eliminate renewable energy subsidies, and terminate clean energy incentives in the Inflation Reduction Act of 2022.
 
 2025-07-10 Trump ended federal subsidies for electric vehicles.
 

@@ -91,6 +91,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-04-23 Trump signed an executive order encouraging greater AI use in schools.
 
+2025-05-14 The Trump administration removed a CFPB rule designed to shield Americans from data brokers and limit the sale of personal information such as credit history, financial data and social security number. 
+
 2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and “white genocide” claims.
 
 2025-06-02 Leaked emails exposed DHS use of the face-scanning app Mobile Fortify to add protestors to ICE databases.
@@ -101,9 +103,9 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-06-10 An MIT essay study suggested students using ChatGPT experienced “cognitive debt.”
 
-2025-06-24 The Trump administration scrambled to rehire federal workers after DOGE cuts reportedly cost taxpayers an estimated $135B.
+2025-06-24 The Trump administration scrambled to rehire federal workers fired by DOGE. Those DOGE cuts cost taxpayers an estimated $135B.
 
-2025-06-26 Job applicants increasingly used AI-generated “ghost resumes” and mass applications.
+2025-06-26 In response to ghost job postings applicants started using AI to generate blanket resumes. 
 
 2025-07-01 The Senate moved to remove an AI regulation moratorium from Trump’s agenda bill.
 

@@ -26,6 +26,16 @@ permalink: /categories/ai-data-big-brother-doge/data-mining-manipulation/
 
 [https://www.branchspace.com/news/airline-dynamic-pricing-ladders](https://www.branchspace.com/news/airline-dynamic-pricing-ladders)
 
+### 2025 May
+
+2025-05-14 The Trump administration removed a CFPB rule designed to shield Americans from data brokers and limit the sale of personal information such as credit history, financial data and social security number. 
+
+[https://www.wired.com/story/cfpb-quietly-kills-rule-to-shield-americans-from-data-brokers/](https://www.wired.com/story/cfpb-quietly-kills-rule-to-shield-americans-from-data-brokers/)
+
+[https://www.congress.gov/119/meeting/house/118362/documents/HHRG-119-GO00-20250610-SD003.pdf](https://www.congress.gov/119/meeting/house/118362/documents/HHRG-119-GO00-20250610-SD003.pdf)
+
+[https://www.malwarebytes.com/blog/news/2025/05/data-broker-protection-rule-quietly-withdrawn-by-cfpb](https://www.malwarebytes.com/blog/news/2025/05/data-broker-protection-rule-quietly-withdrawn-by-cfpb)
+
 ### 2025 December
 
 2025-12-10 Reports alleged Instacart and other retailers experimented with AI pricing that charged different customers different prices.

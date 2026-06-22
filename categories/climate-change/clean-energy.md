@@ -37,7 +37,7 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 ### 2025 July
 
-2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt while eliminating renewable energy subsidies by modifying or terminating clean energy incentives in the Inflation Reduction Act of 2022.
+2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt, eliminate renewable energy subsidies, and terminate clean energy incentives in the Inflation Reduction Act of 2022.
 
 [https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape](https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape)
 

@@ -22,7 +22,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 June
 
-2025-06-24 The Trump administration scrambled to rehire federal workers after DOGE cuts reportedly cost taxpayers an estimated $135B.
+2025-06-24 The Trump administration scrambled to rehire federal workers fired by DOGE. Those DOGE cuts cost taxpayers an estimated $135B.
 
 [https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired](https://www.cnn.com/2025/06/24/politics/doge-fired-workers-rehired)
 

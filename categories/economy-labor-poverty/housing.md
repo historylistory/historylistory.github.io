@@ -30,9 +30,7 @@ permalink: /categories/economy-labor-poverty/housing/
 
 ### 2025 June
 
-2025-06-22 Due to the affordability crisis, more Americans opted to convert $14K sheds into living spaces. What initially started out as “tiny home living” became a necessity, and shed companies started marketing to that.
-
-{% include youtubePlayer.html id="6NBBMAT8lpU" %}
+2025-06-22 During the affordability crisis more Americans decided to try “tiny home living”. 
 
 [https://www.nytimes.com/2025/12/09/us/california-backyard-housing-rent-storage-unit.html](https://www.nytimes.com/2025/12/09/us/california-backyard-housing-rent-storage-unit.html)
 
@@ -41,6 +39,9 @@ permalink: /categories/economy-labor-poverty/housing/
 [https://qsbuildings.com/blog/life-in-a-shed-the-ultimate-guide-to-downsized-living](https://qsbuildings.com/blog/life-in-a-shed-the-ultimate-guide-to-downsized-living)
 
 [https://www.newsbreak.com/survival-world-358566355/4433857625652-realtor-reports-growing-number-of-americans-choosing-sheds-and-folding-tiny-homes-as-permanent-housing](https://www.newsbreak.com/survival-world-358566355/4433857625652-realtor-reports-growing-number-of-americans-choosing-sheds-and-folding-tiny-homes-as-permanent-housing)
+
+{% include youtubePlayer.html id="6NBBMAT8lpU" %}
+
 
 ### 2025 November
 

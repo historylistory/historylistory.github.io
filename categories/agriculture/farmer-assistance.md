@@ -18,7 +18,7 @@ permalink: /categories/agriculture/farmer-assistance/
 
 ### 2025 June
 
-2025-06-24 During the second trade war, farmers asked if the Trump administration will bail them out again amidst elevated agricultural costs.
+2025-06-24 During Trump’s second trade war farmers sought after another bailout. 
 
 [https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/](https://investigatemidwest.org/2025/06/24/why-trumps-second-trade-war-could-be-worse-for-us-farmers/%20)
 

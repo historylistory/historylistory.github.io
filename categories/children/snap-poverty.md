@@ -28,7 +28,7 @@ permalink: /categories/children/snap-poverty/
 
 ### 2025 May
 
-2025-05-06 Trump stated that girls did not need 30 dolls and could be satisfied with two or three. This was the same year he cut after-school care programs, weaponized SNAP benefits, removed mental health programs for children, fired working moms and dads from thousands of jobs so they couldn’t afford to feed their kids, dismantled every working safety net American families depend on, worked on building his stock portfolio and family business finances, diverted billions in taxpayer dollars to vanity projects, and treated his billionaire friends to lavish parties.  The only one who needs their toys taken away from them is Trump. 
+2025-05-06 After Trump cut after school programs, weaponized SNAP, dismantled mental health programs, fired working moms and dads, diverted taxpayer dollars to vanity projects, enriched his family business with foreign entanglements, and held lavish dinners for his billionaire friends, he told Meet the Press girls don’t need to have thirty dolls; they can have two or three. 
 
 [https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829](https://www.nbcnews.com/meet-the-press/video/trump-american-kids-don-t-need-to-have-30-dolls-239016517829)
 

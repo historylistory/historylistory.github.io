@@ -58,7 +58,7 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 [https://www.consumerfinancemonitor.com/2025/05/12/trump-signs-resolution-nullifying-cfpb-overdraft-rule/](https://www.consumerfinancemonitor.com/2025/05/12/trump-signs-resolution-nullifying-cfpb-overdraft-rule/)
 
-2025-05-14 the CFPB removed a rule designed to shield Americans from data brokers. The rule was supposed to limit the ability of US data brokers from selling sensitive information including financial data, credit history, and SSN.
+2025-05-14 The Trump administration removed a CFPB rule designed to shield Americans from data brokers and limit the sale of personal information such as credit history, financial data and social security number. 
 
 [https://www.wired.com/story/cfpb-quietly-kills-rule-to-shield-americans-from-data-brokers/](https://www.wired.com/story/cfpb-quietly-kills-rule-to-shield-americans-from-data-brokers/)
 
@@ -68,7 +68,7 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 ### 2025 July
 
-2025-07-04 Trump signed a bill which changed the rules for gambling loss deductions starting in 2026 from 100% down to 90%, potentially causing what some critics worry will be a "**tax on phantom income**" as well as **unregulated offshore betting**. 
+2025-07-04 Trump signed a bill to change gambling loss deductions, potentially causing a “tax on phantom income” and unregulated offshore betting. 
 
 [https://carry.com/news/gamblers-face-tax-bills-on-losses-starting-2026#:~:text=Starting%20January%201%2C%202026%2C%20millions,stakes%20players%20who%20itemize%20deductions](https://carry.com/news/gamblers-face-tax-bills-on-losses-starting-2026#:~:text=Starting%20January%201%2C%202026%2C%20millions,stakes%20players%20who%20itemize%20deductions).
 
