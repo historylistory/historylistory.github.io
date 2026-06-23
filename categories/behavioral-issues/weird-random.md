@@ -341,4 +341,10 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 
 [https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602](https://www.noise11.com/news/freedom-250-concert-collapse-jeff-epstein-trump-event-20260602)
 
- 
+2026-06-22 A report raised questions about whether Tulsi Gabbard used a spiritual guide to shape her political career.
+
+[https://www.youtube.com/watch?v=UaS0mpPzr7I&list=WL&index=3&t=99s](https://www.youtube.com/watch?v=UaS0mpPzr7I&list=WL&index=3&t=99s)
+
+[https://www.yahoo.com/news/politics/articles/tulsi-gabbard-entire-career-guided-181829834.html](https://www.yahoo.com/news/politics/articles/tulsi-gabbard-entire-career-guided-181829834.html)
+
+SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard-her-guru-mysterious-messages-that-helped-shape-her-political-career/](https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard-her-guru-mysterious-messages-that-helped-shape-her-political-career/)

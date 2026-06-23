@@ -766,3 +766,11 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war](https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war)
 
 [https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html](https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html)
+
+2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
+
+[https://www.youtube.com/watch?v=zFZ2Gjo0UuY&list=WL&index=1](https://www.youtube.com/watch?v=zFZ2Gjo0UuY&list=WL&index=1)
+
+[https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221](https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221)
+
+[https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849](https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849)

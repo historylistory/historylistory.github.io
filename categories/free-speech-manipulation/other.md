@@ -118,3 +118,11 @@ PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-st
 [https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
 
 [https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)
+
+2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
+
+[https://www.youtube.com/watch?v=zFZ2Gjo0UuY&list=WL&index=1](https://www.youtube.com/watch?v=zFZ2Gjo0UuY&list=WL&index=1)
+
+[https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221](https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221)
+
+[https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849](https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849)

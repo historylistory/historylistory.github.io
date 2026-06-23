@@ -641,3 +641,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
 2026-06-21 Trump blamed the Reflecting Pool algae bloom on vandals and ordered officials to make arrests. 
+
+2026-06-22 A report raised questions about whether Tulsi Gabbard used a spiritual guide to shape her political career.
+

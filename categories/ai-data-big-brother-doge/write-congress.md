@@ -280,7 +280,7 @@ I do not agree with the current direction of technology policy in my country, pa
 2026-06-16 Snap Inc. released SPECS augmented reality glasses. 
 
 
-2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump.
+2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump and were treated like heads of nation states. 
 
 2026-06-18 SanDisk drives prices soared to almost $3000.
 

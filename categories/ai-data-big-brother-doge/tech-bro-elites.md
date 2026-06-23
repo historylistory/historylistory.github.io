@@ -153,7 +153,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016](https://people.com/elon-musk-is-officially-a-trillionaire-as-spacex-goes-public-11996016)
 
-2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump.
+2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump and were treated like heads of nation states. 
 
 [https://www.businessinsider.com/anthropic-dario-amodei-openai-sam-altman-demis-hassabis-g7-lunch-2026-6](https://www.businessinsider.com/anthropic-dario-amodei-openai-sam-altman-demis-hassabis-g7-lunch-2026-6)
 
@@ -162,3 +162,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnbc.com/2026/06/17/anthropic-amodei-google-hassabis-us-ai-coalition-g7.html](https://www.cnbc.com/2026/06/17/anthropic-amodei-google-hassabis-us-ai-coalition-g7.html)
 
 [https://www.ft.com/content/573925dd-6d41-4185-810d-2b848195903d?syn-25a6b1a6=1](https://www.ft.com/content/573925dd-6d41-4185-810d-2b848195903d?syn-25a6b1a6=1)
+
+[https://www.youtube.com/watch?v=pGG15I3zP-w&list=WL&index=2&t=24s](https://www.youtube.com/watch?v=pGG15I3zP-w&list=WL&index=2&t=24s)
+
+[https://www.axios.com/2026/06/20/ai-tech-moguls-g7](https://www.axios.com/2026/06/20/ai-tech-moguls-g7)
+
+[https://www.yahoo.com/news/politics/articles/global-order-ai-ceos-heads-132310109.html](https://www.yahoo.com/news/politics/articles/global-order-ai-ceos-heads-132310109.html)
+
+[https://www.cnbc.com/2026/06/17/g7-trump-ai-tech-leaders-openai-anthropic-google.html](https://www.cnbc.com/2026/06/17/g7-trump-ai-tech-leaders-openai-anthropic-google.html)
