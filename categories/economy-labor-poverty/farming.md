@@ -227,7 +227,7 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 ### 2026 May
 
-2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+2026-05-09 The U.S. obligated millions of dollars in soybean, corn and vegetable oil trade from Argentina. 
 
 [https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
 

@@ -608,7 +608,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote on social media, “….Let me be clear: this is not a golden calf…”.
 
-2026-05-11 Taxpayers faced a projected $13.1M bill for Trump’s reflection-pool project.
+2026-05-11 Trump’s reflection pool project was estimated to cost $13.1M. 
 
 2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 
@@ -648,3 +648,4 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-22 A report raised questions about whether Tulsi Gabbard used a spiritual guide to shape her political career.
 
+2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 

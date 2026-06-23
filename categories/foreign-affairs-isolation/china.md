@@ -64,7 +64,7 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html](https://lufkindailynews.com/ap_video/pulitzer-prize-winner-us-companies-enabled-brutal-mass-detention-and-surveillance-in-china/video_25db63a6-e0ef-50b5-ab01-413f7fcdf1a6.html)
 
 
-2026-05-09 “Why is the U.S. pouring money and support to countries selling agricultural products to China?” In 2024 the U.S. obligated roughly $6.37M to Argentina 
+2026-05-09 The U.S. obligated millions of dollars in soybean, corn and vegetable oil trade from Argentina. 
 
 [https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3](https://www.youtube.com/watch?v=WObLO2hXP44&list=WL&index=3)
 

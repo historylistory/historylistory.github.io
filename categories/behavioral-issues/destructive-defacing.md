@@ -217,7 +217,7 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
-2026-05-11 Taxpayers faced a projected $13.1M bill for Trump’s reflection-pool project.
+2026-05-11 Trump’s reflection pool project was estimated to cost $13.1M. 
 
 [https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
 
@@ -278,3 +278,9 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://time.com/article/2026/06/22/lincoln-memorial-reflecting-pool-vandalism-algae-paint-trump-admin/](https://time.com/article/2026/06/22/lincoln-memorial-reflecting-pool-vandalism-algae-paint-trump-admin/)
 
 [https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates)
+
+2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
+
+[https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)
+
+[https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265](https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265)

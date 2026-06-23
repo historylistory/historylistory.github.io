@@ -88,7 +88,15 @@ permalink: /categories/transportation/other/
 
 [https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful](https://www.semafor.com/article/04/17/2026/usdot-sec-sean-duffy-recruiting-gamers-as-air-traffic-controllers-is-wildly-successful)
 
-2026-04-23 Spirit Airlines announced it would be liquidating their company amid rising fuel prices, shrinking cash reserves, and debt.
+### 2026 May
+
+2026-05-03 Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
 
 [https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html](https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html)
 
@@ -102,17 +110,9 @@ permalink: /categories/transportation/other/
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
 
-### 2026 May
 
-2026-05-03 (for context because thousands of employees were left without jobs) After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
 
-[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
-
-[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
-
-[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
-
-2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+2026-05-05 Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
 
 [https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
 

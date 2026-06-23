@@ -167,7 +167,7 @@ APRIL 21 [https://thehill.com/policy/defense/5840985-us-forces-board-sanctioned-
 
 [https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas](https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas)
 
-2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+2026-05-07 Gas prices rose more than 50% under Trump. 
 
 [https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
 

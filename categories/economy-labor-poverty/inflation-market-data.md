@@ -302,19 +302,6 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war](https://www.democracynow.org/2026/4/16/headlines/the_guardian_top_oil_and_gas_companies_made_30m_per_hour_in_windfall_profits_from_iran_war)
 
-2026-04-23 Spirit Airlines announced it would be liquidating their company amid rising fuel prices, shrinking cash reserves, and debt.
-
-[https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html](https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html)
-
-[https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact](https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact)
-
-[https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html](https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html)
-
-[https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/](https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/)
-
-[https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/](https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/)
-
-PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
 
 2026-04-28 The UAE departed from OPEC (Organization of the Petroleum Exporting Countries).
 
@@ -343,7 +330,7 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population](https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population)
 
-2026-04-30 On this date, the U.S. debt was larger than its GDP.
+2026-04-30 The U.S. debt was larger than its GDP.
 
 [https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html](https://finance.yahoo.com/economy/article/americas-national-debt-is-now-larger-than-the-entire-economy-171830542.html)
 
@@ -360,6 +347,26 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://www.ici.org/news-release/money-market-funds-hit-seven-trillion](https://www.ici.org/news-release/money-market-funds-hit-seven-trillion)
 
 [https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html](https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html)
+
+2026-05-03 Spirit Airlines liquidated all its assets. 
+
+[https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
+
+[https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
+
+[https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+[https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html](https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html)
+
+[https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact](https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact)
+
+[https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html](https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html)
+
+[https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/](https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/)
+
+[https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/](https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
 
 2026-05-04 Kentucky Governor Andy Beshear announced a state emergency due to rising costs and gas prices. 
 
@@ -390,11 +397,11 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
 
-2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+2026-05-07 Gas prices rose more than 50% under Trump. 
 
 [https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
 
-2026-05-07 Whirlpool reported plans to raise their prices on appliances again after reporting shares are down 12%. They called it a “recession-level industry decline”. 
+2026-05-07 Whirlpool reported a “recession-level industry decline” with a 12% drop in shares and said they would be raising their prices. 
 
 [https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs](https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs)
 

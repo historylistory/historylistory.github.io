@@ -49,7 +49,7 @@ permalink: /categories/economy-labor-poverty/monopolies-and-mergers/
 
 [https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx](https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx)
 
-2026-05-07 (for context because larger companies who have the edge on our markets seem to play victim to prices; it's their bottom line that matters here, not consumer survival). Whirlpool reported plans to raise their prices on appliances again after reporting shares are down 12%. They called it a “recession-level industry decline”. 
+2026-05-07 Whirlpool reported a “recession-level industry decline” with a 12% drop in shares and said they would be raising their prices. 
 
 [https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs](https://www.theguardian.com/business/2026/may/07/whirlpool-recession-sales-iran-tariffs)
 

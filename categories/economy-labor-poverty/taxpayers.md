@@ -350,7 +350,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 ### 2026 May
 
-2026-05-03 The Trump tariff refund claims process proved to be a farse when small businesses started receiving rejected claims.
+2026-05-03 Small businesses received rejections for their tariff refund claims. 
 
 [https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business](https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business)
 
@@ -378,7 +378,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
-2026-05-11 Taxpayers faced a projected $13.1M bill for Trump’s reflection-pool project.
+2026-05-11 Trump’s reflection pool project was estimated to cost $13.1M. 
 
 [https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/](https://thehill.com/homenews/administration/5872939-reflecting-pool-renovation-cost-increase/)
 
@@ -487,3 +487,9 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039](https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039)
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle](https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle)
+
+2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
+
+[https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)
+
+[https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265](https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265)

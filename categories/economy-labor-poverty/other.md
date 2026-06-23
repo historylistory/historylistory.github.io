@@ -179,7 +179,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html](https://finance.yahoo.com/markets/options/articles/why-investors-flocking-money-market-205800103.html)
 
-2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+2026-05-05 Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
 
 [https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
 

@@ -1688,7 +1688,7 @@ PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-tra
 
 [https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
-2026-05-07 Gas prices had risen more than 50% since the start of Trump’s elective war in Iran. Headline: Republicans who slammed Biden over gas prices preach patience under Trump.
+2026-05-07 Gas prices rose more than 50% under Trump. 
 
 [https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4](https://www.youtube.com/watch?v=ZPxMG5eHKZw&list=WL&index=4)
 

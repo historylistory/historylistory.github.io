@@ -113,7 +113,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### 2026 May
 
-2026-05-03 The Trump tariff refund claims process proved to be a farse when small businesses started receiving rejected claims.
+2026-05-03 Small businesses received rejections for their tariff refund claims. 
 
 [https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business](https://www.npr.org/2026/05/03/nx-s1-5805045/tariff-refunds-small-business)
 

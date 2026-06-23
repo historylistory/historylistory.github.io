@@ -158,7 +158,7 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2026 May
 
-2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
+2026-05-05 Delta Airlines announced it would drop food and beverage services from flights under 350 miles.
 
 [https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/](https://www.cbsnews.com/news/delta-cuts-food-drink-service-short-flights-350-miles/)
 

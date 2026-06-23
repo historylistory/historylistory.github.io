@@ -325,13 +325,26 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 
 [https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/](https://www.healthcaredive.com/news/nebraska-medicaid-work-requirements-launch-first-state/818992/)
 
-2026-05-03 (for context because thousands of employees were left without jobs) After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets. 
+2026-05-03 Spirit Airlines liquidated all its assets. 
 
 [https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/](https://www.reuters.com/legal/litigation/spirit-airlines-says-it-has-no-choice-liquidate-operations-2026-05-04/)
 
 [https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452](https://www.investing.com/news/stock-market-news/spirit-airlines-liquidation-has-minimal-impact-on-aerospace-industry-says-bofa-93CH-4656452)
 
 [https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html](https://www.cnbc.com/2026/05/01/spirit-airlines-trump-bailout.html)
+
+[https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html](https://finance.yahoo.com/economy/policy/articles/spirit-airlines-scrambles-government-lifeline-161505884.html)
+
+[https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact](https://www.npr.org/2026/04/22/nx-s1-5789050/spirit-airlines-liquidation-bankruptcy-impact)
+
+[https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html](https://www.cnbc.com/2026/04/22/spirit-airlines-rescue-trump-administration.html)
+
+[https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/](https://www.detroitnews.com/videos/media/video/2026/04/22/spirit-airlines-liquidation-could-leave-loyal-customers-on-the-tarmac/89714989007/)
+
+[https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/](https://viewfromthewing.com/spirit-airlines-is-days-away-from-liquidation-heres-why-their-business-failed/)
+
+PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
+
 
 2026-05-05 Coinbase cut 14% of its workforce due to AI. 
 
