@@ -33,7 +33,7 @@ SUB WALL [https://www.telegraph.co.uk/us/news/2026/05/15/us-taiwan-weapons-deal-
 
 [https://www.ibtimes.co.uk/china-challenges-us-blockade-hormuz-1791549](https://www.ibtimes.co.uk/china-challenges-us-blockade-hormuz-1791549)
 
-2026-04-16 During an interview with Semafor, Senator Rick Scott (R-FL) advocated for aggressive US action against Iran, saying that blocking oil shipments to China would be a “wonderful” outcome. (VERY LITTLE COVERAGE)
+2026-04-16 Senator Rick Scott (R-FL) advocated for aggressive US action against Iran, saying that blocking oil shipments to China would be a “wonderful” outcome. 
 
 [https://www.aol.com/articles/anthony-scaramucci-asks-ai-rick-140106268.html](https://www.aol.com/articles/anthony-scaramucci-asks-ai-rick-140106268.html)
 

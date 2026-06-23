@@ -48,7 +48,7 @@ Also out of left field, one conservative commentator praised the win as a show o
 
 ### 2026 April
 
-2026-04-19 Canada’s Prime Minister Mark Carney said economic ties with the U.S. are a weakness that must be corrected. He stated, “We have to take care of ourselves because we can’t rely on one foreign partner…we can’t control the disruption coming from our neighbors”.
+2026-04-19 Canada’s Prime Minister Mark Carney said economic ties with the U.S. are a weakness that must be corrected, “We have to take care of ourselves because we can’t rely on one foreign partner…we can’t control the disruption coming from our neighbors”.
 
 [https://www.cbc.ca/news/politics/carney-trump-trade-u-s-negotiations-weaknesses-9.7169671](https://www.cbc.ca/news/politics/carney-trump-trade-u-s-negotiations-weaknesses-9.7169671)
 

@@ -467,22 +467,6 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
 
 
-2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine. 
-
-[https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
-
-[https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html](https://www.military.com/daily-news/2026/04/18/ibogaine-lsd-and-psilocybin-trumps-new-order-medical-turning-point.html)
-
-[https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/](https://www.whitehouse.gov/fact-sheets/2026/04/fact-sheet-president-donald-j-trump-is-accelerating-medical-treatments-for-serious-mental-illness/)
-
-[https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics](https://www.pbs.org/newshour/politics/trump-signs-order-to-speed-review-of-psychedelics)
-
-[https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health](https://www.npr.org/2026/04/18/nx-s1-5789859/psychedelic-treatments-mental-health)
-
-[https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics](https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics)
-
-[https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
-
 2026-04-28 Louisiana advanced HB211 to criminalize being homeless. Under the Streets to Success Act, homeless individuals would be arrested and fined for sleeping in public places. If they cannot pay the fines, they will be forced into hard labor to pay off the fines. In some cases they can be forced into a treatment program for which they would have to pay off with hard labor. Republican State Representative Debbie Villio stated in her proposal, “We aren’t looking to jail anyone, we’re looking to integrate them with the criminal justice system in an effort to connect them with service providers”.
 
 [https://www.youtube.com/watch?v=q5IpSzIir_A&list=WL&index=1&t=614s](https://www.youtube.com/watch?v=q5IpSzIir_A&list=WL&index=1&t=614s)

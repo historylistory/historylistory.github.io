@@ -316,6 +316,20 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 
+2026-04-19 After the Supreme Court said Trump’s tariffs were illegal, the administration announced the kick-off of a $166B tariff refund for businesses and importers only, for which they can submit a claim for online. Consumers will not be receiving a refund. 
+
+[https://apnews.com/article/tariff-refund-trump-customs-08861f153801156d213c30c4e2f6a683](https://apnews.com/article/tariff-refund-trump-customs-08861f153801156d213c30c4e2f6a683)
+
+[https://www.axios.com/2026/04/20/trump-tariffs-us-business-refunds-customs-ace-portal](https://www.axios.com/2026/04/20/trump-tariffs-us-business-refunds-customs-ace-portal)
+
+[https://www.france24.com/en/tv-shows/business/20260420-billion-dollar-tariff-refund-process-kicks-off-in-us](https://www.france24.com/en/tv-shows/business/20260420-billion-dollar-tariff-refund-process-kicks-off-in-us)
+
+[https://www.theguardian.com/us-news/live/2026/apr/20/trump-tariff-refund-politics-vance-congress-latest-updates](https://www.theguardian.com/us-news/live/2026/apr/20/trump-tariff-refund-politics-vance-congress-latest-updates)
+
+[https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off](https://www.cnn.com/2026/04/20/economy/tariff-refund-process-kicks-off)
+
+[https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal](https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal)
+
 2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
 
 [https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)

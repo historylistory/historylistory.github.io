@@ -188,6 +188,11 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://www.reuters.com/business/media-telecom/ny-jury-finds-live-nation-illegally-monopolized-ticketing-markets-bloomberg-news-2026-04-15](https://www.reuters.com/business/media-telecom/ny-jury-finds-live-nation-illegally-monopolized-ticketing-markets-bloomberg-news-2026-04-15)
 
+2026-04-16 After a six-week trial, a New York jury found that Live Nation and its subsidiary Ticket Master illegally dominated major concert venues and kept ticket prices too high.
+
+[https://www.npr.org/2026/04/15/nx-s1-5786715/live-nation-ticketmaster-antitrust-verdict-monopoly](https://www.npr.org/2026/04/15/nx-s1-5786715/live-nation-ticketmaster-antitrust-verdict-monopoly)
+
+[https://apnews.com/article/live-nation-ticketmaster-antitrust-trial-f0ffdd20dd4f64e8b4bb9d97134b826f](https://apnews.com/article/live-nation-ticketmaster-antitrust-trial-f0ffdd20dd4f64e8b4bb9d97134b826f)
 
 ### Luxottica (glasses)
 

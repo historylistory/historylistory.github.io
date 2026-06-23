@@ -141,6 +141,16 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class](https://www.middleeasteye.net/news/dressed-school-returned-shroud-israeli-forces-kill-palestinian-girl-class)
 
+2026-04-16 The Trump administration defunded Catholic charities that provide shelter and care for migrant children. 
+
+[https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled](https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled)
+
+[https://www.cbsnews.com/miami/news/catholic-charities-federal-funding-cut-miami/](https://www.cbsnews.com/miami/news/catholic-charities-federal-funding-cut-miami/)
+
+[https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7](https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7)
+
+SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
+
 2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
 
 [https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/](https://www.timesofisrael.com/car-said-to-belong-to-ministers-security-detail-strikes-and-kills-west-bank-teen/)
