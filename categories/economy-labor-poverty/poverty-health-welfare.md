@@ -577,11 +577,14 @@ SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-h
 
 [https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096](https://www.investopedia.com/quarter-of-job-searches-are-taking-more-than-a-year-11978096)
 
-2026-05-23 Trump proposed a budget to entirely cut housing and community development funds.
+2026-05-23 Trump proposed a budget to entirely cut housing and community development funds. Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 [https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)
 
 [https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
+
+[https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html](https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html)
+
 
 2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
 

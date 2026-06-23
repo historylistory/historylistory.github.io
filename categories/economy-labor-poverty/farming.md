@@ -250,13 +250,11 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 [https://www.youtube.com/watch?v=TWcx0PlCXWQ&list=WL&index=7](https://www.youtube.com/watch?v=TWcx0PlCXWQ&list=WL&index=7)
 
-2026-06-04 a new “world screwworm’ case was detected in South Texas.
+2026-06-04 Texas issued a state of disaster after a new world screwworm case was detected in cattle, goats and dogs. 
 
 [https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8](https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8)
 
 [https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5](https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5)
-
-2026-06-05 Texas issued a State of Disaster due to flesh-eating screwworms found in cattle, goats and dogs.
 
 [https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
 

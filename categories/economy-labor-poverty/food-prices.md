@@ -165,8 +165,12 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 ### 2026 June
 
-2026-06-04 a new “world screwworm’ case was detected in South Texas.
+2026-06-04 Texas issued a state of disaster after a new world screwworm case was detected in cattle, goats and dogs. 
 
 [https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8](https://www.youtube.com/watch?v=c28i80uaoCI&list=WL&index=8)
 
 [https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5](https://www.youtube.com/watch?v=cnejR-LcNQc&list=WL&index=5)
+
+[https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
+
+[https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)

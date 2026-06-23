@@ -128,13 +128,11 @@ permalink: /categories/economy-labor-poverty/housing/
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
 
-2026-05-23 Trump proposed a budget to entirely cut housing and community development funds.
+2026-05-23 Trump proposed a budget to entirely cut housing and community development funds. Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 [https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)
 
 [https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
-
-2026-05-23 Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 [https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html](https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html)
 

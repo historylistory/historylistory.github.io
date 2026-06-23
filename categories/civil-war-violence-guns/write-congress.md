@@ -464,7 +464,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-05-22 Secret Service shot and killed an armed man outside the White House.
 
-2026-05-23 Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”.
+2026-05-23 Trump proposed a budget to entirely cut housing and community development funds. Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 2026-05-23 GOP Senator Mitch McConnell of Kentucky responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, “So the nation’s top law enforcement official is asking for a slush fund to pay people who assault cops. Utterly stupid, morally wrong. Take your pick”.
 
