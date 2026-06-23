@@ -8,7 +8,7 @@ permalink: /categories/economy-labor-poverty/population-decline/
 
 ### Population Decline
 
-2026-02-25 Reports show a decline in global population but remember: The population in the 1900’s was around 1.4B. The current is over 8B. The real concern comes from the billionaires. They’re upset because it interrupts capitalism and their bottom line. 
+2026-02-25 Reports show the current global population is over 8 billion, compared to 1.4 billion in 1900. 
 
 [https://hsph.harvard.edu/news/is-declining-world-population-a-problem/](https://hsph.harvard.edu/news/is-declining-world-population-a-problem/)
 

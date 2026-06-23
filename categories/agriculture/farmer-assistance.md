@@ -42,7 +42,7 @@ permalink: /categories/agriculture/farmer-assistance/
 
 ### 2026 March
 
-2026-03-08 No more farm subsidies?
+2026-03-08 Billion-dollar farm subsidies for the top 2% of farmers.
 
 [https://www.cato.org/briefing-paper/cutting-federal-farm-subsidies](https://www.cato.org/briefing-paper/cutting-federal-farm-subsidies)
 

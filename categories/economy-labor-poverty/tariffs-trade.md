@@ -163,7 +163,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent](https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent)
 
-2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, sources reported that Trump administration officials were devising legal strategies to keep the billions of dollars acquired from the tariffs.
+2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, Trump administration officials devised legal strategies to pocket the tariffs regardless.
 
 [https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union](https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union)
 
@@ -173,7 +173,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 ### 2026 March
 
-2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+2026-03-10 The war in Iran affected global fertilizer trade and global helium supplies.
 
 [https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
 

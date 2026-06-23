@@ -53,7 +53,7 @@ permalink: /categories/agriculture/farm-sales/
 
 ### 2026 March
 
-2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+2026-03-10 The war in Iran affected global fertilizer trade and global helium supplies.
 
 [https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
 

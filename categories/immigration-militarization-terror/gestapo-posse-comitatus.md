@@ -331,7 +331,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 ### 2026 March
 
-2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
 
 [https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a](https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a)
 

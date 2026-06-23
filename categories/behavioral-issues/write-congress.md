@@ -374,7 +374,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-02-10 Andy Ogles requested an investigation into the Super Bowl halftime show.
 
-2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
+2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized".
 
 2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 
@@ -408,7 +408,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
-2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
 
 2026-03-06 Trump minimized dangers in the Strait of Hormuz before tanker attacks occurred. He said to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
 

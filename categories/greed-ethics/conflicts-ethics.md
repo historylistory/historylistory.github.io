@@ -490,7 +490,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo](https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo)
 
-2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, sources reported that Trump administration officials were devising legal strategies to keep the billions of dollars acquired from the tariffs.
+2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, Trump administration officials devised legal strategies to pocket the tariffs regardless.
 
 [https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union](https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union)
 

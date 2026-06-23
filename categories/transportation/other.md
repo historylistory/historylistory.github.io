@@ -58,13 +58,11 @@ permalink: /categories/transportation/other/
 
 ### 2026 February
 
-2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
+2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized".
 
 [https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/](https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/)
 
 [https://apnews.com/live/faa-el-paso-texas-air-space-closed-updates](https://apnews.com/live/faa-el-paso-texas-air-space-closed-updates)
-
-2026-02-11 Shortly after the closure, the story as to why the shutdown occurred spread, that the shutdown was due to a “Mexican cartel drone”.  Sean Duffy posted “the threat has been neutralized”, Pam Bondi used the incident to pivot away from Epstein questions at her hearing, and White House officials pointed fingers at the FAA for the shutdown. Ultimately, the Pentagon (or the FAA) utilized an uncoordinated attack and fired an anti-drone laser at a stray party balloon.
 
 [https://x.com/SecDuffy/status/2021594420806639787](https://x.com/SecDuffy/status/2021594420806639787)
 

@@ -50,7 +50,7 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 ### 2026 March
 
-2026-03-02 South Bow planned to revive parts of the Keystone pipeline project.
+2026-03-02 South Bow revealed plans to revive parts of the Keystone pipeline project.
 
 [https://www.reuters.com/business/energy/south-bow-plan-revive-parts-keystone-xl-needs-trump-approval-us-oil-pipeline-2026-03-02/](https://www.reuters.com/business/energy/south-bow-plan-revive-parts-keystone-xl-needs-trump-approval-us-oil-pipeline-2026-03-02/)
 

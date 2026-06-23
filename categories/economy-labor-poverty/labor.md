@@ -246,7 +246,7 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 
 [https://federalnewsnetwork.com/workforce/2026/02/trump-administration-advances-plan-to-strip-job-protections-from-career-federal-employees/](https://federalnewsnetwork.com/workforce/2026/02/trump-administration-advances-plan-to-strip-job-protections-from-career-federal-employees/)
 
-2026-02-28 The Bureau of Labor Statistics reported a sharp drop of over 92,000 jobs in February 2026 with an unemployment rate of 4.4%.
+2026-02-28 The Bureau of Labor Statistics reported a sharp drop of 92,000 jobs and an unemployment rate of 4.4%.
 
 [https://www.bls.gov/news.release/pdf/empsit.pdf](https://www.bls.gov/news.release/pdf/empsit.pdf)
 

@@ -168,19 +168,6 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 [https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies](https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies)
 
 
-### 2026 February
-
-2026-02-11 Shortly after the closure, the story as to why the shutdown occurred spread, that the shutdown was due to a “Mexican cartel drone”.  Sean Duffy posted “the threat has been neutralized”, Pam Bondi used the incident to pivot away from Epstein questions at her hearing, and White House officials pointed fingers at the FAA for the shutdown. Ultimately, the Pentagon (or the FAA) utilized an uncoordinated attack and fired an anti-drone laser at a stray party balloon.
-
-[https://x.com/SecDuffy/status/2021594420806639787](https://x.com/SecDuffy/status/2021594420806639787)
-
-[https://www.cnn.com/2026/02/12/politics/el-paso-trump-administration-finger-pointing](https://www.cnn.com/2026/02/12/politics/el-paso-trump-administration-finger-pointing)
-
-[https://spectrumlocalnews.com/nc/coastal/politics/2026/02/11/dc-wrap](https://spectrumlocalnews.com/nc/coastal/politics/2026/02/11/dc-wrap)
-
-[https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/](https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/)
-
-{% include youtubePlayer.html id="9pf4HHuszN8" %}
 
 ### 2026 March
 

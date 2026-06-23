@@ -301,13 +301,11 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2026 February
 
-2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
+2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized".
 
 [https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/](https://www.elpasotimes.com/story/news/2026/02/11/what-we-know-about-what-caused-el-paso-airspace-to-close-briefly/88629288007/)
 
 [https://apnews.com/live/faa-el-paso-texas-air-space-closed-updates](https://apnews.com/live/faa-el-paso-texas-air-space-closed-updates)
-
-2026-02-11 Shortly after the closure, the story as to why the shutdown occurred spread, that the shutdown was due to a “Mexican cartel drone”.  Sean Duffy posted “the threat has been neutralized”, Pam Bondi used the incident to pivot away from Epstein questions at her hearing, and White House officials pointed fingers at the FAA for the shutdown. Ultimately, the Pentagon (or the FAA) utilized an uncoordinated attack and fired an anti-drone laser at a stray party balloon.
 
 [https://x.com/SecDuffy/status/2021594420806639787](https://x.com/SecDuffy/status/2021594420806639787)
 
@@ -318,6 +316,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/](https://www.cbsnews.com/news/airspace-closure-followed-spat-over-drone-related-tests-and-party-balloon-shoot-down-sources-say/)
 
 {% include youtubePlayer.html id="9pf4HHuszN8" %}
+
 
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
 
@@ -360,7 +359,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
 
-2026-03-05 Trump finally fired Kristi Noem and people speculated it was due to her $250M spending on ad campaigns. He replaced her with Senator Markwayne Mullin.
+2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
 
 [https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a](https://apnews.com/article/trump-homeland-security-noem-mullin-38c583b3cef97b4ef60d84b8f8b5961a)
 

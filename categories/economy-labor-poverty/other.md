@@ -125,7 +125,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 ### 2026 March
 
-2026-03-01 An oil shortage anywhere is an oil shortage everywhere. After Trump decided to pick a war with Iran on February 28, 2026 (with no imminent or immediate threat from the country) oil prices soared due to global oil market shortages, bombings and blockades. Amid the war in Iran, the Strait of Hormuz was shut down. Trump would later announce plans to purchase oil from Russia.
+2026-03-01 After Trump surprise-attacked Iran oil prices soared. Trump even mused over plans to purchase oil from Russia.
 
 [https://time.com/7382335/iran-war-trump-energy-crisis/](https://time.com/7382335/iran-war-trump-energy-crisis/)
 

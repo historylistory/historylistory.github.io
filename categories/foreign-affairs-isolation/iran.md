@@ -437,7 +437,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 [https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/](https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/)
 
-2026-03-01 An oil shortage anywhere is an oil shortage everywhere. After Trump decided to pick a war with Iran on February 28, 2026 (with no imminent or immediate threat from the country) oil prices soared due to global oil market shortages, bombings and blockades. Amid the war in Iran, the Strait of Hormuz was shut down. Trump would later announce plans to purchase oil from Russia.
+2026-03-01 After Trump surprise-attacked Iran oil prices soared. Trump even mused over plans to purchase oil from Russia.
 
 [https://time.com/7382335/iran-war-trump-energy-crisis/](https://time.com/7382335/iran-war-trump-energy-crisis/)
 
@@ -679,7 +679,7 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 [https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685](https://www.nbcnews.com/world/iran/images-taken-iranian-school-hit-deadly-strikes-show-fragments-us-made-rcna262685)
 
-2026-03-10 Strikes on Iranian oil fields wouldn’t just effect gas prices. It would also affect the global fertilizer trade for growing crops and global helium supplies.
+2026-03-10 The war in Iran affected global fertilizer trade and global helium supplies.
 
 [https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis](https://carnegieendowment.org/emissary/2026/03/fertilizer-iran-hormuz-food-crisis)
 
