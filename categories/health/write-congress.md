@@ -149,7 +149,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine.
 
-2026-04-21 Republican Senator of Alabama Tommy Tuberville called social security a scam in a viral social media post.
+2026-04-21 Republican Senator of Alabama Tommy Tuberville responded to Dear Son’s post “Name a huge scam that has been normalised?”, writing, “Social Security”. 
 
 2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements.
 

@@ -316,7 +316,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation](https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-government-stake-to-avoid-potential-liquidation)
 
-2026-04-28 The UAE (United Arab Emirates) departed from OPEC (Organization of the Petroleum Exporting Countries).
+2026-04-28 The UAE departed from OPEC (Organization of the Petroleum Exporting Countries).
 
 [https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond](https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond)
 
@@ -326,7 +326,8 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
 
-2026-04-30 By the end of April, a bale of hay costs $23 a piece, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits while farming families are under duress. 
+
+2026-04-30 A bale of hay costs $23, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits were made. Meanwhile farming families are under duress and the rate of farmer suicide is increasing. 
 
 [https://www.instagram.com/reels/DXp39tRiciL/](https://www.instagram.com/reels/DXp39tRiciL/)
 
@@ -337,6 +338,10 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 [https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/](https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/)
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
+
+[https://www.fb.org/initiative/farm-state-of-mind](https://www.fb.org/initiative/farm-state-of-mind)
+
+[https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population](https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population)
 
 2026-04-30 On this date, the U.S. debt was larger than its GDP.
 

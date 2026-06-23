@@ -90,7 +90,7 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 
 PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html](https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote.html)
 
-2026-04-29 The Senate voted to open up pristine Minnesota boundary waters in Canada for mining and drilling.
+2026-04-29 The Senate voted to open pristine Minnesota boundary waters in Canada for mining and drilling.
 
 [https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin](https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin)
 

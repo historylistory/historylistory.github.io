@@ -161,7 +161,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
 
-2026-04-22 During a hearing of the Senate Finance Committee Senator Elizabeth Warren asked RFK about TrumpRx and revealed the pricing is higher than promised. For example, a drug for Protonix is $16 at Costco and $200 through TrumpRX. A heart medication costs $336 through TrumpRX can be obtained at CostPlus Drugs for $12. This was after Trump said he’d reduce drug prices by 600% or 1500% or whatever number he tossed out at Americans. In exchange for these drug companies in TrumpRX, Trump gave them a tariff exemption. Yet, prices are still higher. 
+2026-04-22 A Senate finance committee hearing revealed TrumpRX is not more affordable as advertised. For example, TrumpRX offers Protonix for $200, but Costco offers it for $16. TrumpRX offers heart medication for $336 while CostPlus sells it for $12. 
 
 [https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3](https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3)
 

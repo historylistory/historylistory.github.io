@@ -198,7 +198,7 @@ SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bit
 
 UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
 
-2026-04-23 A U.S. soldier was charged with making $400,000 on Maduro’s arrest in a Polymarket bet.
+2026-04-23 A U.S. soldier was charged after making $400,000 on Maduro’s arrest in a Polymarket bet.
 
 [https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/](https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/)
 

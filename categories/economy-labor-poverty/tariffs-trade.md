@@ -288,7 +288,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal](https://www.foxnews.com/politics/supreme-court-blow-trump-admin-launches-166b-tariff-refund-portal)
 
-2026-04-28 The UAE (United Arab Emirates) departed from OPEC (Organization of the Petroleum Exporting Countries).
+2026-04-28 The UAE departed from OPEC (Organization of the Petroleum Exporting Countries).
 
 [https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond](https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond)
 

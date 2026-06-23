@@ -78,7 +78,7 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 
 [https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/](https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/)
 
-2026-04-28 Senator Merkley pressed DOE Linda McMahon on why she gutted the TRIO program designed to encourage professional nursing careers. McMahon claimed that somehow removing nursing jobs from a professional category would make tuition more affordable. What actually happens is students who can’t get a sufficient federal loan on a low interest rate will now have to seek out PRIVATIZED loan companies with a much higher interest rate. Remember, in November 2025 the DOE declassified nursing careers from being considered professional.
+2026-04-28 Senator Merkley pressed DOE Linda McMahon on why she gutted the TRIO program designed to encourage professional nursing careers. McMahon claimed that somehow removing nursing jobs from a professional category would make tuition more affordable. So now students who can’t get a sufficient federal loan on a low interest rate will have to seek out a privatized loan company with higher interest rates. Remember: The DOE declassified nursing careers as “professional” in November.
 
 TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=321s](https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=321s)
 

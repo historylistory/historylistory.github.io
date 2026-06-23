@@ -102,7 +102,7 @@ permalink: /categories/health/social-security-retirement/
 
 ### 2026 April
 
-2026-04-21 Republican Senator of Alabama Tommy Tuberville called social security a scam in a viral social media post. 
+2026-04-21 Republican Senator of Alabama Tommy Tuberville responded to Dear Son’s post “Name a huge scam that has been normalised?”, writing, “Social Security”. 
 
 [https://x.com/SenTuberville/status/2045266805145456922?s=20](https://x.com/SenTuberville/status/2045266805145456922?s=20)
 

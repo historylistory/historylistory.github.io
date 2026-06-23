@@ -82,7 +82,7 @@ permalink: /categories/economy-labor-poverty/monopolies-and-mergers/
 [https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/](https://www.cbsnews.com/news/pentagon-budget-price-gouging-military-contractors-60-minutes-2023-05-21/)
 
 
-2026-04-23 (for context, more ethics than monopoly - for now) Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
+2026-04-23 Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
 
 [https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china](https://www.foxbusiness.com/media/eric-trump-backed-robot-startup-lands-24m-pentagon-deal-compete-china)
 

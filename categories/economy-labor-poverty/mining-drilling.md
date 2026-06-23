@@ -78,7 +78,7 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-13/venezuela-set-to-awa
 
 COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region](https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike-deals-to-expand-oil-operations-in-key-region)
 
-2026-04-28 (context) The UAE (United Arab Emirates) departed from OPEC (Organization of the Petroleum Exporting Countries).
+2026-04-28 The UAE departed from OPEC (Organization of the Petroleum Exporting Countries).
 
 [https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond](https://www.aljazeera.com/news/2026/4/29/uae-quits-opec-what-that-means-for-the-gulf-energy-markets-and-beyond)
 
@@ -88,7 +88,7 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 
 [https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/](https://www.atlanticcouncil.org/dispatches/a-long-time-coming-how-to-understand-the-uaes-decision-to-leave-opec/)
 
-2026-04-29 The Senate voted to open up pristine Minnesota boundary waters in Canada for mining and drilling.
+2026-04-29 The Senate voted to open pristine Minnesota boundary waters in Canada for mining and drilling.
 
 [https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin](https://www.wpr.org/news/why-mining-minnesotas-boundary-waters-matters-wisconsin)
 

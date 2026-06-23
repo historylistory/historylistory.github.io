@@ -73,7 +73,7 @@ permalink: /categories/agriculture/farm-sales/
 
 
 
-2026-04-30 By the end of April, a bale of hay costs $23 a piece, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits while farming families are under duress. 
+2026-04-30 A bale of hay costs $23, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits were made. Meanwhile farming families are under duress and the rate of farmer suicide is increasing. 
 
 [https://www.instagram.com/reels/DXp39tRiciL/](https://www.instagram.com/reels/DXp39tRiciL/)
 
@@ -84,6 +84,10 @@ permalink: /categories/agriculture/farm-sales/
 [https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/](https://www.reuters.com/business/energy/spiking-us-diesel-prices-keep-trucking-industry-stuck-years-long-slump-2026-03-27/)
 
 [https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2](https://www.youtube.com/watch?v=VmRokZs7gPQ&list=WL&index=2)
+
+[https://www.fb.org/initiative/farm-state-of-mind](https://www.fb.org/initiative/farm-state-of-mind)
+
+[https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population](https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population)
 
 ### 2026 May
 
