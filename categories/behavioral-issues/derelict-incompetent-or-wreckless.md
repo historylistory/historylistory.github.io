@@ -209,7 +209,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 October
 
-2025-10-02 During a Fox interview, Leavitt was caught off guard after the Fox reporter asked her to verify claims servicemembers were not receiving pay during the shutdown just after Russell Vought stated the contrary in a previous interview.
+2025-10-02 In two closely timed interviews, Karoline Leavitt told reporters servicemembers were not receiving pay due to the shutdown right after Russell Vought said servicemembers were. 
 
 {% include youtubePlayer.html id="ORg7VfCYmzM" %}
 

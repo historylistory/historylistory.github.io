@@ -163,7 +163,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-09-30 The administration announced plans to cut one-third of remaining EPA staff by year’s end, in addition to earlier reductions.
 
-2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
+2025-10-02 In response to the shutdown Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
 2025-10-18 Reports from both parties alleged politically motivated FEMA funding decisions under multiple administrations
 

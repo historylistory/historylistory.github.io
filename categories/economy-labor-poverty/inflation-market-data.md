@@ -174,17 +174,17 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.bls.gov/news.release/cpi.nr0.htm](https://www.bls.gov/news.release/cpi.nr0.htm)
 
-2025-09-11 The stock market reached record **highs**.
+2025-09-11 The stock market reached record highs.
 
 [https://www.cnn.com/2025/09/11/investing/us-stock-market](https://www.cnn.com/2025/09/11/investing/us-stock-market)
 
-2025-09-12 During an interview with Fox, Trump claimed he had solved inflation.
+2025-09-12 During an interview with Fox, Trump claimed he solved inflation.
 
 [https://www.cnn.com/2025/09/12/business/inflation-data-prices-rising-trump-policies](https://www.cnn.com/2025/09/12/business/inflation-data-prices-rising-trump-policies)
 
 [https://www.foxnews.com/world/trump-says-hes-running-out-patience-putin-fast-over-ukraine-conflict-negotiations](https://www.foxnews.com/world/trump-says-hes-running-out-patience-putin-fast-over-ukraine-conflict-negotiations)
 
-2025-09-14 According to news outlets, White House advisor Dr. Stephen Miran was sworn in as federal governor for the Federal Reserve Board only minutes before the Central Bank meeting so he could vote to lower interest rates. It was reported that he did not resign from his other seat as Chair of the Council of Economic Advisors.
+2025-09-14 Stephen Miran was sworn in as federal governor for the Federal Reserve Board just minutes before the Central Bank meeting so he could vote to lower interest rates. Miran did not resign from his other seat as Chair of the Council of Economic Advisors.
 
 [https://www.afr.com/world/north-america/miran-takes-fed-oath-of-office-in-time-for-policy-gathering-20250917-p5mvm8](https://www.afr.com/world/north-america/miran-takes-fed-oath-of-office-in-time-for-policy-gathering-20250917-p5mvm8)
 

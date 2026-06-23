@@ -12,6 +12,23 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
 
+2025-09-14 Trump’s government spending on immigration reached $75B.
+
+[https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/](https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/)
+
+2025-10-01 During the shutdown Republicans falsely claimed Democrats were trying to give free Medicare to immigrants. 
+
+[https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
+
+[https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
+
+[https://www.healthinsurance.org/glossary/american-rescue-plan/](https://www.healthinsurance.org/glossary/american-rescue-plan/)
+
+[https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html](https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html)
+
+[https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/](https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/)
+
+[https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
 
 ### 2026 March
 

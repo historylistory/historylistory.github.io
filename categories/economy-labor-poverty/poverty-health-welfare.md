@@ -146,7 +146,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.fns.usda.gov/snap/obbb-implementation](https://www.fns.usda.gov/snap/obbb-implementation)
 
-2025-09-14 During an airing of Fox News on September 10th, commentator Brian Kilmeade suggested euthanizing the homeless, further stating "Just kill them”. On September 14th he reasserted his sentiment that many homeless people are criminals or mentally ill and only then briefly apologized. Despite his remarks, he was able to keep his job.
+2025-09-14 Days after Fox commentator Brian Kilmeade suggested euthanizing the homeless, “Just kill them”, he was forced to issue an apology, in which he reasserted his opinion that homeless people are criminals. 
 
 [https://www.cnn.com/2025/09/14/business/brian-kilmeade-fox-news-apology-homeless](https://www.cnn.com/2025/09/14/business/brian-kilmeade-fox-news-apology-homeless)
 
@@ -176,7 +176,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 October
 
-2025-10-01 The government was shut down while Democrats fought to keep Medicare alive for millions of Americans and stop healthcare from skyrocketing. Republicans falsely claimed Democrats were trying to give millions of illegal immigrants Medicare. Medicare is not a program which immigrants were ever eligible for.
+2025-10-01 During the shutdown Republicans falsely claimed Democrats were trying to give free Medicare to immigrants. 
 
 [https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
 

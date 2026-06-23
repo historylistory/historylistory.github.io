@@ -251,7 +251,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://x.com/derrickvanorden/status/1967308577661452707](https://x.com/derrickvanorden/status/1967308577661452707)
 
-2025-09-14 Trump requested an additional $58 million for security measures protecting his administration
+2025-09-14 Trump requested an additional $58M in taxpayer funds for security. 
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 

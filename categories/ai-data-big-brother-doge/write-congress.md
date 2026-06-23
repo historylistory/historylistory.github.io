@@ -141,9 +141,9 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-09-16 Ted Cruz said the AI regulation moratorium would return.
 
-2025-09-21 Trump discussed selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
+2025-09-21 Trump considered selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
 
-2025-09-24 The Trump administration rehired many DOGE-fired federal workers but only temporarily through October.
+2025-09-24 The Trump administration rehired many DOGE-fired federal workers.
 
 2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 

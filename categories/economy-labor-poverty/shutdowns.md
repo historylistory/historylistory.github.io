@@ -25,17 +25,31 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://sustainableagriculture.net/blog/how-the-government-shutdown-is-impacting-farmers/](https://sustainableagriculture.net/blog/how-the-government-shutdown-is-impacting-farmers/)
 
+2025-10-01 During the shutdown Republicans falsely claimed Democrats were trying to give free Medicare to immigrants. 
+
+[https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
+
+[https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
+
+[https://www.healthinsurance.org/glossary/american-rescue-plan/](https://www.healthinsurance.org/glossary/american-rescue-plan/)
+
+[https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html](https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html)
+
+[https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/](https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/)
+
+[https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
+
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 [https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/](https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/)
 
-2025-10-02 During a Fox interview, Leavitt was caught off guard after the Fox reporter asked her to verify claims servicemembers were not receiving pay during the shutdown just after Russell Vought stated the contrary in a previous interview.
+2025-10-02 In two closely timed interviews, Karoline Leavitt told reporters servicemembers were not receiving pay due to the shutdown right after Russell Vought said servicemembers were. 
 
 {% include youtubePlayer.html id="ORg7VfCYmzM" %}
 
-2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
+2025-10-02 In response to the shutdown Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
 [https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states](https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states)
 

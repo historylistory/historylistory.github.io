@@ -91,7 +91,7 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 
 ### 2025 October
 
-2025-10-02 During a government shutdown, Trump pulled $8 billion in clean-energy funding from Democratic-led states.
+2025-10-02 In response to the shutdown Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
 [https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states](https://www.pbs.org/newshour/politics/white-house-cancels-nearly-8b-in-clean-energy-projects-in-blue-states)
 

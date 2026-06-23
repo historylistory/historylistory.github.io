@@ -233,7 +233,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 [https://www.thefp.com/t/zohran-mamdani](https://www.thefp.com/t/zohran-mamdani)
 
 
-2025-09-11 Paramount announced it was exploring a bid for cable network Warner Brothers Discovery, which would then place two of Hollywood's most powerful studios under the same owner.
+2025-09-11 Paramount announced its bid for Warner Brothers Discovery, which would then place two of Hollywood’s most powerful studios under the same owner.
 
 [https://deadline.com/2025/09/paramount-exploring-bid-warner-bros-discovery-1236529093/](https://deadline.com/2025/09/paramount-exploring-bid-warner-bros-discovery-1236529093/)
 
@@ -309,13 +309,13 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
 
-2025-09-15 The U.S. discussed selling TikTok to Oracle founder Larry Ellison.
+2025-09-15 Trump considered selling TikTok to Larry Ellison. 
 
 [https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/](https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/)
 
 [https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html](https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html)
 
-2025-09-21 Trump discussed selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
+2025-09-21 Trump considered selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
 
 [https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html](https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html)
 

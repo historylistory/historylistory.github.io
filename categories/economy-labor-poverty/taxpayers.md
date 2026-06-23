@@ -106,11 +106,11 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 
-2025-09-14 News outlets reported that by this date government spending for immigration deportation had reached ***$75B (billion)*** taxpayer dollars.
+2025-09-14 Trump’s government spending on immigration reached $75B.
 
 [https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/](https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/)
 
-2025-09-24 The Trump administration rehired many DOGE-fired federal workers but only temporarily through October.
+2025-09-24 The Trump administration rehired many DOGE-fired federal workers.
 
 [https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5\](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5/)
 

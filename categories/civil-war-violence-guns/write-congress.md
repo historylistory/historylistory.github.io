@@ -283,7 +283,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-09-14 Katie Miller was publicly frazzled about chalk drawings on her sidewalk and claimed it was an act of intimidation. Derrick Van Orden replied on X, "We are 100% behind you. These people are domestic terrorists". Then Van Orden posted “the @dccc / @DNC and the complicit media are driving America to a second civil war. No one ever said: ‘Not all Confederates are bad’ during the first one. Until they collectively renounce members of their own party, I’m done with them”.
 
-2025-09-14 Trump requested an additional $58 million for security measures protecting his administration
+2025-09-14 Trump requested an additional $58M in taxpayer funds for security. 
 
 2025-09-14 On his podcast, Glenn Beck told his listeners that what Charlie Kirk was doing wasn’t politics, it was an attempt to stand up for people’s civil rights. 
 OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is as a right-wing megadonor, Kirk frequently bashed principles Martin Luther King fought for, called George Floyd a scumbag, abhorred the idea of women choosing careers over having babies, weaponized the bible with Gish-galloping and fallacy tactics, fanned the flames of civil unrest on his podcast, and frequently spewed hate rhetoric about the LGBTQ+ community.

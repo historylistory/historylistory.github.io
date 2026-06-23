@@ -215,7 +215,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://www.thefp.com/t/zohran-mamdani](https://www.thefp.com/t/zohran-mamdani)
 
-2025-09-11 Paramount announced it was exploring a bid for cable network Warner Brothers Discovery, which would then place two of Hollywood's most powerful studios under the same owner.
+2025-09-11 Paramount announced its bid for Warner Brothers Discovery, which would then place two of Hollywood’s most powerful studios under the same owner.
 
 [https://deadline.com/2025/09/paramount-exploring-bid-warner-bros-discovery-1236529093/](https://deadline.com/2025/09/paramount-exploring-bid-warner-bros-discovery-1236529093/)
 

@@ -28,6 +28,22 @@ permalink: /categories/health/medicaremedicaid/
 
 [https://www.youtube.com/shorts/gqdwSLKE554](https://www.youtube.com/shorts/gqdwSLKE554)
 
+### 2025 October
+
+2025-10-01 During the shutdown Republicans falsely claimed Democrats were trying to give free Medicare to immigrants. 
+
+[https://www.whitehouse.gov/government-shutdown-clock/](https://www.whitehouse.gov/government-shutdown-clock/)
+
+[https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
+
+[https://www.healthinsurance.org/glossary/american-rescue-plan/](https://www.healthinsurance.org/glossary/american-rescue-plan/)
+
+[https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html](https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html)
+
+[https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/](https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/)
+
+[https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
+
 ### 2026 April
 
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.

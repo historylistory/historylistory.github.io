@@ -122,13 +122,13 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2025 September
 
-2025-09-15 The U.S. discussed selling TikTok to Oracle founder Larry Ellison.
+2025-09-15 Trump considered selling TikTok to Larry Ellison. 
 
 [https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/](https://www.reuters.com/world/china/oracles-stake-tiktok-us-joint-venture-is-worth-roughly-2-billion-filing-shows-2026-03-11/)
 
 [https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html](https://www.cnbc.com/2026/03/11/oracle-tiktok-us-stake-outages.html)
 
-2025-09-21 Trump discussed selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
+2025-09-21 Trump considered selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
 
 [https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html](https://www.cnbc.com/2025/09/21/trump-tiktok-murdoch-fox-bytedance.html)
 

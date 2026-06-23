@@ -54,7 +54,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2025 September
 
-2025-09-24 The Trump administration rehired many DOGE-fired federal workers but only temporarily through October.
+2025-09-24 The Trump administration rehired many DOGE-fired federal workers.
 
 [https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5](https://www.wusa9.com/article/news/politics/federal-fallout/trump-administration-moves-rehire-laid-off-federal-workers/65-4b677119-5100-4709-9ae9-4d5f217c71e5)
 
