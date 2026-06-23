@@ -115,7 +115,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### 2026 May
 
-2026-05-13 Senator Slotkin on fertilizer shortage caused by the war in Iran and the importance of Michigan potash.
+2026-05-13 The fertilizer shortage hit home for farmers in Michigan. 
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 

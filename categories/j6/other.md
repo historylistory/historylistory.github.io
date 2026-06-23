@@ -62,7 +62,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/](https://thehill.com/homenews/campaign/5876242-cassidy-fails-louisiana-gop-primary-letlow-fleming/)
 
-2026-05-20 Two officers filed a lawsuit against the Trump administration’s $1.8B “anti-weaponization” fund to reward J6 insurrectionists for their attack on the Capitol. 
+2026-05-20 Two officers filed a lawsuit against the Trump administration for rewarding J6 insurrectionists with a slush fund. 
 
 [https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3](https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3)
 

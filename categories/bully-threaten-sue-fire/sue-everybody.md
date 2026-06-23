@@ -244,7 +244,7 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 ### 2026 May
 
-2026-05-16 Trump reportedly dropped his $10 billion IRS lawsuit in exchange for creation of a taxpayer-funded $1.7 billion anti-weaponization compensation fund to pay off J6 insurrectionists. 
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists.
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
 
@@ -270,7 +270,7 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 [https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)
 
-2026-05-20 (CONTEXT - FOLLOW UP ON SLUSH FUND) Two officers filed a lawsuit against the Trump administration’s $1.8B “anti-weaponization” fund to reward J6 insurrectionists for their attack on the Capitol. 
+2026-05-20 Two officers filed a lawsuit against the Trump administration for rewarding J6 insurrectionists with a slush fund. 
 
 [https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3](https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3)
 

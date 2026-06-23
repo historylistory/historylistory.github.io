@@ -571,7 +571,7 @@ SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-h
 
 
 
-2026-05-19 A survey showed that at least 25% of job seekers reported it has taken them a year or longer to find a replacement job. 
+2026-05-19 Twenty-five percent of job seekers reported it had taken them a year or longer to find a job. 
 
 [https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1](https://www.youtube.com/watch?v=QtEAIO6zYTo&list=WL&index=1)
 

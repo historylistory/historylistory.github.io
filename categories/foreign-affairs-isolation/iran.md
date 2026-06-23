@@ -1739,7 +1739,7 @@ VIDEO [https://www.msn.com/en-us/news/us/scott-jennings-snaps-at-adam-mockler-du
 
 [https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
 
-2026-05-13 Senator Slotkin on fertilizer shortage caused by the war in Iran and the importance of Michigan potash.
+2026-05-13 The fertilizer shortage hit home for farmers in Michigan. 
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 

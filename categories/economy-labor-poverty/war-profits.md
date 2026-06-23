@@ -86,7 +86,7 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 
 PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)
 
-2026-05-13 (CONTEXT) Trump met with President Xi Jinping in China to discuss trade and arms sales.
+2026-05-13 Trump met with President Xi Jinping in China to discuss trade and arms sales.
 
 [https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879](https://apnews.com/article/trump-xi-china-trip-arrival-353c768987542843e2033aa684266879)
 

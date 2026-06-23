@@ -113,7 +113,7 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 ### 2026 May
 
-2026-05-14 The White House erected a stage at the National Mall to host a religious ceremony for the U.S. 250, featuring Franklin Graham, Cardinal Timothy Dolan, Pastor and Samuel Rodriguez. This is another effort to advance Christian Nationalism, exclude other religions or respect non-followers, and dismantle the separation of church and state.
+2026-05-14 The White House erected a taxpayer-funded stage at the National Mall to advance Christian Nationalism and exclude other religions. Co-president of the Freedom From Religion Foundation Annie Laurie Gaylor wrote, “Our Constitution is godless by design. The government has no authority to organize religious revivals, much less use them to promote a Christian nationalist agenda”.
 
 [https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7](https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7)
 

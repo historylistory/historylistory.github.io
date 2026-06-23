@@ -235,7 +235,7 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 [https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs](https://www.bloomberg.com/news/articles/2025-05-08/china-is-said-seeking-argentina-crops-as-it-skirts-us-tariffs)
 
-2026-05-13 Senator Slotkin on fertilizer shortage caused by the war in Iran and the importance of Michigan potash.
+2026-05-13 The fertilizer shortage hit home for farmers in Michigan. 
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 

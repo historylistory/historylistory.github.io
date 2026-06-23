@@ -349,7 +349,7 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 
 [https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)
 
-2026-05-13 Senator Slotkin on fertilizer shortage caused by the war in Iran and the importance of Michigan potash.
+2026-05-13 The fertilizer shortage hit home for farmers in Michigan. 
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 

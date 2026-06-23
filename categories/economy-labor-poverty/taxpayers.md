@@ -400,7 +400,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
-2026-05-14 The White House erected a stage at the National Mall to host a religious ceremony for the U.S. 250, featuring Franklin Graham, Cardinal Timothy Dolan, Pastor and Samuel Rodriguez. This is another effort to advance Christian Nationalism, exclude other religions or respect non-followers, and dismantle the separation of church and state. This was taxpayer funded. Co-president of the Freedom From Religion Foundation Annie Laurie Gaylor wrote, “Our Constitution is godless by design. The government has no authority to organize religious revivals, much less use them to promote a Christian nationalist agenda”.
+2026-05-14 The White House erected a taxpayer-funded stage at the National Mall to advance Christian Nationalism and exclude other religions. Co-president of the Freedom From Religion Foundation Annie Laurie Gaylor wrote, “Our Constitution is godless by design. The government has no authority to organize religious revivals, much less use them to promote a Christian nationalist agenda”.
 
 [https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7](https://www.youtube.com/watch?v=_ISa1_YQPXc&list=WL&index=7)
 
@@ -409,7 +409,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
 
 
-2026-05-16 Trump reportedly dropped his $10 billion IRS lawsuit in exchange for creation of a taxpayer-funded $1.7 billion anti-weaponization compensation fund to pay off J6 insurrectionists. 
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists.
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
 
@@ -427,7 +427,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)
 
-2026-05-20 (CONTEXT - FOLLOW UP ON SLUSH FUND) Two officers filed a lawsuit against the Trump administration’s $1.8B “anti-weaponization” fund to reward J6 insurrectionists for their attack on the Capitol. 
+2026-05-20 Two officers filed a lawsuit against the Trump administration for rewarding J6 insurrectionists with a slush fund. 
 
 [https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3](https://www.youtube.com/watch?v=2rm_2tYr8HE&list=WL&index=3)
 

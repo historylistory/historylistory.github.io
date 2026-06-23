@@ -528,7 +528,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-05-16 Representative Thomas Massie, who supported release of the Epstein files, was projected to lose his Kentucky primary. 
 
-2026-05-16 Trump reportedly dropped his $10 billion IRS lawsuit in exchange for creation of a taxpayer-funded $1.7 billion anti-weaponization compensation fund to pay off J6 insurrectionists. 
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists.
 
 2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
 
