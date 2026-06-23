@@ -78,7 +78,7 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 
 ### 2026 April
 
-2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+2026-04-13 UN’s Chief Economist Maximo Torero warned of a global food crisis because of the U.S.-Israeli war in Iran. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
 

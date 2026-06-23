@@ -137,3 +137,11 @@ permalink: /categories/economy-labor-poverty/housing/
 2026-05-23 Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 [https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html](https://www.yahoo.com/news/politics/articles/white-house-wants-eliminate-housing-160000708.html)
+
+2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
+
+[https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/](https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/)
+
+[https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la](https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la)
+
+HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)

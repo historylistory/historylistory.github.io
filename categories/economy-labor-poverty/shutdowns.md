@@ -181,7 +181,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s](https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s)
 
-2026-03-17 While hundreds of TSA workers quit their jobs due to no pay, Trump continued to fund DHS and asked for $200B to fund his elective war in Iran which he repeatedly claimed “would be over soon”. 
+2026-03-17 Trump requested an addition $200B for his elective war in Iran, claiming it, “would be over soon”. Meanwhile hundreds of TSA workers quit their jobs due to no pay while Trump ensured DHS received their paychecks. For contrast, the war in Iraq cost $815B over the course of 13 years. Fast-forward, the US entered a deal with Iran in June to give them $300B for reconstruction. 
 
 [https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
 
@@ -192,6 +192,17 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 [https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
 
 [https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
+
+[https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
+
+[https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/](https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/)
+
+[https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html](https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html)
+
+[https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
+
+[https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
 
 2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
 
@@ -205,7 +216,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html](https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html)
 
-2026-03-27 The proposed funding bill by Democrats to fund TSA workers finally passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.
+2026-03-27 The proposed funding bill by Democrats to fund TSA workers passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.
 
 [https://www.bbc.com/news/articles/cgj052l1j2no](https://www.bbc.com/news/articles/cgj052l1j2no)
 

@@ -215,7 +215,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://edition.cnn.com/world/live-news/iran-war-us-israel-trump-03-11-26?post-id=cmmmmhvyy00023b6u108rfblm](https://edition.cnn.com/world/live-news/iran-war-us-israel-trump-03-11-26?post-id=cmmmmhvyy00023b6u108rfblm)
 
-2026-03-17 The Trump administration reportedly planned to pay $1B (in taxpayer money?) to stop offshore wind farm projects outside New York and North Carolina.
+2026-03-17 Trump offered a $1B payoff to big energy companies to walk away from their wind farm leases. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html](https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html)
 
@@ -224,7 +224,17 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://electricityinfo.org/news/us-wind-8/](https://electricityinfo.org/news/us-wind-8/)
 
 
-2026-03-19 Pete Hegseth requested ***another $200B*** for the war in Iran after entering its *third week.* For contrast: The war in Iraq cost $815B but that was over the course of **13 years**.
+2026-03-17 Trump requested an addition $200B for his elective war in Iran, claiming it, “would be over soon”. Meanwhile hundreds of TSA workers quit their jobs due to no pay while Trump ensured DHS received their paychecks. For contrast, the war in Iraq cost $815B over the course of 13 years. Fast-forward, the US entered a deal with Iran in June to give them $300B for reconstruction. 
+
+[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
+
+[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
+
+[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
+
+[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
+
+[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
 
 [https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
 
@@ -235,6 +245,8 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
 
 [https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
+
 
 2026-03-20 In an interview with CNN’s Kaitlyn Collins, Scott Perry said he’d like to see Iran pay for the war.
 

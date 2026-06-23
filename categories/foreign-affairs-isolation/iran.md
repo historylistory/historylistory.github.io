@@ -852,6 +852,29 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 [https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9](https://www.youtube.com/watch?v=vCM1HB-Vaag&list=WL&index=9)
 
+2026-03-17 Trump requested an addition $200B for his elective war in Iran, claiming it, “would be over soon”. Meanwhile hundreds of TSA workers quit their jobs due to no pay while Trump ensured DHS received their paychecks. For contrast, the war in Iraq cost $815B over the course of 13 years. Fast-forward, the US entered a deal with Iran in June to give them $300B for reconstruction. 
+
+[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
+
+[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
+
+[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
+
+[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
+
+[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
+
+[https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
+
+[https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/](https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/)
+
+[https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html](https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html)
+
+[https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
+
+[https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
+
 2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. Trump said, *”I always thought he was a nice guy but I always thought he was weak on security”*.  Two days later the FBI conducted an investigation into Joe Kent for alleged leaks.
 
 [https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
@@ -928,17 +951,6 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010](https://www.nbcnews.com/world/iran/live-blog/live-updates-iran-war-energy-prices-trump-gas-field-israel-qatar-rcna264010)
 
-2026-03-19 Pete Hegseth requested ***another $200B*** for the war in Iran after entering its *third week.* For contrast: The war in Iraq cost $815B but that was over the course of **13 years**.
-
-[https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
-
-[https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/](https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/)
-
-[https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html](https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html)
-
-[https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
-
-[https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
 
 2026-03-19 Scott Bessent said the US may lift sanctions on Iranian oil.
 
@@ -950,7 +962,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.bbc.com/news/articles/c9d415g55nno](https://www.bbc.com/news/articles/c9d415g55nno)
 
-2026-03-19 Plastics are made with petroleum. The Iran war economic impact would reach consumer plastics such as food packaging, resin and polymer markets…essentially any materials made with plastics.  Since plastics are a cheap way for corporations to pad their profit margins, it is to be expected they will also pass this cost onto the consumers. Also, the aluminum market was affected. 
+2026-03-19 The Iran war impacted food packaging, resin, aluminum and the polymer market. 
 
 [https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient](https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient)
 
@@ -986,7 +998,7 @@ The questioning continued on like this. Ossoff clarified that it is a false asse
 
 [https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b](https://www.huffpost.com/entry/scott-perry-iran-pay-trump-war-cost_n_69bd4de2e4b0284f9be0117b)
 
-2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
+2026-03-20 Globally because of the Iran war people are rationing petrol, cutting out meals, and losing crops. 
 
 [https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways](https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways)
 
@@ -1366,7 +1378,7 @@ VIDEO [https://www.bbc.com/news/live/cp9vm5ezxz4t](https://www.bbc.com/news/live
 PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/](https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/)
 
 
-2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+2026-04-13 UN’s Chief Economist Maximo Torero warned of a global food crisis because of the U.S.-Israeli war in Iran. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
 

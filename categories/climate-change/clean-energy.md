@@ -106,7 +106,7 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 
 ### 2026 March
 
-2026-03-17 The Trump administration reportedly planned to pay $1B (in taxpayer money?) to stop offshore wind farm projects outside New York and North Carolina.
+2026-03-17 Trump offered a $1B payoff to big energy companies to walk away from their wind farm leases. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html](https://www.the-independent.com/news/world/americas/us-politics/trump-wind-energy-settlements-climate-b2940566.html)
 

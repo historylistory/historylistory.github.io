@@ -96,6 +96,66 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 [https://www.cnn.com/politics/live-news/trump-government-shutdown-flight-cancellations-delays-11-07-25](https://www.cnn.com/politics/live-news/trump-government-shutdown-flight-cancellations-delays-11-07-25)
 
+### 2026 March
+
+2026-03-17 Trump requested an addition $200B for his elective war in Iran, claiming it, “would be over soon”. Meanwhile hundreds of TSA workers quit their jobs due to no pay while Trump ensured DHS received their paychecks. For contrast, the war in Iraq cost $815B over the course of 13 years. Fast-forward, the US entered a deal with Iran in June to give them $300B for reconstruction. 
+
+[https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
+
+[https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3](https://www.businessinsider.com/tsa-agents-quit-partial-government-shutdown-airport-delays-2026-3)
+
+[https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown](https://federalnewsnetwork.com/government-shutdown/2026/03/federal-employee-unions-organizations-call-for-an-end-to-dhs-shutdown)
+
+[https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees](https://www.fedweek.com/fedweek/only-partial-payday-coming-up-for-most-dhs-employees)
+
+[https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact](https://www.pbs.org/newshour/nation/heres-what-to-know-about-the-partial-government-shutdown-and-its-impact)
+
+[https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791](https://apnews.com/article/iran-war-us-pentagon-972ec1bd956a2c3633e6ab7fff389791)
+
+[https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/](https://thehill.com/newsletters/defense-national-security/5792787-gop-grapples-with-200-billion-pentagon-funding-ask-for-iran-war/)
+
+[https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html](https://www.cnbc.com/2026/03/19/hegseth-iran-war-budget.html)
+
+[https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress](https://www.cnn.com/2026/03/19/politics/iran-war-cost-republicans-congress)
+
+[https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
+
+
+2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
+
+[https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)
+
+[https://abcnews.com/Politics/trump-hell-sign-order-directing-dhs-pay-tsa/story?id=131441186](https://abcnews.com/Politics/trump-hell-sign-order-directing-dhs-pay-tsa/story?id=131441186)
+
+[https://www.cbsnews.com/news/trump-order-tsa-pay-as-dhs-shutdown-drags-on/](https://www.cbsnews.com/news/trump-order-tsa-pay-as-dhs-shutdown-drags-on/)
+
+[https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents](https://www.foxnews.com/politics/trump-declares-national-emergency-airports-sign-order-instructing-dhs-immediately-pay-tsa-agents)
+
+[https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html](https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html)
+
+2026-03-27 The proposed funding bill by Democrats to fund TSA workers passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.
+
+[https://www.bbc.com/news/articles/cgj052l1j2no](https://www.bbc.com/news/articles/cgj052l1j2no)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-johnson-dhs-house-rebels-senate-bill-ice-cbp-rcna265507](https://www.nbcnews.com/politics/trump-administration/trump-johnson-dhs-house-rebels-senate-bill-ice-cbp-rcna265507)
+
+[https://www.cbsnews.com/live-updates/dhs-shutdown-2026-senate-funding-day-42/](https://www.cbsnews.com/live-updates/dhs-shutdown-2026-senate-funding-day-42/)
+
+[https://www.foxnews.com/politics/house-gop-rams-through-new-dhs-funding-plan-shutdowns-end-remains-air](https://www.foxnews.com/politics/house-gop-rams-through-new-dhs-funding-plan-shutdowns-end-remains-air)
+
+### 2026 April
+
+2026-04-03 Trump’s new budget seeks TSA privatization.
+
+[https://www.cnn.com/2026/04/04/us/tsa-private-airport-security-screening](https://www.cnn.com/2026/04/04/us/tsa-private-airport-security-screening)
+
+[https://www.politico.com/news/2026/04/08/9-11-looms-over-trumps-push-to-privatize-airport-security-00862356](https://www.politico.com/news/2026/04/08/9-11-looms-over-trumps-push-to-privatize-airport-security-00862356)
+
+[https://www.reuters.com/world/us/trump-proposes-begin-privatizing-us-airport-security-operations-2026-04-03/](https://www.reuters.com/world/us/trump-proposes-begin-privatizing-us-airport-security-operations-2026-04-03/)
+
+[https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/](https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/)
+
+
 ### 2026 May
 
 2026-05-05 Due to Trump’s economy, Delta Airlines announced it would drop food and beverage services from flights under 350 miles.

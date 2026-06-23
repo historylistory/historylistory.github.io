@@ -444,7 +444,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/](https://breakingdefense.com/2026/04/golden-dome-out-years-and-lots-of-missiles-details-of-trumps-1-5t-defense-budget-request/)
 
-2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+2026-04-13 UN’s Chief Economist Maximo Torero warned of a global food crisis because of the U.S.-Israeli war in Iran. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
 
@@ -594,6 +594,14 @@ SUB WALL [https://www.latimes.com/california/story/2026-05-09/spencer-pratt-la-h
 [https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)
 
 [https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
+
+2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
+
+[https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/](https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/)
+
+[https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la](https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la)
+
+HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)
 
 ### 2026 June
 

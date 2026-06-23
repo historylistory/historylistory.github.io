@@ -35,7 +35,7 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 ### 2026 April
 
-2026-04-13 Texas Democrat Representative James Talarico announced he will introduce a bill to close billionaire loopholes. He announced this in front of a private jet hanger to illustrate “one of hundreds of loopholes that billionaires use to avoid paying taxes”. His goal is to target luxury deductions, close “carried interest” loopholes, restrict offshore accounts, end buy-borrow-die practices, and target tax cheats. 
+2026-04-13 Texas Democrat Representative James Talarico announced he will introduce a bill to close billionaire loopholes by targeting luxury deductions, restricting offshore accounts, and ending buy-borrow-die practices. 
 
 [https://www.youtube.com/watch?v=uHVMdKGRSbM&list=WL&index=3](https://www.youtube.com/watch?v=uHVMdKGRSbM&list=WL&index=3)
 

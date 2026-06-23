@@ -231,24 +231,6 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 April
 
-2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
-
-[https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
-
-[https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/](https://www.reuters.com/world/middle-east/abu-dhabis-newest-sovereign-fund-takes-control-peer-adq-major-wealth-reshuffle-2026-01-30/)
-
-[https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/](https://gfmag.com/capital-raising-corporate-finance/abu-dhabi-power-play-limad-emerges-as-300-billion-sovereign-force/)
-
-[https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies](https://www.theguardian.com/world/2026/may/07/uae-ruling-royal-family-eu-farming-subsidies)
-
-[https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/](https://deadline.com/2026/04/paramount-wbd-merger-foreign-backing-gulf-funds-deal-1236780058/)
-
-[https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C](https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C)
-
-PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364](https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364)
-
-
-
 2025-04-09 Democrats called for an investigation into insider trading, calling notice to Truth Social **posts about when to buy correlating with stock surges**. At 9:37AM Trump posted “THIS IS A GREAT TIME TO BUY!!! DJT”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/114308272725981913](https://truthsocial.com/@realDonaldTrump/posts/114308272725981913)
@@ -529,7 +511,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454](https://www.newsweek.com/donald-trump-jr-subpoena-blocked-by-republicans-11738454)
 
-2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
@@ -550,7 +532,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 ### 2026 April
 
-2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
+2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 [https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
 

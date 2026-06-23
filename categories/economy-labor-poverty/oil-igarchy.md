@@ -87,7 +87,7 @@ PAY WALL [https://www.washingtonpost.com/archive/local/1981/05/29/ecuador-bans-c
 
 ### 2026 March
 
-2026-03-20 Headline “How the Iran war has sent shocks rippling across the globe” (the Guardian). Some examples are rationing petrol, cutting down on meals, cutting back on crops due to unaffordable fertilizer.
+2026-03-20 Globally because of the Iran war people are rationing petrol, cutting out meals, and losing crops. 
 
 [https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways](https://www.theguardian.com/world/2026/mar/20/iran-war-shocks-across-globe-effects-key-takeaways)
 

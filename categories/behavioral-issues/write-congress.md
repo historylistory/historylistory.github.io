@@ -476,7 +476,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. 
 
-2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.
 
 2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
 
@@ -621,6 +621,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
 
 2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
+
+2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
 
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 

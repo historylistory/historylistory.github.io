@@ -127,7 +127,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 ### 2026 April
 
-2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
+2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 [https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
 

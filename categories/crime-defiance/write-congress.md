@@ -445,7 +445,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.
 
-2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.
 
 2026-03-27 At CPAC, Franklin Graham said Trump should be reelected for a third term before later stating he misspoke and meant Trump's policies should continue.
 
@@ -463,7 +463,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-04-05 Trump wrote on Truth Social, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”.
 
-2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
+2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 2026-04-06 Mediaite posted about allegations over GOP lawmaker Tony Gonzales (R-TX) making sexual demands from his campaign director to “squeeze my balls” back in 2020. This was years before the same GOP lawmaker admitted his 2024 affair with a congressional staffer who later died by suicide.
 

@@ -250,7 +250,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/](https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/)
 
-2026-04-06 Reports stated Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount's proposed $81 billion acquisition of Warner
+2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 [https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/](https://www.reuters.com/business/media-telecom/three-gulf-funds-agree-back-paramounts-81-billion-takeover-warner-wsj-reports-2026-04-05/)
 

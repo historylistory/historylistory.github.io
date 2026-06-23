@@ -142,7 +142,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2026 March
 
-2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran. On X, Senator Murphy wrote, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”. 
+2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
@@ -154,7 +154,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html](https://finance.yahoo.com/markets/commodities/articles/senator-chris-murphy-calls-1-103700373.html)
 
-2026-03-26 Mysterious trading patterns emerged on the PolyMarket trading app (whose investors include a venture capital firm owned by Donald Trump Jr), causing people to suspect insider-trading within Trump’s ranks. As one YouTuber puts it: this type of concern is being reported on in major news outlets, meaning opposing nations could identify insider accounts and infer US battle plans since they are already making huge bets on world events and then cashing out. **That puts American servicemembers’ lives at risk.** 
+2026-03-26 More mysterious trading patterns emerged on Polymarket. 
 
 [https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket](https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket)
 

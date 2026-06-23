@@ -766,6 +766,14 @@ TIMESTAMP 5:40 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html](https://www.yahoo.com/entertainment/celebrity/articles/barron-trump-skipped-donald-trump-151456997.html)
 
+2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
+
+[https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/](https://citylimits.org/mamdanis-housing-plan-to-overhaul-how-city-responds-to-tenants-heat-complaints-other-code-violations/)
+
+[https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la](https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la)
+
+HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)
+
 ### 2026 June
 
 2026-06-09 The UN documented hundreds of cases of extrajudicial punishment in Gaza including knee capping and bone breaking with metal pipes. 

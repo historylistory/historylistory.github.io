@@ -183,7 +183,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/](https://www.reuters.com/business/aerospace-defense/israeli-plan-lebanon-buffer-zone-follows-long-past-invasions-occupation-2026-03-26/)
 
-2026-03-26 Mysterious trading patterns emerged on the PolyMarket trading app (whose investors include a venture capital firm owned by Donald Trump Jr), causing people to suspect insider-trading within Trump’s ranks. As one YouTuber puts it: this type of concern is being reported on in major news outlets, meaning opposing nations could identify insider accounts and infer US battle plans since they are already making huge bets on world events and then cashing out. **That puts American servicemembers’ lives at risk.** 
+2026-03-26 More mysterious trading patterns emerged on Polymarket. 
 
 [https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket](https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket)
 

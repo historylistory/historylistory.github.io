@@ -199,7 +199,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://www.bbc.com/news/articles/c9d415g55nno](https://www.bbc.com/news/articles/c9d415g55nno)
 
-2026-03-19 Plastics are made with petroleum. The Iran war economic impact would reach consumer plastics such as food packaging, resin and polymer markets…essentially any materials made with plastics.  Since plastics are a cheap way for corporations to pad their profit margins, it is to be expected they will also pass this cost onto the consumers. Also, the aluminum market was affected. 
+2026-03-19 The Iran war impacted food packaging, resin, aluminum and the polymer market. 
 
 [https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient](https://www.bloomberg.com/news/articles/2026-03-19/iran-war-ripples-are-driving-up-prices-for-plastics-ingredient)
 
@@ -236,7 +236,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 
 
-2026-04-13 Due to the U.S.-Israeli war in Iran, chief economist Maximo Torero of the UN Food and Agriculture Organization warned a lengthy disruption in trade at the Strait of Hormuz will result in a global food crisis. 
+2026-04-13 UN’s Chief Economist Maximo Torero warned of a global food crisis because of the U.S.-Israeli war in Iran. 
 
 [https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s](https://www.youtube.com/watch?v=wwgxQMSZzbA&list=WL&index=1&t=2s)
 

@@ -467,7 +467,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/](https://fox5sandiego.com/hill-politics/democratic-lawmakers-seek-to-block-funds-for-military-action-in-cuba/)
 
-2026-03-26 Mysterious trading patterns emerged on the PolyMarket trading app (whose investors include a venture capital firm owned by Donald Trump Jr), causing people to suspect insider-trading within Trump’s ranks. As one YouTuber puts it: this type of concern is being reported on in major news outlets, meaning opposing nations could identify insider accounts and infer US battle plans since they are already making huge bets on world events and then cashing out. **That puts American servicemembers’ lives at risk.** 
+2026-03-26 More mysterious trading patterns emerged on Polymarket. 
 
 [https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket](https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket)
 
