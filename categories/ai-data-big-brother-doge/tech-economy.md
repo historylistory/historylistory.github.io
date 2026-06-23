@@ -62,7 +62,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
 
-2026-01-13 Reports cited Jeff Bezos predicting personal computing would eventually move to rented cloud computing.
+2026-01-13 Jeff Bezos said personal computing will inevitably move to the cloud, so someday people will have to “rent” cloud space just to use their computers. 
 
 [https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.](https://www.idnfinancials.com/news/60515/jeff-bezos-ai-signals-the-end-of-the-pc-era-drives-shift-to-cloud#:~:text=LM,that%20has%20become%20newly%20relevant.)
 

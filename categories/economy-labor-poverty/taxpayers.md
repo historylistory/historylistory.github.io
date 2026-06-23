@@ -168,13 +168,13 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2026 January
 
-2026-01-14 The Congressional Budget Office estimated it would cost American taxpayers up to ***$125M for rebranding the DoD*** as the Department of War.
+2026-01-14 The Congressional Budget Office estimated American taxpayers would spend $125M just to rebrand the DoD as “Department of War”. 
 
 [https://www.defensenews.com/news/pentagon-congress/2026/01/15/department-of-war-rebrand-could-cost-up-to-125-million-cbo-says/](https://www.defensenews.com/news/pentagon-congress/2026/01/15/department-of-war-rebrand-could-cost-up-to-125-million-cbo-says/)
 
 [https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535](https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535)
 
-2026-01-29 Trump sued the IRS and Treasury Department for $10 billion for sharing Trump’s tax information (funds from the lawsuit would be taxpayer money). 
+2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
 
 [https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)
 

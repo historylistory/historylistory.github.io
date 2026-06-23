@@ -57,7 +57,7 @@ permalink: /categories/economy-labor-poverty/housing/
 
 ### 2026 January
 
-2026-01-27 Trump said he intended to drive housing prices up, not down, stating, “I don’t want to drive housing prices down. I want to drive housing prices up for people that own their homes. And they can be assured that’s what’s going to happen”, further adding that policymakers should not make housing “too easy and too cheap”.
+2026-01-27 Trump said, “I don’t want to drive housing prices down. I want to drive housing prices up for people that own their homes. And they can be assured that’s what’s going to happen”. 
 
 [https://www.usatoday.com/story/news/politics/2026/01/29/trump-housing-prices-increase-affordability-economy-interest-mortgage-rates/88418610007/](https://www.usatoday.com/story/news/politics/2026/01/29/trump-housing-prices-increase-affordability-economy-interest-mortgage-rates/88418610007/)
 

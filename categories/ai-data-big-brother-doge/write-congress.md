@@ -179,7 +179,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-01-13 The FBI searched Washington Post reporter Hannah Natanson’s home and seized devices after she reported on DOGE-related layoffs.
 
-2026-01-13 Reports cited Jeff Bezos predicting personal computing would eventually move to rented cloud computing.
+2026-01-13 Jeff Bezos said personal computing will inevitably move to the cloud, so someday people will have to “rent” cloud space just to use their computers. 
 
 2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 

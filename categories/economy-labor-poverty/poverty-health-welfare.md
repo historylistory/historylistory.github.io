@@ -319,7 +319,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 December
 
-2025-12-15 A report cited another 35,000 VA jobs were going to be cut. 
+2025-12-15 Another 35,000 VA jobs were cut.
 
 [https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
 
@@ -330,7 +330,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 [https://dccc.org/jen-kiggans-silent-as-trumps-va-plans-to-eliminate-tens-of-thousands-of-jobs-reduce-veteran-care/](https://dccc.org/jen-kiggans-silent-as-trumps-va-plans-to-eliminate-tens-of-thousands-of-jobs-reduce-veteran-care/)
 
 
-2025-12-16 Obamacare subsidies were set to expire with four Republicans joining the Democrats to force a vote to stop this from happening. Congress sent lawmakers home form the holiday before the vote could happen.
+2025-12-16 Four Republicans joined Democrats to stop Obamacare subsidies from expiring, but Congress sent lawmakers home before the vote could happen. 
 
 [https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html](https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html)
 
@@ -338,12 +338,6 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring](https://www.cnn.com/2025/12/19/politics/congress-obamacare-subsidies-expiring)
 
-### 2026 January
-
-
-2026-01-14 Trump terminated $2B in mental health and addiction programs. 
-
-[https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants](https://www.npr.org/2026/01/14/nx-s1-5677104/trump-administration-letter-terminating-addiction-mental-health-grants)
 
 ### 2026 February
 

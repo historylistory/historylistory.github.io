@@ -209,7 +209,7 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 
 [https://www.nbcnews.com/business/economy/layoffs-highest-since-pandemic-challenger-rcna247351](https://www.nbcnews.com/business/economy/layoffs-highest-since-pandemic-challenger-rcna247351)
 
-2025-12-31 Under Trump the US economy added 181,000 jobs in all of 2025. For comparison, it added 1.46 million jobs in 2024 under Biden. 
+2025-12-31 Just 181,000 jobs were added in 2025, compared to 1.46M jobs in 2024 under Biden. 
 
 [https://www.nbcnews.com/business/economy/january-jobs-revisions-trump-rcna258398](https://www.nbcnews.com/business/economy/january-jobs-revisions-trump-rcna258398)
 
@@ -220,7 +220,7 @@ So anything related to shutdowns will be there, including weaponizing SNAP benef
 
 ### 2026 January
 
-2026-01-28 Amazon’s Jeff Bezos forked over $75M to fund a documentary about Melania Trump, and in the same month laid off 16,000 Amazon workers.
+2026-01-28 In the same month, Jeff Bezos both fired 16,000 Amazon workers and forked over $75M to Melania Trump so she could make a documentary about herself. 
 
 [https://www.theguardian.com/film/2026/jan/28/melania-trump-documentary-amazon-release](https://www.theguardian.com/film/2026/jan/28/melania-trump-documentary-amazon-release)
 

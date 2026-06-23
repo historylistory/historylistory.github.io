@@ -117,7 +117,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2026 January
 
-2026-01-06 As prediction markets became increasingly popular in 2026 – betting on things like weather and war-time activity – suspicious winnings began to emerge, causing alarm that this type of betting on politics and news may be insider information.  For example, very large payouts were reported after Maduro’s capture.
+2026-01-06 People are using insider information on prediction markets. 
 
 [https://www.cbsnews.com/news/polymarket-maduro-capture-bet-400000/](https://www.cbsnews.com/news/polymarket-maduro-capture-bet-400000/)
 

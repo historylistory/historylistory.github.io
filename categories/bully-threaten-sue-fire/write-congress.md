@@ -408,7 +408,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
-2026-01-29 Trump sued the IRS and Treasury Department for $10 billion for sharing Trump’s tax information (funds from the lawsuit would be taxpayer money). 
+2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 
 

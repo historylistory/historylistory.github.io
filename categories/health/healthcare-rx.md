@@ -125,7 +125,7 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2025 December
 
-2025-12-16 Obamacare subsidies were set to expire with four Republicans joining the Democrats to force a vote to stop this from happening. Congress sent lawmakers home form the holiday before the vote could happen.
+2025-12-16 Four Republicans joined Democrats to stop Obamacare subsidies from expiring, but Congress sent lawmakers home before the vote could happen. 
 
 [https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html](https://www.cnbc.com/2025/12/23/expiring-aca-subsidies-most-affected.html)
 

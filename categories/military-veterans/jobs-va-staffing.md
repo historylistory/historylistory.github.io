@@ -30,7 +30,7 @@ permalink: /categories/military-veterans/jobs-va-staffing/
 
 ### 2025 December
 
-2025-12-15 A report cited another 35,000 VA jobs were going to be cut. 
+2025-12-15 Another 35,000 VA jobs were cut.
 
 [https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/](https://www.reuters.com/world/us/us-veterans-affairs-agency-plans-health-care-job-cuts-wapo-reports-2025-12-13/)
 

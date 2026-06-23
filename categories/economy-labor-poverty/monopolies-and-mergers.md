@@ -28,7 +28,7 @@ permalink: /categories/economy-labor-poverty/monopolies-and-mergers/
 
 ### Alcohol
 
-Three companies control roughly 75% of beer production.
+2026-01-01 Three companies control roughly 75% of beer production. Trump revoked EO 14036 limiting monopolies.  
 
 [https://qz.com/2125164/us-beer-drinkers-are-overpaying-for-beer-by-500-million-a-year](https://qz.com/2125164/us-beer-drinkers-are-overpaying-for-beer-by-500-million-a-year)
 
@@ -39,9 +39,14 @@ Three companies control roughly 75% of beer production.
 
 ### Amazon
 
+2026-01-01 Amazon controls 38% of e-commerce. Trump revoked EO 14036 limiting monopolies.  
+
 [https://www.tntechoracle.com/2026/04/14/monopolies-are-turning-us-to-an-oligarchy](https://www.tntechoracle.com/2026/04/14/monopolies-are-turning-us-to-an-oligarchy)
 
 ### Appliances
+
+2026-01-01 Whirlpool controls all the major appliances. Trump revoked EO 14036 limiting monopolies.  
+
 [https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx](https://investors.whirlpoolcorp.com/news-and-events/news/news-details/2006/Whirlpool-Corporation-Completes-Acquisition-of-Maytag-Corporation/default.aspx)
 
 2026-05-07 (for context because larger companies who have the edge on our markets seem to play victim to prices; it's their bottom line that matters here, not consumer survival). Whirlpool reported plans to raise their prices on appliances again after reporting shares are down 12%. They called it a “recession-level industry decline”. 
@@ -62,6 +67,8 @@ Three companies control roughly 75% of beer production.
 
 
 ### De Beers (Diamonds)
+
+2026-01-01 De Beers controls the entire diamond industry. Trump revoked EO 14036 limiting monopolies. 
 
 [https://www.aol.com/articles/10-industries-secretly-monopolies-145205692.html](https://www.aol.com/articles/10-industries-secretly-monopolies-145205692.html)
 
@@ -148,6 +155,8 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### Health Insurance
 
+2015-07-03 Aetna merged with Humana. Trump killed legislation designed to prevent monopolies. 
+
 [https://www.npr.org/sections/thetwo-way/2015/07/03/419797436/aetna-announces-37-billion-merger-with-rival-humana](https://www.npr.org/sections/thetwo-way/2015/07/03/419797436/aetna-announces-37-billion-merger-with-rival-humana)
 
 
@@ -181,6 +190,8 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 
 ### Luxottica (glasses)
+
+2026-01-01 Luxottica controls all the eyewear. Trump revoked EO 14036 limiting monopolies. 
 
 [https://www.aol.com/articles/10-industries-secretly-monopolies-145205692.html](https://www.aol.com/articles/10-industries-secretly-monopolies-145205692.html)
 
@@ -293,6 +304,8 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 ### Sysco
 
+2026-01-01 Sysco delivers the same shitty frozen food products to all the restaurants. Trump revoked EO 14036 limiting monopolies. 
+
 [https://www.openmarketsinstitute.org/publications/condemns-sysco-plan-to-buy-restaurant-depo](https://www.openmarketsinstitute.org/publications/condemns-sysco-plan-to-buy-restaurant-depo)
 
 [https://www.foodandwine.com/independent-restaurants-oppose-sysco-restaurant-depot-deal-11941190](https://www.foodandwine.com/independent-restaurants-oppose-sysco-restaurant-depot-deal-11941190)
@@ -337,6 +350,8 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 
 ### VISA
+
+2026-01-01  VISA dominates the global credit card industry. Trump revoked EO 14036 limiting monopolies.
 
 [https://camoinassociates.com/resources/6-reasons-monopolies-are-bad-for-the-economy/](https://camoinassociates.com/resources/6-reasons-monopolies-are-bad-for-the-economy/)
 

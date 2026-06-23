@@ -117,7 +117,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-12-13 When Kristi Noem claimed DHS had not detained any US citizens or military veterans Representative Seth Magaziner of Rhode Island provided key testimonies from multiple combat veterans who had been detained and were legal citizens. 
 
-2025-12-15 A report cited another 35,000 VA jobs were going to be cut. 
+2025-12-15 Another 35,000 VA jobs were cut.
 
 2025-12-17 During a confirmation hearing Justin Olson was asked to explain his former statements that disabled people should not marry and that wives should be subject to their husbands. He stated, “I was describing our church’s understanding of what Christian marriage ought to look like”. 
 

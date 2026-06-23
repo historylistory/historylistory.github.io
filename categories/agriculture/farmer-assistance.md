@@ -32,7 +32,7 @@ permalink: /categories/agriculture/farmer-assistance/
 
 ### 2025 December
 
-2025-12-14 Trump announced he would use $12B of tariff revenue to bailout farmers who were hurting from the tariffs.
+2025-12-14 Trump announced a $12B bailout for farmers using tariff revenue.
 
 [https://www.tennessean.com/story/opinion/columnists/2025/12/14/trump-tariffs-china-american-farmers-bailout-costs-taxpayers/87752351007/](https://www.tennessean.com/story/opinion/columnists/2025/12/14/trump-tariffs-china-american-farmers-bailout-costs-taxpayers/87752351007/)
 

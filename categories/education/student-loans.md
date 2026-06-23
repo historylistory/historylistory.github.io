@@ -34,7 +34,7 @@ permalink: /categories/education/student-loans/
 
 ### 2026 January
 
-2026-01-01 Starting in 2026, the IRS will now consider cancelled student loans as income and they will be taxable.
+2026-01-01 Trump’s IRS is going to consider student loans as income and start taxing them. 
 
 [https://www.cnbc.com/2026/01/01/student-loan-forgiveness-taxes.html](https://www.cnbc.com/2026/01/01/student-loan-forgiveness-taxes.html)
 

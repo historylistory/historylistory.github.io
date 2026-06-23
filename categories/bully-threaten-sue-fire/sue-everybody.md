@@ -174,7 +174,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html](https://www.nytimes.com/2026/01/17/business/media/cbs-news-trump-interview.html)
 
-2026-01-29 Trump sued the IRS and Treasury Department for $10 billion for sharing Trump’s tax information (funds from the lawsuit would be taxpayer money). 
+2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
 
 [https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)
 

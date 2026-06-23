@@ -213,11 +213,11 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 [https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-announces-the-reset-of-corporate-average-fuel-economy-cafe-standards/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-announces-the-reset-of-corporate-average-fuel-economy-cafe-standards/)
 
 
-2025-12-17 Trump decided to hold an 18-minute televised press conference fixating on Biden, deflecting affordability concerns, and touting a great economy that Americans were not seeing or feeling.
-
-{% include youtubePlayer.html id="Mjzh_lghnq4" %}
+2025-12-17 Trump held an 18-minute press conference to fixate on Biden, deflect affordability concerns, and tout a so-called “great economy”. 
 
 [https://www.npr.org/2025/12/18/nx-s1-5647515/trump-tried-to-ease-economic-anxieties-with-his-primetime-address-did-it-work](https://www.npr.org/2025/12/18/nx-s1-5647515/trump-tried-to-ease-economic-anxieties-with-his-primetime-address-did-it-work)
+
+{% include youtubePlayer.html id="Mjzh_lghnq4" %}
 
 ### 2026 February
 
