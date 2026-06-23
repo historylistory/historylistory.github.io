@@ -48,7 +48,7 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 ### 2025 November
 
-2025-11-11 In a social media post, Trump threatened to dock pay for air traffic controllers who called out sick during the 40+ day government shutdown and flaunted a potential $10K bonus for those who didn’t call out. For context, news outlets reported that air traffic controllers were having to find second jobs to help pay for bills and groceries.
+2025-11-11 Trump threatened to dock pay for air traffic controllers who called out sick during the government shutdown. Air traffic controllers were out looking for second jobs to help pay for bills and groceries. 
 
 [https://www.axios.com/2025/11/10/trump-air-traffic-controllers-pay-shutdown](https://www.axios.com/2025/11/10/trump-air-traffic-controllers-pay-shutdown)
 
@@ -68,17 +68,17 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.nbcnews.com/news/us-news/penny-out-of-circulation-mint-rcna243486](https://www.nbcnews.com/news/us-news/penny-out-of-circulation-mint-rcna243486)
 
-2025-11-13**Recommended Video:** Elizabeth Warren provided a video with context on how private equity firms gut American businesses and threaten American pensions. She discussed how her bill “Corporate Crimes Against Healthcare Act” is designed to stop private equity firms from this sort of activity. One example of a private equity firm would be Mitt Romney’s Bain Capital.
-
-{% include youtubePlayer.html id="8_A_Th4aj_0" %}
+2025-11-13 Private equity firms gutted American businesses and pensions (i.e. Mitt Romney’s Bain Capital). See Elizabeth Warren’s bill “Corporate Crimes Against Healthcare Act”. 
 
 [https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-](https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-)
 
 [https://www.rollingstone.com/politics/politics-news/greed-and-debt-the-true-story-of-mitt-romney-and-bain-capital-183291/](https://www.rollingstone.com/politics/politics-news/greed-and-debt-the-true-story-of-mitt-romney-and-bain-capital-183291/)
 
+{% include youtubePlayer.html id="8_A_Th4aj_0" %}
+
 ### 2025 December
 
-2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
+2025-12-03 Trump rolled back vehicle fuel-efficiency standards, reduced targets from roughly 50 MPG to about 35 MPG and claimed that lowering carbon emissions was the cause for high auto prices.
 
 [https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236](https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236)
 

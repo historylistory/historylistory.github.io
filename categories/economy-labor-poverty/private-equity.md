@@ -49,13 +49,13 @@ PAY WALL [https://www.washingtonpost.com/business/2025/10/27/private-equity-hosp
 
 ### What About Private Equity?
 
-2025-11-13 **Recommended Video:** Elizabeth Warren provided a video with context on how private equity firms gut American businesses and threaten American pensions. She discussed how her bill “Corporate Crimes Against Healthcare Act” is designed to stop private equity firms from this sort of activity. One example of a private equity firm would be Mitt Romney’s Bain Capital.
-
-{% include youtubePlayer.html id="8_A_Th4aj_0" %}
+2025-11-13 Private equity firms gutted American businesses and pensions (i.e. Mitt Romney’s Bain Capital). See Elizabeth Warren’s bill “Corporate Crimes Against Healthcare Act”. 
 
 [https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-](https://www.ueunion.org/political-action/2012/mitt-romney-and-bain-capital-greed-debt-and-hypocrisy-)
 
 [https://www.rollingstone.com/politics/politics-news/greed-and-debt-the-true-story-of-mitt-romney-and-bain-capital-183291/](https://www.rollingstone.com/politics/politics-news/greed-and-debt-the-true-story-of-mitt-romney-and-bain-capital-183291/)
+
+{% include youtubePlayer.html id="8_A_Th4aj_0" %}
 
 ### Terminology
 

@@ -43,7 +43,7 @@ permalink: /categories/agriculture/farm-sales/
  
 ### 2025 November
 
-2025-11-21 The Tyson Foods company announced it would close the long-time Lexington Nebraska beef plant around January 2026, leaving roughly 3200 people out of a job. Also noteworthy, it was reported that this closure would boost Tyson stocks by 6%.
+2025-11-21 Tyson Foods closed the Lexington Nebraska beef plant, leaving roughly 3200 people out of a job. This boosted Tyson stocks by 6%.
 
 [https://cap.unl.edu/news/understanding-tyson-lexington-plant-closure-what-it-means-cattle-producers/](https://cap.unl.edu/news/understanding-tyson-lexington-plant-closure-what-it-means-cattle-producers/)
 

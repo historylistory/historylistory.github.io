@@ -84,7 +84,7 @@ permalink: /categories/behavioral-issues/read-the-room-asshole/
 
 [https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/](https://www.whitehouse.gov/briefings-statements/2025/07/the-white-house-announces-white-house-ballroom-construction-to-begin/)
 
-2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 

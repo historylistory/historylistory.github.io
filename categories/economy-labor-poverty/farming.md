@@ -127,7 +127,7 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
@@ -141,7 +141,7 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 [https://www.npr.org/2025/11/09/nx-s1-5603417/full-snap-benefits-trump-states-order](https://www.npr.org/2025/11/09/nx-s1-5603417/full-snap-benefits-trump-states-order)
 
-2025-11-21 The Tyson Foods company announced it would close the long-time Lexington Nebraska beef plant around January 2026, leaving roughly 3200 people out of a job. Also noteworthy, it was reported that this closure would boost Tyson stocks by 6%.
+2025-11-21 Tyson Foods closed the Lexington Nebraska beef plant, leaving roughly 3200 people out of a job. This boosted Tyson stocks by 6%.
 
 [https://cap.unl.edu/news/understanding-tyson-lexington-plant-closure-what-it-means-cattle-producers/](https://cap.unl.edu/news/understanding-tyson-lexington-plant-closure-what-it-means-cattle-producers/)
 

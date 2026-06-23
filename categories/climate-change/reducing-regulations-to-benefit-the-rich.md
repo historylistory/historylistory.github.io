@@ -186,7 +186,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://hbr.org/2024/07/the-uneven-distribution-of-ais-environmental-impacts](https://hbr.org/2024/07/the-uneven-distribution-of-ais-environmental-impacts)
 
-2025-10-24 The administration finalized plans to remove protections from Alaska’s National Wildlife Refuge coastal plain to expand oil and gas drilling.
+2025-10-24 Trump removed protections from Alaska’s National Wildlife Refuge for oil and gas drilling.
 
 [https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling](https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling)
 
@@ -242,7 +242,7 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 ### 2025 December
 
-2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
+2025-12-03 Trump rolled back vehicle fuel-efficiency standards, reduced targets from roughly 50 MPG to about 35 MPG and claimed that lowering carbon emissions was the cause for high auto prices.
 
 [https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236](https://www.nbcnews.com/business/consumer/trump-plans-roll-back-fuel-efficiency-rules-cars-rcna247236)
 

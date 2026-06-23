@@ -171,9 +171,9 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-10-28 Rob Schmitt commented on both Newsmax and X that there should be a weight limit for SNAP recipients, claiming benefits were going to people who “weigh 300 pounds” and were “selling their benefits to get their nails done and buy weaves”. 
 
-2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends hours before SNAP benefits expired.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
 
-2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 

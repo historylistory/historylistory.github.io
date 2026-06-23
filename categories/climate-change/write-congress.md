@@ -169,7 +169,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-10-24 News outlets increasingly warned about AI’s environmental impact.
 
-2025-10-24 The administration finalized plans to remove protections from Alaska’s National Wildlife Refuge coastal plain to expand oil and gas drilling.
+2025-10-24 Trump removed protections from Alaska’s National Wildlife Refuge for oil and gas drilling.
 
 2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
 
@@ -183,7 +183,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-11-26 The Trump administration reduced air pollution reduction requirements.
 
-2025-12-03 Trump announced plans to roll back vehicle fuel-efficiency standards, reducing targets from roughly 50 MPG to about 35 MPG, claiming that lowering carbon emissions was the cause for high auto prices. 
+2025-12-03 Trump rolled back vehicle fuel-efficiency standards, reduced targets from roughly 50 MPG to about 35 MPG and claimed that lowering carbon emissions was the cause for high auto prices.
 
 2025-12-19 The administration proposed dismantling the National Center for Atmospheric Research, an agency that Russ Vought accused of being “a source of climate alarmism”.
 

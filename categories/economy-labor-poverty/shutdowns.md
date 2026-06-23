@@ -115,7 +115,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 [https://turtledove.fandom.com/wiki/German_Arch_of_Triumph](https://turtledove.fandom.com/wiki/German_Arch_of_Triumph)
 
 
-2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 
@@ -123,7 +123,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 

@@ -8,7 +8,7 @@ permalink: /categories/climate-change/drill-baby-drill/
 
 ### 2025 October
 
-2025-10-24 The administration finalized plans to remove protections from Alaska’s National Wildlife Refuge coastal plain to expand oil and gas drilling.
+2025-10-24 Trump removed protections from Alaska’s National Wildlife Refuge for oil and gas drilling.
 
 [https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling](https://www.npr.org/2025/10/24/nx-s1-5584883/trump-alaska-wildlife-refuge-oil-gas-drilling)
 

@@ -218,7 +218,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds](http://mediamatters.org/newsmax/newsmax-host-snap-benefits-why-it-we-are-subsidizing-food-people-weigh-300-pounds)
 
-2025-10-31 Trump hosted a lavish Halloween party for his billionaire firends hours before SNAP benefits expired.
+2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
 
 [https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016](https://abcnews.go.com/Politics/trump-hosted-great-gatsby-halloween-party-hours-snap/story?id=127091016)
 
@@ -234,7 +234,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2025 November
 
-2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media, praising Trump for withholding food assistance.
+2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 [https://x.com/SecRollins/status/1985007736896053318](https://x.com/SecRollins/status/1985007736896053318)
 
@@ -300,9 +300,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies](https://meidasnews.com/news/republicans-vote-no-on-using-argentina-bailout-money-for-aca-subsidies)
 
-2025-11-12 News outlets report that permanent housing solutions for the homeless will be negatively affected. The Trump administration made plans to cut Continuum of Care funding that supports permanent housing from 87% down to 30% across the country. Some outlets reported that the funds would be redirected from current housing to temporary transitional housing that requires the tenant to already have a job and get addiction treatment. The proposed plan would redirect $3.9 billion away from current programs and instead to policing encampments and making arrests. 
-
-{% include youtubePlayer.html id="A39EdHbpiZw" %}
+2025-11-12 Trump cut Continuum of Care funding designed to create permanent housing for homeless people. Funds were redirected to policing encampments, arresting people, and transitional housing offered to already employed tenants. 
 
 [https://nlihc.org/resource/trump-administration-releases-coc-funding-notice-drastically-cutting-funding-permanent](https://nlihc.org/resource/trump-administration-releases-coc-funding-notice-drastically-cutting-funding-permanent)
 
@@ -312,9 +310,12 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.pbs.org/newshour/nation/why-clearing-encampments-doesnt-usually-solve-problems-of-homelessness](https://www.pbs.org/newshour/nation/why-clearing-encampments-doesnt-usually-solve-problems-of-homelessness)
 
+[https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/](https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/)
+
 {% include youtubePlayer.html id="dxJHIWBxk6M" %}
 
-[https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/](https://bipartisanpolicy.org/article/president-trumps-executive-order-on-homelessness-a-shift-in-federal-policy/)
+{% include youtubePlayer.html id="A39EdHbpiZw" %}
+
 
 ### 2025 December
 
