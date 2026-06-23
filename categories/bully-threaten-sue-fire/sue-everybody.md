@@ -126,7 +126,7 @@ permalink: /categories/bully-threaten-sue-fire/sue-everybody/
 
 [https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html](https://www.nytimes.com/2025/10/17/business/media/trump-lawsuit-new-york-times.html)
 
-2025-10-22 Trump pushed forward a $230 million lawsuit against the Department of Justice
+2025-10-22 Trump pushed onward with a lawsuit against the DOJ for $230M. 
 
 [https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained](https://www.cnn.com/2025/10/22/politics/trump-doj-request-230-mil-explained)
 

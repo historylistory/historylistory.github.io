@@ -61,7 +61,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 {% include youtubePlayer.html id="MYM40nNxN1M" %}
 
-2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.
+2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, saying, “I don’t have to hold a town hall so you can come and yell at me”.
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)
 
@@ -69,7 +69,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 
-2025-10-09 Trump suggested some federal employees affected by the shutdown might not deserve back pay. He said, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
+2025-10-09 Trump suggested some federal employees affected by the shutdown might not get their back pay, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
 {% include youtubePlayer.html id="k0nZfIO2B2U" %}
 

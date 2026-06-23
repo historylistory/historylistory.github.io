@@ -259,7 +259,7 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-03 Kash Patel minted his own coin.
 
-2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.
+2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, saying, “I don’t have to hold a town hall so you can come and yell at me”.
 
 2025-10-07 Pam Bondi deflected Senate questions with combative rhetoric.
 

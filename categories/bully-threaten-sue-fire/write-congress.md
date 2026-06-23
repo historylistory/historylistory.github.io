@@ -328,7 +328,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities. 
 
-2025-10-09 Trump suggested some federal employees affected by the shutdown might not deserve back pay. He said, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
+2025-10-09 Trump suggested some federal employees affected by the shutdown might not get their back pay, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
 2025-10-10 Speaker Mike Johnson canceled House votes during the shutdown, delaying the swearing-in of Representative Adelita Grijalva and efforts to release Epstein files. 
 
@@ -346,7 +346,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-19 After Colombia's president criticized U.S. military actions, Trump threatened to cut aid to Colombia. 
 
-2025-10-22 Trump pushed forward a $230 million lawsuit against the Department of Justice
+2025-10-22 Trump pushed onward with a lawsuit against the DOJ for $230M. 
 
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 

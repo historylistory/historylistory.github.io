@@ -103,7 +103,7 @@ permalink: /categories/health/healthcare-rx/
 
 {% include youtubePlayer.html id="1dQ6_X2z-DA" %}
 
-2025-10-21 Americans received letters stating they should expect their health insurance prices to soar, double, and even quadruple.
+2025-10-21 Americans received letters saying their health insurance prices would double or quadruple.
 
 [https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/](https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/)
 

@@ -213,7 +213,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 {% include youtubePlayer.html id="ORg7VfCYmzM" %}
 
-2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, stating “I don’t have to hold a town hall so you can come and yell at me”.
+2025-10-07 Rep. Mariannette Miller-Meeks said she would hold town halls “when hell freezes over”, saying, “I don’t have to hold a town hall so you can come and yell at me”.
 
 [https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/](https://dccc.org/miller-meeks-messy-week-mariannette-miller-meeks-says-shell-hold-town-halls-when-hell-freezes-over/)
 

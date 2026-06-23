@@ -16,7 +16,7 @@ permalink: /categories/foreign-affairs-isolation/argentina/
 
 [https://www.bbc.com/news/articles/c4g3mdvle78o](https://www.bbc.com/news/articles/c4g3mdvle78o)
 
-2025-10-24 Trump announced plans to buy beef from Argentina. For context, Trump had just bailed Argentina out with $40 BILLION in American taxpayer funds a week prior   (unrelated note: American meat processing plants also profit from things like byproducts, leather, and glue).
+2025-10-24 After bailing Argentina out with $40M, Trump announced the U.S. would be buying their beef too. 
 
 [https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina](https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina)
 

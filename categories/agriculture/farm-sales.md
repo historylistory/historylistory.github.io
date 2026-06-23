@@ -24,11 +24,9 @@ permalink: /categories/agriculture/farm-sales/
 
 [https://www.expanamarkets.com/insights/article/us-soybean-window-narrows-as-china-buys-big-from-argentina/](https://www.expanamarkets.com/insights/article/us-soybean-window-narrows-as-china-buys-big-from-argentina/)
 
-2025-10-16 **Recommended video:**Rob Sand was interviewed on The Takeout with Major Garett and discussed trade, economics, and agriculture.
-
 {% include youtubePlayer.html id="oTeJduk-zeM" %}
 
-2025-10-24 Trump announced plans to buy beef from Argentina. For context, Trump had just bailed Argentina out with $40 BILLION in American taxpayer funds a week prior   (unrelated note: American meat processing plants also profit from things like byproducts, leather, and glue).
+2025-10-24 After bailing Argentina out with $40M, Trump announced the U.S. would be buying their beef too. 
 
 [https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina](https://www.npr.org/2025/11/03/nx-s1-5590225/cattle-rancher-reacts-to-trumps-plan-to-import-more-beef-from-argentina)
 

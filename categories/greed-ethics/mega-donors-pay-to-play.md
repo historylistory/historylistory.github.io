@@ -221,7 +221,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 October
 
-2025-10-23 Trump pardoned Changpeng Zhao, founder of Binance. Later in October 2025 Trump told 60 Minutes he didn’t know who the guy was. For context, Zhao was convicted of money laundering. Also, for context, Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons).
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao. Zhao was convicted of money laundering. Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons). Trump claimed during a 60 Minutes interview he didn’t know who the guy was. 
 
 [https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/](https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/)
 

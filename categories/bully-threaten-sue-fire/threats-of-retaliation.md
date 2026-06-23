@@ -285,7 +285,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135](https://indianaeconomicdigest.net/Content/Default/Also-In-The-News/Article/Trump-administration-terminates-6-7-million-Indianapolis-airport-infrastructure-grant/-3/5307/120135)
 
-2025-10-09 Trump suggested some federal employees affected by the shutdown might not deserve back pay. He said, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
+2025-10-09 Trump suggested some federal employees affected by the shutdown might not get their back pay, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
 {% include youtubePlayer.html id="k0nZfIO2B2U" %}
 

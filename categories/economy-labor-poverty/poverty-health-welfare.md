@@ -198,7 +198,7 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 [https://www.bbc.com/news/articles/c4g3mdvle78o](https://www.bbc.com/news/articles/c4g3mdvle78o)
 
-2025-10-21 Americans begin receiving letters stating they should expect their health insurance prices to soar, double, and even quadruple.
+2025-10-21 Americans received letters saying their health insurance prices would double or quadruple.
 
 [https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/](https://www.wfsb.com/2025/10/21/more-than-150000-residents-receive-letters-about-potential-cost-hikes-due-government-shutdown/)
 

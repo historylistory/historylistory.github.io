@@ -194,7 +194,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 October
 
-2025-10-23 The U.S. surpassed its $38 TRILLION national debt, setting a record high.
+2025-10-23 The U.S. national debt surpassed $38 TRILLION.
 
 [https://www.pbs.org/newshour/politics/u-s-hits-38-trillion-in-debt-after-the-fastest-accumulation-of-1-trillion-outside-of-the-pandemic](https://www.pbs.org/newshour/politics/u-s-hits-38-trillion-in-debt-after-the-fastest-accumulation-of-1-trillion-outside-of-the-pandemic)
 
