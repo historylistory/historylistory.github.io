@@ -430,7 +430,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-09 Trump bought cabinet members oversized Florsheim shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.
 
-2026-03-10 Reports alleged Hegseth spent lavishly on luxury items while SNAP aid was withheld: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. 
+2026-03-10 Pete Hegseth used taxpayer money for a lavish spending spree while SNAP expired: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts.
 
 2026-03-11 The Pentagon banned reporters from taking “unflattering” photos of Hegseth.
 
@@ -444,7 +444,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-16 Trump publicly revealed Florida Representative Neal Dunn’s terminal diagnosis.
 
-2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
+2026-03-16 Leaks revealed that DOGE used ChatGPT to decide who and what to cut.
 
 2026-03-16 The White House arts commission proposed removing White House columns.
 

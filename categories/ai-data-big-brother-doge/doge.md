@@ -69,7 +69,7 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 
 ### 2026 March
 
-2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
+2026-03-16 Leaks revealed that DOGE used ChatGPT to decide who and what to cut.
 
 [https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
 

@@ -433,7 +433,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-03-05 Pam Bondi sought to limit ethics investigations involving DOJ attorneys by proposing a regulation which would allow the DOJ to head off state bar investigations. 
 
-2026-03-14 After brokering TikTok's sale to Larry Ellison, the Trump administration reportedly received a $10 billion transaction payment, representing roughly 70% of the company's $14B worth.
+2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison. 
 
 2026-03-18 Trump signed an anti-fraud executive order creating a task force chaired by JD Vance. The order focused on immigration fraud, welfare programs, touts a claim of “staggering fraud and waste in Minnesota alone”, and alleged misuse of federal funds while expanding federal oversight and coordination with Homeland Security.
 

@@ -217,9 +217,9 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-03-06 Anthropic sued the Pentagon after being labeled a supply chain risk for refusing military AI demands.
 
-2026-03-14 After brokering TikTok's sale to Larry Ellison, the Trump administration reportedly received a $10 billion transaction payment, representing roughly 70% of the company's $14B worth.
+2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison. 
 
-2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
+2026-03-16 Leaks revealed that DOGE used ChatGPT to decide who and what to cut.
 
 2026-03-17 Senator Slotkin introduced the AI Guardrails Act addressing autonomous weapons, surveillance, and nuclear defense.
 

@@ -508,7 +508,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office#:~:text=Former%20Senior%20Official%20for%20the,it%20produced%20in%20federal%20court](https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office).
 
-2026-03-14 After brokering TikTok's sale to Larry Ellison, the Trump administration reportedly received a $10 billion transaction payment, representing roughly 70% of the company's $14B worth.
+2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison. 
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 

@@ -197,7 +197,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/](https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/)
 
-2026-03-10 Reports alleged Hegseth spent lavishly on luxury items while SNAP aid was withheld: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. 
+2026-03-10 Pete Hegseth used taxpayer money for a lavish spending spree while SNAP expired: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts.
 
 [https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab](https://newrepublic.com/post/207555/pete-hegseth-billions-dollars-fruit-basket-stands-chairs-crab)
 
@@ -209,7 +209,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/](https://www.thedailybeast.com/pentagon-pete-hegseth-blew-a-fortune-on-crabs-in-multibillion-dollar-spending-frenzy/)
 
-2026-03-10 The ***first six days of the war in Iran cost American taxpayers $11B***.
+2026-03-10 The first six days of the war in Iran cost American taxpayers $11B.
 
 [https://www.politico.com/news/2026/03/12/iran-war-cost-pentagon-00825666](https://www.politico.com/news/2026/03/12/iran-war-cost-pentagon-00825666)
 

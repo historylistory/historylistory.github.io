@@ -139,7 +139,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-03-05 Marine Veteran Brian McGinnis was forcibly removed from a Senate hearing after protesting the US war campaign in Iran. His arm was broken.
 
-2026-03-10 Americans were pulling money out of their 401k funds at record rates.
+2026-03-10 Americans pulled money out of their 401k funds at record rates.
 
 2026-03-17 Trump said Newsom shouldn’t be president because he has dyslexia. He stated in the Oval Office, “…with a low IQ person, you know, ‘cuz Gavin New-Scum has admitted that he has a – that he has learning disabilities. Honestly, I’m all for people with learning disabilities but not for my President, um, I want…I think a President should not have a learning disability, okay? And, I know it’s highly controversial to say such a horrible thing. The President of the United States, Gavin New-Scum admitted that he has learning disabilities, dyslexia….”
 

@@ -417,7 +417,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
 
-2026-03-16 DOGE leaks showed employees using ChatGPT to identify DEI-related cuts.
+2026-03-16 Leaks revealed that DOGE used ChatGPT to decide who and what to cut.
 
 [https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/](https://fortune.com/2026/03/16/doge-employee-deposition-lawsuit-federal-deficit-elon-musk-spending/)
 

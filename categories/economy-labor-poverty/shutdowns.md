@@ -171,7 +171,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 ### 2026 March
 
-2026-03-13 Senator Patty Murray asked for a measure to fund Department of Homeland Security agencies that **weren’t** involved in immigration enforcement. It was an attempt to get TSA agents paid. The Republican party blocked the attempt to fund TSA, FEMA, and other agencies. 
+2026-03-13 Republicans blocked measures to fund TSA, FEMA and other agencies including legislation by Senator Patty Murray to pay TSA agents.
 
 [https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/](https://www.murray.senate.gov/senate-republicans-block-bill-to-pay-tsa-agents-fund-fema-cyber-defense-agency-as-they-drag-their-feet-on-common-sense-reforms-to-protect-americans-from-violence-at-the-hands-of-ice/)
 
@@ -181,7 +181,7 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 
 [https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s](https://www.youtube.com/watch?v=hrmk6SvbrnA&list=WL&index=2&t=45s)
 
-2026-03-17 Hundreds of TSA workers quit due to no pay over the second government shutdown. This time the government shutdown happened after DHS executed Alex Pretti. Democrats demanded that one of hte six remaining funding bills for DHS be stripped, as well as requesting a code of conduct for officers and unmasking - none of which the GOP would concede to. Unlike the last shutdown, the Trump Administration did not hold SNAP benefits as leverage this time. However, during this shutdown airlines were asking passengers to donate gift cards so employees could survive. According to online sources, the Trump Administration continued to pay the salaries of select DHS agents patrolling our streets for immigration crackdown and were asking for $200B to fund the war in Iran which they said wasn’t a war and would be “over soon”. 
+2026-03-17 While hundreds of TSA workers quit their jobs due to no pay, Trump continued to fund DHS and asked for $200B to fund his elective war in Iran which he repeatedly claimed “would be over soon”. 
 
 [https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/](https://www.cbsnews.com/news/tsa-absences-double-shutdown-300-quit-airport-security-lines/)
 

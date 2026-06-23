@@ -76,7 +76,7 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 
 ### 2026 March
 
-2026-03-10 Americans were pulling money out of their 401k funds at record rates.
+2026-03-10 Americans pulled money out of their 401k funds at record rates.
 
 [https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html](https://finance.yahoo.com/news/americans-pulling-money-401-k-093001697.html)
 
