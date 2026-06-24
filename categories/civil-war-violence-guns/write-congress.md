@@ -440,7 +440,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-04-08 The House Freedom Caucus posted “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”.
 
-2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened. 
+2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
 2026-04-16 Tennessee enacted House Bill 1476 "Charlie Kirk Act," restricting campus walkouts and certain protest activities. 
 

@@ -512,7 +512,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-04-28 Shortly after Trump and Melania Trump demanded Jimmy Kimmel's dismissal, the FCC opened an investigation into ABC and Disney's DEI practices.
 
-2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
+2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
 2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 

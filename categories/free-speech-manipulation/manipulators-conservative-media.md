@@ -340,7 +340,7 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)
 
-2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
+2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
 [https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
 

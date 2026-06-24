@@ -483,7 +483,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-04-14 Two members of Congress resigned, and two others faced expulsion proceedings in an unprecedented series of ethics scandals. Eric Swalwell resigned amid sexual-assault allegations, while Tony Gonzales resigned after acknowledging an affair with an aide who later died by suicide.
 
-2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened.
+2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
 2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 

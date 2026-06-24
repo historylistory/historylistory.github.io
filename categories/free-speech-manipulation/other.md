@@ -87,15 +87,6 @@ permalink: /categories/free-speech-manipulation/other/
 SUBSCRIPTION WALL [https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/](https://www.thedailybeast.com/jd-vances-no-show-tpusa-crowd-in-athens-georgia-gets-brutal-reaction-on-ms-now-morning-joe/)
 
 
-2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
-
-[https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
-
-[https://www.cnbc.com/2026/04/30/fisa-section-702-congress-extension.html](https://www.cnbc.com/2026/04/30/fisa-section-702-congress-extension.html)
-
-[https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition](https://www.axios.com/2026/04/29/house-passes-fisa-intelligence-bill-senate-opposition)
-
-[https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s](https://www.youtube.com/watch?v=F2YMqZvyvMs&list=WL&index=3&t=56s)
 
 ### 2026 June
 

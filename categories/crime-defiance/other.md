@@ -51,7 +51,7 @@ permalink: /categories/crime-defiance/other/
 
 ### 2026 April
 
-2026-04-14 The DOJ moved to vacate the most serious January 6 convictions involving members of the Proud Boys and Oath Keepers. This would mean totally wiping violent crimes off record as though they had never happened. 
+2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
 [https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
 

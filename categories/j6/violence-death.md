@@ -28,7 +28,7 @@ permalink: /categories/j6/violence-death/
 
 ### 2026
 
-2026-04-14 (Context here because people died from the J6 riots and the rioters were very violent). The DOJ moved to vacate the most serious J6 convictions from the Proud Boys and Oath Keepers, two white supremacist groups in the U.S. To vacate a conviction means to totally wipe an event from record as though it had never happened.
+2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
 [https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
 

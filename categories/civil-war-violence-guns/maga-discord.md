@@ -420,7 +420,7 @@ what women who are paid to do things are called”.
 
 PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/news/articles/cn8dedv8w8xo)
 
-2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
+2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
 [https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423](https://www.nbcnews.com/health/health-news/trump-pulls-casey-means-nomination-general-replacement-nicole-saphier-rcna261423)
 

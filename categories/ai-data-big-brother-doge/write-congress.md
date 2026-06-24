@@ -255,7 +255,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-04-29 Maryland became the first state to ban AI-driven grocery dynamic pricing.
 
-2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
+2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns.
 
 2026-05-05 Coinbase cut 14% of its workforce due to AI.
 

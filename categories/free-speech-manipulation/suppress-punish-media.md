@@ -432,7 +432,7 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 
 ### 2026 June
 
-2026-06-02 Hegseth classified the Pentagon press office as a classified space (like a SCIF?) and physically barred journalists. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”. 
+2026-06-02 Hegseth classified the Pentagon press office and physically barred journalists from entering. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”.
 
 [https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/](https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/)
 
@@ -442,7 +442,7 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 
 [https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space](https://www.democracynow.org/2026/6/2/headlines/defense_secretary_hegseth_designates_pentagon_press_office_as_a_classified_space)
 
-2026-06-03 CBS fired Scott Pelley of 60 Minutes.
+2026-06-03 CBS fired Scott Pelley from 60 Minutes.
 
 [https://www.pbs.org/newshour/nation/scott-pelley-fired-from-60-minutes-deepening-turmoil-at-cbs-news](https://www.pbs.org/newshour/nation/scott-pelley-fired-from-60-minutes-deepening-turmoil-at-cbs-news)
 

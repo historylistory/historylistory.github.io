@@ -65,7 +65,7 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 [https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)
 
-2026-06-02 Hegseth classified the Pentagon press office as a classified space (like a SCIF?) and physically barred journalists. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”. 
+2026-06-02 Hegseth classified the Pentagon press office and physically barred journalists from entering. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”.
 
 [https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/](https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/)
 

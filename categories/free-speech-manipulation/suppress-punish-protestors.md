@@ -290,7 +290,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/](https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lecture-amid-growing-rift/)
 
-2026-04-14 (Context in this section because the Trump administration has show much support for white supremacists at the J6 riots, but are always arresting and threatening anti-war and anti-genocide protestors). The DOJ moved to vacate the most serious J6 convictions from the Proud Boys and Oath Keepers, two white supremacist groups in the U.S. To vacate a conviction means to totally wipe an event from record as though it had never happened.
+2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
 [https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
 
@@ -344,7 +344,7 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 
 UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/](https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arrest-nigerian-chidozie-okeke-over-expired-documents-drug-possession/)
 
-2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. It is unclear if this was another protest against the war in Gaza (Israel is still occupying the West Bank and killing civilians). 
+2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. 
 
 [https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/](https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/)
 

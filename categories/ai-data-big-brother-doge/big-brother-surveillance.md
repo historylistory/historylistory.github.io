@@ -345,7 +345,7 @@ Think About:
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
 
-2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns allowing the US government to abuse the power and spy on American citizens while claiming it is for national security.
+2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns.
 
 [https://www.instagram.com/reels/DXuC4IvCKz9/](https://www.instagram.com/reels/DXuC4IvCKz9/)
 

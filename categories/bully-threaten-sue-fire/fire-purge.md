@@ -338,7 +338,7 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 
 PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)
 
-2026-04-30 Trump withdrew Casey Means' nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed Trump's decision to replace Casey Means with Nicole Saphier for Surgeon General. 
+2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
 [https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5](https://apnews.com/article/justice-department-maurene-comey-trump-60eacbf96e251a22627cc9a4e1fb4ee5)
 

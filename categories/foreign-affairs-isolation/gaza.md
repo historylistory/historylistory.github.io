@@ -359,7 +359,7 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 
 ### 2026 May
 
-2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. It is unclear if this was another protest against the war in Gaza (Israel is still occupying the West Bank and killing civilians). 
+2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. 
 
 [https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/](https://abc7news.com/post/23-people-charged-illegal-bay-bridge-sideshow-dozens-atvs-dirt-bikes-seized-police/19057577/)
 
