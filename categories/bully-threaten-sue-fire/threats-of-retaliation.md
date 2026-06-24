@@ -118,7 +118,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 June
 
-2025-06-08 Trump posted on Truth Social that protestors in Los Angeles should be arrested for wearing masks. A double standard, since federal law enforcement agents wear masks.
+2025-06-08 Trump decried that protestors in Los Angeles should be arrested for wearing masks. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114650947329138948](https://truthsocial.com/@realDonaldTrump/posts/114650947329138948)
 

@@ -634,6 +634,15 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 [https://www.youtube.com/watch?v=mDm_xDq3gNg](https://www.youtube.com/watch?v=mDm_xDq3gNg)
 
+2026-06-17 Kash Patel prematurely disclosed investigation on social media about an ongoing criminal investigation and nearly compromised the entire mission. 
+
+[https://www.youtube.com/shorts/pOFwElBAEgc](https://www.youtube.com/shorts/pOFwElBAEgc)
+
+[https://www.nbcnews.com/politics/justice-department/fbi-directors-post-foiled-ufc-plot-may-harm-probe-law-enforcement-sour-rcna350365](https://www.nbcnews.com/politics/justice-department/fbi-directors-post-foiled-ufc-plot-may-harm-probe-law-enforcement-sour-rcna350365)
+
+[https://www.huffpost.com/entry/kash-patel-jumping-the-gun-ufc-white-house-terror-plot_n_6a3264e3e4b0cf0ab37a3e44](https://www.huffpost.com/entry/kash-patel-jumping-the-gun-ufc-white-house-terror-plot_n_6a3264e3e4b0cf0ab37a3e44)
+
+
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
 [https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3](https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3)

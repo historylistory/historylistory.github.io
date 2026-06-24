@@ -18,7 +18,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2025 July
 
-2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the time of the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign. 
+2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign.
 
 [https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial](https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial)
 

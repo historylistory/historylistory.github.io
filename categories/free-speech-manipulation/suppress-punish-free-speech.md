@@ -105,6 +105,15 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 {% include youtubePlayer.html id="zgcuAHjcrkk" %}
 
+### 2025 November
+
+2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
+
+[https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
+
+[https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag](https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag)
+
+
 ### 2026 January
 
 2026-01-16 The Justice Department accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy related to immigration enforcement

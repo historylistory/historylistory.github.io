@@ -81,7 +81,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2025 July
 
-2025-07-17 CBS asserted that they cancelled The Late Show with Stephen Colbert was for "financial reasons", but many question the timing, since the cancellation came just after the show criticized the Trump v. Paramount lawsuit and CBS had an upcoming merger requiring approval from Trump and the FCC.
+2025-07-17 CBS claimed they cancelled Stephen Colbert for financial reasons. 
 
 [https://abcnews.go.com/US/stephen-colberts-late-show-canceled-cbs-citing-financial/story?id=123851902](https://abcnews.go.com/US/stephen-colberts-late-show-canceled-cbs-citing-financial/story?id=123851902)
 

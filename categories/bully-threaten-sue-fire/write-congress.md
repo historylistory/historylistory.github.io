@@ -188,7 +188,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-06-02 Paramount Global paid Trump $16M to settle a lawsuit.
 
-2025-06-08 Trump posted on Truth Social that protestors in Los Angeles should be arrested for wearing masks. A double standard, since federal law enforcement agents wear masks.
+2025-06-08 Trump decried that protestors in Los Angeles should be arrested for wearing masks. 
 
 2025-06-09 RFK fired all 17 members of the CDC’s vaccine panel and backfilled the advisory committee with ant-vaxxers.
 

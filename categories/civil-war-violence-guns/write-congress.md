@@ -145,7 +145,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
 
-2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. This was the same day Trump posted on Truth Social that protesters in Los Angeles should be arrested for wearing masks. 
+2025-06-08 Stephen Miller claimed protests in Los Angeles were  “an insurrection against the laws and sovereignty of the United States”. 
 
 2025-06-14 Minnesota House Democratic leader Melissa Hortman and her husband were killed in a politically motivated attack. Investigators found a manifesto targeting other public officials. Senator Mike Lee mocked the murder in a post two days later.
 

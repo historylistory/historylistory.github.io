@@ -642,6 +642,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-16 After Trump had it painted blue, the Reflecting Pool turned green.
 
+2026-06-17 Kash Patel prematurely disclosed investigation on social media about an ongoing criminal investigation and nearly compromised the entire mission. 
+
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
 2026-06-21 Trump blamed the Reflecting Pool algae bloom on vandals and ordered officials to make arrests. 

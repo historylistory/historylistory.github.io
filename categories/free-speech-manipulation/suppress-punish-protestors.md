@@ -173,11 +173,11 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.theguardian.com/technology/2026/jan/27/ice-facial-recognition-minnesota](https://www.theguardian.com/technology/2026/jan/27/ice-facial-recognition-minnesota)
 
-2025-06-08 Stephen Miller described protests in Los Angeles as “an insurrection against the laws and sovereignty of the United States”. This was the same day Trump posted on Truth Social that protesters in Los Angeles should be arrested for wearing masks. 
+2025-06-08 Stephen Miller claimed protests in Los Angeles were  “an insurrection against the laws and sovereignty of the United States”. 
 
 [https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar](https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar)
 
-2025-06-08 Trump posted on Truth Social that protestors in Los Angeles should be arrested for wearing masks. A double standard, since federal law enforcement agents wear masks.
+2025-06-08 Trump decried that protestors in Los Angeles should be arrested for wearing masks. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114650947329138948](https://truthsocial.com/@realDonaldTrump/posts/114650947329138948)
 
@@ -187,7 +187,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2025 July
 
-2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the time of the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign. 
+2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign.
 
 [https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial](https://www.theguardian.com/us-news/2026/mar/20/us-army-veteran-ice-protest-trial)
 
