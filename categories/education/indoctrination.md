@@ -28,13 +28,13 @@ permalink: /categories/education/indoctrination/
 
 ### 2023
 
-2023-10-16 The Daily Wire launched Bentkey, a children's streaming service offering explicitly "non-woke" conservative views to children.
+2023-10-16 The Daily Wire launched Bentkey, a children’s streaming service offering explicitly conservative indoctrination to children.
 
 [https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney](https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney)
 
 ### 2024
 
-2024-06-03 The Trump administration issued very specific parameters for which bibles would be allowed in schools . As Oklahoma State sought bids for their school bibles, they found only the Trump bible met mandated criteria. After backlash due to the high cost of Trump bibles compared to the $4 versions schools could afford, an amendment was considered.
+2024-06-03 Trump passed specific parameters for bibles in schools so only his bible could be peddled to them. 
 
 [https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/](https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/)
 

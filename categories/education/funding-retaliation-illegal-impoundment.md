@@ -14,15 +14,20 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 ### 2021
 
-2021-10-03 In a video by Forbes, JD Vance suggested using funds as leverage to strongarm universities. He said, "hundreds of billions of dollars that we send to them (meaning universities) as leverage, and say 'unless you stop indoctrinating our children, unless you stop indoctrinating our entire society, you don't get another dime of our money’”. He continued his attack on education by accusing colleges of filtering out indoctrination into society.
+2021-10-03 JD Vance suggested using funds as leverage to strongarm universities, “…hundreds of billions of dollars that we send to them (meaning universities) as leverage, and say ‘unless you stop indoctrinating our children, unless you stop indoctrinating our entire society, you don’t get another dime of our money”. 
 
 {% include youtubePlayer.html id="MZistOc5g0A" %}
 
 ### 2025 February
 
-2025-02-13 (Context) The Committee on Education and Workforce submitted a letter to Columbia University demanding case files, proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025.
+2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025. 
 
 [https://edworkforce.house.gov/uploadedfiles/2.13.25_columbia_letter.pdf](https://edworkforce.house.gov/uploadedfiles/2.13.25_columbia_letter.pdf)
+
+[https://www.youtube.com/watch?v=jHlQwOHuesY](https://www.youtube.com/watch?v=jHlQwOHuesY)
+
+[https://www.courthousenews.com/students-sue-columbia-university-to-block-release-of-records-to-house-committee/](https://www.courthousenews.com/students-sue-columbia-university-to-block-release-of-records-to-house-committee/)
+
 
 ### 2025 March
 

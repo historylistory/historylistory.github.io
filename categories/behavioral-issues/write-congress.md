@@ -42,7 +42,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
 
-2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
+2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 

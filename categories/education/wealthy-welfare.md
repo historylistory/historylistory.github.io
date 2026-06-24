@@ -16,7 +16,7 @@ permalink: /categories/education/wealthy-welfare/
 
 ### 2024
 
-2024-06-03 Billions of taxpayer dollars now fund private religious schools, leaving out religious minorities while digging into public school funding.
+2024-06-03 Billions of taxpayers’ dollars are diverted from public schools to fund exclusive private religious schools. 
 
 [https://www.washingtonpost.com/nation/2024/06/03/tax-dollars-religious-schools/](https://www.washingtonpost.com/nation/2024/06/03/tax-dollars-religious-schools/)
 

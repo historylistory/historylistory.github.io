@@ -38,6 +38,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 [https://www.politico.com/news/magazine/2020/08/01/stephen-miller-david-horowitz-mentor-389933](https://www.politico.com/news/magazine/2020/08/01/stephen-miller-david-horowitz-mentor-389933)
 
+### 2007 
+
+2007-01-01 Stephen Miller accused universities of censorship because they refused to run ads from a website www.terrorismawareness.org which claimed that “Muslims have problems living peacefully with their neighbors”. 
+
+[https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/](https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/)
+
+[https://edition.cnn.com/2017/02/15/politics/kfile-stephen-miller-terrorism-awareness](https://edition.cnn.com/2017/02/15/politics/kfile-stephen-miller-terrorism-awareness)
+
+
 ### 2022
 
 2022-04-05 In a JD Vance campaign commercial as an ‘America First Conservative’, he said, *“Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.”* [approved by JD Vance. Paid for by JD Vance for Senate Inc.]

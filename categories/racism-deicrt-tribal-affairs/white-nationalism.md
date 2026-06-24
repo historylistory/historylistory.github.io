@@ -49,7 +49,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2018 
 
-2018-03-08 A Floridian middle-school social studies teacher was pulled after the school discovered her white supremacist podcast. They are everywhere, even amongst our children in our schools.
+2018-03-08 A Floridian middle-school social studies teacher was pulled after the school learned she had a white supremacist podcast. 
 
 [https://www.youtube.com/watch?v=1Ja8BFVVTHI](https://www.youtube.com/watch?v=1Ja8BFVVTHI)
 

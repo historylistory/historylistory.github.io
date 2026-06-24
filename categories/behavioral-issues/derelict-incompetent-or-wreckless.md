@@ -26,7 +26,7 @@ permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
 
 ### 2009
 
-2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
+2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
 [https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history](https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history)
 

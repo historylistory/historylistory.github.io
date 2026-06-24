@@ -8,7 +8,7 @@ permalink: /categories/education/villainizing-rhetoric/
 
 ### 2007
 
-2007-01-01 During an interview with Fox and Friends, Stephen Miller claimed universities were censoring content when they refused to run an ad for **www.terrorismawareness.org**, a site which touted claims such as “Muslims have problems living peacefully with their neighbors". An AI overview gives context that he allegedly "used the initiative to link Muslims and Arabs with terrorists". 
+2007-01-01 Stephen Miller accused universities of censorship because they refused to run ads from a website www.terrorismawareness.org which claimed that “Muslims have problems living peacefully with their neighbors”. 
 
 [https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/](https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/)
 
@@ -22,13 +22,13 @@ permalink: /categories/education/villainizing-rhetoric/
 
 ### 2019
 
-2019-11-08 During a Tucker Carlson interview, Rebecca Friedrichs asserted that teachers' unions promoted socialism, and pushing for free lunch programs, healthcare, and emotional support is all an attempt to replace the family with indoctrination and communism.
+2019-11-08 Rebecca Friedrichs asserted that teachers’ unions promoted socialism. She claimed during a Tucker Carlson interview that pushing for free lunch programs, healthcare, and emotional support is an attempt to replace the family with indoctrination and communism.
 
 [https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and](https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and)
 
 ### 2021
 
-2021-11-02 During a National Conservatism conference, JD Vance delivered a very long speech to the crowd, covering a huge array of different topics. One of the topics was his assertion that "we are giving our children over to our enemies" in the education system. He also referred to taking the "red pill" like in the Matrix movie, complained about subsidizing universities to "control" how we think, called Richard Nixon a great prophet, and called National Conservatism a movement.
+2021-11-02 During a National Conservatism conference, JD Vance told the crowd, “we are giving our children over to our enemies” in the education system. He also referred to taking the “red pill” like in the Matrix movie, complained about subsidizing universities to “control” how we think, called Richard Nixon a great prophet, and proclaimed National Conservatism as a movement.
 
 {% include youtubePlayer.html id="0FR65Cifnhw" %}
 

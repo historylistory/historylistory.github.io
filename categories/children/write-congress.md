@@ -45,7 +45,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2017-05-01 The Criminal Consequence Initiative in Yuma, Arizona prosecuted first-time border crossers and enabled family separations involving children as young as 10 months old. 
 
-2019-11-08 During a Tucker Carlson interview, Rebecca Friedrichs asserted that teachers' unions promoted socialism, and pushing for free lunch programs, healthcare, and emotional support is all an attempt to replace the family with indoctrination and communism.
+2019-11-08 Rebecca Friedrichs asserted that teachers’ unions promoted socialism. She claimed during a Tucker Carlson interview that pushing for free lunch programs, healthcare, and emotional support is an attempt to replace the family with indoctrination and communism.
 
 2021-04-29 JD Vance posted, “Universal day care is class war against normal people”. He also tweeted, “It turns out that normal Americans care more about their families than their jobs and want a family policy that doesn’t shunt their kids into crap daycare so they can enjoy more “freedom” in the paid labor force”. 
 
@@ -61,7 +61,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
 
-2023-10-16 The Daily Wire launched Bentkey, a children's streaming service offering explicitly "non-woke" conservative views to children.
+2023-10-16 The Daily Wire launched Bentkey, a children’s streaming service offering explicitly conservative indoctrination to children.
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 

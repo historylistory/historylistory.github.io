@@ -103,6 +103,16 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.yahoo.com/news/trump-insults-fox-news-anchors-163830353.html](https://www.yahoo.com/news/trump-insults-fox-news-anchors-163830353.html)
 
+### 2025 February
+
+2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025. 
+
+[https://edworkforce.house.gov/uploadedfiles/2.13.25_columbia_letter.pdf](https://edworkforce.house.gov/uploadedfiles/2.13.25_columbia_letter.pdf)
+
+[https://www.youtube.com/watch?v=jHlQwOHuesY](https://www.youtube.com/watch?v=jHlQwOHuesY)
+
+[https://www.courthousenews.com/students-sue-columbia-university-to-block-release-of-records-to-house-committee/](https://www.courthousenews.com/students-sue-columbia-university-to-block-release-of-records-to-house-committee/)
+
 ### 2025 March
 
 2025-03-04 Trump threatened in a social media post to pull funding from any college that allowed protests and called protests “illegal”.

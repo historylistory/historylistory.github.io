@@ -99,7 +99,7 @@ Remember: rage bait sells. 
 [https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
 
 
-2023-10-16 The Daily Wire launched Bentkey, a children's streaming service offering explicitly "non-woke" conservative views to children.
+2023-10-16 The Daily Wire launched Bentkey, a children’s streaming service offering explicitly conservative indoctrination to children.
 
 [https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney](https://www.axios.com/2023/10/16/daily-wire-streaming-kids-bentkey-disney)
 

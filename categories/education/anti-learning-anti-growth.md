@@ -8,7 +8,7 @@ permalink: /categories/education/anti-learning-anti-growth/
 
 ### Context
 
-2009-01-01 Linda McMahon only served one year on the Connecticut Board of Education and holds a degree in French. Those are her credentials.
+2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
 [https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history](https://www.ctpublic.org/news/investigative/2025-01-07/linda-mcmahon-education-experience-connecticut-history)
 
@@ -37,7 +37,7 @@ The publication “A Short History of the Department of State” was retired.
 [https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s](https://www.youtube.com/watch?v=jFMc07F1UUU&list=WL&index=9&t=7s)
 
 
-2023-10-23 News outlets reported that U.S. House Republicans are increasingly banning and censoring books in school libraries.
+2023-10-23 Republicans increasingly ban books. 
 
 [https://pen.org/report/the-normalization-of-book-banning/](https://pen.org/report/the-normalization-of-book-banning/)
 

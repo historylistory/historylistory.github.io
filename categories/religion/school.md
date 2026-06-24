@@ -50,7 +50,7 @@ permalink: /categories/religion/school/
 
 [https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html](https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html)
 
-2024-06-03 The Trump administration issued very specific parameters for which bibles would be allowed in schools . As Oklahoma State sought bids for their school bibles, they found only the Trump bible met mandated criteria. After backlash due to the high cost of Trump bibles compared to the $4 versions schools could afford, an amendment was considered.
+2024-06-03 Trump passed specific parameters for bibles in schools so only his bible could be peddled to them. 
 
 [https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/](https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/)
 

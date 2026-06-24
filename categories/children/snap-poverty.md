@@ -14,7 +14,7 @@ permalink: /categories/children/snap-poverty/
 
 ### 2019
 
-2019-11-08 During a Tucker Carlson interview, Rebecca Friedrichs asserted that teachers' unions promoted socialism, and pushing for free lunch programs, healthcare, and emotional support is all an attempt to replace the family with indoctrination and communism.
+2019-11-08 Rebecca Friedrichs asserted that teachers’ unions promoted socialism. She claimed during a Tucker Carlson interview that pushing for free lunch programs, healthcare, and emotional support is an attempt to replace the family with indoctrination and communism.
 
 [https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and](https://www.mediamatters.org/tucker-carlson/tucker-carlson-guest-complains-schools-give-children-free-healthcare-free-food-and)
 

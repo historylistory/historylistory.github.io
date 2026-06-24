@@ -22,7 +22,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2021 June
 
-2021-06-01 Texas House Bill 3979 was signed into law to restrict how race, slavery and current events are taught in K-12 public schools. The bill removed educational material pertaining to Native American history, Cesar Chavez, and Susan B. Anthony. It also restricted or removed writings of Frederick Douglas and Martin Luther King Jr. 
+2021-06-01 Texas House Bill 3979 restricts race, slavery and current event curriculum in public schools by removing material pertaining to Native American history, Cesar Chavez, Susan B. Anthony, Frederick Douglas and Martin Luther King Jr. 
 
 [https://legiscan.com/TX/text/HB3979/id/2339637](https://legiscan.com/TX/text/HB3979/id/2339637)
 
@@ -30,13 +30,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2021 July
 
-2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory in schools and AOC for defending it. Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division in January 2025.
+2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory, so Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division in January 2025.
 
 [https://www.facebook.com/watch/?v=3857230367939923](https://www.facebook.com/watch/?v=3857230367939923)
 
 ### 2021 September
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance shared a number of loaded opinions with listeners "we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws…" and continued to say very few leaders are willing to teach "true" civics and American history. He attacked CRT, ranted that “wokeism” was assimilation, and tied woke in with his own experience of being "assimilated" in higher education. He later called on conservatism as a counter-revolutionary force.
+2021-09-17 During an interview on Jack Murphy Live, JD Vance said, “we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws”, claimed teachers weren’t teaching “true civics”, attacked CRT, called “wokeism” assimilation, and proclaimed conservatism was a “counter-revolutionary force”. 
 
 {% include youtubePlayer.html id="PMq1ZEcyztY" %}
 
@@ -84,11 +84,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2025 January
 
-2025-01-26 As part of Trump's DEI initiative, The United States Air Force was directed to remove any training courses that include DEI, even those referencing the Tuskegee Airmen or the Women Air Force Service Pilots (WACS).
+2025-01-26 The United States Air Force was forced to remove training courses referencing the Tuskegee Airmen or the Women Air Force Service Pilots (WACS) because they are “DEI”.
 
 [https://apnews.com/article/air-force-dei-tuskegee-women-wwii-pilots-ecdeac68dc7696535d093c7690ab73bc](https://apnews.com/article/air-force-dei-tuskegee-women-wwii-pilots-ecdeac68dc7696535d093c7690ab73bc)
 
-2025-01-29 Trump issued EO Ending Racial Indoctrination in K-12 Schooling.
+2025-01-29 Trump issued Executive Order Ending Racial Indoctrination in K-12 Schooling.
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/](https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/)
 
