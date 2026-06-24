@@ -24,6 +24,12 @@ permalink: /categories/women-reproductive-rights/military/
 
 ### 2025 March
 
+2025-03-07 The Trump administration purged 26,000 military photos of anything with so much as a keyword indicating women or minorities. They even purged photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it. 
+
+[https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074](https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074)
+
+[https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344](https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344)
+
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website. 
 
 [https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update](https://www.arlingtoncemetery.mil/Media/News/Post/14651/Website-Content-Update)

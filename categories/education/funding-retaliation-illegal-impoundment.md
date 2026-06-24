@@ -65,7 +65,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump](https://www.dailyprincetonian.com/article/2025/04/princeton-news-adpol-research-funding-climate-change-trump)
 
-2025-04-14 News outlets reported Trump's pressure campaign on universities, citing the administration's use of campus protests to energize their efforts, and creating a **Task Force to Combat Antisemitism** in response. The task force was backed by **Stephen Miller** and led by **Leo Terrell**.
+2025-04-14 Trump created a “Task Force to Combat Antisemitism” as part of his pressure campaign on universities and protests. The task force is backed by Stephen Miller and Leo Terrell. 
 
 [https://www.deccanherald.com/world/inside-trumps-pressure-campaign-on-universities-3493732](https://www.deccanherald.com/world/inside-trumps-pressure-campaign-on-universities-3493732)
 
@@ -101,7 +101,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 ### 2025 June
 
-2025-06-01 During an interview with Face the Nation, Wesleyan president Michael Roth expressed concern about antisemitism claims, stating, "…this is really an act of intimidation to scare schools into towing the line of the current administration. It really has nothing to do with national security or with antisemitism. This heightened scrutiny is meant to instill fear on college campuses, and I am afraid it is working".
+2025-06-01 During an interview with Face the Nation, Wesleyan president Michael Roth said, “…this is really an act of intimidation to scare schools into towing the line of the current administration. It really has nothing to do with national security or with antisemitism. This heightened scrutiny is meant to instill fear on college campuses, and I am afraid it is working”.
 
 {% include youtubePlayer.html id="IlCnVgd-jkc" %}
 

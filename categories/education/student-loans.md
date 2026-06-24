@@ -8,13 +8,13 @@ permalink: /categories/education/student-loans/
 
 ### 2025 March
 
-2025-03-07 Trump signed an executive order revising student loan forgiveness, adding the language "…to end taxpayer-funded student loan forgiveness for anti-American **activists**", which leaves the order wide open for interpretation into what the Trump administration deems as "anti-American". This is a dangerous precedent as they have historically and blatantly used retaliation against anyone they simply don't like or whoever doesn't align with their values.
+2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
 
 [https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/](https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/)
 
 ### 2025 July
 
-2025-07-15 A blogpost pointed out that students from low-income backgrounds will have fewer options to finance their education while losing access to essential social safety net programs and fewer repayment plan options with steeper monthly payments, all thanks to the Trump administration and their policies.
+2025-07-15 Students from low-income backgrounds will have fewer options to finance their education while losing access to essential social safety net programs and fewer repayment plan options with steeper monthly payments, all thanks to the Trump administration and their policies.
 
 [https://ticas.org/affordability-2/provisions-affecting-higher-education-in-the-reconciliation-law/](https://ticas.org/affordability-2/provisions-affecting-higher-education-in-the-reconciliation-law/)
 

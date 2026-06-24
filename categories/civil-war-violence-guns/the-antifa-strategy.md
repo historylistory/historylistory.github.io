@@ -23,6 +23,12 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 
 LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
 
+### 2025 March
+
+2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
+
+[https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/](https://www.whitehouse.gov/fact-sheets/2025/03/fact-sheet-president-donald-j-trump-restores-public-service-loan-forgiveness/)
+
 
 ### 2025 August
 

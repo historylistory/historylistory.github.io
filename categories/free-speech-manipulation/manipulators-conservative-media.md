@@ -181,11 +181,22 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
 
+[https://prospect.org/2025/08/15/2025-08-15-prageru-wants-to-capitalize-on-pbs-defunding](https://prospect.org/2025/08/15/2025-08-15-prageru-wants-to-capitalize-on-pbs-defunding)
+
 [https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
+
+[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
+[https://x.com/benshapiro/status/695638866993115136](https://x.com/benshapiro/status/695638866993115136)
+
+[https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
+
+[https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
+
+[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
 
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
-[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
 
 2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed "America First" assessment. Critics argued it promoted partisan ideology.  One article said the test included questions related to 2020 false electoral claims.
 

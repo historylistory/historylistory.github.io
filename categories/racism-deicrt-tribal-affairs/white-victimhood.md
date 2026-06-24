@@ -14,7 +14,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 ### 2025 April
 
-2025-04-29 The Department of Education launched an investigation into the Harvard Law Review. **The DOE accused Harvard of discrimination against white males** because they "appeared to favor minority writers" and cited an increase among faculty of people of color, women, and nonbinary people.
+2025-04-29 After Harvard refused to let the federal government do their unconstitutional audit of “viewpoint diversity”, The Department of Education launched an investigation into the Harvard Law Review and accused them of discrimination against white males.
 
 [https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection](https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection)
 

@@ -135,6 +135,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-03-10 Elon Musk and Steve Bannon publicly feuded after Musk's split with parts of the MAGA movement 
 
+2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
+
 2025-03-18 Arsonists set fire to a Tesla showroom in Las Vegas 
 
 2025-04-04 Even right-wing hack Ben Shapiro criticized Trump’s tariff policies.

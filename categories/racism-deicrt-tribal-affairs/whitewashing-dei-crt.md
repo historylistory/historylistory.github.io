@@ -109,19 +109,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2025 March
 
-2025-03-07 News outlets reported on more historical purges of military photos falling under the DEI initiative, mostly targeting women and minorities.
+2025-03-07 The Trump administration purged 26,000 military photos of anything with so much as a keyword indicating women or minorities. They even purged photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it. 
 
 [https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074](https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074)
 
-2025-03-07 News outlets continued to report on the DEI purge, warning of a broad attack on anything containing keywords.
-
 [https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344](https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344)
 
-2025-03-27 Trump signed executive order "Restoring Truth and Sanity to American History" to "pivot towards a positive retelling of history", but many see this as whitewashing and sanitization of the full truth.
+2025-03-27 Trump signed executive order Restoring Truth and Sanity to American History to whitewash and sanitize historical facts. The EO specifically targets the “Shape of Power” exhibit, “The Shape of Power: Stories of Race and American Sculpture,” an exhibit representing that “[s]ocieties including the United States have used race to establish and maintain systems of power, privilege, and disenfranchisement.” The exhibit further claims that “sculpture has been a powerful tool in promoting scientific racism” and promotes the view that race is not a biological reality but a social construct, stating “Race is a human invention.”
 
 [https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/](https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/)
-
-2025-03-27 The Trump EO Restoring Truth & Sanity specifically targeted the Shape of Power art exhibit. Part of the EO reads, ““The Shape of Power:  Stories of Race and American Sculpture,” an exhibit representing that “[s]ocieties including the United States have used race to establish and maintain systems of power, privilege, and disenfranchisement.”  The exhibit further claims that “sculpture has been a powerful tool in promoting scientific racism” and promotes the view that race is not a biological reality but a social construct, stating “Race is a human invention.”
 
 [https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/](https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/)
 
@@ -138,7 +134,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.nytimes.com/2025/05/22/us/politics/harvard-university-trump.html](https://www.nytimes.com/2025/05/22/us/politics/harvard-university-trump.html)
 
-2025-04-29 The Department of Education launched an investigation into the Harvard Law Review. The DOE accused Harvard of discrimination against white males because they "appeared to favor minority writers" and cited an increase among faculty of people of color, women, and nonbinary people.
+2025-04-29 After Harvard refused to let the federal government do their unconstitutional audit of “viewpoint diversity”, The Department of Education launched an investigation into the Harvard Law Review and accused them of discrimination against white males.
 
 [https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection](https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection)
 

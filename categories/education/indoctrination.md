@@ -62,15 +62,44 @@ permalink: /categories/education/indoctrination/
 
 ### 2025 August
 
-2025-08-08 News outlets reported how the heavily right-leaning PragerU plans to completely replace PBS in children's education, alter truths and peddle biased content. For context, the CEO stated that teachers have been teaching Marxism.
+2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
+
+1. Who’s behind the anti-ICE riots 
+
+2. How Foreign aid keeps Africa poor 
+
+3. Laughter on Lockdown featuring Roseanne Barr 
+
+4. Their Lives Mattered - a spin off the Black Lives Matter movement 
+
+5. MIA: Masculinity in America 
+
+6. Why do you hate conservatives 
+
+7. And an artificially generated AI version of John Adams who tells children, “Facts do not care about your feelings”. 
+
+8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
+
+[https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
+
+[https://prospect.org/2025/08/15/2025-08-15-prageru-wants-to-capitalize-on-pbs-defunding](https://prospect.org/2025/08/15/2025-08-15-prageru-wants-to-capitalize-on-pbs-defunding)
+
+[https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
+
+[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
+[https://x.com/benshapiro/status/695638866993115136](https://x.com/benshapiro/status/695638866993115136)
 
 [https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding](https://www.vox.com/today-explained-podcast/422812/prageru-education-pbs-npr-cpb-defunding)
 
 [https://www.youtube.com/@PragerU/videos](https://www.youtube.com/@PragerU/videos)
 
+[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
-[https://www.pbs.org/video/prageru-1757971049/](https://www.pbs.org/video/prageru-1757971049/)
+
+
 
 2025-08-18 A news outlet reported that teachers in California, Oklahoma and New York must pass an “America First” test developed by Conservative Alt-Right Prager-U.
 
