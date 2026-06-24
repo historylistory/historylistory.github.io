@@ -67,6 +67,15 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.branchspace.com/news/airline-dynamic-pricing-ladders](https://www.branchspace.com/news/airline-dynamic-pricing-ladders)
 
+2022-07-01 The US slipped to 41st place worldwide on the list of developed countries. It is no longer considered a first-world nation. 
+
+[https://theconversation.com/us-is-becoming-a-developing-country-on-global-rankings-that-measure-democracy-inequality-190486](https://theconversation.com/us-is-becoming-a-developing-country-on-global-rankings-that-measure-democracy-inequality-190486)
+
+[https://www.adn.com/opinions/2025/07/13/opinion-is-the-united-states-still-a-first-world-nation/](https://www.adn.com/opinions/2025/07/13/opinion-is-the-united-states-still-a-first-world-nation/)
+
+[https://medium.com/the-steady-drop/7-reasons-america-is-not-a-first-world-country-9c7020ff10fa](https://medium.com/the-steady-drop/7-reasons-america-is-not-a-first-world-country-9c7020ff10fa)
+
+
 ### 2023
 
 2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 

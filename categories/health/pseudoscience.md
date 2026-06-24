@@ -62,6 +62,18 @@ permalink: /categories/health/pseudoscience/
 
 {% include youtubePlayer.html id="0ZqvODLY7zI" %}
 
+### 2026 January
+
+2026-01-04 The Canadian Medical Association issued a warning that U.S. health and science institutions can no longer be relied upon for accurate guidance. 
+
+[https://guides.hsict.library.utoronto.ca/beyondborders](https://guides.hsict.library.utoronto.ca/beyondborders)
+
+[https://www.theguardian.com/world/2026/jan/04/canada-us-health-institutions-information](https://www.theguardian.com/world/2026/jan/04/canada-us-health-institutions-information)
+
+[https://www.cma.ca/latest-stories/there-no-border-lies-five-takeaways-false-health-information-canada](https://www.cma.ca/latest-stories/there-no-border-lies-five-takeaways-false-health-information-canada)
+
+[https://www.ctvnews.ca/politics/article/health-minister-says-canada-cant-rely-on-us-health-institutions-anymore/](https://www.ctvnews.ca/politics/article/health-minister-says-canada-cant-rely-on-us-health-institutions-anymore/)
+
 ### 2026 February
 
 2026-02-06 RFK claimed the keto diet can cure schizophrenia with no actual data or supporting evidence.

@@ -77,6 +77,13 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://www.americanprogress.org/article/trumps-trade-war-squeezes-middle-class-manufacturing-employment/](https://www.americanprogress.org/article/trumps-trade-war-squeezes-middle-class-manufacturing-employment/)
 
+2025-08-23 European postal services have suspended shipments to the US. 
+
+[https://apnews.com/article/us-tariffs-goods-services-suspension-85c7b36b9e92c0e640dfe2ac418cd907](https://apnews.com/article/us-tariffs-goods-services-suspension-85c7b36b9e92c0e640dfe2ac418cd907)
+
+[https://globaltradealert.org/reports/Global-Suspensions-Parcel-Shipments-US](https://globaltradealert.org/reports/Global-Suspensions-Parcel-Shipments-US)
+
+
 2025-08-25 The Congressional Budget Office released a projected tariff revenue of $3.3T (trillion) but did not explain how that would weigh against the proposed $3.4T (trillion) budget increase proposed by the Trump administration.
 
 [https://apnews.com/article/cbo-trump-tax-bill-republicans-senate-5f591bea21bd95eec45ba90c93c50687](https://apnews.com/article/cbo-trump-tax-bill-republicans-senate-5f591bea21bd95eec45ba90c93c50687)

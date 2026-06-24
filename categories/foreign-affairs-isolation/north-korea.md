@@ -23,3 +23,20 @@ permalink: /categories/foreign-affairs-isolation/north-korea/
 [https://www.presidency.ucsb.edu/documents/statement-nikki-haley-the-russia-north-korea-meeting](https://www.presidency.ucsb.edu/documents/statement-nikki-haley-the-russia-north-korea-meeting)
 
 [https://www.npr.org/2017/03/08/519282253/u-n-ambassador-nikki-haley-says-all-options-on-table-with-north-korea](https://www.npr.org/2017/03/08/519282253/u-n-ambassador-nikki-haley-says-all-options-on-table-with-north-korea)
+
+### 2026 March
+
+2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism. 
+
+[https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/](https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/)
+
+[https://www.youtube.com/watch?v=66pDCXujpfo&t=18s](https://www.youtube.com/watch?v=66pDCXujpfo&t=18s)
+
+### 2026 June
+
+2026-06-24 North Korea unveiled its largest-ever warship.
+
+[https://www.youtube.com/watch?v=_vjrczy0YZ8](https://www.youtube.com/watch?v=_vjrczy0YZ8)
+
+[https://www.nbcnews.com/world/north-korea/kim-jong-un-destroyer-choe-hyon-nuclear-navy-rcna351523](https://www.nbcnews.com/world/north-korea/kim-jong-un-destroyer-choe-hyon-nuclear-navy-rcna351523)
+

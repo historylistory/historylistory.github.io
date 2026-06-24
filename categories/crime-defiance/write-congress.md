@@ -443,6 +443,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 
+2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism. 
+
 2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.
 
 2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.

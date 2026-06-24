@@ -102,6 +102,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2022-04-10 The House Oversight Committee investigated a $2 billion Saudi investment in Jared Kushner’s firm and Trump’s receipt of more than $250,000 in foreign gifts. In an article with CBS, Kushner stated he was not interested in rejoining the White House if Trump won the 2024 presidential election. In 2025, Kushner DID JOIN the White House as Trump’s special envoy in foreign affairs.
 
+2022-07-01 The US slipped to 41st place worldwide on the list of developed countries. It is no longer considered a first-world nation. 
+
 2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
@@ -317,6 +319,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
 
 2025-08-22 The federal government announced a 10% stake in Intel, purchasing 433.3M primary shares.
+
+2025-08-23 European postal services have suspended shipments to the US. 
 
 2025-08-25 The Congressional Budget Office released a projected tariff revenue of $3.3T (trillion) but did not explain how that would weigh against the proposed $3.4T (trillion) budget increase proposed by the Trump administration.
 

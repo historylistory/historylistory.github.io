@@ -146,6 +146,11 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe](https://www.ohchr.org/en/press-releases/2026/03/un-experts-demand-immediate-release-dr-abu-safiya-after-reports-severe)
 
+2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism. 
+
+[https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/](https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/)
+
+[https://www.youtube.com/watch?v=66pDCXujpfo&t=18s](https://www.youtube.com/watch?v=66pDCXujpfo&t=18s)
 
 2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 

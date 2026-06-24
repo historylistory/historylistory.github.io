@@ -147,6 +147,17 @@ permalink: /categories/red-flags/warning-signs/
 
 [https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html](https://www.nytimes.com/2025/06/03/us/politics/trump-antisemitism.html)
 
+### 2025 April
+
+2025-04-04 Irish residents say the US is slipping into fascism. 
+
+[https://www.theguardian.com/world/2017/mar/17/irish-american-politicians-trump-history-aodhan-o-riordain](https://www.theguardian.com/world/2017/mar/17/irish-american-politicians-trump-history-aodhan-o-riordain)
+
+[https://www.thejournal.ie/mary-robinson-says-elements-of-fascism-clearly-present-in-us-government-6938233-Jan2026/](https://www.thejournal.ie/mary-robinson-says-elements-of-fascism-clearly-present-in-us-government-6938233-Jan2026/)
+
+PAY WALL [https://www.independent.ie/comment/letters/letters-as-an-irish-american-i-fear-my-adopted-home-has-turned-towards-fascism/a/132193306.html](https://www.independent.ie/comment/letters/letters-as-an-irish-american-i-fear-my-adopted-home-has-turned-towards-fascism/a/132193306.html)
+
+
 ### 2025 May
 
 2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
@@ -203,6 +214,13 @@ permalink: /categories/red-flags/warning-signs/
 
 ### 2026 January
 
+2026-01-14 The Dutch say Trump is more dangerous than Adolf Hitler. 
+
+[https://decorrespondent.nl/16667/donald-j-trump-is-the-greatest-danger-to-the-world-since-adolf-hitler/047d18bf-123f-0624-01ad-06c16770287c](https://decorrespondent.nl/16667/donald-j-trump-is-the-greatest-danger-to-the-world-since-adolf-hitler/047d18bf-123f-0624-01ad-06c16770287c)
+
+BUT WE ALREADY KNEW THIS: [https://thehill.com/homenews/media/4322886-trump-hitler-mussolini-mccaskill/](https://thehill.com/homenews/media/4322886-trump-hitler-mussolini-mccaskill/)
+
+
 2026-01-21 Trump stated again during the summit in Davos “Sometimes you need a dictator”.
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy](https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy)
@@ -218,6 +236,12 @@ permalink: /categories/red-flags/warning-signs/
 [https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071](https://www.nbcnews.com/politics/donald-trump/trump-says-cuba-going-fall-administration-explores-criminal-charges-so-rcna262071)
 
 ### 2026 March
+
+2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism. 
+
+[https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/](https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance/)
+
+[https://www.youtube.com/watch?v=66pDCXujpfo&t=18s](https://www.youtube.com/watch?v=66pDCXujpfo&t=18s)
 
 2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
 

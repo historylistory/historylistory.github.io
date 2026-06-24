@@ -175,6 +175,12 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 ### 2026 January
 
+2026-01-14 The Dutch say Trump is more dangerous than Adolf Hitler. 
+
+[https://decorrespondent.nl/16667/donald-j-trump-is-the-greatest-danger-to-the-world-since-adolf-hitler/047d18bf-123f-0624-01ad-06c16770287c](https://decorrespondent.nl/16667/donald-j-trump-is-the-greatest-danger-to-the-world-since-adolf-hitler/047d18bf-123f-0624-01ad-06c16770287c)
+
+BUT WE ALREADY KNEW THIS: [https://thehill.com/homenews/media/4322886-trump-hitler-mussolini-mccaskill/](https://thehill.com/homenews/media/4322886-trump-hitler-mussolini-mccaskill/)
+
 2026-01-21 Trump stated again during the summit in Davos “Sometimes you need a dictator”.
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy](https://www.ms.now/rachel-maddow-show/maddowblog/sometimes-you-need-a-dictator-trump-shines-new-light-on-his-political-philosophy)
