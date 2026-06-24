@@ -186,7 +186,7 @@ Taken together, these actions represent an effort to politicize education, restr
 7. And an artificially generated AI version of John Adams who tells children, “Facts do not care about your feelings”. 
 8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
 
-2025-08-18 Teachers in California, Oklahoma and New York must pass an “America First” test developed by Conservative Alt-Right Prager-U. Tests are partisan and questions push 2020 false electoral claims. (DID YOU KNOW? America First Political Action Conference was founded by white supremacist Nick Fuentes, America First Legal likes to file lawsuits claiming discrimination against white men, in 2022 JD Vance campaigned in an “America First Conservative” commercial that started out “Are YOU a racist? Do you hate Mexicans?...” and Pat Buchanan declared a culture war in 1992 as part of his “America First” campaign). 
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. In his post, Trump instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. 
 

@@ -106,7 +106,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.europinion.uk/post/trump-s-reichstag-fire-the-kafkaesque-consequences-of-charlie-kirk-s-assassination](https://www.europinion.uk/post/trump-s-reichstag-fire-the-kafkaesque-consequences-of-charlie-kirk-s-assassination)
 
-025-09-10 MSNBC was forced to fire Matthew Dowd because he mentioned in passing about Charlie Kirk’s historical hate speech rhetoric.
+2025-09-10 MSNBC was forced to fire Matthew Dowd for accurately pointing out that Charlie Kirk historically pushed hate rhetoric.
 
 [https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075](https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075)
 
@@ -255,6 +255,10 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 
+2025-09-14 Mike Lee called to restore legislation designed to silence the media, “In the coming days, I’ll be filing my previously drafted legislation to restore Smith-Mundt, and renaming it the Charlie Kirk Act. Domestic, political, government-funded propaganda must end now”. Glenn Beck responded, “100% on board. Obama made US Govt propaganda legal again. IT MUST BE BANNED. Join mike, call your senators and ask them to back the Charlie Kirk Act”.
+
+[https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death](https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death)
+
 2025-09-14 On his podcast, Glenn Beck told his listeners that what Charlie Kirk was doing wasn’t politics, it was an attempt to stand up for people’s civil rights. OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is as a right-wing megadonor, Kirk frequently bashed principles Martin Luther King fought for, called George Floyd a scumbag, abhorred the idea of women choosing careers over having babies, weaponized the bible with Gish-galloping and fallacy tactics, fanned the flames of civil unrest on his podcast, and frequently spewed hate rhetoric about the LGBTQ+ community.
 
 [https://www.youtube.com/shorts/3LnvYF9ICT8](https://www.youtube.com/shorts/3LnvYF9ICT8)
@@ -288,7 +292,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination](https://www.foxnews.com/politics/pentagon-announces-zero-tolerance-military-personnel-mocking-charlie-kirks-assassination)
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
+2025-09-15 Multiple people were fired for insufficiently mourning Charlie Kirk’s death, while Republicans openly celebrated the Pelosi assault, mocked the death of Minnesota senators, celebrated the killing of George Floyd, suggested euthanizing homeless people, and made sexual assault jokes about Kamala Harris. And then kept their jobs. 
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 

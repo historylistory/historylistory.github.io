@@ -121,7 +121,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 7. And an artificially generated AI version of John Adams who tells children, “Facts do not care about your feelings”. 
 8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
 
-2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed "America First" assessment. Critics argued it promoted partisan ideology.  One article said the test included questions related to 2020 false electoral claims.
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 

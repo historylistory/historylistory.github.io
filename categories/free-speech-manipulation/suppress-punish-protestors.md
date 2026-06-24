@@ -204,15 +204,6 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 [https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/](https://whbl.com/2025/06/12/prosecutors-told-to-prioritize-publicize-cases-tied-to-trump-immigration-protests/)
 
 
-### 2025 September
-
-2025-09-18 In a Scott Jennings podcast interview, Brendan Carr questioned whether The View on ABC still qualifies as a news program and is or isn't subject to FCC's Equal Time rule.
-
-[https://www.politico.com/news/2025/09/18/fcc-brendan-carr-the-view-00572178](https://www.politico.com/news/2025/09/18/fcc-brendan-carr-the-view-00572178)
-
-[https://x.com/ScottJenningsKY/status/1968736369670504493](https://x.com/ScottJenningsKY/status/1968736369670504493)
-
-[https://x.com/BrendanCarrFCC/status/1852887210330341693](https://x.com/BrendanCarrFCC/status/1852887210330341693)
 
 ### 2025 October
 

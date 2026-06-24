@@ -196,13 +196,13 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 
-2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed "America First" assessment. Critics argued it promoted partisan ideology.  One article said the test included questions related to 2020 false electoral claims.
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 [https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test](https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test)
 
 [https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/](https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/)
 
-2025-08-19 Nexstar Media – managed by conservative donor Perry Sook and Fox exec Bill Shine – announced acquisition of TEGNA for $6.2B.
+2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
 
 [https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction/](https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction/)
 
@@ -231,7 +231,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/](https://www.reuters.com/business/media-telecom/paramount-skydance-preparing-bid-warner-bros-discovery-source-says-2025-09-11/)
 
 
-2025-09-14 During a prayer vigil for Kirk, Kari Lake spun the narrative that the suspect was "brainwashed" by woke. She went on to “warn” parents not to send their children to universities, which she labeled "indoctrination camps". This is important because she is the senior advisor for the US Agency for Global Media and could potentially hold a lot of unchecked power in the media. For context, Kari Lake also helped stir controversy in 2022 when she demanded ballots be counted by hand.
+2025-09-14 During a prayer vigil for Kirk, Kari Lake claimed the suspect was “brainwashed” by woke and then warned not to send their children to universities, which she labeled “indoctrination camps”. Kari Lake also stirred controversy in 2022 when she demanded ballots be counted by hand.
 
 [https://www.dailykos.com/stories/2025/9/14/2343594/-Kari-Lake-urges-parents-not-to-send-their-children-to-indoctrination-camps-i-e-college](https://www.dailykos.com/stories/2025/9/14/2343594/-Kari-Lake-urges-parents-not-to-send-their-children-to-indoctrination-camps-i-e-college)
 
@@ -245,11 +245,11 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 {% include youtubePlayer.html id="hjF4GuKV3q4" %}
 
-2025-09-17 Sinclair Broadcasting issued a press release on their Investor Relations page demanding that FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
+2025-09-17 Sinclair Broadcasting demanded the FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
 
 [https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/](https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/)
 
-2025-09-17 Sinclair Broadcasting stated they would be replacing the Jimmy Kimmel time slot with a Kirk tribute.
+2025-09-17 Sinclair Broadcasting announced they would be replacing the Jimmy Kimmel time slot with a Kirk tribute.
 
 [https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/](https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/)
 

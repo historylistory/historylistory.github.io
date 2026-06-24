@@ -272,7 +272,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-15 Trump threatened to withhold federal funding from New York if Zohran Mamdani were elected after receiving Governor Kathy Hochul's endorsement.
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
+2025-09-15 Multiple people were fired for insufficiently mourning Charlie Kirk’s death, while Republicans openly celebrated the Pelosi assault, mocked the death of Minnesota senators, celebrated the killing of George Floyd, suggested euthanizing homeless people, and made sexual assault jokes about Kamala Harris. And then kept their jobs. 
 
 2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk. 
 
@@ -280,7 +280,11 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-16 Trump sued The New York Times for libel over reporting on an Epstein-related letter and accused the paper of supporting Kamala Harris. 
 
-2025-09-17 Trump demanded that NBC fire Jimmy Fallon and Seth Meyers, ending his post with "Do it, NBC."
+2025-09-17 Trump demanded NBC fire Jimmy Fallon and Seth Meyers, “Do it, NBC.”
+
+2025-09-17 Sinclair Broadcasting demanded the FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
+
+2025-09-17 Brendan Carr said on a Benny Johnson podcast, “When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, we can do this the easy way or the hard way. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there’s gonna be additional war for the FCC ahead”.
 
 2025-09-19 Trump heckled David Letterman on Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
 

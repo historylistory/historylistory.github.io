@@ -27,6 +27,14 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 ### 2025
 
+2025-09-17 Sinclair Broadcasting demanded the FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
+
+[https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/](https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/)
+
+2025-09-17 Brendan Carr said on a Benny Johnson podcast, “When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, we can do this the easy way or the hard way. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there’s gonna be additional war for the FCC ahead”.
+
+{% include youtubePlayer.html id="ved5hVb4yfM" %}
+
 2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115307915499158903](https://truthsocial.com/@realDonaldTrump/posts/115307915499158903)

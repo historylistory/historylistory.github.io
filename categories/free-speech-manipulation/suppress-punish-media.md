@@ -105,41 +105,50 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2025 September
 
-2025-09-10 MSNBC was forced to fire Matthrew Dowd for accurately stating that Charlie Kirk historically pushed controversial and hateful rhetoric.
+2025-09-10 MSNBC was forced to fire Matthew Dowd for accurately pointing out that Charlie Kirk historically pushed hate rhetoric.
 
 [https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075](https://apnews.com/article/dowd-msnbc-kirk-comments-e08f349022c9d69171cd575664141075)
 
-{% include youtubePlayer.html id="t8mtmQc7vuM" %}
-
 [https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/](https://variety.com/2025/tv/news/matthew-dowd-fired-msnbc-charlie-kirk-death-1236514875/)
 
-2025-09-14 Mike Lee posted on X that he wanted to restore the Smith-Mundt Act and rename it the Charlie Kirk Act. This would restore legislation designed to silence the media. The post was reposted by Glenn Beck. Lee wrote, “In the coming days, I’ll be filing my previously drafted legislation to restore Smith-Mundt, and renaming it the Charlie Kirk Act. Domestic, political, government-funded propaganda must end now”. Glenn Beck responded, “100% on board. Obama made US Govt propaganda legal again. IT MUST BE BANNED. Join mike, call your senators and ask them to back the Charlie Kirk Act”.
+{% include youtubePlayer.html id="t8mtmQc7vuM" %}
+
+
+2025-09-14 Mike Lee called to restore legislation designed to silence the media, “In the coming days, I’ll be filing my previously drafted legislation to restore Smith-Mundt, and renaming it the Charlie Kirk Act. Domestic, political, government-funded propaganda must end now”. Glenn Beck responded, “100% on board. Obama made US Govt propaganda legal again. IT MUST BE BANNED. Join mike, call your senators and ask them to back the Charlie Kirk Act”.
 
 [https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death](https://www.ksl.com/article/51375522/mike-lee-wants-to-revive-cold-war-era-propaganda-law-following-charlie-kirks-death)
 
-2025-09-17 Trump demanded that NBC fire Jimmy Fallon and Seth Meyers, ending his post with "Do it, NBC."
+2025-09-17 Trump demanded NBC fire Jimmy Fallon and Seth Meyers, “Do it, NBC.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)
 
 [https://www.usatoday.com/story/news/politics/2025/09/18/trump-tweet-jimmy-kimmel-show-charlie-kirk-death/86215408007/](https://www.usatoday.com/story/news/politics/2025/09/18/trump-tweet-jimmy-kimmel-show-charlie-kirk-death/86215408007/)
 
-2025-09-17 During a podcast, FCC Chair Brendan Carr demanded that Jimmy Kimmel be indefinitely suspended after Kimmel made comments about the Charlie Kirk shooting.
+2025-09-17 FCC Chair Brendan Carr demanded Jimmy Kimmel be indefinitely suspended after Kimmel made comments about the Charlie Kirk shooting.
 
 [https://www.iowapublicradio.org/news-from-npr/2025-09-17/jimmy-kimmel-show-is-pulled-by-abc-after-comments-about-the-charlie-kirk-killing](https://www.iowapublicradio.org/news-from-npr/2025-09-17/jimmy-kimmel-show-is-pulled-by-abc-after-comments-about-the-charlie-kirk-killing)
 
 [https://fortune.com/2025/09/18/jimmy-kimmel-misinformation-fcc-brendan-carr-abc-disney/](https://fortune.com/2025/09/18/jimmy-kimmel-misinformation-fcc-brendan-carr-abc-disney/)
 
-2025-09-17 During an interview on The Benny Johnson podcast, Brendan Carr stated, "When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, **we can do this the easy way or the hard way**. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there's gonna be additional war for the FCC ahead".
+2025-09-17 Brendan Carr said on a Benny Johnson podcast, “When you look at the conduct that has taken place by Jimmy Kimmel, it appears to be some of the sickest conduct possible…I mean, look, we can do this the easy way or the hard way. These companies can find ways to change conduct and take action. Frankly, on Kimmel, or there’s gonna be additional war for the FCC ahead”.
 
 {% include youtubePlayer.html id="ved5hVb4yfM" %}
 
-2025-09-17 Sinclair Broadcasting issued a press release on their Investor Relations page demanding that FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
+2025-09-17 Sinclair Broadcasting demanded the FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.
 
 [https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/](https://sbgi.net/sinclair-says-kimmel-suspension-is-not-enough-calls-on-fcc-and-abc-to-take-additional-action/)
 
-2025-09-17 Sinclair Broadcasting stated they would be replacing the Jimmy Kimmel time slot with a Kirk tribute.
+2025-09-17 Sinclair Broadcasting announced they would be replacing the Jimmy Kimmel time slot with a Kirk tribute.
 
 [https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/](https://variety.com/2025/tv/news/jimmy-kimmel-live-replaced-charlie-kirk-tribute-sinclair-apology-1236522789/)
+
+2025-09-18 While on a Scott Jennings podcast Brendan Carr suggested The View could be subject to Equal Time rule violations. 
+
+[https://www.politico.com/news/2025/09/18/fcc-brendan-carr-the-view-00572178](https://www.politico.com/news/2025/09/18/fcc-brendan-carr-the-view-00572178)
+
+[https://x.com/ScottJenningsKY/status/1968736369670504493](https://x.com/ScottJenningsKY/status/1968736369670504493)
+
+[https://x.com/BrendanCarrFCC/status/1852887210330341693](https://x.com/BrendanCarrFCC/status/1852887210330341693)
 
 2025-09-19 During his podcast "The Verdict with Ted Cruz", Cruz stated "If the government gets in the business of saying…'we're going to ban you from the airwaves if you don't say what we like,' that will end up bad for conservatives".
 

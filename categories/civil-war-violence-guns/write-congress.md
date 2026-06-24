@@ -223,7 +223,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-09-10 Matt Forney referred to the Kirk shooting as the political right's "Reichstag Fire" moment
 
-2025-09-10 MSNBC was forced to fire Matthew Dowd because he brought up Charlie Kirk’s hateful rhetoric.
+2025-09-10 MSNBC was forced to fire Matthew Dowd for accurately pointing out that Charlie Kirk historically pushed hate rhetoric.
 
 2025-09-10 A school shooting occurred at Evergreen High School in Colorado on the same day Charlie Kirk was shot, but it received comparatively little media attention
 
@@ -292,13 +292,15 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-09-14 During a prayer vigil for Kirk, Kari Lake claimed the suspect was “brainwashed” by woke and then warned not to send their children to universities, which she labeled “indoctrination camps”. Kari Lake also stirred controversy in 2022 when she demanded ballots be counted by hand.
 
+2025-09-14 Mike Lee called to restore legislation designed to silence the media, “In the coming days, I’ll be filing my previously drafted legislation to restore Smith-Mundt, and renaming it the Charlie Kirk Act. Domestic, political, government-funded propaganda must end now”. Glenn Beck responded, “100% on board. Obama made US Govt propaganda legal again. IT MUST BE BANNED. Join mike, call your senators and ask them to back the Charlie Kirk Act”.
+
 2025-09-15 NBC reported criticism from MAGA supporters over Bondi's efforts to police online hate speech.
 
 2025-09-15 JD Vance urged listeners of the Charlie Kirk podcast to call out people celebrating or minimizing Kirk's death and added, "Call their employers", encouraging viewers to outwardly doxx people and put their safety and well-being at risk.
 
 2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting viewers to outwardly dox servicemembers. He wrote, "“This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is —- of the US Navy he is stationed on the USS —- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”.
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
+2025-09-15 Multiple people were fired for insufficiently mourning Charlie Kirk’s death, while Republicans openly celebrated the Pelosi assault, mocked the death of Minnesota senators, celebrated the killing of George Floyd, suggested euthanizing homeless people, and made sexual assault jokes about Kamala Harris. And then kept their jobs. 
 
 2025-09-15 In a press conference, State Representative Justin J. Pearson of Tennessee District 86 addressed poverty, militarization, and pointed out that Republicans don’t care about crime because they don’t enforce gun laws.
 

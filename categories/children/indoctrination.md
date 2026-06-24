@@ -72,7 +72,7 @@ permalink: /categories/children/indoctrination/
 
 
 
-2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed "America First" assessment. Critics argued it promoted partisan ideology.  One article said the test included questions related to 2020 false electoral claims.
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 [https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test](https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test)
 

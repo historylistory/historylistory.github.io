@@ -204,7 +204,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://newrepublic.com/post/200449/donald-trump-kathy-hochul-endorsement-zohran-mamdani](https://newrepublic.com/post/200449/donald-trump-kathy-hochul-endorsement-zohran-mamdani)
 
-2025-09-15 Reports documented multiple employees being fired after comments viewed as insufficiently sympathetic following Charlie Kirk's death. REMEMBER (a few short examples) Republicans publicly celebrated the assault of Nancy Pelosi’s husband, mocked the death of the Minnesota senators, celebrated the killing of George Floyd, suggested an entire population of homeless people be “euthanized, and made a sexual assault ‘joke’ about Kamala Harris. They still have their jobs.
+2025-09-15 Multiple people were fired for insufficiently mourning Charlie Kirk’s death, while Republicans openly celebrated the Pelosi assault, mocked the death of Minnesota senators, celebrated the killing of George Floyd, suggested euthanizing homeless people, and made sexual assault jokes about Kamala Harris. And then kept their jobs. 
 
 [https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html](https://www.independent.co.uk/news/world/americas/us-politics/pam-bondi-charlie-kirk-office-depot-employee-b2827508.html)
 
@@ -228,7 +228,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html](https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html)
 
-2025-09-17 Trump demanded that NBC fire Jimmy Fallon and Seth Meyers, ending his post with "Do it, NBC."
+2025-09-17 Trump demanded NBC fire Jimmy Fallon and Seth Meyers, “Do it, NBC.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)
 

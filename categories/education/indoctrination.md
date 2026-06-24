@@ -101,7 +101,7 @@ permalink: /categories/education/indoctrination/
 
 
 
-2025-08-18 Teachers in California, Oklahoma and New York must pass an “America First” test developed by Conservative Alt-Right Prager-U. Tests are partisan and questions push 2020 false electoral claims. (DID YOU KNOW? America First Political Action Conference was founded by white supremacist Nick Fuentes, America First Legal likes to file lawsuits claiming discrimination against white men, in 2022 JD Vance campaigned in an “America First Conservative” commercial that started out “Are YOU a racist? Do you hate Mexicans?...” and Pat Buchanan declared a culture war in 1992 as part of his “America First” campaign). 
+2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 [https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test](https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test)
 

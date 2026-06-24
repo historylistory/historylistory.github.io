@@ -210,7 +210,7 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 ### Nextar Media
 
-2025-08-19 Nexstar Media – managed by conservative donor Perry Sook and Fox exec Bill Shine – announced acquisition of TEGNA for $6.2B.
+2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
 
 [https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction](https://www.nexstar.tv/nexstar-media-group-inc-enters-into-definitive-agreement-to-acquire-tegna-inc-for-6-2-billion-in-accretive-transaction)
 
