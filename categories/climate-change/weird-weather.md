@@ -163,3 +163,10 @@ permalink: /categories/climate-change/weird-weather/
 2026-06-03 Experts warned that the 2026 El Nino will be the strongest on record. 
 
 [https://www.youtube.com/watch?v=uWkOD_ukuE0&list=WL&index=2](https://www.youtube.com/watch?v=uWkOD_ukuE0&list=WL&index=2)
+
+
+2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
+
+[https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat](https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat)
+
+[https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr](https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr)

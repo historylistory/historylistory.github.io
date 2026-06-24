@@ -150,3 +150,16 @@ OTHER SHADY BUSINESS
 [https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
 
 [https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
+
+### 2026 June
+
+
+2026-06-23 Elissa Slotkin introduced legislation to prevent troops from poll intimidation. 
+
+[https://www.youtube.com/watch?v=xWdgscirvUk](https://www.youtube.com/watch?v=xWdgscirvUk)
+
+[https://www.youtube.com/watch?v=RLgCiTHWFG8&list=WL&index=4](https://www.youtube.com/watch?v=RLgCiTHWFG8&list=WL&index=4)
+
+[https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/](https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/)
+
+[https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693](https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693)

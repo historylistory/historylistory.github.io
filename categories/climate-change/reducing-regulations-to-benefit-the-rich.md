@@ -400,3 +400,13 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://www.youtube.com/watch?v=752gOFl2_p0](https://www.youtube.com/watch?v=752gOFl2_p0)
 
 [https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/](https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/)
+
+2026-06-22 The Interior Department introduced new guidelines to slash oil and gas fees paid by energy companies, eliminate requirements to detail plans to eliminate methane emissions, and reduce environmental protections. 
+
+[https://www.doi.gov/pressreleases/interior-advances-revisions-oil-and-gas-leasing-and-waste-prevention-rules-support](https://www.doi.gov/pressreleases/interior-advances-revisions-oil-and-gas-leasing-and-waste-prevention-rules-support)
+
+[https://www.democracynow.org/2026/6/23/headlines/interior_dept_seeks_to_roll_back_fees_and_regulations_for_coal_oil_and_gas_extraction](https://www.democracynow.org/2026/6/23/headlines/interior_dept_seeks_to_roll_back_fees_and_regulations_for_coal_oil_and_gas_extraction)
+
+[https://thehill.com/policy/energy-environment/5935238-public-lands-drilling-interior/](https://thehill.com/policy/energy-environment/5935238-public-lands-drilling-interior/)
+
+SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html](https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html)

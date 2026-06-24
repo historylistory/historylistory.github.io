@@ -610,3 +610,9 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization](https://www.npr.org/2026/06/20/nx-s1-5865100/doj-memo-trump-disability-civil-rights-institutionalization)
 
 [https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities](https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities)
+
+2026-06-23 Banks have not lowered interest rates despite Trump’s pledge in January for them to do so. Citizens are putting food and gas on credit cards, credit delinquency reached the highest level since the crash of 2008, and since January Americans have paid $57B more in credit card interest above 10%. One in three people are skipping meals, medications, and healthcare services. 
+
+[https://www.youtube.com/watch?v=GgOL9u3m3dM&list=WL&index=1](https://www.youtube.com/watch?v=GgOL9u3m3dM&list=WL&index=1)
+
+[https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/](https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/)

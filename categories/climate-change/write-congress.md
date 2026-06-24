@@ -258,3 +258,7 @@ The following examples highlight these concerns, while some are included for his
 2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
 
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
+
+2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
+
+2026-06-22 The Interior Department introduced new guidelines to slash oil and gas fees paid by energy companies, eliminate requirements to detail plans to eliminate methane emissions, and reduce environmental protections. 

@@ -577,3 +577,6 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
 
+2026-06-22 Kenneth Roth posted, “The summary execution of two more in an alleged drug boat brings the number of murders ordered by Trump to more than 210. There will come a day when he faces prosecution for these crimes. 
+
+2026-06-23 UN High Commissioner for Human Rights said about atrocities in Sudan, “The imminent offensive against Alade in Sudan risks commission of serious international crimes and deepens the catastrophic impact on an already beleaguered civilian population”. 

@@ -58,3 +58,9 @@ permalink: /categories/voting-census/federalization-voter-information/
 2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
 
 [https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)
+
+2026-06-23 A federal judge blocked Trump’s efforts to create a national citizenship database to verify voter eligibility. Judge Sooknanan wrote, “All in all, the federal government has knowingly trampled on the privacy rights of American citizens in a manner that threatens the sacred right to vote. This court cannot stand idly by while that happens”. 
+
+[https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935](https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935)
+
+[https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/](https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/)

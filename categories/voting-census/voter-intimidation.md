@@ -59,3 +59,16 @@ permalink: /categories/voting-census/voter-intimidation/
 2026-05-12 Trump threatened – much like in 2020 – to send uniformed agents to polls during midterms. 
 
 [https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/](https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/)
+
+### 2026 June
+
+2026-06-23 Elissa Slotkin introduced legislation to prevent troops from poll intimidation. 
+
+[https://www.youtube.com/watch?v=xWdgscirvUk](https://www.youtube.com/watch?v=xWdgscirvUk)
+
+[https://www.youtube.com/watch?v=RLgCiTHWFG8&list=WL&index=4](https://www.youtube.com/watch?v=RLgCiTHWFG8&list=WL&index=4)
+
+[https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/](https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/)
+
+[https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693](https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693)
+

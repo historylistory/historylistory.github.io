@@ -422,3 +422,11 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
+### 2026 June
+
+2026-06-23 Banks have not lowered interest rates despite Trump’s pledge in January for them to do so. Citizens are putting food and gas on credit cards, credit delinquency reached the highest level since the crash of 2008, and since January Americans have paid $57B more in credit card interest above 10%. One in three people are skipping meals, medications, and healthcare services. 
+
+[https://www.youtube.com/watch?v=GgOL9u3m3dM&list=WL&index=1](https://www.youtube.com/watch?v=GgOL9u3m3dM&list=WL&index=1)
+
+[https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/](https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/)
+

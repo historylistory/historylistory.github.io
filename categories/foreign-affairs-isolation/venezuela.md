@@ -295,3 +295,12 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea](https://www.pbs.org/newshour/world/u-s-kills-2-during-latest-strike-on-alleged-drug-boats-traveling-in-the-caribbean-sea)
 
 [https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2](https://apnews.com/article/drug-cartels-boat-strikes-military-trump-084ee7b1071dede21ea64afa9daf2ea2)
+
+### 2026 June
+
+2026-06-22 Kenneth Roth posted, “The summary execution of two more in an alleged drug boat brings the number of murders ordered by Trump to more than 210. There will come a day when he faces prosecution for these crimes. 
+
+[https://x.com/KenRoth/status/2069015024660566376](https://x.com/KenRoth/status/2069015024660566376)
+
+[https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors](https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors)
+

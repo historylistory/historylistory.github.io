@@ -6,9 +6,7 @@ subcategory_slug: uk
 permalink: /categories/foreign-affairs-isolation/uk/
 ---
 
-### 2026
-
-pending more information
+### 2026 April
 
 2026-04-28 King Charles addressed Congress, pushing back on several issues between the US and UK, and warning that executive power is subject to checks and balances. He also directly addressed Trump's attacks on NATO by reminding everyone that Trump told NATO if it wasn't for the U.S. they'd all be speaking German. King Charles said if it wasn't for the U.K., the U.S. would be speaking French. 
 
@@ -33,3 +31,15 @@ pending more information
 [https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl](https://www.cnn.com/2026/04/28/world/us-special-relationship-israel-uk-ambassador-turner-intl)
 
 PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/news/articles/c1l25qd43nro)
+
+### 2026 June
+
+2026-06-22 Kier Starmer resigned. 
+
+[https://www.bbc.com/news/articles/cdxd00lg599o](https://www.bbc.com/news/articles/cdxd00lg599o)
+
+[https://apnews.com/live/keir-starmer-resignation-uk-prime-minister-updates-06-22-2026](https://apnews.com/live/keir-starmer-resignation-uk-prime-minister-updates-06-22-2026)
+
+[https://www.cnn.com/2026/06/22/world/live-news/keir-starmer-uk-pm](https://www.cnn.com/2026/06/22/world/live-news/keir-starmer-uk-pm)
+
+[https://www.youtube.com/watch?v=G68GnjnGg-Q&list=WL&index=2](https://www.youtube.com/watch?v=G68GnjnGg-Q&list=WL&index=2)

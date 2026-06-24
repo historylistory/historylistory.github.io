@@ -433,3 +433,23 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2)
 
 [https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel](https://edition.cnn.com/2026/06/09/world/live-news/iran-war-trump-israel)
+
+2026-06-22 Kenneth Roth posted, “The summary execution of two more in an alleged drug boat brings the number of murders ordered by Trump to more than 210. There will come a day when he faces prosecution for these crimes. 
+
+[https://x.com/KenRoth/status/2069015024660566376](https://x.com/KenRoth/status/2069015024660566376)
+
+[https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors](https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors)
+
+2026-06-23 UN High Commissioner for Human Rights said about atrocities in Sudan, “The imminent offensive against Alade in Sudan risks commission of serious international crimes and deepens the catastrophic impact on an already beleaguered civilian population”. 
+
+[https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic](https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic)
+
+[https://news.un.org/en/story/2026/06/1167752](https://news.un.org/en/story/2026/06/1167752)
+
+2026-06-23 United Auto Workers voted to divest from Israel Bonds and issued a statement, “This is going to send a message to – not just the billionaire class – but to politicians and any single person who is not afraid to stand up to genocide, to Netanyahu, to the United States government, and will put the UAW again on the map for standing up for international solidarity”. 
+
+[https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/](https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/)
+
+[https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel](https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel)
+
+[https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/](https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/)

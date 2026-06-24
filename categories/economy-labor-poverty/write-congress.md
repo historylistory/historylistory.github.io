@@ -832,3 +832,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
 
+2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
+
+2026-06-22 The Interior Department introduced new guidelines to slash oil and gas fees paid by energy companies, eliminate requirements to detail plans to eliminate methane emissions, and reduce environmental protections. 
+
+2026-06-23 Banks have not lowered interest rates despite Trump’s pledge in January for them to do so. Citizens are putting food and gas on credit cards, credit delinquency reached the highest level since the crash of 2008, and since January Americans have paid $57B more in credit card interest above 10%. One in three people are skipping meals, medications, and healthcare services. 
+
+2026-06-23 United Auto Workers voted to divest from Israel Bonds and issued a statement, “This is going to send a message to – not just the billionaire class – but to politicians and any single person who is not afraid to stand up to genocide, to Netanyahu, to the United States government, and will put the UAW again on the map for standing up for international solidarity”. 

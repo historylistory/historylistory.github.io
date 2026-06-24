@@ -77,3 +77,12 @@ permalink: /categories/health/world-health/
 [https://www.aljazeera.com/news/2026/6/17/why-are-experts-warning-latest-ebola-outbreak-could-be-worst-ever](https://www.aljazeera.com/news/2026/6/17/why-are-experts-warning-latest-ebola-outbreak-could-be-worst-ever)
 
 [https://www.cnn.com/2026/06/16/africa/drc-ebola-cdc-intl-latam-afr](https://www.cnn.com/2026/06/16/africa/drc-ebola-cdc-intl-latam-afr)
+
+2026-06-23 Ebola cases topped 1000 in the Republic of Congo.
+
+[https://news.un.org/en/story/2026/06/1167783](https://news.un.org/en/story/2026/06/1167783)
+
+[https://www.cidrap.umn.edu/ebola/ebola-outbreak-dr-congo-tops-1000-cases-least-254-dead](https://www.cidrap.umn.edu/ebola/ebola-outbreak-dr-congo-tops-1000-cases-least-254-dead)
+
+[https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases](https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases)
+

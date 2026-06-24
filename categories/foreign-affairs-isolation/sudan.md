@@ -44,3 +44,10 @@ permalink: /categories/foreign-affairs-isolation/sudan/
 
 TIMESTAMP 10:12 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=620s](https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=620s)
 
+### 2026 June
+
+2026-06-23 UN High Commissioner for Human Rights said about atrocities in Sudan, “The imminent offensive against Alade in Sudan risks commission of serious international crimes and deepens the catastrophic impact on an already beleaguered civilian population”. 
+
+[https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic](https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic)
+
+[https://news.un.org/en/story/2026/06/1167752](https://news.un.org/en/story/2026/06/1167752)

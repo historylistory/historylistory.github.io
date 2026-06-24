@@ -385,3 +385,9 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 2026-06-03 On Capitol hill Mark Rubio testified that military operations against Iran were over, while Trump on the same day in the Oval Office told reporters the U.S. attacked Iran recently. 
 
 TIMESTAMP 2:24 [https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2](https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2)
+
+2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
+
+[https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat](https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat)
+
+[https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr](https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr)

@@ -280,4 +280,11 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran](https://www.democracynow.org/2026/6/16/headlines/israels_netanyahu_says_he_wont_withdraw_from_lebanon_defying_terms_of_us_deal_with_iran)
 
+2026-06-23 United Auto Workers voted to divest from Israel Bonds and issued a statement, “This is going to send a message to – not just the billionaire class – but to politicians and any single person who is not afraid to stand up to genocide, to Netanyahu, to the United States government, and will put the UAW again on the map for standing up for international solidarity”. 
+
+[https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/](https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/)
+
+[https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel](https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel)
+
+[https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/](https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/)
 

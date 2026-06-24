@@ -186,3 +186,19 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 [https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month](https://www.foxbusiness.com/lifestyle/delta-scrap-snacks-beverages-hundreds-flights-expand-offerings-others-starting-month)
 
 [https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/](https://thehill.com/business/5864094-delta-dropping-complimentary-food-drink-service-on-select-flights/)
+
+### 2026 June
+
+2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
+
+[https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat](https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat)
+
+[https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr](https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr)
+
+2026-06-23 United Auto Workers voted to divest from Israel Bonds and issued a statement, “This is going to send a message to – not just the billionaire class – but to politicians and any single person who is not afraid to stand up to genocide, to Netanyahu, to the United States government, and will put the UAW again on the map for standing up for international solidarity”. 
+
+[https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/](https://www.detroitnews.com/story/business/autos/2026/06/18/uaw-israel-bond-divest-gaza-uawd-constitutional-convention/90610929007/)
+
+[https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel](https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel)
+
+[https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/](https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/)
