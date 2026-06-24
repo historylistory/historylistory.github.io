@@ -49,7 +49,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 
 ### 2023 October
 
-2023-10-01 At least since the Gaza war, Israel reportedly launched a multi-million-dollar global propaganda campaign, paying influencers to say positive things about Israel, and funding tours for MAGA and pro-Trump influencers. In November 2025 FARA (Foreign Agents Registration Act) filed complaints against the Israeli government.
+2023-10-01 Israel reportedly launched a multi-million-dollar global propaganda campaign, paid influencers to say positive things about Israel, and funded tours for MAGA and pro-Trump influencers. In November 2025 FARA (Foreign Agents Registration Act) filed complaints against the Israeli government.
 
 [https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war#:~:text=Bridges%20Partners%20is%20a%20Christian%20public%20relations,become%20the%20source%20of%20an%20online%20meme](https://www.aljazeera.com/news/2025/10/30/spinning-genocide-how-israel-is-using-us-pr-firms-to-frame-its-gaza-war).
 

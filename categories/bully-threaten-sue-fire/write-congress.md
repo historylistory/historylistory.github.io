@@ -67,7 +67,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2020-04-22 Trump clashed with CNN reporters.
 
-2020-05-27 Trump claimed social media platforms were silencing Republicans and threatened to "strongly regulate or close them down." He wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
+2020-05-27 Trump wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
 
 2020-11-07 Trump made threats to prosecute over the Biden victory.
 
@@ -126,7 +126,7 @@ Manhattan grand jury in the hush-money case.
 
 2024-10-31 During an interview with Tucker Carlson, Trump called Liz Cheney a radical war hawk and stated, “let’s put her with the rifles standing there with nine barrels shooting at her” and “let’s see how she feels about it, you know, when the guns are trained on her face”.
 
-2024-11-03 During a rally, Trump encouraged shooting firearms at journalists when he said, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
+2024-11-03 During a rally, Trump encouraged deadly violence, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 2024-11-05 Trump attacked Fox News for airing Oprah.
 

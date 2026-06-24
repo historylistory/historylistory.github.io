@@ -18,6 +18,19 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 {% include youtubePlayer.html id="MZistOc5g0A" %}
 
+### 2024
+
+2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
+
+[https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/](https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/)
+
+2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
+
+[https://www.usatoday.com/story/news/politics/elections/2024/04/24/mike-johnson-at-columbia-university-protests/73439004007/](https://www.usatoday.com/story/news/politics/elections/2024/04/24/mike-johnson-at-columbia-university-protests/73439004007/)
+
+[https://www.politico.com/live-updates/2024/04/24/congress/johnson-demands-columbia-prez-resign-00154063](https://www.politico.com/live-updates/2024/04/24/congress/johnson-demands-columbia-prez-resign-00154063)
+
+
 ### 2025 February
 
 2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025. 

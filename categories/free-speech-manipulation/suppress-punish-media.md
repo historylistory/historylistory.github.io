@@ -30,7 +30,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.axios.com/2025/09/15/republicans-bill-media-usagm-radio-free-europe-funding](https://www.axios.com/2025/09/15/republicans-bill-media-usagm-radio-free-europe-funding)
 
-2025-01-20 In his inaugural address, Trump stated, "I will sign an executive order to immediately stop all government censorship and bring back free speech to America", which is contrary to his ongoing campaign to sue, retaliate, or defund media he doesn't like. 
+2025-01-20 In his inaugural address, Trump stated, “I will sign an executive order to immediately stop all government censorship and bring back free speech to America” contrary to his retaliation and suppression campaign. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/](https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/)
 

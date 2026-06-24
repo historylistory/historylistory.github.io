@@ -76,6 +76,10 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2023-10-23 Republicans increasingly ban books. 
 
+2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
+
+2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
+
 2024-06-03 Trump passed specific parameters for bibles in schools so only his bible could be peddled to them. 
 
 2024-06-03 Billions of taxpayers’ dollars are diverted from public schools to fund exclusive private religious schools. 

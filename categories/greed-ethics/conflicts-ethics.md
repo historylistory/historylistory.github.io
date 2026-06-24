@@ -191,7 +191,7 @@ permalink: /categories/greed-ethics/conflicts-ethics/
 
 ### 2025 January
 
-2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor.
+2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor. 
 
 [https://news.kalshi.com/p/donald-trump-jr-strategic-advisor](https://news.kalshi.com/p/donald-trump-jr-strategic-advisor)
 

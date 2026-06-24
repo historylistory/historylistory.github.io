@@ -71,7 +71,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2024 November
 
-2024-11-03 During a rally, Trump encouraged shooting firearms at journalists when he said, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
+2024-11-03 During a rally, Trump encouraged deadly violence, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 [https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
 

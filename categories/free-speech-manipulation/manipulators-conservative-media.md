@@ -68,15 +68,13 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 2020
 
-2020-05-27 Trump claimed social media platforms were silencing Republicans and threatened to "strongly regulate or close them down." He wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
+2020-05-27 Trump wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
 
 [https://abcnews.go.com/Politics/trump-threatens-close-social-media-platforms-twitter-fact/story?id=70899912](https://abcnews.go.com/Politics/trump-threatens-close-social-media-platforms-twitter-fact/story?id=70899912)
 
 ### 2022
 
-2022-01-01 Starting in 2022, Elon Musk made it so you could pay for the blue check verification on Twitter. Then they started having issues with impersonators from other countries and increased rage bait. Research showed a significant increase in hate speech on X following Elon Musk's acquisition in October 2022.
-
-Remember: rage bait sells. 
+2022-01-01 Blue Check verification can be bought on X, and since then research has shown a significant increase in hate speech. 
 
 [https://www.cbsnews.com/news/twitter-blue-check-verification-ending-new-subscription-april-1-elon-musk/#:~:text=Twitter%20is%20officially%20ending%20its,U.S](https://www.cbsnews.com/news/twitter-blue-check-verification-ending-new-subscription-april-1-elon-musk/).
 
@@ -114,7 +112,7 @@ Remember: rage bait sells. 
 
 ### 2024 October
 
-2024-10-20 An article with The Cavalier Daily wrote about Bari Weiss & Mitch Daniels addressing the erosion of free speech on college campuses. It is noteworthy that Bari Weiss owns Free Press, which featured articles claiming starvation in Gaza wasn’t happening.
+2024-10-20 Bari Weiss said about Columbia University protests, "Those students were holding these janitors hostage at [Columbia University].” Weiss said. “How can that be construed as being on the side of social justice, I will never know. But first, what I would say is to enforce the law on all of the students … that destroyed property.” Her media company Free Press also features articles claiming the starvation in Gaza isn’t really happening.
 
 [https://www.cavalierdaily.com/article/2024/10/bari-weiss-mitch-daniels-discuss-state-of-free-speech-on-college-campuses](https://www.cavalierdaily.com/article/2024/10/bari-weiss-mitch-daniels-discuss-state-of-free-speech-on-college-campuses)
 
@@ -126,7 +124,7 @@ Remember: rage bait sells. 
 
 ### 2025 January
 
-2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor. (Context: Kalshi partnered with CNBC, CNN and Fox by the beginning of 2026)
+2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor. 
 
 [https://news.kalshi.com/p/donald-trump-jr-strategic-advisor](https://news.kalshi.com/p/donald-trump-jr-strategic-advisor)
 

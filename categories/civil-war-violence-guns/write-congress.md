@@ -121,7 +121,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2024-10-31 During an interview with Tucker Carlson, Trump called Liz Cheney a radical war hawk and stated, “let’s put her with the rifles standing there with nine barrels shooting at her” and “let’s see how she feels about it, you know, when the guns are trained on her face”.
 
-2024-11-03 During a rally, Trump encouraged shooting firearms at journalists when he said, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
+2024-11-03 During a rally, Trump encouraged deadly violence, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 2024-11-06 Mike Davis wrote on Twitter “I want to drag their dead political bodies through the streets, burn them, and throw them off the wall”.
 

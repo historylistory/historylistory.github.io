@@ -50,7 +50,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2024 April
 
-2024-04-01 Keep in mind, there were multiple anti-war protests condemning the genocide in Gaza while Biden was still in office.
+2024-04-01 In all fairness, there were multiple anti-war protests condemning the genocide in Gaza while Biden was still in office. 
 
 [https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel](https://www.theguardian.com/world/2024/jan/31/biden-pro-palestine-protest-israel)
 
@@ -67,7 +67,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/](https://www.texasstandard.org/stories/greg-abbott-antisemitism-order-texas-colleges-pro-palestinian-student-groups/)
 
-2024-04-24 Mike Johnson called pro-Palestinian protestors "antisemitic", floated retaliatory measures of **cutting funding to the school**, and demanded the Columbia University president resign.
+2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
 
 [https://www.usatoday.com/story/news/politics/elections/2024/04/24/mike-johnson-at-columbia-university-protests/73439004007/](https://www.usatoday.com/story/news/politics/elections/2024/04/24/mike-johnson-at-columbia-university-protests/73439004007/)
 
@@ -91,13 +91,13 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.aclu.org/news/free-speech/protecting-free-speech-in-the-face-of-government-retaliation](https://www.aclu.org/news/free-speech/protecting-free-speech-in-the-face-of-government-retaliation)
 
-2024-05-30 A nurse from New York was **fired** after referring to the war in Gaza a genocide during her acceptance speech for the compassion award.
+2024-05-30 A nurse from New York was fired after referring to the war in Gaza a genocide during her acceptance speech for the compassion award.
 
 [https://www.cbsnews.com/news/nurse-fired-hesen-jabr-calling-gaza-war-genocide-compassion-award/](https://www.cbsnews.com/news/nurse-fired-hesen-jabr-calling-gaza-war-genocide-compassion-award/)
 
 ### 2024 June
 
-2024-06-03 Columbia Law refused to take down a Palestine article, so the board of directors **took down the entire website**.
+2024-06-03 Columbia Law refused to take down a Palestine article, so the board of directors took down the entire website.
 
 [https://www.insidehighered.com/news/faculty-issues/academic-freedom/2024/06/06/unprecedented-board-shutters-columbia-law-review](https://www.insidehighered.com/news/faculty-issues/academic-freedom/2024/06/06/unprecedented-board-shutters-columbia-law-review)2024-09-11 Trump was recorded on Fox News requesting preferred anchors for the debate.
 
