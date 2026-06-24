@@ -125,7 +125,7 @@ permalink: /categories/education/indoctrination/
 
 ### 2026 January
 
-2026-01-24 The Texas Education Freedom Accounts program faced scrutiny over a voucher bill for private schools, with critics saying the comptroller excluded Muslim private schools from the State voucher program, citing discriminatory school choice practices.
+2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program. 
 
 [https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
 
@@ -147,7 +147,7 @@ permalink: /categories/education/indoctrination/
 
 ### 2026 March
 
-2026-03-12 During a rally in Arkansas to integrate “Club America” in schools, Erika Kirk stated, “…just like you and other governors who have been bold enough to stand alongside us to make sure that Charlie’s dream of having a club America on every single high school campus….someone throws all of your resources on the ground, count it all joy. **You are being persecuted because you believe in Jesus Christ**. Count it all joy….Don’t let anyone disenfranchise you because you’re a young man, **especially a young white male man**. Don’t ever let anyone talk down to you. We need strong men out there. ….God has created you for a purpose and a reason far greater than you and I will ever know on this side of heaven. ***But just know that as long as you’re a part of Turning Point USA***, you have us by your side, and we will be there for you every step of the way. And just like this governor and many others that are out there, **we got your back, always”**. 
+2026-03-12 During a rally in Arkansas to integrate “Club America” in schools, Erika Kirk pushed white victimhood and white nationalist views onto students, “…just like you and other governors who have been bold enough to stand alongside us to make sure that Charlie’s dream of having a club America on every single high school campus….someone throws all of your resources on the ground, count it all joy. You are being persecuted because you believe in Jesus Christ. Count it all joy….Don’t let anyone disenfranchise you because you’re a young man, especially a young white male man. Don’t ever let anyone talk down to you. We need strong men out there. ….God has created you for a purpose and a reason far greater than you and I will ever know on this side of heaven. But just know that as long as you’re a part of Turning Point USA, you have us by your side, and we will be there for you every step of the way. And just like this governor and many others that are out there, we got your back, always”.
 
 [https://arkansasadvocate.com/2026/03/11/sanders-encouraging-all-arkansas-high-schools-to-start-turning-point-usa-youth-club-chapters/](https://arkansasadvocate.com/2026/03/11/sanders-encouraging-all-arkansas-high-schools-to-start-turning-point-usa-youth-club-chapters/)
 

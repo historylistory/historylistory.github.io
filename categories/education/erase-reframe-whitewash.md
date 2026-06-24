@@ -133,15 +133,14 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 December
 
-2025-12-03 A Colorado Springs teacher was indefinitely suspended after posting her school district’s changes in curriculum that will include censorship of elements of science and elements of anti-slavery activism such as the efforts of Franklin Douglas.
-
-{% include youtubePlayer.html id="DA8QoAJhOdM" %}
-
-{% include youtubePlayer.html id="DA8QoAJhOdM" %}
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after publicly disclosing curriculum revisions that would remove or limit instruction on certain scientific concepts and anti-slavery activism, including the contributions of Frederick Douglass.
 
 [https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
 
 [https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/](https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/)
+
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
+
 
 ### 2026 January
 
@@ -164,7 +163,7 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 ### 2026 February
 
-2026-02-05 The Trump Administration forced exhibits at Little Bighorn National Monument be sanitized from actual historical events so displays will align with the Trump agenda and Executive Order. The Northern Cheyenne Tribal Council unanimously voted 11-0 to prevent changes. 
+2026-02-05 The Trump Administration sanitized exhibits at Little Bighorn National Monument. The Northern Cheyenne Tribal Council unanimously voted 11-0 against the changes.
 
 [https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/](https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/)
 

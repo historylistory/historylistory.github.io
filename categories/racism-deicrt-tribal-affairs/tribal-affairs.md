@@ -93,7 +93,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 
 ### 2026 February
 
-2026-02-05 The Trump Administration forced exhibits at Little Bighorn National Monument be sanitized from actual historical events so displays will align with the Trump agenda and Executive Order. The Northern Cheyenne Tribal Council unanimously voted 11-0 to prevent changes. 
+2026-02-05 The Trump Administration sanitized exhibits at Little Bighorn National Monument. The Northern Cheyenne Tribal Council unanimously voted 11-0 against the changes.
 
 [https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/](https://www.militarytimes.com/veterans/military-history/2026/02/05/nps-removes-native-american-signage-at-little-bighorn-national-monument/)
 

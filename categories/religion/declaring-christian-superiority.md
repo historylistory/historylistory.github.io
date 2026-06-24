@@ -58,7 +58,7 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 ### 2026 January
 
-2026-01-24 The Texas Education Freedom Accounts program faced scrutiny over a voucher bill for private schools, with critics saying the comptroller excluded Muslim private schools from the State voucher program, citing discriminatory school choice practices.
+2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program. 
 
 [https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
 

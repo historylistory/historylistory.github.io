@@ -196,6 +196,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.theguardian.com/us-news/2026/jan/23/philadelphia-trump-adminstration-lawsuit-slavery-exhibit](https://www.theguardian.com/us-news/2026/jan/23/philadelphia-trump-adminstration-lawsuit-slavery-exhibit)
 
+2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program. 
+
+[https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
+
+[https://www.expressnews.com/politics/texas/article/democrats-blast-texas-block-islamic-school-21369662.php](https://www.expressnews.com/politics/texas/article/democrats-blast-texas-block-islamic-school-21369662.php)
+
+[https://cbsaustin.com/news/local/texas-senate-democrats-denounce-discriminatory-school-choice-practices](https://cbsaustin.com/news/local/texas-senate-democrats-denounce-discriminatory-school-choice-practices)
+
+
  
 ### 2026 April
 

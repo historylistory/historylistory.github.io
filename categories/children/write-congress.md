@@ -213,7 +213,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-02-25 Companies are marketing skincare products to very young girls, including children as young as three.
 
-2026-02-27 Pete Hegseth said the US armed forces would continue to support Scouting America only if they complied with Executive Order 14173 and end DEI including the welcoming of trans kids, offering the Citizenship in Society merit badge, among other things. Hegseth wrote in X, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
+2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
 
 2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
 

@@ -89,7 +89,7 @@ The publication “A Short History of the Department of State” was retired.
 
 ### 2026 February
 
-2026-02-02 Texas A&M announced it would be cutting Women’s Studies due to policy on race and gender topics.
+2026-02-02 Texas A&M cut Women’s Studies due to policy on race and gender topics.
 
 [https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/](https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/)
 
