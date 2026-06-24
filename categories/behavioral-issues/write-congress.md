@@ -50,7 +50,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
-2018-01-30 Steve Bannon said the strategy against media was to “flood the zone with shit.” In a statement to Michael Lewis, he said, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
+2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
 2018-06-21 Melania Trump wore an “I really don’t care, do u?” jacket while visiting migrant children at the New Hope Children’s Shelter in McAllen, TX. 
 

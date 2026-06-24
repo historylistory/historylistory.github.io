@@ -21,6 +21,16 @@ TIMESTAMP 31:17 [https://www.youtube.com/watch?v=DKy8JmY3vxg&list=WL&index=1](ht
 
 [https://jacobin.com/2025/08/cia-batista-cuba-anti-communism](https://jacobin.com/2025/08/cia-batista-cuba-anti-communism)
 
+### 1990
+
+1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square. 
+
+[https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/03/donald-trump-tianamen-square-putin-220610](https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/03/donald-trump-tianamen-square-putin-220610)
+
+[https://www.businessinsider.com/trump-praised-china-tiananmen-foreshadowing-response-to-george-floyd-protests-2020-6](https://www.businessinsider.com/trump-praised-china-tiananmen-foreshadowing-response-to-george-floyd-protests-2020-6)
+
+[https://www.historynewsnetwork.org/article/trumps-praise-for-china-over-tiananmen-square-year](https://www.historynewsnetwork.org/article/trumps-praise-for-china-over-tiananmen-square-year)
+
 ### 2014
 
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.

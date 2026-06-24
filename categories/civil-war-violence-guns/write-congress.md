@@ -37,7 +37,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
 
-2010-06-01 James O'Keefe founded far-right group Project Veritas, which is notorious for going undercover to produce “gotcha” material against political opposition. 
+2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.
 
 2011-01-08 Representative Gabby Giffords and 18 others were shot at a “Congress On Your Corner” event in Tucson.
 

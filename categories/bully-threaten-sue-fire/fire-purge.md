@@ -21,7 +21,7 @@ permalink: /categories/bully-threaten-sue-fire/fire-purge/
 
 ### 2017
 
-2017-05-01 Trump fired FBI Director James Comey, who was overseeing the investigation into Russian interference in the 2016 election.  
+2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
 
 [https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
 

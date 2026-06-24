@@ -22,7 +22,7 @@ permalink: /categories/civil-war-violence-guns/far-right-groups-maga-roots/
 
 ### 2010
 
-2010-06-01 James O'Keefe founded far-right group Project Veritas, which is notorious for going undercover to produce “gotcha” material against political opposition. 
+2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.
 
 [https://en.wikipedia.org/wiki/Project_Veritas](https://en.wikipedia.org/wiki/Project_Veritas)
 

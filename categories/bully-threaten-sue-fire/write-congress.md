@@ -41,7 +41,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2016-11-21 Turning Point’s Charlie Kirk created the “Professor Watchlist” so his followers could outwardly dox any teacher they felt was “woke”.
 
-2017-05-01 Trump fired FBI Director James Comey, who was overseeing the investigation into Russian interference in the 2016 election.  
+2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
 
 2018-02-05 During a speech Trump accused Democrats of treason.
 

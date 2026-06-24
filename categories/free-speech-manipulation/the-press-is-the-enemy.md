@@ -8,13 +8,13 @@ permalink: /categories/free-speech-manipulation/the-press-is-the-enemy/
 
 ### 1972
 
-1972-01-01 (context) Nixon said, "The press is the enemy…the establishment is the enemy…the professors are the enemy…write that on a blackboard 100 times and never forget it".
+1972-01-01 Nixon said, “The press is the enemy…the establishment is the enemy…the professors are the enemy…write that on a blackboard 100 times and never forget it”.
 
 {% include youtubePlayer.html id="5Nzfaep8c0k" %}
 
 ### 2018
 
-2018-01-30 Steve Bannon said the strategy against media was to “flood the zone with shit.” In a statement to Michael Lewis, he said, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
+2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
 [https://kikiskyeai.substack.com/p/finding-your-footing-in-the-flood](https://kikiskyeai.substack.com/p/finding-your-footing-in-the-flood)
 

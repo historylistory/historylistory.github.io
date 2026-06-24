@@ -8,7 +8,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 1990
 
-1990-01-01 Trump told Playboy during a 90’s interview that he praised the Chinese government for their show of strength and paramilitary action during a pro-democracy student protest in 1989 at Tiananmen Square.
+1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square. 
 
 [https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/03/donald-trump-tianamen-square-putin-220610](https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/03/donald-trump-tianamen-square-putin-220610)
 

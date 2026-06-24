@@ -97,7 +97,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2019
 
-2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 
+2019-01-01 Alt-right women's magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
 
 [https://en.wikipedia.org/wiki/Evie_Magazine](https://en.wikipedia.org/wiki/Evie_Magazine)
 

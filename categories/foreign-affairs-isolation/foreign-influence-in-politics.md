@@ -6,6 +6,14 @@ subcategory_slug: foreign-influence-in-politics
 permalink: /categories/foreign-affairs-isolation/foreign-influence-in-politics/
 ---
 
+### 2017 
+
+2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
+
+[https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
+
+
+
 ### 2025
 
 2025-02-05 Pam Bondi disbanded the FBI Foreign Influence Task Force and FBI Task Force Kleptocapture. Both departments were designed to combat foreign influence in U.S. politics.

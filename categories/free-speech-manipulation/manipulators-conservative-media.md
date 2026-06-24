@@ -8,7 +8,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 1988
 
-1988-01-01 Doug Wilson - founder of Canon Press - tried to buy Christianity Today. You know - Canon Press - where you can get the book “It’s Good to be a Man”.
+1988-01-01 Canon Press founder Doug Wilson tried to buy Christianity Today. 
 
 [https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/](https://baptistnews.com/article/the-bizarre-story-of-doug-wilson-attempting-to-buy-christianity-today/)
 
@@ -16,7 +16,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 2004
 
-2004-10-28 The Center for Public Integrity noted that more than 95% of Sinclair Broadcasting Group’s contributions go to Republicans. The article raised questions about whether the industry’s corporate goals may be affecting news coverage.
+2004-10-28 The Center for Public Integrity reported that more than 95% of Sinclair Broadcasting Group’s contributions go to Republicans. 
 
 [https://publicintegrity.org/inequality-poverty-opportunity/sinclair-flap-proves-exception-to-the-rule/](https://publicintegrity.org/inequality-poverty-opportunity/sinclair-flap-proves-exception-to-the-rule/)
 
@@ -24,7 +24,7 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 ### 2006
 
-2006-04-01 A research study was done on Fox News bias in 2006 and found that Republicans gain points in districts that broadcast Fox News.
+2006-04-01 A research study found that Republicans gain points in districts that broadcast Fox News.
 
 [https://www.nber.org/papers/w12169](https://www.nber.org/papers/w12169)
 
@@ -46,13 +46,13 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 [https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop](https://www.npr.org/sections/thetwo-way/2018/02/19/587097707/laura-ingraham-told-lebron-james-to-shutup-and-dribble-he-went-to-the-hoop)
 
-2018-03-08 (context) MIT conducted a study showing that social media was designed to spread lies six times faster and is incentivized to go viral when laced with anger, fear or hate.
+2018-03-08 An MIT study concluded that social media was designed to spread lies six times faster and is incentivized to go viral when laced with anger, fear or hate.
 
 [https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308](https://news.mit.edu/2018/study-twitter-false-news-travels-faster-true-stories-0308)
 
 ### 2019
 
-2019-01-01 Alt right women’s magazine Evie Magazine was founded by the Hugoboom family. The cover of 2024 features “Ballerina Farm” and “the Importance of Being Sexy”, aimed at the Trad-wife movement. Hugoboom also launched her own brand of supplement called “Toxic Breakup” to “detox the body” after discontinuing the use of birth control. The owners also launched an app in 2022 for women to log their menstrual phases, but the app was controversial for pro-life rhetoric. The app was funded by Peter Thiel. 
+2019-01-01 Alt-right women's magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
 
 [https://en.wikipedia.org/wiki/Evie_Magazine](https://en.wikipedia.org/wiki/Evie_Magazine)
 

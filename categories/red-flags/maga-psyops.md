@@ -8,7 +8,7 @@ permalink: /categories/red-flags/maga-psyops/
 
 ## 2018 "Flood The Zone With Shit"
 
-2018-01-30 Steve Bannon said the strategy against media was to “flood the zone with shit.” In a statement to Michael Lewis, he said, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
+2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
 **Frontiers in Political Science: “The fascist authoritarian model of illiberal democracy”.**
 
