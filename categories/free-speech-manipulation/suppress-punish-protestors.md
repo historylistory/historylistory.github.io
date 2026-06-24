@@ -207,15 +207,16 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2025 October
 
-2025-10-29 Kat Abughazaleh was indicted and described the charges as an attempt to criminalize protest. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
+2025-10-29 Kat Abughazaleh was indicted for protesting. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
-
-{% include youtubePlayer.html id="w1oHKOPjf94" %}
 
 [https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/](https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/)
 
 [https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/](https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/)
+
+{% include youtubePlayer.html id="w1oHKOPjf94" %}
+
 
 ### 2026 January
 

@@ -150,11 +150,11 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://x.com/BrendanCarrFCC/status/1852887210330341693](https://x.com/BrendanCarrFCC/status/1852887210330341693)
 
-2025-09-19 During his podcast "The Verdict with Ted Cruz", Cruz stated "If the government gets in the business of saying…'we're going to ban you from the airwaves if you don't say what we like,' that will end up bad for conservatives".
-
-{% include youtubePlayer.html id="gQD9P6Wa7W0" %}
+2025-09-19 Ted Cruz said on his podcast, “If the government gets in the business of saying…’we’re going to ban you from the airwaves if you don’t say what we like,’ that will end up bad for conservatives”.
 
 [https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/](https://www.cbsnews.com/news/ted-cruz-fcc-brendan-carr-jimmy-kimmel-goodfellas-trump/)
+
+{% include youtubePlayer.html id="gQD9P6Wa7W0" %}
 
 2025-09-19 Trump heckled David Letterman on Truth Social, "He looks like hell, but at least he knew when to quit. LOSER!!!". 
 
@@ -166,11 +166,11 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://thebusinessjournal.com/disney-and-hulu-cancellations-rose-after-abc-briefly-pulled-jimmy-kimmel-live/](https://thebusinessjournal.com/disney-and-hulu-cancellations-rose-after-abc-briefly-pulled-jimmy-kimmel-live/)
 
-2025-09-21 Sinclair Broadcast changed its mind about filling the Jimmy Kimmel time slot with the Kirk tribute and had it moved to YouTube.
+2025-09-21 Following the sharp reaction to cancelling Jimmy Kimmel, Sinclair Broadcast changed its mind about filling the Jimmy Kimmel time slot with the Kirk tribute and had it moved to YouTube.
 
 [https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html](https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html)
 
-2025-09-22 The Pentagon announced a new rule for journalists, requiring them to sign a pledge that they will not gather or report on any information unless it is formally authorized for release.
+2025-09-22 The Pentagon issued a new requirement for journalists to sign a pledge not to gather or report on any information unless it is formally authorized for release.
 
 [https://www.npr.org/2025/09/20/g-s1-89713/pentagon-new-strict-guidelines-for-media](https://www.npr.org/2025/09/20/g-s1-89713/pentagon-new-strict-guidelines-for-media)
 
@@ -178,17 +178,17 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 2025-09-23 After much backlash, the Jimmy Kimmel show was returned to television. 
 
-2025-09-23 Trump threatened ABC after Jimmy Kimmel returned to television, referencing a previous $16 million settlement. Trump posted, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
+2025-09-23 Trump threatened ABC for re-airing Jimmy Kimmel, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115256938634035559](https://truthsocial.com/@realDonaldTrump/posts/115256938634035559)
 
-2025-09-24 During a press conference in Concord NC, JD Vance responded to a free speech question about Kimmel, "I'm pretty sure that Jimmy Kimmel was back on the air last night, and to the extent that he's not back on the air it's because he's not funny and has terrible ratings. This is not a federal government problem...", proceeded downgraded the FCC post as a joke, and asserts he “just found out yesterday” the Biden administration was censoring media of its opponents. It is unclear if he was talking about the 2024 attempts to eliminate dangerous misinformation.
+2025-09-24 JD Vance commented about Kimmel’s return, “I’m pretty sure that Jimmy Kimmel was back on the air last night, and to the extent that he’s not back on the air it’s because he’s not funny and has terrible ratings. This is not a federal government problem.”
 
 {% include youtubePlayer.html id="mMWAl2pboY8" %}
 
 ### 2025 October
 
-2025-10-15 All media outlets except OAN refused to sign Pete Hegseth’s journalist pledge. While many journalists were banned from the White House media pool, the Trump administration allowed people like far-right activist and founder of Project Veritas James O’Keefe and Matt Gaetz.
+2025-10-15 All media outlets except OAN refused to sign Pete Hegseth’s journalist pledge. 
 
 [https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/](https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/)
 
@@ -300,7 +300,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/](https://thehill.com/homenews/media/5786490-fcc-chair-threatens-broadcasters/)
 
-2026-03-18 Trump tweeted out, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
+2026-03-18 Trump posted, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)
 

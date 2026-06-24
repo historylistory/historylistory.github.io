@@ -298,7 +298,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-23 Karoline Leavitt announced plans to designate "Antifa" a domestic terrorist organization, citing a White House report linking various incidents of violence to left-wing activism. The September 22 2025 press release begins “President Donald J. Trump is right: the violence problem is on the Left”.
 
-2025-09-23 Trump threatened ABC after Jimmy Kimmel returned to television, referencing a previous $16 million settlement. Trump posted, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
+2025-09-23 Trump threatened ABC for re-airing Jimmy Kimmel, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
 
 2025-09-24 Trump again called Kamala Harris "dumb as a rock.”
 
@@ -358,7 +358,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-29 Katie Miller accused critics of antisemitism, threatened citizenship consequences for opponents, attacked Piers Morgan, and claimed that a Mamdani victory would harm New York. 
 
-2025-10-29 Kat Abughazaleh was indicted and described the charges as an attempt to criminalize protest. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
+2025-10-29 Kat Abughazaleh was indicted for protesting. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
 2025-10-30 Trump threatened to use a "nuclear option" to reopen the government. 
 
@@ -452,7 +452,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
 
-2026-03-26 Judge Rita Lin rejected the Pentagon’s “Orwellian” argument against Anthropic for disagreeing with government AI policy. Judge Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
+2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions. 
 

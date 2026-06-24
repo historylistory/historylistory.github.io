@@ -125,7 +125,7 @@ OTHER SHADY BUSINESS
 
 ### 2026 February
 
-2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings./
+2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings.
 
 [https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/](https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/)
 

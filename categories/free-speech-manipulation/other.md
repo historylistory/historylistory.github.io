@@ -12,7 +12,7 @@ permalink: /categories/free-speech-manipulation/other/
 
 [https://variety.com/2025/film/news/trump-sylvester-stallone-mel-gibson-jon-voight-ambassadors-hollywood-1236276088/](https://variety.com/2025/film/news/trump-sylvester-stallone-mel-gibson-jon-voight-ambassadors-hollywood-1236276088/)
 
-2025-09-24 Fox News reported that Google was suing the Biden administration, asserting that the Biden administration pressured them to censor information.
+2025-09-24 Allegedly Google sued Biden for censorship. 
 
 [https://www.foxnews.com/opinion/david-marcus-dems-freak-out-over-short-lived-kimmel-cancelation-ignore-shocking-google-revelation](https://www.foxnews.com/opinion/david-marcus-dems-freak-out-over-short-lived-kimmel-cancelation-ignore-shocking-google-revelation)
 
@@ -32,7 +32,7 @@ permalink: /categories/free-speech-manipulation/other/
 
 ### 2026 February
 
-2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings./
+2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings.
 
 [https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/](https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/)
 
@@ -42,7 +42,7 @@ permalink: /categories/free-speech-manipulation/other/
 
 ### 2026 March
 
-2026-03-26 Judge Rita Lin rejected the Pentagon’s “Orwellian” argument against Anthropic for disagreeing with government AI policy. Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
+2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 

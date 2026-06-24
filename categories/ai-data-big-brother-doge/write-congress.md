@@ -233,7 +233,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-03-25 Bernie Sanders and AOC proposed an AI data-center moratorium addressing environmental harm, energy costs, job displacement, and hardware exports.
 
-2026-03-26 Judge Rita Lin rejected the Pentagon’s “Orwellian” argument against Anthropic for disagreeing with government AI policy. Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
+2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 2026-03-27 Sony raised PlayStation 5 prices globally due to chip shortages.
 

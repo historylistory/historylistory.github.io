@@ -255,7 +255,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
  
 
-2025-09-21 Sinclair Broadcast changed its mind about filling the Jimmy Kimmel time slot with the Kirk tribute and had it moved to YouTube.
+2025-09-21 Following the sharp reaction to cancelling Jimmy Kimmel, Sinclair Broadcast changed its mind about filling the Jimmy Kimmel time slot with the Kirk tribute and had it moved to YouTube.
 
 [https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html](https://www.wfxg.com/entertainment/sinclair-moves-charlie-kirk-special-to-youtube-instead-of-airing-it-in-jimmy-kimmel-s/article_9298909e-64c0-5d31-8b12-7e6ebcade424.html)
 
@@ -272,23 +272,6 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://x.com/LauraLoomer/status/1985560924720124414](https://x.com/LauraLoomer/status/1985560924720124414)
 
-### 2025 December
-
-2025-12-02 CNN partnered with Kalshi prediction market. CNN gained access to Kalshi’s data through an API and features a Kalshi ticker.  (Context 1: Donald Trump Jr. is a paid advisor for Kalshi and an investor/board member for Polymarket. Context 2: Chairman of the CFTC which is supposed to regulate prediction markets threatened in February 2026 “those who seek to challenge our authority in this space let me be clear – we will see you in court”)
-
-[https://www.axios.com/2025/12/02/cnn-kalshi-prediction-market-data](https://www.axios.com/2025/12/02/cnn-kalshi-prediction-market-data)
-
-[https://news.kalshi.com/p/kalshi-cnn-prediction-market-partnership](https://news.kalshi.com/p/kalshi-cnn-prediction-market-partnership)
-
-[https://finance.yahoo.com/news/kalshi-becomes-cnn-official-prediction-073203095.html](https://finance.yahoo.com/news/kalshi-becomes-cnn-official-prediction-073203095.html)
-
-2025-12-04 CNBC partnered with Kalshi prediction market. Now a Kalshi ticker runs alongside segments of their on-air programming.  (Context 1: Donald Trump Jr. is a paid advisor for Kalshi and an investor/board member for Polymarket. Context 2: Chairman of the CFTC which is supposed to regulate prediction markets threatened in February 2026 “those who seek to challenge our authority in this space let me be clear – we will see you in court”)
-
-[https://www.cnbc.com/2025/12/04/cnbc-and-kalshi-strike-exclusive-partnership.html](https://www.cnbc.com/2025/12/04/cnbc-and-kalshi-strike-exclusive-partnership.html)
-
-[https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/](https://www.reuters.com/business/media-telecom/cnbc-signs-deal-with-kalshi-add-prediction-data-next-year-2025-12-04/)
-
-[https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12](https://www.businessinsider.com/kalshi-cnbc-deal-cnn-data-integration-partnership-2025-12)
 
 ### 2026 February
 
@@ -319,14 +302,6 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 [https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C](https://www.msn.com/en-us/money/companies/three-gulf-funds-agree-to-back-paramount-s-81-billion-takeover-of-warner/ar-AA20e82C)
 
 PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364](https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-paramounts-81-billion-takeover-of-warner-04eda364)
-
-2026-04-07 Fox News struck a deal with Kalshi for prediction market data. (Context 1: Donald Trump Jr. is a paid advisor for Kalshi and an investor/board member for Polymarket. Context 2: Chairman of the CFTC which is supposed to regulate prediction markets threatened in February 2026 “those who seek to challenge our authority in this space let me be clear – we will see you in court”)
-
-[https://www.reuters.com/business/fox-integrate-kalshi-prediction-market-data-across-news-platforms-2026-04-07/](https://www.reuters.com/business/fox-integrate-kalshi-prediction-market-data-across-news-platforms-2026-04-07/)
-
-[https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/](https://www.hollywoodreporter.com/tv/tv-news/fox-news-deal-kalshi-prediction-market-1236557283/)
-
-[https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/](https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/)
 
 
 2026-04-13 Hollywood actors, writers and directors signed an open letter to voice opposition for the Paramount-Warner Brothers-Discovery merger. Part of the letter reads, “The integrity, independence, and diversity of our industry would be grievously compromised. Competition is essential for a healthy economy and a healthy democracy. So is thoughtful regulation and enforcement”.

@@ -87,7 +87,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics](https://www.theguardian.com/us-news/2025/sep/16/jd-vance-doxing-charlie-kirk-critics)
 
-2025-09-19 In a report from MSNBC, all 9 Supreme Court Justices agreed that the government cannot coerce businesses to suppress views.
+2025-09-19 All 9 Supreme Court Justices agreed that the government cannot coerce businesses to suppress views.
 
 [https://www.msn.com/en-us/news/politics/all-9-justices-against-maga-censorship-if-abc-defends-kimmel-1st-am-attorney-melber-s-report/vi-AA1MVs1X?cvid=68ce87ba091b464f86f4aa8b58adc954](https://www.msn.com/en-us/news/politics/all-9-justices-against-maga-censorship-if-abc-defends-kimmel-1st-am-attorney-melber-s-report/vi-AA1MVs1X?cvid=68ce87ba091b464f86f4aa8b58adc954)
 
@@ -99,7 +99,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 ### 2025 October
 
-2025-10-28 A Tennessee man was arrested and jailed for over 30 days for posting an online meme quoting President Trump. One day after a local news outlet reported on the incarceration, Perry County dropped the charges and released the man.
+2025-10-28 A Tennessee man was arrested in Perry County and jailed for over 30 days for posting an online meme of President Trump. He wasn’t released until his arrest made headlines. 
 
 {% include youtubePlayer.html id="W2cMNhfCZHo" %}
 

@@ -250,7 +250,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115237675581682288](https://truthsocial.com/@realDonaldTrump/posts/115237675581682288)
 
-2025-09-23 Trump threatened ABC after Jimmy Kimmel returned to television, referencing a previous $16 million settlement. Trump posted, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
+2025-09-23 Trump threatened ABC for re-airing Jimmy Kimmel, “I can’t believe ABC Fake News gave Jimmy Kimmel his job back…I think we’re going to test ABC out on this. Last time I went after them, they gave me $16 Million Dollars. This one sounds even more lucrative”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115256938634035559](https://truthsocial.com/@realDonaldTrump/posts/115256938634035559)
 
@@ -337,15 +337,16 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video](https://www.bloomberg.com/news/videos/2026-02-17/cftc-chair-sides-with-prediction-markets-video)
 
-2025-10-29 Kat Abughazaleh was indicted and described the charges as an attempt to criminalize protest. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
+2025-10-29 Kat Abughazaleh was indicted for protesting. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
 [https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584](https://www.nbcnews.com/politics/justice-department/doj-indicts-democratic-congressional-candidate-kat-abughazaleh-ice-pro-rcna240584)
-
-{% include youtubePlayer.html id="w1oHKOPjf94" %}
 
 [https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/](https://theintercept.com/2025/11/01/briefing-podcast-kat-abughazaleh-indictment-protest/)
 
 [https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/](https://capitolnewsillinois.com/news/democratic-candidates-officeholders-indicted-for-impeding-agent-outside-ice-facility/)
+
+{% include youtubePlayer.html id="w1oHKOPjf94" %}
+
 
 2025-10-30 Trump threatened to use a "nuclear option" to reopen the government. 
 
@@ -610,7 +611,7 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html](https://www.cnbc.com/2026/03/26/trump-tsa-shutdown-dhs.html)
 
-2026-03-26 Judge Rita Lin rejected the Pentagon’s “Orwellian” argument against Anthropic for disagreeing with government AI policy. Judge Rita Lin wrote, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
+2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
 
