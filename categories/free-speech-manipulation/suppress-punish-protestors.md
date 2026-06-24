@@ -115,7 +115,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 ### 2025 March
 
-2025-03-04 Trump threatened in a social media post to pull funding from any college that allowed protests and called protests “illegal”.
+2025-03-04 Trump claimed protests were illegal and threatened funding from any college which allowed them. 
 
 [https://www.theguardian.com/us-news/2025/mar/04/trump-university-funding-protests](https://www.theguardian.com/us-news/2025/mar/04/trump-university-funding-protests)
 
@@ -127,7 +127,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.axios.com/2025/03/04/trump-college-protests-israel-gaza-funding](https://www.axios.com/2025/03/04/trump-college-protests-israel-gaza-funding)
 
-2025-03-15 Leqaa Kordia was detained for overstaying an F-1 Visa but was also involved in protests at Columbia University and may have been targeted for that. Since then, she had been detained in a Texas immigration jail for over a year. She reported having seizures, being forced to shower with chains on, and was refused contact with family or lawyers. She was released in 2026 and stated the detention facility was “built to break people and destroy their health and hope”.
+2025-03-15 After protesting the genocide, Leqaa Kordia was detained and accused of overstaying her F-1 Visa. She has been detained for over a year before being released. She reports she endured seizures, was forced to shower in chains, and was not allowed to contact family or lawyers. She said in a statement the detention centers were “built to break people and destroy their health and hope”.
 
 [https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention](https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention)
 
@@ -149,7 +149,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 {% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
-2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
+2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
 [https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
 
@@ -159,7 +159,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government](https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government)
 
-2025-04-24 Governor Kim Reynolds signed **House File 472 SLAPP**  (**S**trategic **L**awsuits **A**gainst **P**ublic **P**articipation) which targets cases meant to intimidate a person from exercising their First Amendment rights.
+2025-04-24 Governor Kim Reynolds signed House File 472 SLAPP  (Strategic Lawsuits Against Public Participation) which targets cases meant to intimidate a person from exercising their First Amendment rights.
 
 [https://www.desmoinesregister.com/story/news/politics/2025/06/30/trump-files-new-suit-over-iowa-poll-1-day-before-new-slapp-law-begins/84421357007/](https://www.desmoinesregister.com/story/news/politics/2025/06/30/trump-files-new-suit-over-iowa-poll-1-day-before-new-slapp-law-begins/84421357007/)
 

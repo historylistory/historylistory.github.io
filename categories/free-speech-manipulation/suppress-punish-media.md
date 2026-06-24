@@ -34,7 +34,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/](https://www.whitehouse.gov/presidential-actions/2025/01/restoring-freedom-of-speech-and-ending-federal-censorship/)
 
-2025-01-30 Brendan Carr ordered an investigation into NPR and PBS. For context, A headline for TechDirt says, “Trump’s FCC just used a fake ‘investigation’ to shower AT&T and Elon Musk with billions in valuable spectrum”.
+2025-01-30 Brendan Carr ordered an investigation into NPR and PBS. A headline for TechDirt reads, “Trump’s FCC just used a fake ‘investigation’ to shower AT&T and Elon Musk with billions in valuable spectrum”.
 
 [https://www.npr.org/2025/01/30/nx-s1-5281162/fcc-npr-pbs-investigation](https://www.npr.org/2025/01/30/nx-s1-5281162/fcc-npr-pbs-investigation)
 
@@ -56,7 +56,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2025 March
 
-2025-03-14 Trump signed an executive order to dismantle the US Agency for Global media.
+2025-03-14 Trump dismantled the US Agency for Global Media.
 
 [https://www.bbc.com/news/articles/cvge4l109r3o](https://www.bbc.com/news/articles/cvge4l109r3o)
 

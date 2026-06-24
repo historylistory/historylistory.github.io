@@ -88,7 +88,7 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 {% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
-2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
+2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
 [https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
 

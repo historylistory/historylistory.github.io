@@ -27,7 +27,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2025 March
 
-2025-03-15 Leqaa Kordia was detained for overstaying an F-1 Visa but was also involved in protests at Columbia University and may have been targeted for that. Since then, she had been detained in a Texas immigration jail for over a year. She reported having seizures, being forced to shower with chains on, and was refused contact with family or lawyers. She was released in 2026 and stated the detention facility was “built to break people and destroy their health and hope”.
+2025-03-15 After protesting the genocide, Leqaa Kordia was detained and accused of overstaying her F-1 Visa. She has been detained for over a year before being released. She reports she endured seizures, was forced to shower in chains, and was not allowed to contact family or lawyers. She said in a statement the detention centers were “built to break people and destroy their health and hope”.
 
 [https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention](https://ny1.com/nyc/all-boroughs/politics/2026/02/13/nj-woman-arrested-at-columbia-protest-alleges--inhumane--conditions-in-ice-detention)
 

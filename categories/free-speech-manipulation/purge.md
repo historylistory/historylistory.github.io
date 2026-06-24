@@ -12,35 +12,6 @@ permalink: /categories/free-speech-manipulation/purge/
 
 [https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
 
-### 2025 February
-
-2025-02-10 Trump fired the head of the independent Office of Government Ethics David Huitema.
-
-[https://www.cbsnews.com/news/trump-office-of-government-ethics-director/](https://www.cbsnews.com/news/trump-office-of-government-ethics-director/)
-
-2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
-
-[https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon](https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon)
-
-### 2025 March
-
-2025-03-27 Trump withdrew Elise Stefanik's nomination for U.N. ambassador, citing the need to preserve Republican congressional seats
-
-[https://truthsocial.com/@realDonaldTrump/posts/114235745233828789](https://truthsocial.com/@realDonaldTrump/posts/114235745233828789)
-
-[https://www.bbc.com/news/articles/c3rnge7ql7wo](https://www.bbc.com/news/articles/c3rnge7ql7wo)
-
-### 2025 April
-
-2025-04-01 Kathleen Sgamma withdrew from consideration to lead the Bureau of Land Management after criticism resurfaced from a 2021 memo about January 6.
-
-[https://www.cpr.org/2025/04/10/sgamma-withdraws-bureau-of-land-management-nomination/](https://www.cpr.org/2025/04/10/sgamma-withdraws-bureau-of-land-management-nomination/)
-
-2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell's "termination cannot come fast enough." 
-
-[https://truthsocial.com/@realDonaldTrump/posts/114352766082542122](https://truthsocial.com/@realDonaldTrump/posts/114352766082542122)
-
-[https://econclubchi.org/event/hon-jerome-h-powell/](https://econclubchi.org/event/hon-jerome-h-powell/)
 
 ### 2025 May
 
@@ -52,17 +23,6 @@ permalink: /categories/free-speech-manipulation/purge/
 {% include youtubePlayer.html id="LV-8b-gpJgg" %}
 
 
-2025-05-08 Trump had Librarian of Congress Carla Hayden fired on the 9th of her 10-year term as part of his DEI initiative. Carla Hayden received her termination by email from a low-level employee.
-
-[https://www.npr.org/2025/05/09/nx-s1-5393737/carla-hayden-fired-library-of-congress-trump](https://www.npr.org/2025/05/09/nx-s1-5393737/carla-hayden-fired-library-of-congress-trump)
-
-[https://www.pbs.org/newshour/show/carla-hayden-on-her-time-as-a-pioneering-librarian-of-congress-and-getting-fired-by-trump](https://www.pbs.org/newshour/show/carla-hayden-on-her-time-as-a-pioneering-librarian-of-congress-and-getting-fired-by-trump)
-
-2025-05-10 According to AI, Trump terminated Register of Copyrights Shira Perlmutter after she refused to rubber-stamp Elon Musk's efforts to mine troves of copyrighted works to train AI models. Trump replaced her with his personal lawyer Todd Blanche.
-
-[https://democrats-cha.house.gov/media/press-releases/morelles-statement-abrupt-firing-shira-perlmutter-register-copyrights#:~:text=%E2%80%9CDonald%20Trump's%20termination%20of%20Register,works%20to%20train%20AI%20models](https://democrats-cha.house.gov/media/press-releases/morelles-statement-abrupt-firing-shira-perlmutter-register-copyrights).
-
-[https://www.npr.org/2025/05/12/nx-s1-5395879/trump-todd-blanche-librarian-congress](https://www.npr.org/2025/05/12/nx-s1-5395879/trump-todd-blanche-librarian-congress)
 
 2025-05-31 Trump withdrew Jared Isaacman's nomination to be the NASA administrator for a "misalignment" with the administration's "America First" agenda.
 

@@ -76,7 +76,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 ### 2025 March
 
-2025-03-04 Trump threatened in a social media post to pull funding from any college that allowed protests and called protests “illegal”.
+2025-03-04 Trump claimed protests were illegal and threatened funding from any college which allowed them. 
 
 [https://www.theguardian.com/us-news/2025/mar/04/trump-university-funding-protests](https://www.theguardian.com/us-news/2025/mar/04/trump-university-funding-protests)
 
@@ -112,7 +112,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 {% include youtubePlayer.html id="5c1idp7Qzd4" %}
 
-2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, "Every time I find one of these lunatics I take away their visa".
+2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
 [https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
 

@@ -139,7 +139,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 ### 2025 February
 
-2025-02-22 Fox News began featuring a new segment "My View with Lara Trump".
+2025-02-22 Lara Trump scored her own opinion segment on Fox. 
 
 [https://www.foxnews.com/shows/my-view](https://www.foxnews.com/shows/my-view)
 

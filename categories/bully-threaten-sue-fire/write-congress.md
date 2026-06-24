@@ -148,7 +148,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
-2025-03-04 Trump threatened in a social media post to pull funding from any college that allowed protests and called protests “illegal”.
+2025-03-04 Trump claimed protests were illegal and threatened funding from any college which allowed them. 
 
 2025-03-07 Trump signed an executive order to change student loan forgiveness, adding the language, “…end taxpayer-funded student loan forgiveness for anti-American activists”, leaving it open to the Trump administration’s interpretations and agendas.
 
@@ -158,7 +158,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-03-27 Trump withdrew Elise Stefanik's nomination for U.N. ambassador, citing the need to preserve Republican congressional seats
 
-2025-03-27 Marco Rubio announced that over 300 student visas were revoked by the State Department as a crackdown on campus activism, particularly pro-Palestinian. He stated, quote, “Every time I find one of these lunatics I take away their visa”.
+2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
 2025-04-01 Kathleen Sgamma withdrew from consideration to lead the Bureau of Land Management after criticism resurfaced from a 2021 memo about January 6.
 
