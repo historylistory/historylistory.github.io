@@ -262,3 +262,6 @@ The following examples highlight these concerns, while some are included for his
 2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 
 
 2026-06-22 The Interior Department introduced new guidelines to slash oil and gas fees paid by energy companies, eliminate requirements to detail plans to eliminate methane emissions, and reduce environmental protections. 
+
+2026-06-23 Europe experienced record heat.
+

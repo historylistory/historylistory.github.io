@@ -184,3 +184,13 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 
 [https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/](https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/)
+
+### 2026 June
+
+2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
+
+[https://www.youtube.com/watch?v=A1IcBgIUfJc&list=WL&index=6](https://www.youtube.com/watch?v=A1IcBgIUfJc&list=WL&index=6)
+
+[https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california](https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california)
+
+[https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330](https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330)

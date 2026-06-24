@@ -170,3 +170,9 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat](https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat)
 
 [https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr](https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr)
+
+2026-06-23 Europe experienced record heat.
+
+[https://www.youtube.com/watch?v=pmc0AfiLtRs&list=WL&index=5](https://www.youtube.com/watch?v=pmc0AfiLtRs&list=WL&index=5)
+
+[https://www.cnn.com/2026/06/24/weather/live-news/europe-heatwave-temperatures-news](https://www.cnn.com/2026/06/24/weather/live-news/europe-heatwave-temperatures-news)

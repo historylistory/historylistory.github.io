@@ -475,3 +475,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-05-27 South Carolina Senate rejected the GOP attempt to eliminate the last-standing Democratic district after 12 Republicans joined Democrats to vote against it. Representative Jim Clyburn stated, “The people who drew that map – some of them may not have ever set foot in South Carolina – this White House says to hell with the process – to hell with the Constitution”.
 
 2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
+
+2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 

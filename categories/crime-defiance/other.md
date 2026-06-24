@@ -89,3 +89,12 @@ permalink: /categories/crime-defiance/other/
 
 [https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php](https://www.theintelligencer.com/business/article/what-to-know-about-trump-s-1-7b-fund-to-22265176.php)
 
+### 2026 June
+
+2026-06-23 The DOJ charged 455 defendants with healthcare fraud. 
+
+[https://www.youtube.com/watch?v=iE3go174v20&list=WL&index=7](https://www.youtube.com/watch?v=iE3go174v20&list=WL&index=7)
+
+[https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65](https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65)
+
+[https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants](https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants)

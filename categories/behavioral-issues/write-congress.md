@@ -648,4 +648,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-22 A report raised questions about whether Tulsi Gabbard used a spiritual guide to shape her political career.
 
+2026-06-22 Trump’s UFC stunt destroyed the White House front lawn. Taxpayer cost to repair: pending. 
+
 2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 

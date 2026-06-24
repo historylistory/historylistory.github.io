@@ -774,3 +774,11 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221](https://www.nbcnews.com/politics/justice-department/judge-quashes-unlawful-subpoenas-says-trump-administration-was-using-h-rcna351221)
 
 [https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849](https://www.politico.com/news/2026/06/22/trump-justice-department-tim-walz-minnesota-subpoenas-00969849)
+
+2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.
+
+[https://www.youtube.com/watch?v=2t-fBSGBvkY&list=WL&index=4&t=176s](https://www.youtube.com/watch?v=2t-fBSGBvkY&list=WL&index=4&t=176s)
+
+[https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act](https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act)
+
+[https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)

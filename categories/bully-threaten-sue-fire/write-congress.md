@@ -550,3 +550,5 @@ Manhattan grand jury in the hush-money case.
 
 
 2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
+
+2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.

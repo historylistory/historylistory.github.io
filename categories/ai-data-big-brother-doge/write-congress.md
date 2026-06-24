@@ -149,6 +149,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-09-30 Meta launched Ray-Ban Display smart glasses.
 
+2025-10-01 Flock Safety partnered with Amazon Ring to expand its surveillance network. 
+
 2025-10-10 Peter Thiel reportedly called critics of AI and technology “legionnaires of the Antichrist.”
 
 2025-10-13 California passed AB 1043 requiring Linux and Windows users to verify their age.

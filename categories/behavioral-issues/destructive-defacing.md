@@ -279,6 +279,15 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/jun/22/trump-reflecting-pool-vandalized-lincoln-memorial-iran-us-politics-latest-news-updates)
 
+2026-06-22 Trump’s UFC stunt destroyed the White House front lawn. Taxpayer cost to repair: pending.
+
+[https://www.youtube.com/watch?v=J8d5qX_az7Y&list=WL&index=2](https://www.youtube.com/watch?v=J8d5qX_az7Y&list=WL&index=2)
+
+[https://www.buzzfeed.com/michaelabramwell/viral-photo-of-lawn-after-trumps-ufc-event](https://www.buzzfeed.com/michaelabramwell/viral-photo-of-lawn-after-trumps-ufc-event)
+
+[https://www.msn.com/en-us/news/insight/trump-s-ufc-white-house-event-spurs-lawn-damage-safety-scares/gm-GM851C8C37](https://www.msn.com/en-us/news/insight/trump-s-ufc-white-house-event-spurs-lawn-damage-safety-scares/gm-GM851C8C37)
+
+
 2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
 
 [https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)

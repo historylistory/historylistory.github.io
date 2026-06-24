@@ -205,6 +205,17 @@ Think About:
 
 ### 2025 October
 
+2025-10-01 Flock Safety partnered with Amazon Ring to expand its surveillance network. 
+
+[https://en.wikipedia.org/wiki/Flock_Safety](https://en.wikipedia.org/wiki/Flock_Safety)
+
+[https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-roundup](https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-roundup)
+
+[https://www.404media.co/ice-taps-into-nationwide-ai-enabled-camera-network-data-shows/](https://www.404media.co/ice-taps-into-nationwide-ai-enabled-camera-network-data-shows/)
+
+[https://www.youtube.com/watch?v=qEllWdK4l_A&list=WL&index=1&t=29s](https://www.youtube.com/watch?v=qEllWdK4l_A&list=WL&index=1&t=29s)
+
+
 2025-10-13 California passed AB 1043 requiring Linux and Windows users to verify their age.
 
 [https://leginfo.legislature.ca.gov/faces/billTextClient.xhtml?bill_id=202520260AB1043](https://leginfo.legislature.ca.gov/faces/billTextClient.xhtml?bill_id=202520260AB1043)

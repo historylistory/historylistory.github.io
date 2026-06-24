@@ -83,3 +83,13 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 [https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/](https://www.cpr.org/2025/09/11/what-we-know-evergreen-high-school-shooting/)
 
 [https://www.denverpost.com/2025/09/11/evergreen-high-school-shooting-colorado-updates/](https://www.denverpost.com/2025/09/11/evergreen-high-school-shooting-colorado-updates/)
+
+### 2026 June
+
+2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
+
+[https://www.youtube.com/watch?v=A1IcBgIUfJc&list=WL&index=6](https://www.youtube.com/watch?v=A1IcBgIUfJc&list=WL&index=6)
+
+[https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california](https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california)
+
+[https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330](https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330)

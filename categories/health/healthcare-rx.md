@@ -199,3 +199,13 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 [https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187](https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187)
 
 [https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723](https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723)
+
+### 2026 June
+
+2026-06-23 The DOJ charged 455 defendants with healthcare fraud. 
+
+[https://www.youtube.com/watch?v=iE3go174v20&list=WL&index=7](https://www.youtube.com/watch?v=iE3go174v20&list=WL&index=7)
+
+[https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65](https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65)
+
+[https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants](https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants)

@@ -488,6 +488,14 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle](https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle)
 
+2026-06-22 Trump’s UFC stunt destroyed the White House front lawn. Taxpayer cost to repair: pending.
+
+[https://www.youtube.com/watch?v=J8d5qX_az7Y&list=WL&index=2](https://www.youtube.com/watch?v=J8d5qX_az7Y&list=WL&index=2)
+
+[https://www.buzzfeed.com/michaelabramwell/viral-photo-of-lawn-after-trumps-ufc-event](https://www.buzzfeed.com/michaelabramwell/viral-photo-of-lawn-after-trumps-ufc-event)
+
+[https://www.msn.com/en-us/news/insight/trump-s-ufc-white-house-event-spurs-lawn-damage-safety-scares/gm-GM851C8C37](https://www.msn.com/en-us/news/insight/trump-s-ufc-white-house-event-spurs-lawn-damage-safety-scares/gm-GM851C8C37)
+
 2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
 
 [https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)
