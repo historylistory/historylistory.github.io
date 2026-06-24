@@ -63,7 +63,7 @@ permalink: /categories/religion/school/
 {% include youtubePlayer.html id="MKHSv6XiNQY" %}
 
 
-2025-08-25 Americans United criticized PragerU's growing role in public education and described it as advancing Christian nationalist ideas, writing, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
+2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 
 [https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/](https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/)
 

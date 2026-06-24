@@ -165,7 +165,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2025 August
 
-2025-08-19 Trump sent out a social media post calling museums in Washington "WOKE", writing, "Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was". In his post, Trump instructed his attorneys to "go through the Museums and start the exact same process that has been done with Colleges and Universities...". He also tweeted "We have the HOTTEST Country in the World, and we want people to talk about it, including in our Museums".
+2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. In his post, Trump instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. 
 
 {% include youtubePlayer.html id="tJSbGOyYlUY" %}
 

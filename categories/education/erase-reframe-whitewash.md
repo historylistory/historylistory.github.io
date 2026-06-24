@@ -115,7 +115,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 August
 
-2025-08-19 Trump sent out a social media post calling museums in Washington "WOKE", writing, "Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was". In his post, Trump instructed his attorneys to "go through the Museums, and start the exact same process that has been done with Colleges and Universities...". He also tweeted "We have the HOTTEST Country in the World, and we want people to talk about it, including in our Museums".
+2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. In his post, Trump instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115056914674717313](https://truthsocial.com/@realDonaldTrump/posts/115056914674717313)
 
@@ -123,7 +123,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 September
 
-2025-09-10 The Department of Education announced it will be **defunding** minority-serving institutions such as Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
+2025-09-10 The Department of Education defunded minority-serving institutions such as Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
 
 [https://www.ed.gov/about/news/press-release/us-department-of-education-ends-funding-racially-discriminatory-discretionary-grant-programs-minority-serving-institutions](https://www.ed.gov/about/news/press-release/us-department-of-education-ends-funding-racially-discriminatory-discretionary-grant-programs-minority-serving-institutions)
 

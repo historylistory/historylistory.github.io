@@ -101,13 +101,13 @@ permalink: /categories/education/indoctrination/
 
 
 
-2025-08-18 A news outlet reported that teachers in California, Oklahoma and New York must pass an “America First” test developed by Conservative Alt-Right Prager-U.
+2025-08-18 Teachers in California, Oklahoma and New York must pass an “America First” test developed by Conservative Alt-Right Prager-U. Tests are partisan and questions push 2020 false electoral claims. (DID YOU KNOW? America First Political Action Conference was founded by white supremacist Nick Fuentes, America First Legal likes to file lawsuits claiming discrimination against white men, in 2022 JD Vance campaigned in an “America First Conservative” commercial that started out “Are YOU a racist? Do you hate Mexicans?...” and Pat Buchanan declared a culture war in 1992 as part of his “America First” campaign). 
 
 [https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test](https://www.theguardian.com/us-news/2025/aug/18/oklahoma-teachers-america-first-test)
 
 [https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/](https://www.usatoday.com/story/news/politics/2025/08/17/oklahoma-requires-blue-state-teachers-america-first-curriculum/85510568007/)
 
-2025-08-25 Americans United criticized PragerU's growing role in public education and described it as advancing Christian nationalist ideas, writing, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
+2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 
 [https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/](https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/)
 

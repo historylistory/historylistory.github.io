@@ -20,7 +20,7 @@ permalink: /categories/education/student-loans/
 
 ### 2025 November
 
-2025-11-20 The Department of Education proposed to declassify nursing careers as “professional” for student loan purposes. This change sparked concern that nursing students would now face lower student loan limits.
+2025-11-20 The Department of Education declassified nursing careers as professional, thereby restricting their student loan limits.
 
 [https://www.nbcnews.com/news/education/trump-administration-says-nursing-isnt-professional-degree-new-limits-rcna245911](https://www.nbcnews.com/news/education/trump-administration-says-nursing-isnt-professional-degree-new-limits-rcna245911)
 

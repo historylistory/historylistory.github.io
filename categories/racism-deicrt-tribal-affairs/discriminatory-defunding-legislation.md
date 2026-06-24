@@ -86,7 +86,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 ### 2025 September
 
-2025-09-10 The Department of Education announced it will be **defunding** minority-serving institutions such as Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
+2025-09-10 The Department of Education defunded minority-serving institutions such as Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
 
 [https://www.ed.gov/about/news/press-release/us-department-of-education-ends-funding-racially-discriminatory-discretionary-grant-programs-minority-serving-institutions](https://www.ed.gov/about/news/press-release/us-department-of-education-ends-funding-racially-discriminatory-discretionary-grant-programs-minority-serving-institutions)
 
