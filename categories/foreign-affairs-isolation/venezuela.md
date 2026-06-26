@@ -6,6 +6,13 @@ subcategory_slug: venezuela
 permalink: /categories/foreign-affairs-isolation/venezuela/
 ---
 
+### 2018 
+
+2018-07-20 Venezuela experienced an exodus after an increase in authoritarianism.
+
+[https://www.cato.org/blog/venezuela-biggest-humanitarian-crisis-you-havent-heard](https://www.cato.org/blog/venezuela-biggest-humanitarian-crisis-you-havent-heard)
+
+
 ### 2019
 
 2019-01-24 Maduro cut diplomatic ties with the U.S.
@@ -304,3 +311,8 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 
 [https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors](https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors)
 
+2026-06-25 Twin earthquakes devastated Venezuela.
+
+[https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1](https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1)
+
+[https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes](https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes)

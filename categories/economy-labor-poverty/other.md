@@ -202,3 +202,11 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 [https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel](https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel)
 
 [https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/](https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/)
+
+2026-06-23 Trump signed an executive order calling for a  quantum computer. 
+
+[https://www.youtube.com/watch?v=XIiXsagtpzw&list=WL&index=2&t=48s](https://www.youtube.com/watch?v=XIiXsagtpzw&list=WL&index=2&t=48s)
+
+[https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237](https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237)
+
+[https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/](https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/)

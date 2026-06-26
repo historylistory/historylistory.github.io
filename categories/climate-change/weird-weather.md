@@ -176,3 +176,18 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.youtube.com/watch?v=pmc0AfiLtRs&list=WL&index=5](https://www.youtube.com/watch?v=pmc0AfiLtRs&list=WL&index=5)
 
 [https://www.cnn.com/2026/06/24/weather/live-news/europe-heatwave-temperatures-news](https://www.cnn.com/2026/06/24/weather/live-news/europe-heatwave-temperatures-news)
+
+2026-06-23 San Carlos Lake in Arizona has been shut down after drought has caused its entire fish population to die. 
+
+[https://www.youtube.com/watch?v=ccu46R_9gQc&list=WL&index=3](https://www.youtube.com/watch?v=ccu46R_9gQc&list=WL&index=3)
+
+[https://www.sciencedaily.com/releases/2026/06/260618041458.htm](https://www.sciencedaily.com/releases/2026/06/260618041458.htm)
+
+[https://people.com/san-carlos-lake-closes-indefinitely-after-massive-fish-kill-in-arizona-11994813](https://people.com/san-carlos-lake-closes-indefinitely-after-massive-fish-kill-in-arizona-11994813)
+
+2026-06-25 Twin earthquakes devastated Venezuela.
+
+[https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1](https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1)
+
+[https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes](https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes)
+

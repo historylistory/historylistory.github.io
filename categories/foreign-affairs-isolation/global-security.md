@@ -64,3 +64,10 @@ permalink: /categories/foreign-affairs-isolation/global-security/
 
 [https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798](https://www.nbcnews.com/politics/trump-administration/fisa-section-702-warrantless-foreign-surveillance-expire-congress-rcna349798)
 
+2026-06-23 Trump signed an executive order calling for a  quantum computer. 
+
+[https://www.youtube.com/watch?v=XIiXsagtpzw&list=WL&index=2&t=48s](https://www.youtube.com/watch?v=XIiXsagtpzw&list=WL&index=2&t=48s)
+
+[https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237](https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237)
+
+[https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/](https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/)

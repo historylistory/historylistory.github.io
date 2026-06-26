@@ -846,4 +846,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-23 United Auto Workers voted to divest from Israel Bonds and issued a statement, “This is going to send a message to – not just the billionaire class – but to politicians and any single person who is not afraid to stand up to genocide, to Netanyahu, to the United States government, and will put the UAW again on the map for standing up for international solidarity”. 
 
+2026-06-23 Trump signed an executive order calling for a  quantum computer. 
+
 2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.

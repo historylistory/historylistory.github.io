@@ -265,3 +265,7 @@ The following examples highlight these concerns, while some are included for his
 
 2026-06-23 Europe experienced record heat.
 
+2026-06-23 San Carlos Lake in Arizona has been shut down after drought has caused its entire fish population to die. 
+
+2026-06-25 Twin earthquakes devastated Venezuela.
+

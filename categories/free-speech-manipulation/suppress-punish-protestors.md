@@ -365,3 +365,11 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 2026-06-15 In Britain four Palestine activists were sentenced as terrorists without conviction for protesting in 2024. 
 
 [https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/](https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/)
+
+2026-06-24 Protesters are now receiving decades-long sentences for demonstrating outside detention centers.
+
+[https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s](https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s)
+
+[https://www.democracynow.org/2026/6/25/prairieland_nine](https://www.democracynow.org/2026/6/25/prairieland_nine)
+
+[https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent](https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent)
