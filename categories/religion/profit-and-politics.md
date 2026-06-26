@@ -45,7 +45,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 1989
 
-1989-06-12 Megachurch founder and televangelist Jerry Falwell stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. Jerry Falwell's "Moral Majority” campaigned to support Reagan’s election and re-election, calling him “God’s instrument”, calling the Democratic Party “radical”, and instrumentalizing religion for political power.
+1989-06-12 Megachurch founder and televangelist Jerry Falwell campaigned for a so-called “moral majority”, calling Regan “God’s instrument”, labeling Democrats as radicals, and weaponizing religion for political power. He stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. 
 
 [https://centerforpolitics.org/crystalball/ljs2007051801/#:~:text=Of%20course%2C%20leading%20the%20Reagan,Falwell's%20earliest%20days%20in%20politics](https://centerforpolitics.org/crystalball/ljs2007051801/).
 

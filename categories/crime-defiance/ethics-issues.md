@@ -8,7 +8,7 @@ permalink: /categories/crime-defiance/ethics-issues/
 
 ### 1989
 
-1989 Trump called for reinstating the death penalty and funded full-page newspaper ads in New York City following the case involving five Black and Latino boys who were later wrongfully convicted of rape
+1989-01-01 Following a case involving the wrongful conviction of five Black and Latino men, Trump tried to push his agenda to reinstate the death penalty. 
 
 [https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york](https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york)
 

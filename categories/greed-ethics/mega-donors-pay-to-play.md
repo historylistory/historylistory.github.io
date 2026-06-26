@@ -8,7 +8,7 @@ permalink: /categories/greed-ethics/mega-donors-pay-to-play/
 
 ### 1982
 
-1982-01-01 Leonard Leo, a **financial backer of Project 2025**, helped found the Federalist Society to select and groom law students and promote conservative values. For more information please review the topics below.   
+1982-01-01 Financier of Project 2025 Leonard Leo also helped found the Federalist Society to select and groom law students.  
 
 {% include youtubePlayer.html id="n6Y51b4XqwQ" %}
 
@@ -58,7 +58,7 @@ permalink: /categories/greed-ethics/mega-donors-pay-to-play/
 
 ### 1989
 
-1989-06-12 Megachurch founder and televangelist Jerry Falwell stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. Jerry Falwell's "Moral Majority” campaigned to support Reagan’s election and re-election, calling him “God’s instrument”, calling the Democratic Party “radical”, and instrumentalizing religion for political power.
+1989-06-12 Megachurch founder and televangelist Jerry Falwell campaigned for a so-called “moral majority”, calling Regan “God’s instrument”, labeling Democrats as radicals, and weaponizing religion for political power. He stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. 
 
 [https://centerforpolitics.org/crystalball/ljs2007051801/#:~:text=Of%20course%2C%20leading%20the%20Reagan,Falwell's%20earliest%20days%20in%20politics](https://centerforpolitics.org/crystalball/ljs2007051801/).
 
