@@ -6,6 +6,16 @@ subcategory_slug: cringe-y-classless-or-petulant
 permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 ---
 
+### 2009 
+
+2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
+
+[https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/](https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/)
+
+[https://www.latimes.com/archives/blogs/top-of-the-ticket/story/2009-06-01/opinion-republicans-slam-obama-date-night-in-nyc-as-pricey-and-out-of-touch#:~:text=Oh%2C%20the%20dinner%20for%20two,Americans%20are%20out%20of%20work](https://www.latimes.com/archives/blogs/top-of-the-ticket/story/2009-06-01/opinion-republicans-slam-obama-date-night-in-nyc-as-pricey-and-out-of-touch).
+
+[https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans](https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans)
+
 ### 2018 
 
 2018-02-12 After Mirai Nagasu landed a triple axel at the Winter Olympics, Bari Weiss posted, “Immigrants: They get the job done”. 

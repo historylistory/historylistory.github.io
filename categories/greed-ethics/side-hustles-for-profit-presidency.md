@@ -8,7 +8,7 @@ permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
 
 ### 1995
 
-1995 Trump tried to sell Trump Ice water.
+1995-01-01 Trump launched his own bottled water. 
 
 [https://en.wikipedia.org/wiki/Trump_Ice](https://en.wikipedia.org/wiki/Trump_Ice)
 
@@ -16,7 +16,7 @@ permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
 
 ### 2007
 
-2007-05-01 Trump tried to sell Trump Steaks, which didn’t last.
+2007-05-01 Trump launched his own Trump Steaks. 
 
 [https://en.wikipedia.org/wiki/Trump_Steaks](https://en.wikipedia.org/wiki/Trump_Steaks)
 
@@ -36,23 +36,20 @@ permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
 
 ### 2024 March
 
-2024-03-26 Trump Media and Technology Group TMTG began trading publicly on NASDAQ.
+2024-03-26 Trump Media and Technology Group TMTG started trading publicly on NASDAQ.
 
 [https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html](https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html)
 
-2024-03-26 Trump announced the rebranding of the Lee Greenwood Bible as the Trump Bible, which are made in China for $3 each and sold in the US for $59.99.
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
 
 [https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY](https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY)
 
 [https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html](https://www.hindustantimes.com/world-news/us-news/jimmy-kimmel-details-shocking-flaw-in-donald-trumps-tariffs-plan-will-american-wallets-suffer-101732725533700.html)
 
-### 2024 June
-
-2024-06-03 Trump passed specific parameters for bibles in schools so only his bible could be peddled to them. 
-
 [https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/](https://oklahomawatch.org/2024/10/03/state-education-department-seeks-bids-for-55000-classroom-bibles/)
 
 [https://baptistnews.com/article/only-one-bible-fits-the-3-million-bid-for-oklahoma-classrooms/](https://baptistnews.com/article/only-one-bible-fits-the-3-million-bid-for-oklahoma-classrooms/)
+
 
 ### 2024 August
 
@@ -86,7 +83,7 @@ permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
 
 [https://arstechnica.com/tech-policy/2026/01/democrats-ask-trumps-ftc-to-investigate-trump-mobiles-broken-promises/](https://arstechnica.com/tech-policy/2026/01/democrats-ask-trumps-ftc-to-investigate-trump-mobiles-broken-promises/)
 
-2025-06-30 Trump sent out a social media post promoting his own perfume line.
+2025-06-30 Trump launched his own perfume line. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/114774905224497775](https://truthsocial.com/@realDonaldTrump/posts/114774905224497775)
 

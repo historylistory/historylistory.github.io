@@ -49,23 +49,7 @@ permalink: /categories/crime-defiance/ethics-issues/
 
 ### 2009
 
-2009-05-30 In 2009 Republicans pissed their pants over the Obamas attending a Broadway play, yet in 2025 through 2026 they took little accountability for:
-~~~ list
-~~~ JD Vance pressuring the Army Corps of Engineers to release river water for his birthday,
-~~~ Kash Patel using a government jet to visit his girlfriend numerous times,
-~~~ Kristi Noem spending $250M in taxpayer money to fund a selfie-campaign disguised as ICE commercials,
-~~~ Trump destroying the White House for his ballroom,
-~~~ The Trump administration stealing of SNAP funds from children,
-~~~ The Trump administration spending billions and trillions in taxpayer money to fund an elective war in Iran,
-~~~ Trump suing the DOJ and making taxpayers give him $230M,
-~~~ Trump sending $40B in American taxpayer dollars to fund Argentina,
-~~~ DOGE firings that cost American taxpayers roughly $135B,
-~~~ Forcing American taxpayers to fund rich private schools while cutting funding to public schools,
-~~~ Passing tariff costs onto American taxpayers,
-~~~ Charging American taxpayers $125M to rebrand the Department of Defense as the Department of War,
-~~~ Forcing taxpayers to foot the bill for a lawsuit Trump filed with the IRS and Treasury for $10B, or
-~~~ Rerouting $8B in national emergency funds into building the border wall.
-~~~
+2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
 
 [https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/](https://www.upi.com/Top_News/2009/05/30/RNC-slams-Obama-Broadway-date-night/75081243725725/)
 
@@ -138,7 +122,7 @@ permalink: /categories/crime-defiance/ethics-issues/
 [https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7](https://www.youtube.com/watch?v=9RuPvv0maCQ&list=WL&index=7)
 
 
-2023-09-15 Beginning in 2023, multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
+2023-09-15 Multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
 
 [https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair](https://www.vanityfair.com/news/2023/09/governor-kristi-noem-god-fearing-family-woman-and-corey-lewandowski-trump-creep-reportedly-had-yearslong-affair)
 
@@ -154,6 +138,13 @@ permalink: /categories/crime-defiance/ethics-issues/
 
 [https://www.rawstory.com/rfk-jeffrey-epstein/](https://www.rawstory.com/rfk-jeffrey-epstein/)
 
+### 2024 June
+
+2024-06-20 Convicted ‘Pharma Bro’ Martin Shkreli partnered with Barron Trump behind the new DJT Coin.
+
+[https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147](https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147)
+
+
 ### 2024 August
 
 2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events. Did You Know? Lolita is a controversial 1955 novel by Vladimir Nabokov about predatory manipulation of a 14-year-old girl?
@@ -164,7 +155,7 @@ permalink: /categories/crime-defiance/ethics-issues/
 
 ### 2024 November
 
-2024-11-29 News outlets reported that Pete Hegseth’s own mother wrote him a letter back in 2018 accusing him of being an abuser, then later defended her son and apologized for the letter December of 2024.
+2024-11-29 Pete Hegseth’s own mother wrote him a letter back in 2018 accusing him of being an abuser, then later defended her son and apologized for the letter December of 2024.
 
 [https://edition.cnn.com/2024/11/30/politics/pete-hegseth-mother-email-new-york-times](https://edition.cnn.com/2024/11/30/politics/pete-hegseth-mother-email-new-york-times)
 

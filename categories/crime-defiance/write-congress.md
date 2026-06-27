@@ -127,7 +127,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
 
-2023-09-15 Beginning in 2023, multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
+2023-09-15 Multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
 
 2024-02-01 A New York State Supreme Court judge ruled that Trump engaged in a scheme to manipulate his net worth and property valuations.
 
@@ -155,7 +155,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2024-10-02 Special Counsel Jack Smith released 165-page filing detailing Trump’s alleged efforts to overturn the 2020 election and his role in events surrounding January 6 and proof that Trump knew he had lost the 2020 elections.
 
-2024-11-29 News outlets reported that Pete Hegseth’s own mother wrote him a letter back in 2018 accusing him of being an abuser, then later defended her son and apologized for the letter December of 2024.
+2024-11-29 Pete Hegseth’s own mother wrote him a letter back in 2018 accusing him of being an abuser, then later defended her son and apologized for the letter December of 2024.
 
 2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls.
 

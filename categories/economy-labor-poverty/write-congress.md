@@ -124,7 +124,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2024-05-23 The Biden Administration and 39 States filed an anti-trust lawsuit against Live Nation and Ticketmaster. In 2026 Trump reached a settlement with Live Nation that required no divestment of Ticketmaster. A coalition of over 30 states rejected the settlement, arguing it was too weak. By April 2026 a federal jury found Live Nation and Ticketmaster liable on every antitrust count submitted. 
 
-2024-06-11 Trump posted on social media about bitcoin mining as the last line of defense against a CBDC (Central Bank Digital Currency).
+2024-06-11 Trump posted on social media that bitcoin mining was the last line of defense against a CBDC (Central Bank Digital Currency).
 
 2024-07-10 During a National Conservatism convention, JD Vance claimed, “…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 

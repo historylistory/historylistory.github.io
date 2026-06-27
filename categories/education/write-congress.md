@@ -66,6 +66,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content. 
 
+
 2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign.
 
 2023-05-24 Several States passed legislation forcing Americans to divert their tax money from public schools towards private schools for the elite.
@@ -76,11 +77,11 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2023-10-23 Republicans increasingly ban books. 
 
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
+
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
 
 2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
-
-2024-06-03 Trump passed specific parameters for bibles in schools so only his bible could be peddled to them. 
 
 2024-06-03 Billions of taxpayers’ dollars are diverted from public schools to fund exclusive private religious schools. 
 

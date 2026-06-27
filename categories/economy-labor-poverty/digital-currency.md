@@ -20,7 +20,7 @@ Section is new and data is pending - expect information to cross over with AI Su
 
 ### 2024
 
-2024-06-11 Trump posted on social media about bitcoin mining as the last line of defense against a CBDC (Central Bank Digital Currency).
+2024-06-11 Trump posted on social media that bitcoin mining was the last line of defense against a CBDC (Central Bank Digital Currency).
 
 [https://truthsocial.com/@realDonaldTrump/posts/112601639679885930](https://truthsocial.com/@realDonaldTrump/posts/112601639679885930)
 

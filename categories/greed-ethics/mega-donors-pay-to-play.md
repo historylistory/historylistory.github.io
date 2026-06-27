@@ -70,16 +70,6 @@ permalink: /categories/greed-ethics/mega-donors-pay-to-play/
 
 {% include youtubePlayer.html id="NZKGgHNq5Hc" %}
 
-### 1998
-
-1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
-
-[https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book](https://www.theguardian.com/technology/2016/oct/21/peter-thiel-support-donald-trump-date-rape-book)
-
-[https://www.independent.org/store/book/the-diversity-myth/#](https://www.independent.org/store/book/the-diversity-myth/)
-
-[https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg](https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg)
-
 ### 2009
 
 2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”. 
@@ -96,7 +86,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2010 
 
-2010-01-21 The Supreme Court ruled 5-to-4 to strike down restrictions on independent political spending by corporations and labor unions (see Citizens United). By allowing unlimited independent spending, “Super PACs” can raise and spend vast sums of money in pay-to-play schemes and even hide donations behind 501(c)(4) companies (for example, Turning Point USA is a 501(c)(4) nonprofit which can participate in partisan political campaigns). Even lobbyist Neil Clark was captured on a wire tap explaining dark money benefits for the GOP.
+2010-01-21 The Supreme Court ruled 5-to-4 to strike down restrictions on independent political spending by corporations and labor unions (see Citizens United). By allowing unlimited independent spending, “Super PACs” can raise and spend vast sums of money in pay-to-play schemes and even hide donations behind 501(c)(4) companies (for example, Turning Point USA is a 501(c)(4) nonprofit which can participate in partisan political campaigns). 
 
 [https://projects.propublica.org/nonprofits/organizations/464331510](https://projects.propublica.org/nonprofits/organizations/464331510)
 
@@ -110,7 +100,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2013
 
-2013-01-01 JD Vance was a former venture capitalist with investors like Peter Thiel (Palantir, PayPal, Facebook), Eric Schmidt (Google), and Marc Andreessen (Silicon Valley Investor). 
+2013-01-01 JD Vance was a former venture capitalist with investors like Peter Thiel (Palantir, PayPal, Facebook), Eric Schmidt (Google), and Marc Andreessen (Silicon Valley Investor). 
 
 [https://www.axios.com/2024/07/16/jd-vance-venture-capital-career](https://www.axios.com/2024/07/16/jd-vance-venture-capital-career)
 
@@ -128,7 +118,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2016
 
-2016-01-01 In 2016, McMahon donated $6M to Rebuilding America Now, a SuperPac with the purpose of electing Trump.
+2016-01-01 Linda McMahon donated $6M to Trump-supporting SuperPAC Rebuilding America Now. 
 
 [https://www.washingtonpost.com/news/post-politics/wp/2016/10/16/wwe-co-founder-linda-mcmahon-gave-6-million-to-pro-trump-super-pac/](https://www.washingtonpost.com/news/post-politics/wp/2016/10/16/wwe-co-founder-linda-mcmahon-gave-6-million-to-pro-trump-super-pac/)
 
@@ -140,7 +130,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2021
 
-2021-08-29 An article quoted JD Vance stating he attributed ‘pretty much’ his entire career to (Thiel’s) mentorship’. Thiel invested in JD Vance’s venture capital firm and backed Vance’s 2022 Senate campaign as the ‘largest amount given to a single candidate in congressional history’ according to an article of The New Yorker June 2, 2025 ‘Curtis Yarvin’s Plot Against America’.
+2021-08-29 JD Vance was quoted as attributing his entire career to Peter Thiel. Thiel invested in JD Vance’s venture capital firm and backed Vance’s 2022 Senate campaign as the ‘largest amount given to a single candidate in congressional history’.
 
 [https://www.businessinsider.com/jd-vance-venture-capital-opioid-nonprofit-tech-record-ohio-senate-2021-8](https://www.businessinsider.com/jd-vance-venture-capital-opioid-nonprofit-tech-record-ohio-senate-2021-8)
 
@@ -151,7 +141,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2024
 
-2024-04-16 (context) News outlets reported that the **Bradley Foundation** handed out a lot of money to far-right groups in 2022 such as Turning Point USA, America First Legal, Conservative Partnership Institute, and America’s Future. For context, America First Legal waged a lawsuit against Johns Hopkins **accusing them of leveraging disparities on the U.S. census to help Black and Hispanic households**.
+2024-04-16 The Bradley Foundation donates heavily to Turning Point USA, America First Legal, Conservative Partnership Institute, and America’s Future. 
 
 [https://www.theguardian.com/us-news/2024/apr/16/trump-rightwing-groups-funds](https://www.theguardian.com/us-news/2024/apr/16/trump-rightwing-groups-funds)
 
@@ -165,13 +155,13 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 January
 
-2025-01-17 (for context) United Airlines donated $1M to Trump’s inauguration.
+2025-01-17 United Airlines donated $1M to Trump’s inauguration.
 
 [https://www.reuters.com/business/aerospace-defense/united-airlines-donates-1-million-trump-inaugural-fund-2025-01-17/](https://www.reuters.com/business/aerospace-defense/united-airlines-donates-1-million-trump-inaugural-fund-2025-01-17/)
 
 [https://www.opensecrets.org/orgs/united-airlines-holdings/summary?id=D000021464](https://www.opensecrets.org/orgs/united-airlines-holdings/summary?id=D000021464)
 
-2025-01-17 (for context) JBS, the world’s largest meatpacker, made a $5m donation to Trump’s inauguration.
+2025-01-17 JBS, the world’s largest meatpacker, made a $5m donation to Trump’s inauguration.
 
 [https://westernagnetwork.com/dollar5m-jbs-donation-raises-pay-to-play-questions-for-trump](https://westernagnetwork.com/dollar5m-jbs-donation-raises-pay-to-play-questions-for-trump)
 
@@ -179,7 +169,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://news.mongabay.com/short-article/2025/06/meatpacking-giant-jbs-debuts-on-nyse-six-months-after-5m-trump-donation/](https://news.mongabay.com/short-article/2025/06/meatpacking-giant-jbs-debuts-on-nyse-six-months-after-5m-trump-donation/)
 
-2025-01-17 Several businesses donated to Trump’s inaugural fund (pay to play”). 
+2025-01-17 Several businesses donated to Trump’s inaugural fund (pay to play). 
 
 [https://www.goodsuniteus.com/](https://www.goodsuniteus.com/)
 
@@ -187,7 +177,7 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 March
 
-2025-03-04 News articles reported multiple million-dollar dinners hosted at Mar-a-Lago, naming one as the "**MAGA INC. Candlelight Finance Dinner**".
+2025-03-04 Trump hosted one of multiple millionaire dinners at Mar-a-Lago, “MAGA Inc. Candlelight Finance Dinner”. 
 
 [https://www.wired.com/story/people-paying-millions-donald-trump-mar-a-lago/](https://www.wired.com/story/people-paying-millions-donald-trump-mar-a-lago/)
 

@@ -44,6 +44,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
+2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
+
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
