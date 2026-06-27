@@ -732,8 +732,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-05-03 Small businesses received rejections for their tariff refund claims. 
 
-2026-05-03 (for context because thousands of employees were left without jobs) After Trump’s tariffs, heavy spending, and elective war in Iran all took a toll on the economy, Spirit Airlines liquidated all its assets.
-
 2026-05-03 Spirit Airlines liquidated all its assets. 
 
 2026-05-04 Kentucky Governor Andy Beshear announced a state emergency due to rising costs and gas prices.
