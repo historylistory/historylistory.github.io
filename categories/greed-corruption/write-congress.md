@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: WRITE CONGRESS
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: write-congress
-permalink: /categories/greed-ethics/write-congress/
+permalink: /categories/greed-corruption/write-congress/
 ---
 
 

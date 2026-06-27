@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Conflicts & Ethics
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: conflicts-ethics
-permalink: /categories/greed-ethics/conflicts-ethics/
+permalink: /categories/greed-corruption/conflicts-ethics/
 ---
 
 ### 1989
@@ -133,19 +133,25 @@ permalink: /categories/greed-ethics/conflicts-ethics/
 
 {% include youtubePlayer.html id="4oVboO9cRCk" %}
 
-### 2024
+### 2024 February
 
 2024-02-15 During an interview at Harvard University, Trump's son-in-law Jared Kushner called Gaza's waterfront property very valuable, stating he believed declaring Palestine as a State would be rewarding terrorism.
 
 [https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev](https://www.theguardian.com/us-news/2024/mar/19/jared-kushner-gaza-waterfront-property-israel-negev)
 
+### 2024 March
+
 2024-03-06 RFK Jr. allegedly boasted about friendships with multiple sex offenders.
 
 [https://www.rawstory.com/rfk-jeffrey-epstein/](https://www.rawstory.com/rfk-jeffrey-epstein/)
 
+### 2024 June
+
 2024-06-20 Convicted ‘Pharma Bro’ Martin Shkreli partnered with Barron Trump behind the new DJT Coin.
 
 [https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147](https://www.newsweek.com/crypto-djt-barron-trump-martin-shkreli-1915147)
+
+### 2024 August
 
 2024-08-12 Trump used the Epstein "Lolita Express" to fly to campaign events. Did You Know? Lolita is a controversial 1955 novel by Vladimir Nabokov about predatory manipulation of a 14-year-old girl?
 

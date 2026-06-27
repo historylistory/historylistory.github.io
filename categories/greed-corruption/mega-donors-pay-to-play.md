@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Mega Donors & Pay to Play"
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: mega-donors-pay-to-play
-permalink: /categories/greed-ethics/mega-donors-pay-to-play/
+permalink: /categories/greed-corruption/mega-donors-pay-to-play/
 ---
 
 ### 1982

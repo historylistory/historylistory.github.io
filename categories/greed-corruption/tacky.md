@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Tacky
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: tacky
-permalink: /categories/greed-ethics/tacky/
+permalink: /categories/greed-corruption/tacky/
 ---
 
 ### 2020

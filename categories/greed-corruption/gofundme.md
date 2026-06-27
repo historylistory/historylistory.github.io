@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: GoFundMe
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: gofundme
-permalink: /categories/greed-ethics/gofundme/
+permalink: /categories/greed-corruption/gofundme/
 ---
 
 ### 2024

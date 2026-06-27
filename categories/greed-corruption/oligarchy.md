@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Oligarchy
-category_slug: greed-ethics
+category_slug: greed-corruption
 subcategory_slug: oligarchy
-permalink: /categories/greed-ethics/oligarchy/
+permalink: /categories/greed-corruption/oligarchy/
 ---
 
 ### Is it an oligarchy?
