@@ -412,7 +412,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-10-23 Allegedly Melania Trump meme coin architects knew the token value would plunge before they sold it.
 
-2025-10-23 Trump pardoned Binance founder Changpeng Zhao. Zhao was convicted of money laundering. Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons). Trump claimed during a 60 Minutes interview he didn’t know who the guy was. 
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump’s family.
 
 2025-10-23 The U.S. national debt surpassed $38 TRILLION.
 
@@ -556,7 +556,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-02-27 North Dakota judge ordered Greenpeace to pay $345 million in damages related to Dakota Access Pipeline protests.
 
-2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, Trump administration officials devised legal strategies to pocket the tariffs regardless.
+2026-02-27 Trump administration officials devised legal strategies to pocket illegal tariffs despite a Supreme Court ruling. 
 
 2026-02-28 The Bureau of Labor Statistics reported a sharp drop of 92,000 jobs and an unemployment rate of 4.4%.
 

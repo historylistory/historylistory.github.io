@@ -179,7 +179,7 @@ TIMESTAMP 6:03 [https://www.youtube.com/watch?v=7bZakWcCTDo&list=WL&index=1](htt
 
 [https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html](https://www.cnbc.com/2026/05/15/trump-stock-trade-tech-oge.html)
 
-2026-05-19 (for context) Trump sued Minnesota for banning Kalshi prediction markets.
+2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets.
 
 [https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets](https://www.npr.org/2026/05/19/nx-s1-5821265/minnesota-ban-prediction-markets)
 

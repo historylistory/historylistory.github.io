@@ -172,7 +172,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 October
 
-2025-10-24 Open AI announced plans to sell erotica to boost sales. For context, AI has a massive environmental impact.
+2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
 [https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
 
@@ -200,13 +200,6 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska](https://www.doi.gov/pressreleases/interior-takes-bold-steps-expand-energy-local-control-and-land-access-alaska)
 
-2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
-
-[https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
-
-[https://www.usatoday.com/story/tech/2025/10/15/openai-chatgpt-erotica-sam-altman/86716163007/](https://www.usatoday.com/story/tech/2025/10/15/openai-chatgpt-erotica-sam-altman/86716163007/)
-
-[https://www.cnbc.com/2025/10/15/erotica-coming-to-chatgpt-this-year-says-openai-ceo-sam-altman.html](https://www.cnbc.com/2025/10/15/erotica-coming-to-chatgpt-this-year-says-openai-ceo-sam-altman.html)
 
 ### 2025 November
 

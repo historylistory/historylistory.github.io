@@ -304,7 +304,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://truthsocial.com/@realDonaldTrump/posts/115057235181892448](https://truthsocial.com/@realDonaldTrump/posts/115057235181892448)
 
-2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges later that month.  
+2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges.
 
 [https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud](https://www.justice.gov/usao-edmo/pr/operators-lux-living-and-big-sur-construction-and-chief-accountant-indicted-wire-fraud)
 
@@ -354,7 +354,7 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://x.com/cz_binance/status/1981404850832494666](https://x.com/cz_binance/status/1981404850832494666)
 
-2025-10-24 Open AI announced plans to sell erotica to boost sales. For context, **AI has a massive environmental impact**. It is also unregulated at the demands of the Trump administration.
+2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
 [https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295](https://apnews.com/article/ai-erotica-chatgpt-openai-sam-altman-d52e00cedf34a8120af7af66981da295)
 
@@ -463,7 +463,7 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo](https://www.pbs.org/newshour/politics/hillary-clinton-deposition-paused-over-leaked-photo)
 
-2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, Trump administration officials devised legal strategies to pocket the tariffs regardless.
+2026-02-27 Trump administration officials devised legal strategies to pocket illegal tariffs despite a Supreme Court ruling. 
 
 [https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union](https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union)
 

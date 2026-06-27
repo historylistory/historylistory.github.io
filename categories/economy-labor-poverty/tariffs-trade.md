@@ -170,7 +170,7 @@ CAPITULATING FOX ARTICLE [https://www.foxnews.com/media/karoline-leavitt-shuts-d
 
 [https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent](https://www.foxnews.com/politics/trump-raises-global-tariff-15-percent)
 
-2026-02-27 After the Supreme Court ruled Trump’s tariffs illegal, Trump administration officials devised legal strategies to pocket the tariffs regardless.
+2026-02-27 Trump administration officials devised legal strategies to pocket illegal tariffs despite a Supreme Court ruling. 
 
 [https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union](https://wgme.com/news/nation-world/trump-vows-to-keep-tariffs-via-new-legal-authority-after-supreme-court-ruling-canada-state-union)
 

@@ -205,13 +205,13 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 [https://www.cbsnews.com/news/trump-hosting-dinner-tech-giants-business-leaders-white-house/](https://www.cbsnews.com/news/trump-hosting-dinner-tech-giants-business-leaders-white-house/)
 
-2025-09-05 Tesla introduced a new pay package for Elon Musk that would make him the first **trillionaire** in American history.
+2025-09-05 Tesla introduced a new pay package to make Elon Musk the first trillionaire in history. 
 
 [https://www.cnn.com/2025/09/05/business/elon-musk-tesla-new-pay-package](https://www.cnn.com/2025/09/05/business/elon-musk-tesla-new-pay-package)
 
 ### 2025 October
 
-2025-10-23 Trump pardoned Binance founder Changpeng Zhao. Zhao was convicted of money laundering. Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons). Trump claimed during a 60 Minutes interview he didn’t know who the guy was. 
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump’s family.
 
 [https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/](https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/)
 

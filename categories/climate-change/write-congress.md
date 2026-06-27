@@ -171,7 +171,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-10-24 Trump removed protections from Alaska’s National Wildlife Refuge for oil and gas drilling.
 
-2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
+2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
 2025-11-07 The Guardian reported on “Atlas,” an alleged ExxonMobil-backed climate-change denial campaign.
 

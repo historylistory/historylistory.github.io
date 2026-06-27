@@ -42,7 +42,7 @@ Section is new and data is pending - expect information to cross over with AI Su
 
 [https://www.bitstamp.net/learn/crypto-trading/what-are-pump-and-dump-schemes/](https://www.bitstamp.net/learn/crypto-trading/what-are-pump-and-dump-schemes/)
 
-2025-10-23 Trump pardoned Binance founder Changpeng Zhao. Zhao was convicted of money laundering. Binance helped facilitate a $2B purchase of World Liberty Financials’ stablecoin (founded by Trump’s sons). Trump claimed during a 60 Minutes interview he didn’t know who the guy was. 
+2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump’s family.
 
 [https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/](https://www.cbsnews.com/news/trump-binance-cryptocurrency-tycoon-he-pardoned-dont-know-who-he-is/)
 

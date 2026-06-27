@@ -263,7 +263,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-08-19 Trump promoted Eric Schmitt’s book on Truth Social “The Last Line of Defense - How to Beat the Left in Court”.
 
-2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges later that month.  
+2025-08-28 Real-estate developer Sid Chakraverty was charged with improperly claiming millions in tax incentives. After retaining Brad Bondi, the DOJ dismissed the charges.
 
 2025-08-28 Trump withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
@@ -321,7 +321,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-10-23 Trump pardoned Binance founder Changpeng Zhao, who had been convicted of money laundering. Later that month, Trump told 60 Minutes he did not know Zhao even though Binance facilitated a $2 billion purchase of a World Liberty Financial stablecoin founded by Trump's sons.
 
-2025-10-24 OpenAI announced plans to expand into erotica-related products (and at the expense of a growing environmental footprint).
+2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
 2025-10-27 Trump pardoned Heather Morgan ("Razzlekhan"), who was convicted of laundering billions in cryptocurrency tied to the 2016 Bitfinex hack.
 
