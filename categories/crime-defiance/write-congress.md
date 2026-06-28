@@ -586,3 +586,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-06-23 The DOJ charged 455 defendants with healthcare fraud. 
 
 2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
+
+2026-06-26 Epstein billionaire business associate Leon Black was subpoenaed shortly after he walked out of an oversight committee hearing and refused to answer questions.
+
+2026-06-26 A judge ordered release of unredacted Epstein files. 

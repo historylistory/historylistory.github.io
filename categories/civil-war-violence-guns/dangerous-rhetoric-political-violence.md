@@ -427,3 +427,13 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.espn.com/mma/story/_/id/49081439/fbi-arrests-suspects-planned-attacks-white-house-ufc-event](https://www.espn.com/mma/story/_/id/49081439/fbi-arrests-suspects-planned-attacks-white-house-ufc-event)
 
 [https://www.pbs.org/newshour/nation/fbis-patel-announces-multiple-arrests-connected-to-planned-attacks-targeting-white-house-ufc-show](https://www.pbs.org/newshour/nation/fbis-patel-announces-multiple-arrests-connected-to-planned-attacks-targeting-white-house-ufc-show)
+
+2026-06-26 Pete Buttigieg and his family were targeted in a politically motivated hoax when someone called Child Protective Services to separate him from his children. 
+
+[https://www.youtube.com/watch?v=4K-dSupVmnA&list=WL&index=4](https://www.youtube.com/watch?v=4K-dSupVmnA&list=WL&index=4)
+
+[https://www.cbsnews.com/news/pete-buttigieg-says-his-family-targeted-false-report-michigan-cps/](https://www.cbsnews.com/news/pete-buttigieg-says-his-family-targeted-false-report-michigan-cps/)
+
+[https://www.nbcnews.com/politics/politics-news/pete-buttigieg-targeted-false-report-twins-child-protective-services-rcna351990](https://www.nbcnews.com/politics/politics-news/pete-buttigieg-targeted-false-report-twins-child-protective-services-rcna351990)
+
+[https://www.npr.org/2026/06/26/nx-s1-5872821/pete-buttigieg-cps-police-swatting](https://www.npr.org/2026/06/26/nx-s1-5872821/pete-buttigieg-cps-police-swatting)

@@ -269,3 +269,4 @@ The following examples highlight these concerns, while some are included for his
 
 2026-06-25 Twin earthquakes devastated Venezuela.
 
+2026-06-26 A judge declared a mistrial in the Palisades fire arson case against Jonathan Rinderkecht. The DOJ said they will continue to pursue. 

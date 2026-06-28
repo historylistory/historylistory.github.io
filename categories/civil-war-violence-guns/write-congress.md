@@ -481,3 +481,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
 
 2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
+
+2026-06-26 Pete Buttigieg and his family were targeted in a politically motivated hoax when someone called Child Protective Services to separate him from his children. 

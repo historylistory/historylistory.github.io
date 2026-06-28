@@ -191,3 +191,8 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes](https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes)
 
+2026-06-26 A judge declared a mistrial in the Palisades fire arson case against Jonathan Rinderkecht. The DOJ said they will continue to pursue. 
+
+[https://www.cbsnews.com/losangeles/news/palisades-fire-jonathan-rinderknecht-mistrial/](https://www.cbsnews.com/losangeles/news/palisades-fire-jonathan-rinderknecht-mistrial/)
+
+[https://www.newsweek.com/why-the-palisades-fire-trial-verdict-is-about-more-than-just-blame-12125264](https://www.newsweek.com/why-the-palisades-fire-trial-verdict-is-about-more-than-just-blame-12125264)

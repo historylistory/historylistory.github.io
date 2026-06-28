@@ -476,3 +476,18 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://www.youtube.com/watch?v=8ETW_nTcJyo](https://www.youtube.com/watch?v=8ETW_nTcJyo)
 
+2026-06-26 Epstein billionaire business associate Leon Black was subpoenaed shortly after he walked out of an oversight committee hearing and refused to answer questions.
+
+[https://www.youtube.com/watch?v=aqsHy3pBiMk](https://www.youtube.com/watch?v=aqsHy3pBiMk)
+
+[https://apnews.com/article/epstein-investor-leon-black-payments-house-deposition-2d369605ab3ea8d81d716f6c8e68b356](https://apnews.com/article/epstein-investor-leon-black-payments-house-deposition-2d369605ab3ea8d81d716f6c8e68b356)
+
+[https://www.youtube.com/watch?v=Dr5glL205ig&list=WL&index=5&t=12s](https://www.youtube.com/watch?v=Dr5glL205ig&list=WL&index=5&t=12s)
+
+2026-06-26 A judge ordered release of unredacted Epstein files. 
+
+[https://www.youtube.com/watch?v=EW8TbWqB8-A&list=WL&index=3&t=111s](https://www.youtube.com/watch?v=EW8TbWqB8-A&list=WL&index=3&t=111s)
+
+[https://www.cbsnews.com/news/judge-orders-doj-unredact-more-epstein-files-or-explain-why-blanche/](https://www.cbsnews.com/news/judge-orders-doj-unredact-more-epstein-files-or-explain-why-blanche/)
+
+[https://www.axios.com/2026/06/26/epstein-files-doj-lawsuit-judge-release-unredacted-july-order](https://www.axios.com/2026/06/26/epstein-files-doj-lawsuit-judge-release-unredacted-july-order)
