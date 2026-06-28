@@ -37,7 +37,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 1969-01-01 The Black Panther Party launched its Free Breakfast for Children Program to combat student hunger. 
 
-1982-01-01 Televangelist Jerry Falwell founded Virginia's Liberty Godparent Home as an alternative to abortion. Former residents and commentators later alleged coercion, shame, manipulation, forced birth, and pressured adoptions. 
+1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
 1997-05-07 Alan Dershowitz argued in an article that statutory-rape laws were outdated and that the age of consent should be lowered to 15. Dershowitz later served on Jeffrey Epstein's legal team and got Epstein a plea deal. 
 

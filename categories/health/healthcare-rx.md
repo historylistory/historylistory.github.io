@@ -8,13 +8,13 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2014
 
-2014-01-01 **HIGHLY recommended video in the link below**. The Affordable Care Act was fully implemented. This Act was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans. For context, the Trump administration planned in November 2025 to eliminate Obamacare while Democrats opposed and pushed to extend ACA subsidies.
-
-{% include youtubePlayer.html id="xj7_wMIxHjo" %}
+2014-01-01 The Affordable Care Act was fully implemented. This legislation was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans.
 
 [https://www.nbcnews.com/politics/congress/health-insurance-bills-rise-republicans-seeking-obamcare-alternative-rcna243332](https://www.nbcnews.com/politics/congress/health-insurance-bills-rise-republicans-seeking-obamcare-alternative-rcna243332)
 
 [https://www.statnews.com/2025/11/09/trump-renews-a-republican-battle-cry-repeal-obamacare/](https://www.statnews.com/2025/11/09/trump-renews-a-republican-battle-cry-repeal-obamacare/)
+
+{% include youtubePlayer.html id="xj7_wMIxHjo" %}
 
 ### 2023
 

@@ -8,7 +8,7 @@ permalink: /categories/health/food/
 
 ### 2014
 
-2014-06-24 The GOP repeatedly had hissy fits over Michelle Obama for her efforts to introduce a nutrition program in schools that would introduce fruits and vegetables.
+2014-06-24 The GOP repeatedly attacked Michelle Obama for her efforts to introduce a nutrition program in schools that leaned heavily towards fresh fruits and vegetables.
 
 [https://www.cbsnews.com/news/michelle-obama-fights-gop-attempts-to-weaken-school-nutrition-rules/#:~:text=%22How%20can%20we%20call%20these,lady%20but%20as%20a%20mother.%22](https://www.cbsnews.com/news/michelle-obama-fights-gop-attempts-to-weaken-school-nutrition-rules/)
 

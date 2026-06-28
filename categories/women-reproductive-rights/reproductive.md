@@ -47,7 +47,7 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 ### 1982
 
-1982-01-01 Televangelist Jerry Falwell founded Virginia's Liberty Godparent Home as an alternative to abortion. Former residents and commentators later alleged coercion, shame, manipulation, forced birth, and pressured adoptions. 
+1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
 [https://www.vpm.org/news/2025-08-12/liberty-lost-tj-raphael-maternity-home-family-life-services-adoption](https://www.vpm.org/news/2025-08-12/liberty-lost-tj-raphael-maternity-home-family-life-services-adoption)
 
@@ -59,7 +59,7 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 ### 1994
 
-1994-01-01 Evangelicals pushed a national “purity” movement, but a congressional report showed that 80% of programs contained “false, misleading, or distorted information about reproductive health” and included racist stereotypes and anti-LGBTQ+ language. 
+1994-01-01 Evangelicals pushed a national “purity” movement containing distorted and misleading information, racist stereotypes and anti-LGBTQ+ rhetoric. 
 
 [https://retroreport.org/uncategorized/how-an-abstinence-pledge-in-the-90s-shamed-a-generation-of-evangelicals/](https://retroreport.org/uncategorized/how-an-abstinence-pledge-in-the-90s-shamed-a-generation-of-evangelicals/)
 
@@ -78,13 +78,13 @@ DECEMBER 2004 REPORT [https://spot.colorado.edu/~tooley/HenryWaxman.pdf](https:/
 
 ### 2012
 
-2012-03-01 Remember Rush Limbaugh? During a live recording, he had a message to women asking for birth control. He said, quote, “So, Ms. Fluke and the rest of you **feminazis**, **here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is.** **We want you to post the videos online so we can all watch**”.
+2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.
 
 [https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751](https://www.nbcnews.com/video/limbaughs-message-to-feminazis-44461123751)
 
 ### 2017 
 
-2017-01-03 “Make America Mate Again”
+2017-01-03 News stories circulated around, “Make America Mate Again”.
 
 [https://politicaltheology.com/make-america-mate-again%EF%BF%BC/](https://politicaltheology.com/make-america-mate-again%EF%BF%BC/)
 

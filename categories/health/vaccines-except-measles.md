@@ -12,13 +12,13 @@ Has its own section due to the scope of the topic
 
 ### 2005
 
-2005-01-01 Robert Kennedy published a story for Rolling Stone and Salon called "Deadly Immunity" claiming government health agencies colluded with big pharma to hide the dangers of vaccines.
+2005-01-01 RFK Jr. published, “Deadly Immunity”, claiming government health agencies colluded with big pharma to hide the dangers of vaccines.
 
 [https://www.influencewatch.org/person/robert-f-kennedy-jr/](https://www.influencewatch.org/person/robert-f-kennedy-jr/)
 
 ### 2017
 
-2017-01-11 A journal "Scientific American" published a story about how RFK distorted vaccine science.
+2017-01-11 Scientific American published a story about how RFK distorted vaccine science. 
 
 [https://www.scientificamerican.com/article/how-robert-f-kennedy-jr-distorted-vaccine-science1/](https://www.scientificamerican.com/article/how-robert-f-kennedy-jr-distorted-vaccine-science1/)
 

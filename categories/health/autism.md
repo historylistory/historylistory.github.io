@@ -8,7 +8,7 @@ permalink: /categories/health/autism/
 
 ### 2016
 
-2016-10-26 Parents were following online advice to administer bleach-based pills and injections (particularly a brand Miracle Mineral Solution) to their children to cure autism!!!
+2016-10-26 Parents were told to administer bleach-based pills and injections to autistic children. Look up the brand-name “Miracle Mineral Solution”. 
 
 [https://www.youtube.com/watch?v=GIZsvsufxvw](https://www.youtube.com/watch?v=GIZsvsufxvw)
 

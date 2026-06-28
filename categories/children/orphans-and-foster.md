@@ -26,7 +26,7 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 ### 1982
 
-1982-01-01 Televangelist Jerry Falwell founded Virginia's Liberty Godparent Home as an alternative to abortion. Former residents and commentators later alleged coercion, shame, manipulation, forced birth, and pressured adoptions. 
+1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
 [https://www.vpm.org/news/2025-08-12/liberty-lost-tj-raphael-maternity-home-family-life-services-adoption](https://www.vpm.org/news/2025-08-12/liberty-lost-tj-raphael-maternity-home-family-life-services-adoption)
 
