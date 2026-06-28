@@ -584,3 +584,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-06-23 UN High Commissioner for Human Rights said about atrocities in Sudan, “The imminent offensive against Alade in Sudan risks commission of serious international crimes and deepens the catastrophic impact on an already beleaguered civilian population”. 
 
 2026-06-23 The DOJ charged 455 defendants with healthcare fraud. 
+
+2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 

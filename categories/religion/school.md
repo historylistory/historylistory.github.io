@@ -85,6 +85,21 @@ permalink: /categories/religion/school/
 
 {% include youtubePlayer.html id="EZHGkBxvVnk" %}
 
+2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
+
+[https://www.youtube.com/watch?v=6puVHJgjEuc&list=WL&index=1](https://www.youtube.com/watch?v=6puVHJgjEuc&list=WL&index=1)
+
+[https://www.cnn.com/2026/06/26/us/texas-schools-bible-curriculum-vote](https://www.cnn.com/2026/06/26/us/texas-schools-bible-curriculum-vote)
+
+h[ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-texas-public-school-curriculum-houston-isd-state-board-of-education/](ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-texas-public-school-curriculum-houston-isd-state-board-of-education/)
+
+[https://www.houstonchronicle.com/politics/texas/article/social-studies-overhaul-bible-christianity-22320559.php](https://www.houstonchronicle.com/politics/texas/article/social-studies-overhaul-bible-christianity-22320559.php)
+
+[https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002](https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002)
+
+[https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/](https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/)
+
+
 ### Private Schools
 
 2024-06-03 Billions of taxpayer dollars now fund private religious schools, leaving out religious minorities while digging into public school funding.
@@ -138,3 +153,5 @@ https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-i
 2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
+
+

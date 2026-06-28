@@ -177,3 +177,19 @@ https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-i
 [https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law](https://arktimes.com/arkansas-blog/2026/03/23/arkansas-courts-controversy-with-its-ten-commandments-law)
 
 [https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library](https://www.aclu.org/press-releases/court-permanently-blocks-arkansas-law-requiring-ten-commandments-in-every-public-school-classroom-and-library)
+
+### 2026 June
+
+2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
+
+[https://www.youtube.com/watch?v=6puVHJgjEuc&list=WL&index=1](https://www.youtube.com/watch?v=6puVHJgjEuc&list=WL&index=1)
+
+[https://www.cnn.com/2026/06/26/us/texas-schools-bible-curriculum-vote](https://www.cnn.com/2026/06/26/us/texas-schools-bible-curriculum-vote)
+
+h[ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-texas-public-school-curriculum-houston-isd-state-board-of-education/](ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-texas-public-school-curriculum-houston-isd-state-board-of-education/)
+
+[https://www.houstonchronicle.com/politics/texas/article/social-studies-overhaul-bible-christianity-22320559.php](https://www.houstonchronicle.com/politics/texas/article/social-studies-overhaul-bible-christianity-22320559.php)
+
+[https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002](https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002)
+
+[https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/](https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/)

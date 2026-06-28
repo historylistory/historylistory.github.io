@@ -327,6 +327,18 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 
 [https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)
 
+2026-06-25 JD Vance said at the Nixon library, “If Watergate happened tomorrow, it would be like a 12-hour news story…”.
+
+[https://www.nbcnews.com/politics/politics-news/vance-says-watergate-12-hour-news-story-today-rcna351889](https://www.nbcnews.com/politics/politics-news/vance-says-watergate-12-hour-news-story-today-rcna351889)
+
+[https://www.theguardian.com/us-news/2026/jun/25/jd-vance-watergate-richard-nixon](https://www.theguardian.com/us-news/2026/jun/25/jd-vance-watergate-richard-nixon)
+
+WHOLE CONFERENCE [https://www.youtube.com/watch?v=79A-iWPqsRM](https://www.youtube.com/watch?v=79A-iWPqsRM)
+
+CLIP [https://www.youtube.com/watch?v=3CwbYwvJ4ds](https://www.youtube.com/watch?v=3CwbYwvJ4ds)
+
+SUB WALL [https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html](https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html)
+
 
 
 

@@ -98,3 +98,11 @@ permalink: /categories/crime-defiance/other/
 [https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65](https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65)
 
 [https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants](https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants)
+
+2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
+
+[https://www.npr.org/2026/06/26/nx-s1-5871292/john-bolton-national-security-classified-documents](https://www.npr.org/2026/06/26/nx-s1-5871292/john-bolton-national-security-classified-documents)
+
+[https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/](https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/)
+
+[https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/](https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/)

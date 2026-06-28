@@ -481,6 +481,17 @@ BUSINESS INTEREST: [https://www.npr.org/2025/10/23/nx-s1-5582806/jared-kushner-m
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office#:~:text=Former%20Senior%20Official%20for%20the,it%20produced%20in%20federal%20court](https://democrats-judiciary.house.gov/media-center/press-releases/new-whistleblower-disclosure-suggests-doj-may-have-covered-up-public-safety-harms-caused-by-dismantling-of-hate-crime-prevention-office).
 
+2026-03-13 Jared Kushner allegedly solicited funds for his firm while working as a Mideast envoy.
+
+[https://www.yahoo.com/news/articles/jared-kushner-reportedly-seeks-5b-005742323.html](https://www.yahoo.com/news/articles/jared-kushner-reportedly-seeks-5b-005742323.html)
+
+[https://truthout.org/articles/house-judiciary-investigating-jared-kushners-investments-from-saudi-arabia/](https://truthout.org/articles/house-judiciary-investigating-jared-kushners-investments-from-saudi-arabia/)
+
+[https://www.theguardian.com/commentisfree/2026/apr/04/jared-kushner-middle-east-peace-deal](https://www.theguardian.com/commentisfree/2026/apr/04/jared-kushner-middle-east-peace-deal)
+
+SUB WALL [https://www.nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.html](https://www.nytimes.com/2026/03/13/business/jared-kushner-affinity-mideast-funds.html)
+
+
 2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison. 
 
 [https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)

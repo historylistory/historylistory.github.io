@@ -223,6 +223,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-03-09 Lindsey Graham said the Iran war would make the U.S. “a ton of money.”
 
+2026-03-13 Jared Kushner allegedly solicited funds for his firm while working as a Mideast envoy.
+
 2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison.
 
 2026-03-25 House Republican leaders blocked an effort to subpoena Donald Trump Jr. regarding investments his venture capital firm made to a rare earth minerals company and a Pentagon-backed $620 million loan.

@@ -558,3 +558,11 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://spectrumlocalnews.com/us/snplus/politics/2026/06/05/pam-bondi-todd-blanche-epstein-files-investigation-house-oversight-committee-](https://spectrumlocalnews.com/us/snplus/politics/2026/06/05/pam-bondi-todd-blanche-epstein-files-investigation-house-oversight-committee-)
 
 [https://abcnews.com/Politics/bondi-invoked-privilege-declined-answer-questions-interactions-trump/story?id=133598250](https://abcnews.com/Politics/bondi-invoked-privilege-declined-answer-questions-interactions-trump/story?id=133598250)
+
+2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
+
+[https://www.npr.org/2026/06/26/nx-s1-5871292/john-bolton-national-security-classified-documents](https://www.npr.org/2026/06/26/nx-s1-5871292/john-bolton-national-security-classified-documents)
+
+[https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/](https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/)
+
+[https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/](https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/)

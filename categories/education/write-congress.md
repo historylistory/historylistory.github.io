@@ -256,3 +256,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-05-26 NASA announced plans to build a moon base.
 
 2026-06-16 Trump administration moved two high-profile functions out of the Department of Education: Civil Rights Education will now be under the Department of Justice, and Special Education will now be under the Department of Health and Human Services.
+
+2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 

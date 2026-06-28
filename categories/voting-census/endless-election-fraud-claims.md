@@ -287,3 +287,11 @@ OTHER SHADY BUSINESS
 [https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier](https://www.ms.now/opinion/tina-peters-colorado-polis-clemency-election-denier)
 
 [https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)
+
+### 2026 June
+
+2026-06-24 Trump publicly admitted he asked a prosecutor to launch an election fraud investigation in California without any actual evidence.
+
+[https://www.politico.com/news/2026/06/23/trump-california-election-probe-do-me-a-favor-00972919](https://www.politico.com/news/2026/06/23/trump-california-election-probe-do-me-a-favor-00972919)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-privately-pressed-prosecutor-elections-conspiracy-theory](https://www.ms.now/rachel-maddow-show/maddowblog/trump-privately-pressed-prosecutor-elections-conspiracy-theory)
