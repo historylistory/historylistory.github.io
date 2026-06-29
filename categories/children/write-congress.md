@@ -137,6 +137,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-09-03 PragerU installed an AI-generated John Adams exhibit for children featuring the phrase "Facts do not care about your feelings.” 
 
+2025-09-03 Florida pushed its vaccine bans on schoolchildren. 
+
 2025-09-08 Trump paused funding for special-education programs and teacher-training initiatives, giving affected organizations one week to appeal. The U.S. Department of Education said, quote, that this department is “inconsistent with, and no longer effectuates, the best interests of the federal government”. 
 
 2025-09-08 As outlined on page 299 of Project 2025, the administration cut SNAP, school food programs, energy and internet assistance, and funding to the Nutrition Education and Obesity Prevention Grant Program (SNAP-ED).
@@ -161,7 +163,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-09-20 The USDA stopped tracking food insecurity and terminated the annual Household Food Security Report. 
 
-2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
+2025-09-22 Trump claimed without evidence Tylenol was bad for pregnant women, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
 
 2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
 

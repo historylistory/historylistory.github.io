@@ -350,23 +350,23 @@ The ban was supported by **ADF International legal communications director Elyss
 
 ### 2025 September
 
-2025-09-10 During an interview with Lila Rose in September 2025, **Emma Waters of the Heritage Foundation (a religious organization which contributed to and pushed Project 2025)** addressed her pro-life views on IVF. During the interview she even brought up a correlation between IVF and **birthright citizenship** if contracted out. In the video, which can be found on Live Action on YouTube, she starts talking about foreign nationals around 22 minutes in, but I’d recommend watching the 45-minute video in its entirety. 
+2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
 {% include youtubePlayer.html id="BMTSGFzr4OE" %}
 
-2025-09-10 In effort **to ensure safety for both patients and providers**, California considered a law to omit names from abortion pill bottles.
+2025-09-10 In an effort to ensure safety for both patients and providers, California considered a law to omit names from abortion pill bottles.
 
 [https://www.npr.org/sections/shots-health-news/2025/09/10/nx-s1-5535877/california-shield-law-abortion-prescription-label](https://www.npr.org/sections/shots-health-news/2025/09/10/nx-s1-5535877/california-shield-law-abortion-prescription-label)
 
 [https://ktla.com/news/california/california-bill-shielding-patients-names-from-abortion-pill-bottles-reaches-newsoms-desk/](https://ktla.com/news/california/california-bill-shielding-patients-names-from-abortion-pill-bottles-reaches-newsoms-desk/)
 
-2025-09-12 Medicaid ended for Planned Parenthood, as pro-life advocates claimed they were being forced to fund what they call the "**abortion industry**".
+2025-09-12 Medicaid ended for Planned Parenthood, as pro-life advocates claimed they were being forced to fund what they call the “abortion industry”.
 
 [https://www.cbsnews.com/news/planned-parenthood-medicaid-funding-blocked-for-now-appeals-court/](https://www.cbsnews.com/news/planned-parenthood-medicaid-funding-blocked-for-now-appeals-court/)
 
-2025-09-26 Fox News reported that Planned Parenthood may have to pay back $1.8B in funding. Their headline read "appeals court hears Medicaid fraud case that could cost Planned Parenthood $1.8 billion”.
+2025-09-26 A Fox  headline read, “appeals court hears Medicaid fraud case that could cost Planned Parenthood $1.8 billion”.
 
 [https://www.foxnews.com/politics/appeals-court-hears-high-stakes-case-planned-parenthood-medicaid-funds](https://www.foxnews.com/politics/appeals-court-hears-high-stakes-case-planned-parenthood-medicaid-funds)
 

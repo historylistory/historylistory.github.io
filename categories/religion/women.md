@@ -45,7 +45,7 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 
 ### 2025 September
 
-2025-09-10 During an interview with Lila Rose in September 2025, **Emma Waters of the Heritage Foundation (a religious organization which contributed to and pushed Project 2025)** addressed her pro-life views on IVF. During the interview she even brought up a correlation between IVF and **birthright citizenship** if contracted out. In the video, which can be found on Live Action on YouTube, she starts talking about foreign nationals around 22 minutes in, but I’d recommend watching the 45-minute video in its entirety. 
+2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 

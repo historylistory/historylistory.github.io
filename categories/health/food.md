@@ -60,7 +60,7 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 ### 2025 July 
 
-2025-07-01 Protein was the new trend and food companies were aggressively adding protein to their products – even coffee!
+2025-07-01 Protein was the new diet trend after RFK released his upside-down food pyramid. Protein was added to everything marketable, even coffee. 
 
 [https://www.usatoday.com/story/money/food/2026/01/13/high-protein-menu-options-retailers-restaurants/88082566007/](https://www.usatoday.com/story/money/food/2026/01/13/high-protein-menu-options-retailers-restaurants/88082566007/)
 

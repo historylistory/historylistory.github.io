@@ -25,7 +25,7 @@ permalink: /categories/health/pseudoscience/
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
 
-2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
+2025-09-22 Trump claimed without evidence Tylenol was bad for pregnant women, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
 
 [https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
 

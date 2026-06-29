@@ -16,6 +16,20 @@ permalink: /categories/health/research-treatment/
 
 [https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites](https://www.npr.org/sections/shots-health-news/2025/01/31/nx-s1-5282274/trump-administration-purges-health-websites)
 
+### 2025 February
+
+2025-02-03 Congress passed the bipartisan Give Kids a Chance Act to speed development of pediatric cancer drug combinations. 
+
+[https://www.childrenscancercause.org/give-kids-a-chance-act?gad_source=1&gad_campaignid=1025228780&gbraid=0AAAAADHhkyJ1Fo4YzLHm0J7xb6cfjtjSH&gclid=Cj0KCQiAqeDMBhDcARIsAJEbU9R2dGDht0HFfXuyiT--1vTSMYiB4U31GMBsZcfHBFuxt9pPrj_VvD0aAsFGEALw_wcB](https://www.childrenscancercause.org/give-kids-a-chance-act?gad_source=1&gad_campaignid=1025228780&gbraid=0AAAAADHhkyJ1Fo4YzLHm0J7xb6cfjtjSH&gclid=Cj0KCQiAqeDMBhDcARIsAJEbU9R2dGDht0HFfXuyiT--1vTSMYiB4U31GMBsZcfHBFuxt9pPrj_VvD0aAsFGEALw_wcB)
+
+[https://www.congress.gov/bill/118th-congress/house-bill/3433#:~:text=Give%20Kids%20a%20Chance%20Act%20of%202023,development%20of%20pediatric%20cancer%20drugs](https://www.congress.gov/bill/118th-congress/house-bill/3433).
+
+[https://www.facebook.com/watch/?v=1699227697408915](https://www.facebook.com/watch/?v=1699227697408915)
+
+[https://www.facebook.com/watch/?v=656096720871687](https://www.facebook.com/watch/?v=656096720871687)
+
+
+
 ### 2025 March
 
 2025-03-26 The Trump administration cut COVID research grants, particularly any documents that mentioned gender identity, DEI, or environmental justice.
@@ -64,17 +78,28 @@ permalink: /categories/health/research-treatment/
 
 ### 2025 September
 
-2025-09-01 The Division of Cancer Prevention and Control was eliminated. Programs for diabetes, heart and stroke prevention, research into long-COVID, Alzheimer's and aging, Inflammatory Bowel Disease, mental health & addiction, childhood chronic disease, and general chronic disease prevention were listed for elimination along with it.
+2025-09-01 The Division of Cancer Prevention and Control was eliminated. Programs for diabetes, heart and stroke prevention, research into long-COVID, Alzheimer’s and aging, Inflammatory Bowel Disease, mental health & addiction, childhood chronic disease, and general chronic disease prevention were eliminated along with it.
 
 [https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control](https://lymphoma.org/news/statement-of-the-cancer-leadership-council-on-elimination-of-the-cdc-division-of-cancer-prevention-and-control)
 
 [https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division](https://preventcancer.org/news/concern-proposed-elimination-cancer-prevention-division)
 
-2025-09-17 A bipartisan legislation entitled "Give Kids a Chance Act" was passed despite opposition from some in the pharmaceutical industry. This bill is designed to accelerate the development of new drug combinations for pediatric cancer patients and was introduced by Democrat Senator Bennet and Republican Senator Mullin, proving that we CAN work together despite recent efforts of the Trump administration to instigate civil dispute.
+### 2025 October
 
-[https://www.facebook.com/watch/?v=1699227697408915](https://www.facebook.com/watch/?v=1699227697408915)
+2025-10-02 Republicans planned to allow the American Rescue Plan Act to expire. To learn more about this Act and what to expect next, follow these links here.
 
-[https://www.facebook.com/watch/?v=656096720871687](https://www.facebook.com/watch/?v=656096720871687)
+[https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
+
+[https://www.healthinsurance.org/glossary/american-rescue-plan/](https://www.healthinsurance.org/glossary/american-rescue-plan/)
+
+[https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html](https://www.rwjf.org/en/insights/our-research/2022/05/what-will-happen-to-healthcare-spending-if-the-american-rescue-plan-act-premium-tax-credits-expire.html)
+
+[https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/](https://www.nlc.org/article/2024/07/18/what-to-know-about-the-2024-end-of-year-arpa-obligation-deadline/)
+
+[https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
+
+
+
 
 ### 2026 April
 

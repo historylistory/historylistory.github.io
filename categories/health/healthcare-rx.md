@@ -67,7 +67,7 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2025 July
 
-2025-07-11 The Trump administration made plans to cut funding for Medicaid and Medicare, which also affected rural clinics and family planning programs.
+2025-07-11 The Trump administration cut funding for Medicaid and Medicare, which also affected rural clinics and family planning programs.
 
 [https://www.psychiatryadvisor.com/news/trump-cuts-to-medicaid-threaten-services-that-help-disabled-people/](https://www.psychiatryadvisor.com/news/trump-cuts-to-medicaid-threaten-services-that-help-disabled-people/)
 
@@ -81,7 +81,7 @@ permalink: /categories/health/healthcare-rx/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114870321104131050](https://truthsocial.com/@realDonaldTrump/posts/114870321104131050)
 
-2025-07-22 During a press conference, Trump announced plans to reduce drug prices by illogical, meaningless figures of 1000% and 1500%.
+2025-07-22 Trump claimed drug prices would drop by 1000% and 1500%.
 
 [https://www.c-span.org/clip/white-house-event/user-clip-trump-declares-hell-reduce-drug-prices-down-1000-1500-using-a-certain-talent-he-has-numbers-not-e/5168683](https://www.c-span.org/clip/white-house-event/user-clip-trump-declares-hell-reduce-drug-prices-down-1000-1500-using-a-certain-talent-he-has-numbers-not-e/5168683)
 

@@ -36,10 +36,4 @@ permalink: /categories/health/child-cancer-disease/
 
 [https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/](https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/)
 
-### 2025 September
 
-2025-09-17 A bipartisan legislation entitled "Give Kids a Chance Act" was passed despite opposition from some in the pharmaceutical industry. This bill is designed to accelerate the development of new drug combinations for pediatric cancer patients and was introduced by Democrat Senator Bennet and Republican Senator Mullin, proving that we CAN work together despite recent efforts of the Trump administration to instigate civil dispute.
-
-[https://www.facebook.com/watch/?v=1699227697408915](https://www.facebook.com/watch/?v=1699227697408915)
-
-[https://www.facebook.com/watch/?v=656096720871687](https://www.facebook.com/watch/?v=656096720871687)

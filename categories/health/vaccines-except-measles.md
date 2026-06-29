@@ -59,7 +59,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 ### 2025 September
 
-2025-09-03 Florida banned all vaccine mandates because, as Florida Surgeon General Joseph Lapado put it, "What you put into your body is because of your relationship with your body and your God". News outlets reported that Desantis approved the vaccine removal mandate.
+2025-09-03 Desantis approved a vaccine mandate removal in Florida. Florida’s Surgeon General Joseph Lapado said, “What you put into your body is because of your relationship with your body and your God”.
 
 [https://www.bbc.com/news/articles/cvg0e485wwwo](https://www.bbc.com/news/articles/cvg0e485wwwo)
 
@@ -67,13 +67,13 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 [https://mynews13.com/fl/orlando/health/2025/09/08/desantis-defends-ending-vaccine-mandates](https://mynews13.com/fl/orlando/health/2025/09/08/desantis-defends-ending-vaccine-mandates)
 
-2025-09-03 Florida shared its goal to extend vaccine bans to schoolchildren. For context, reports from August of 2024 showed that routine childhood vaccinations have prevented 508M illnesses, 32M hospitalizations, and 1.129M deaths between 1994 and 2023.
+2025-09-03 Florida pushed its vaccine bans on schoolchildren. 
 
 [https://www.cnn.com/2025/09/03/health/florida-vaccine-mandates](https://www.cnn.com/2025/09/03/health/florida-vaccine-mandates)
 
 [https://www.cdc.gov/mmwr/volumes/73/wr/mm7331a2.htm](https://www.cdc.gov/mmwr/volumes/73/wr/mm7331a2.htm)
 
-2025-09-18 A news article with CNN Health reported a lengthy debate over changing combo vaccine recommendations for children. It also cited that RFK removed 17 sitting members of the vaccine committee and replaced them with his own picks. A quote from the article reads, "the nation's largest trade association for health insurers indicated in a statement this week that any recommendations stemming from the ACIP's meeting would not have an impact on its members' coverage, at least for now".
+2025-09-18 After RFK removed 17 members of the vaccine committee and replaced them with vaccine skeptics, they all debated over changing or reducing vaccine recommendations for children. 
 
 [https://www.cnn.com/2025/09/18/health/cdc-vaccine-panel-acip-mmrv-hepatitis](https://www.cnn.com/2025/09/18/health/cdc-vaccine-panel-acip-mmrv-hepatitis)
 

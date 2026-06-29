@@ -79,6 +79,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 [https://newrepublic.com/post/199933/republican-senator-schmitt-speech-america-belongs-to-us](https://newrepublic.com/post/199933/republican-senator-schmitt-speech-america-belongs-to-us)
 
+2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
+
+[https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
+
+{% include youtubePlayer.html id="BMTSGFzr4OE" %}
+
 2025-09-11 After the Charlie Kirk murder, news outlets begin to uncover some of his racist comments such as “**prowling Blacks**” and “**the great replacement strategy**”.
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)

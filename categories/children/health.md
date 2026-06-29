@@ -47,6 +47,12 @@ permalink: /categories/children/health/
 
 ### 2025 September
 
+2025-09-03 Florida pushed its vaccine bans on schoolchildren. 
+
+[https://www.cnn.com/2025/09/03/health/florida-vaccine-mandates](https://www.cnn.com/2025/09/03/health/florida-vaccine-mandates)
+
+[https://www.cdc.gov/mmwr/volumes/73/wr/mm7331a2.htm](https://www.cdc.gov/mmwr/volumes/73/wr/mm7331a2.htm)
+
 2025-09-09 RFK unveiled his “Make Our Children Healthy Again” initiative, with a sweeping overhaul to policies based on his version of “gold-standard” pseudoscience.
 
 [https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html](https://www.hhs.gov/press-room/maha-commission-report-childhood-disease-strategy.html)
@@ -61,7 +67,7 @@ permalink: /categories/children/health/
 
 [https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/](https://www.childrensbraintumorproject.org/2025/08/29/nytimes_pbtc/)
 
-2025-09-22 Trump suggested during a press conference that pregnant women should avoid Tylenol because of alleged links to autism, without citing supporting evidence. He said, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
+2025-09-22 Trump claimed without evidence Tylenol was bad for pregnant women, “Don’t take Tylenol. There’s no downside. Don’t take it. You’ll be uncomfortable. It won’t be as easy, maybe, but don’t take it. If you’re pregnant, don’t take Tylenol”.
 
 [https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
 
