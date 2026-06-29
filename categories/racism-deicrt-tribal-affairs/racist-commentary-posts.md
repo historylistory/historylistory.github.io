@@ -525,3 +525,20 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 [https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/](https://tiffinohio.net/posts/vivek-ramaswamy-says-a-black-baby-is-safer-on-chicago-streets-than-mothers-womb/)
 
+2026-06-25 During a Faith & Freedom conference Congressman Tom Ember said Somali immigrants who fail to assimilate into American culture should “go the hell back to where they came from”. 
+
+[https://www.inforum.com/news/minnesota/tom-emmer-somali-community-comments-criticism](https://www.inforum.com/news/minnesota/tom-emmer-somali-community-comments-criticism)
+
+[https://www.newstribune.com/news/2026/jun/27/emmer-says-somalis-should-go-the-hell-back-to/](https://www.newstribune.com/news/2026/jun/27/emmer-says-somalis-should-go-the-hell-back-to/)
+
+[https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/](https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/)
+
+[https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2](https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2)
+
+2026-06-26 Visitors at Trump’s Great American State Fair were surprised with a confederate flag hanging by an entrance display. 
+
+[https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4](https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4)
+
+[https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair](https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair)
+
+[https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html](https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html)

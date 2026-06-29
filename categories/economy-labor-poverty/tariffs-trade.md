@@ -368,3 +368,13 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://www.reuters.com/world/china/aluminium-hits-four-year-high-renewed-middle-east-supply-risks-2026-06-01/](https://www.reuters.com/world/china/aluminium-hits-four-year-high-renewed-middle-east-supply-risks-2026-06-01/)
 
 [https://finance.yahoo.com/markets/commodities/articles/aluminum-market-facing-serious-prolonged-150000068.html](https://finance.yahoo.com/markets/commodities/articles/aluminum-market-facing-serious-prolonged-150000068.html)
+
+### 2026 June
+
+2026-06-25 A billion-dollar port in South Carolina was shut down. 
+
+[https://www.youtube.com/watch?v=SctVQ5VkHwM&list=WL&index=3](https://www.youtube.com/watch?v=SctVQ5VkHwM&list=WL&index=3)
+
+[https://scdailygazette.com/2026/06/25/sc-ports-temporarily-halts-leatherman-operations-in-face-of-high-costs-waning-demand/](https://scdailygazette.com/2026/06/25/sc-ports-temporarily-halts-leatherman-operations-in-face-of-high-costs-waning-demand/)
+
+[https://www.freightwaves.com/news/trade-uncertainty-leads-south-carolina-ports-to-temporarily-shut-down-container-terminal](https://www.freightwaves.com/news/trade-uncertainty-leads-south-carolina-ports-to-temporarily-shut-down-container-terminal)

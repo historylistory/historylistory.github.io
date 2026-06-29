@@ -185,6 +185,17 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 [https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s](https://www.youtube.com/watch?v=AKv6W5_OQnc&list=WL&index=7&t=298s)
 
+[https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/](https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/)
+
+[https://www.cbsnews.com/news/amber-thurman-delayed-abortion-georgia/](https://www.cbsnews.com/news/amber-thurman-delayed-abortion-georgia/)
+
+
+### 2023
+
+2023-11-14 Due to anti-abortion laws in Texas Ciji Graham was refused treatment for a severe episode of atrial fibrillation and died. She was pregnant and doctors wouldn’t treat her. 
+
+[https://www.propublica.org/article/north-carolina-abortion-laws-ciji-graham](https://www.propublica.org/article/north-carolina-abortion-laws-ciji-graham)
+
 
 ### 2024 February
 
@@ -247,6 +258,36 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 [https://19thnews.org/2024/09/trump-doubles-down-abortion-execution-babies-debate/](https://19thnews.org/2024/09/trump-doubles-down-abortion-execution-babies-debate/)
 
 [https://www.cnn.com/2024/09/12/health/trump-abortion-after-birth](https://www.cnn.com/2024/09/12/health/trump-abortion-after-birth)
+
+2024-09-16 At least two women in Georgia were refused treatment for a medical condition and died due to anti-abortion laws.
+
+[https://www.propublica.org/people/kavitha-surana](https://www.propublica.org/people/kavitha-surana)
+
+### 2024 October
+
+2024-10-30 Josseli Barnica died in Texas after being told it would be a “crime” to intervene in her miscarriage. 
+
+[https://www.propublica.org/article/josseli-barnica-death-miscarriage-texas-abortion-ban](https://www.propublica.org/article/josseli-barnica-death-miscarriage-texas-abortion-ban)
+
+[https://abc7ny.com/post/texas-woman-dies-after-abortion-care-miscarriage-was-delayed-40-hours-according-propublica-report/15493152/](https://abc7ny.com/post/texas-woman-dies-after-abortion-care-miscarriage-was-delayed-40-hours-according-propublica-report/15493152/)
+
+### 2024 November
+
+2024-11-01 Nevaeh Crain died after she was refused lifesaving treatment due to anti-abortion laws. 
+
+[https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/](https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/)
+
+[https://www.propublica.org/article/nevaeh-crain-death-texas-abortion-ban-emtala](https://www.propublica.org/article/nevaeh-crain-death-texas-abortion-ban-emtala)
+
+
+2024-11-25 Porsha Ngumezi died after being refused a life-saving D&C procedure due to anti-abortion laws. 
+
+[https://www.propublica.org/people/kavitha-surana](https://www.propublica.org/people/kavitha-surana)
+
+[https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/](https://www.houstonpublicmedia.org/articles/news/health-science/healthcare/2026/04/21/549666/tmb-disciplines-doctors-ngumezi-crain-cases/)
+
+
+
 
 ### 2025 January
 
@@ -458,3 +499,14 @@ GREAT VIDEO [https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5](https:
 [https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh](https://www.msn.com/en-us/news/politics/fox-news-host-jesse-watters-slammed-for-making-beyond-foul-suggestion-for-blacks/ar-AA23hffh)
 
 [https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s](https://www.youtube.com/watch?v=tXhT-kzwVhY&list=WL&index=6&t=12s)
+
+### 2026 June
+
+2026-06-22 Texas resident Lynn Callaway was denied critical medical care during a miscarriage due to anti-abortion laws. 
+
+[https://www.youtube.com/watch?v=pvJrDWrnWc0&list=WL&index=5&t=193s](https://www.youtube.com/watch?v=pvJrDWrnWc0&list=WL&index=5&t=193s)
+
+[https://www.texastribune.org/2026/06/22/texas-miscarriage-abortion-ban-hospital-complaint/](https://www.texastribune.org/2026/06/22/texas-miscarriage-abortion-ban-hospital-complaint/)
+
+[https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/](https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/)
+

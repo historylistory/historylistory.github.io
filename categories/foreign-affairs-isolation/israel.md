@@ -270,6 +270,16 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
 
+2026-06-12 U.S. evangelical Christian and Jewish groups are trying to build a temple at an Al-Aqsa compound in Jerusalem out of an ideological belief that it is an important milestone for the return of Jesus Christ. 
+
+[https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6](https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6)
+
+[https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747](https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747)
+
+[https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque](https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque)
+
+[https://www.bbc.com/news/articles/cwy0nlv90jno](https://www.bbc.com/news/articles/cwy0nlv90jno)
+
 2026-06-15 Iran said the Memorandum of Understanding deal requires Israel to withdraw from Lebanon. 
 
 [https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/](https://abc7ny.com/post/iran-says-deal-end-war-us-requires-israel-withdraw-lebanon/19308174/)

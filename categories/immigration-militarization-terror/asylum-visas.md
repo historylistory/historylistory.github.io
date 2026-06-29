@@ -251,3 +251,9 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 [https://www.pbs.org/newshour/politics/foreigners-in-u-s-must-apply-for-green-cards-abroad-new-trump-administration-rule-says](https://www.pbs.org/newshour/politics/foreigners-in-u-s-must-apply-for-green-cards-abroad-new-trump-administration-rule-says)
 
+### 2026 June
+
+2026-06-26 SCOTUS ruled “metering” as legal, meaning they can legally turn back those seeking refuge.
+
+[https://www.youtube.com/watch?v=MNi0gW843T8&list=WL&index=1](https://www.youtube.com/watch?v=MNi0gW843T8&list=WL&index=1)
+

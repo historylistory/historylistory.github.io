@@ -161,3 +161,14 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
 
+### 2026 June
+
+2026-06-12 U.S. evangelical Christian and Jewish groups are trying to build a temple at an Al-Aqsa compound in Jerusalem out of an ideological belief that it is an important milestone for the return of Jesus Christ. 
+
+[https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6](https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6)
+
+[https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747](https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747)
+
+[https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque](https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque)
+
+[https://www.bbc.com/news/articles/cwy0nlv90jno](https://www.bbc.com/news/articles/cwy0nlv90jno)

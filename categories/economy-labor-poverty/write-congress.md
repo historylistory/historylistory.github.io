@@ -847,3 +847,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-06-23 Trump signed an executive order calling for a  quantum computer. 
 
 2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.
+
+2026-06-25 A billion-dollar port in South Carolina was shut down. 
+

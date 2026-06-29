@@ -114,3 +114,13 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 [https://www.espn.com/soccer/story/_/id/49016259/us-official-somalia-omar-artan-suspected-terror-ties](https://www.espn.com/soccer/story/_/id/49016259/us-official-somalia-omar-artan-suspected-terror-ties)
 
 [https://www.npr.org/2026/06/10/nx-s1-5853075/somali-world-cup-referee-denied-u-s-entry-hailed-as-hero-at-home](https://www.npr.org/2026/06/10/nx-s1-5853075/somali-world-cup-referee-denied-u-s-entry-hailed-as-hero-at-home)
+
+2026-06-25 During a Faith & Freedom conference Congressman Tom Ember said Somali immigrants who fail to assimilate into American culture should “go the hell back to where they came from”. 
+
+[https://www.inforum.com/news/minnesota/tom-emmer-somali-community-comments-criticism](https://www.inforum.com/news/minnesota/tom-emmer-somali-community-comments-criticism)
+
+[https://www.newstribune.com/news/2026/jun/27/emmer-says-somalis-should-go-the-hell-back-to/](https://www.newstribune.com/news/2026/jun/27/emmer-says-somalis-should-go-the-hell-back-to/)
+
+[https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/](https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/)
+
+[https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2](https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2)

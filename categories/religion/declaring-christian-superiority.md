@@ -137,6 +137,17 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 [https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list](https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list)
 
+2026-06-12 U.S. evangelical Christian and Jewish groups are trying to build a temple at an Al-Aqsa compound in Jerusalem out of an ideological belief that it is an important milestone for the return of Jesus Christ. 
+
+[https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6](https://www.youtube.com/watch?v=5qs_RDbl0PQ&list=WL&index=6)
+
+[https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747](https://www.nbcnews.com/world/israel/simmering-tensions-ancient-jerusalem-site-nearing-boil-rcna351747)
+
+[https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque](https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque)
+
+[https://www.bbc.com/news/articles/cwy0nlv90jno](https://www.bbc.com/news/articles/cwy0nlv90jno)
+
+
 2026-06-13 At a Houston Texas GOP convention on Judeo-Christian values, Texas Republicans promoted “Don’t Sharia My Texas” and then quickly rejected Muslim attendees. One attendee said, “Halal food is going to be a giant money maker. It is everywhere that Islam goes. The problem is you eat meat that’s been sacrificed to their fake God…”
 
 [https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/](https://www.texastribune.org/2026/06/15/texas-republican-party-convention-muslims-sharia-law/)

@@ -342,3 +342,11 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s](https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s)
 
 [https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1](https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1)
+
+2026-06-26 Visitors at Trump’s Great American State Fair were surprised with a confederate flag hanging by an entrance display. 
+
+[https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4](https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4)
+
+[https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair](https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair)
+
+[https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html](https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html)
