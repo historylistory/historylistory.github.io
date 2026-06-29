@@ -202,7 +202,7 @@ permalink: /categories/immigration-militarization-terror/asylum-visas/
 
 ### 2026 April
 
-2026-04-21 (context) The U.N. Permanent Forum on indigenous issues this year. One topic on the agenda is the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. In one report, the Trump administration has allegedly made it increasingly difficult for indigenous people to obtain US Visas to attend the UN forum in New York. 
+2026-04-21 The U.N. Permanent Forum presented a topic on the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. The Trump administration allegedly tried to deny visas for indigenous people to attend the forum. 
 
 [https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session](https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session)
 

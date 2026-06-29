@@ -76,16 +76,6 @@ permalink: /categories/health/other/
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
 
-2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, “I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. 
-
-[https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book](https://www.theguardian.com/us-news/2026/apr/16/rfk-jr-road-kill-raccoon-new-book)
-
-[https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/](https://www.usatoday.com/story/life/health-wellness/2026/04/14/rfk-jr-unauthorized-biography-affairs-addiction-health-claims/89587055007/)
-
-[https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history](https://www.vanityfair.com/news/story/rfk-jr-animals-brief-history)
-
-[https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76](https://www.thetimes.com/us/news-today/article/rfk-jr-secret-diaries-scares-me-most-lkgck5x76)
-
 2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine. 
 
 [https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)
@@ -102,7 +92,7 @@ permalink: /categories/health/other/
 
 [https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
 
-2026-04-21 (context) The U.N. Permanent Forum on indigenous issues this year. One topic on the agenda is the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. In one report, the Trump administration has allegedly made it increasingly difficult for indigenous people to obtain US Visas to attend the UN forum in New York. 
+2026-04-21 The U.N. Permanent Forum presented a topic on the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. The Trump administration allegedly tried to deny visas for indigenous people to attend the forum. 
 
 [https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session](https://social.desa.un.org/issues/indigenous-peoples/unpfii/25th-session)
 

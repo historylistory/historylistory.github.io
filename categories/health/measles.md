@@ -26,7 +26,7 @@ permalink: /categories/health/measles/
 
 ### 2026 January
 
-2026-01-29 As the US began to lose its measles elimination status, the CDC under-reported 588 measles cases across 17 states, while other health organizations reported that South Carolina ***alone*** had over 800 cases in January.
+2026-01-29 As the US began to lose its measles elimination status, the CDC under-reported 588 measles cases across 17 states, while other health organizations reported that South Carolina alone had over 800 cases in January.
 
 [https://www.npr.org/2026/01/31/nx-s1-5694681/measles-elimination-status-south-carolina-texas-outbreak](https://www.npr.org/2026/01/31/nx-s1-5694681/measles-elimination-status-south-carolina-texas-outbreak)
 
@@ -42,7 +42,7 @@ permalink: /categories/health/measles/
 
 [https://www.usatoday.com/story/news/nation/2026/02/09/march-for-life-measles-exposure/88587387007/](https://www.usatoday.com/story/news/nation/2026/02/09/march-for-life-measles-exposure/88587387007/)
 
-2026-02-12 Outlets reported the CDC was lagging behind on tracking measles cases.
+2026-02-12 The CDC continued to lag on tracking measles cases. 
 
 [https://www.cnn.com/health/tracking-measles-cases-us-maps-vis](https://www.cnn.com/health/tracking-measles-cases-us-maps-vis)
 
