@@ -276,3 +276,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
 
 2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
+
+2026-06-29 Israel continued strikes in Gaza in designated safe zones including the killing of 13-year-old Eileen Al-Farra and several other children. 

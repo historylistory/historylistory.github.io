@@ -98,3 +98,9 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 
 [https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21](https://apnews.com/article/hamas-executions-maiming-war-israel-f7d63d25c91556ad6c02fd9b76040b21)
 
+2026-06-26 The UN called for prompt and independent investigations into ICE detention centers due to skyrocketing deaths. 
+
+[https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law](https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law)
+
+[https://news.un.org/en/story/2026/06/1167816](https://news.un.org/en/story/2026/06/1167816)
+

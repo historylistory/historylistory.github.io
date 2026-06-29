@@ -1851,3 +1851,11 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/](https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/)
 
 [https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon](https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon)
+
+2026-06-25 The U.S. and Iran continued to trade strikes even after claiming a peace deal was in the making. Iran fired on a Singapore-flagged container ship near the Strait of Hormuz. 
+
+[https://www.aljazeera.com/news/2026/6/26/trump-blames-iran-for-foolish-strike-on-cargo-ship-in-strait-of-hormuz](https://www.aljazeera.com/news/2026/6/26/trump-blames-iran-for-foolish-strike-on-cargo-ship-in-strait-of-hormuz)
+
+2026-06-27 Ro Khanna wrote, “These strikes are a blatant violation of the War Powers Resolution that we passed. Trump must stop this war now – or we will take hm to court to compel him to do so”.
+
+[https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child](https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child)

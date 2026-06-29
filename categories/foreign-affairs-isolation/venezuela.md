@@ -316,3 +316,7 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1](https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1)
 
 [https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes](https://www.aljazeera.com/video/newsfeed/2026/6/25/venezuela-struggles-to-respond-to-devastating-twin-earthquakes)
+
+2026-06-29 Nearly 50,000 people remained missing in Venezuela after the earthquake. 
+
+[https://www.democracynow.org/2026/6/29/headlines/nearly_50_000_remain_missing_in_venezuela_as_earthquake_rescue_efforts_pivot_to_recovery](https://www.democracynow.org/2026/6/29/headlines/nearly_50_000_remain_missing_in_venezuela_as_earthquake_rescue_efforts_pivot_to_recovery)

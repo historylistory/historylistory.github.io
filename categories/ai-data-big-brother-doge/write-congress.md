@@ -277,6 +277,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-12 Elon Musk officially became the first trillionaire. 
 
+2026-06-12 Trump shut down Claude Mythos and Claude Fable.
+
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
 
 2026-06-16 Snap Inc. released SPECS augmented reality glasses. 

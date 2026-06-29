@@ -92,6 +92,15 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 ### 2026 June
 
+2026-06-12 Trump shut down Claude Mythos and Claude Fable.
+
+[https://www.anthropic.com/news/fable-mythos-access](https://www.anthropic.com/news/fable-mythos-access)
+
+[https://www.wired.com/story/anthropic-restores-access-to-mythos/](https://www.wired.com/story/anthropic-restores-access-to-mythos/)
+
+[https://abcnews.com/video/134306741/](https://abcnews.com/video/134306741/)
+
+
 2026-06-18 NVIDIA revealed AI robots that taught themselves to install GPUs.
 
 [https://www.tomshardware.com/tech-industry/artificial-intelligence/nvidia-reveals-ai-robots-that-taught-themselves-to-install-gpus-into-motherboards-video-shows-robot-solve-high-precision-tasks-like-installing-gpus-all-by-itself](https://www.tomshardware.com/tech-industry/artificial-intelligence/nvidia-reveals-ai-robots-that-taught-themselves-to-install-gpus-into-motherboards-video-shows-robot-solve-high-precision-tasks-like-installing-gpus-all-by-itself)

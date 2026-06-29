@@ -246,3 +246,9 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 [https://www.democracynow.org/2026/6/17/headlines/guardian_us_military_strike_in_somalia_killed_12_civilians_including_8_children](https://www.democracynow.org/2026/6/17/headlines/guardian_us_military_strike_in_somalia_killed_12_civilians_including_8_children)
 
 [https://www.theguardian.com/global-development/2026/jun/16/somalia-us-trump-war-alshabaab-islamists-drone-airstrikes-civilian-deaths-children](https://www.theguardian.com/global-development/2026/jun/16/somalia-us-trump-war-alshabaab-islamists-drone-airstrikes-civilian-deaths-children)
+
+2026-06-29 Israel continued strikes in Gaza in designated safe zones including the killing of 13-year-old Eileen Al-Farra and several other children. 
+
+[https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue](https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue)
+
+[https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child](https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child)

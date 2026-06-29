@@ -36,6 +36,12 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 
 [https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests](https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests)
 
+### CoreCivic
+
+2026-06-19 Sixty-three-year-old Felix Alcordo Rodriguez died in ICE custody at a Laredo Texas detention center operated by the for-profit company CoreCivic.
+
+[https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026](https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026)
+
 
 ### Behind Closed Doors
 

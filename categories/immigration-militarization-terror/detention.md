@@ -460,3 +460,13 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.democracynow.org/2026/6/16/headlines/activists_demand_release_of_milwaukee_muslim_leader_salah_sarsour_from_indiana_ice_jail](https://www.democracynow.org/2026/6/16/headlines/activists_demand_release_of_milwaukee_muslim_leader_salah_sarsour_from_indiana_ice_jail)
 
 [https://www.milwaukeeindependent.com/newswire/supporters-rally-outside-indiana-detention-center-milwaukees-salah-sarsour-remains-held-ice/](https://www.milwaukeeindependent.com/newswire/supporters-rally-outside-indiana-detention-center-milwaukees-salah-sarsour-remains-held-ice/)
+
+2026-06-19 Sixty-three-year-old Felix Alcordo Rodriguez died in ICE custody at a Laredo Texas detention center operated by the for-profit company CoreCivic.
+
+[https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026](https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026)
+
+2026-06-26 The UN called for prompt and independent investigations into ICE detention centers due to skyrocketing deaths. 
+
+[https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law](https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law)
+
+[https://news.un.org/en/story/2026/06/1167816](https://news.un.org/en/story/2026/06/1167816)

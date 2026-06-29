@@ -47,3 +47,12 @@ permalink: /categories/foreign-affairs-isolation/board-of-peace/
 [https://www.yahoo.com/news/articles/state-department-sends-1-25b-140048507.html](https://www.yahoo.com/news/articles/state-department-sends-1-25b-140048507.html)
 
 [https://www.federalregister.gov/documents/2026/01/22/2026-01271/designating-the-board-of-peace-as-a-public-international-organization-entitled-to-enjoy-certain](https://www.federalregister.gov/documents/2026/01/22/2026-01271/designating-the-board-of-peace-as-a-public-international-organization-entitled-to-enjoy-certain)
+
+### 2026 June
+
+2026-06-28 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”.
+
+[https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un)
+
+[https://www.jpost.com/middle-east/article-900662](https://www.jpost.com/middle-east/article-900662)
+

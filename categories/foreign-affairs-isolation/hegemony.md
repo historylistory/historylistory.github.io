@@ -82,3 +82,10 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.bbc.com/news/articles/c802e7jk458o](https://www.bbc.com/news/articles/c802e7jk458o)
 
 [https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s](https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s)
+
+
+2026-06-28 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”.
+
+[https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un)
+
+[https://www.jpost.com/middle-east/article-900662](https://www.jpost.com/middle-east/article-900662)

@@ -463,3 +463,16 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.reuters.com/world/britain-wins-appeal-that-palestine-action-ban-was-unlawful-2026-06-15/](https://www.reuters.com/world/britain-wins-appeal-that-palestine-action-ban-was-unlawful-2026-06-15/)
 
 [https://www.cnn.com/2026/06/15/uk/ban-palestine-action-uk-appeal-ruling-intl](https://www.cnn.com/2026/06/15/uk/ban-palestine-action-uk-appeal-ruling-intl)
+
+
+2026-06-28 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”.
+
+[https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un)
+
+[https://www.jpost.com/middle-east/article-900662](https://www.jpost.com/middle-east/article-900662)
+
+2026-06-29 Israel continued strikes in Gaza in designated safe zones including the killing of 13-year-old Eileen Al-Farra and several other children. 
+
+[https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue](https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue)
+
+[https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child](https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child)

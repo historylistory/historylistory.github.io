@@ -26,6 +26,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
+1992-03-08 Kenneth Starr led a witch-hunt against the Clintons in the so-called Whitewater scandal, alleging fraud. 
 
 1994-01-01 Televangelist Jerry Falwell promoted The Clinton Chronicles, a mockumentary accusing Bill Clinton of drug use, affairs, harassment, financial crimes, cover-ups, witness murders, and document destruction. 
 
