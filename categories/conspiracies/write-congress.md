@@ -55,7 +55,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2018-11-01 Marjorie Taylor Greene posted a deleted theory that California wildfires were started by “space solar generators.
 
-2020-04-23 During a COVID press conference, Trump mused about injecting disinfectant as treatment until a reporter told him to stop spreading dangerous misinformation – to which he lashed out at the reporter.
+2020-04-23 During a COVID press conference, Trump mused over injecting disinfectant as treatment. When a reporter told Trump to stop spreading dangerous misinformation Trump lashed out.
 
 2020-06-02 Since 2020, Republicans have repeatedly claimed George Soros funds left-wing protests or chaos.
 
@@ -63,7 +63,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2020-10-13 After Trump boosted a QAnon-linked Bin Laden conspiracy, a Navy SEAL from the raid publicly refuted the claim. 
 
-2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book – Thirty-Give Secrets the Government and the Media Aren’t Telling You, promoting claims that the government and media hide vaccine information.
+2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
 2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
 

@@ -8,7 +8,7 @@ permalink: /categories/health/covid/
 
 ### 2020 March
 
-2020-03-24 During a press conference Trump falsely claimed that COVID would “disappear” by Easter. 
+2020-03-24 Trump falsely claimed that COVID would “disappear” by Easter.
 
 [https://www.bbc.com/news/world-us-canada-52029546](https://www.bbc.com/news/world-us-canada-52029546)
 
@@ -24,7 +24,7 @@ permalink: /categories/health/covid/
 [https://www.youtube.com/watch?v=uXxuUJJz4VE](https://www.youtube.com/watch?v=uXxuUJJz4VE)
 {% include youtubePlayer.html id="uXxuUJJz4VE" %}
 
-2020-03-27 Trump signed in a $2.2T stimulus bill called the CARES Act. 
+2020-03-27 Trump signed a $2.2T stimulus bill called the CARES Act.
 
 [https://home.treasury.gov/policy-issues/coronavirus/about-the-cares-act](https://home.treasury.gov/policy-issues/coronavirus/about-the-cares-act)
 
@@ -41,7 +41,7 @@ permalink: /categories/health/covid/
 [https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
 
 
-2020-04-23 During a COVID press conference, Trump mused about injecting disinfectant as treatment until a reporter told him to stop spreading dangerous misinformation – to which he lashed out at the reporter.
+2020-04-23 During a COVID press conference, Trump mused over injecting disinfectant as treatment. When a reporter told Trump to stop spreading dangerous misinformation Trump lashed out.
 
 [https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399](https://www.politico.com/news/2021/04/23/trump-bleach-one-year-484399)
 
@@ -51,7 +51,7 @@ permalink: /categories/health/covid/
 
 ### 2020 November
 
-2020-11-20 Jay Bhattacharya was one of the authors of the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed. In 2026 he was the acting CDC director and blocked COVID vaccination reports. 
+2020-11-20 Jay Bhattacharya authored the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed. In 2026 he was the acting CDC director who blocked COVID vaccination reports.
 
 [https://en.wikipedia.org/wiki/Great_Barrington_Declaration](https://en.wikipedia.org/wiki/Great_Barrington_Declaration)
 
@@ -64,12 +64,11 @@ permalink: /categories/health/covid/
 
 ### 2021
 
-2021-05-20 A civil rights group sued Trump for referring to COVID as "**Chinese Virus**", "**China Virus**", "**Wuhan Virus**", and "**Kung Flu Virus**". Former White House Press Secretary Ari Fleischer tweeted out in frustration "Wait a minute…After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it."
-
-{% include youtubePlayer.html id="dl78PQGJpiI" %}
+2021-05-20 A civil rights group sued Trump for referring to COVID as “Chinese Virus”, “China Virus”, “Wuhan Virus”, and “Kung Flu Virus”. Former White House Press Secretary Ari Fleischer posted,  “Wait a minute… After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it.”
 
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
+{% include youtubePlayer.html id="dl78PQGJpiI" %}
 
 2021-06-01 Some vaccine skeptics promoted ivermectin (horse dewormer) as a COVID treatment, later citing Merck’s Pentagon oral-treatment deal as supposed proof. 
 
@@ -84,11 +83,11 @@ permalink: /categories/health/covid/
 MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s-government-for-molnupiravir-an-investigational-oral-antiviral-candidate-for-treatment-of-mild-to-moderate-covid-19/](https://www.merck.com/news/merck-announces-supply-agreement-with-u-s-government-for-molnupiravir-an-investigational-oral-antiviral-candidate-for-treatment-of-mild-to-moderate-covid-19/)
 
 
-2021-08-22 During a Fresno campaign stop, Larry Elder told the crowd he would repeal COVID-19 vaccines and mask mandates.
+2021-08-22 Larry Elder told the crowd at a campaign stop in Fresno he would repeal COVID-19 vaccines and mask mandates.
 
 [https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html](https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html)
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking is all about control and the worst thing about masking was kids not being able to see other children’s faces. He further asserted that children would see other children as "vectors of disease".
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery, attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
 
 {% include youtubePlayer.html id="PMq1ZEcyztY" %}
 

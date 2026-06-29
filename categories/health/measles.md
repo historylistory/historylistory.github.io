@@ -8,7 +8,7 @@ permalink: /categories/health/measles/
 
 ### 2021
 
-2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book – Thirty-Give Secrets the Government and the Media Aren’t Telling You, promoting claims that the government and media hide vaccine information.
+2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
 [https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/](https://childrenshealthdefense.org/ebook-sign-up/the-measles-book/)
 

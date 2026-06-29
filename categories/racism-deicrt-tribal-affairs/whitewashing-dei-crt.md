@@ -36,7 +36,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2021 September
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance said, “we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws”, claimed teachers weren’t teaching “true civics”, attacked CRT, called “wokeism” assimilation, and proclaimed conservatism was a “counter-revolutionary force”. 
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery, attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
 
 {% include youtubePlayer.html id="PMq1ZEcyztY" %}
 

@@ -58,7 +58,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory, so Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division in January 2025.
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance said, “we have to stop this nonstop assault on American history…making everyone think we should judge people by their worst flaws”, claimed teachers weren’t teaching “true civics”, attacked CRT, called “wokeism” assimilation, and proclaimed conservatism was a “counter-revolutionary force”. 
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery, attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
 
 2021-10-03 JD Vance suggested using funds as leverage to strongarm universities, “…hundreds of billions of dollars that we send to them (meaning universities) as leverage, and say ‘unless you stop indoctrinating our children, unless you stop indoctrinating our entire society, you don’t get another dime of our money”. 
 

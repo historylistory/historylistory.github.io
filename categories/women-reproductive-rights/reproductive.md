@@ -125,13 +125,13 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2021
 
-2021-07-24 During "The Future of American Political Economy" conference in Alexandria Virginia, JD Vance asserted that **non-parents should not vote**. 
+2021-07-24 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote.
 
 [https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html](https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html)
 
 [https://isi.org/j-d-vance-on-our-civilizational-crisis/](https://isi.org/j-d-vance-on-our-civilizational-crisis/)
 
-2021-07-29 That same month JD Vance’s "childless cat ladies" remarks made headlines.
+2021-07-29 JD Vance’s redundant “childless cat ladies” remarks made headlines.
 
 [https://www.foxnews.com/video/6265796735001](https://www.foxnews.com/video/6265796735001)
 
