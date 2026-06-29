@@ -87,7 +87,7 @@ permalink: /categories/health/healthcare-rx/
 
 ### 2025 October
 
-2025-10-02 Republicans planned to allow the American Rescue Plan Act to expire. To learn more about this Act and what to expect next, follow these links here.
+2025-10-02 Republicans allowed the American Rescue Plan Act to expire. 
 
 [https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
 
@@ -99,7 +99,7 @@ permalink: /categories/health/healthcare-rx/
 
 [https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
 
-2025-10-03 At a press briefing, House Minority Leader Hakeem Jeffries (D-NY) accused Republicans and President Trump of shutting down the government to try to cut healthcare for Americans.
+2025-10-03 House Minority Leader Hakeem Jeffries accused Republicans and Trump of using the government shutdown to cut healthcare.
 
 {% include youtubePlayer.html id="1dQ6_X2z-DA" %}
 

@@ -372,9 +372,7 @@ The ban was supported by **ADF International legal communications director Elyss
 
 ### 2025 November
 
-2025-11-18 Anti-abortion bill SB323 Unborn Child Protection Act was presented on the Senate floor which aimed to make abortions a **felony homicide carrying a 30-year prison sentence.** 
-
-It would also make it a felony to give someone information about where to get an abortion, remove exceptions for rape, incest, and fatal fetal abnormalities, and would reclassify any birth control including pills, IUD implants and IVF illegal .
+2025-11-18 Anti-abortion bill SB323 Unborn Child Protection Act was presented on the Senate floor which aims to make abortions a felony homicide carrying a 30-year prison sentence, make it a felony to share information where to get an abortion, remove exceptions for rape, incest and fatal fetal abnormalities, and reclassify birth control pills, IUDs and IVF illegal. 
 
 [https://www.aclusc.org/legislation/total-abortion-ban-s-323/](https://www.aclusc.org/legislation/total-abortion-ban-s-323/)
 

@@ -389,9 +389,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115772922954148853](https://truthsocial.com/@realDonaldTrump/posts/115772922954148853)
 
-2025-12-30 Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
-
-{% include youtubePlayer.html id="-JtgxH6hpuU" %}
+2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
 
 [https://en.wikipedia.org/wiki/Tina_Peters_(politician)](https://en.wikipedia.org/wiki/Tina_Peters_(politician))
 
@@ -400,6 +398,9 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 [https://www.pbs.org/newshour/show/trumps-attempt-to-pardon-tina-peters-runs-into-constitutional-limits](https://www.pbs.org/newshour/show/trumps-attempt-to-pardon-tina-peters-runs-into-constitutional-limits)
 
 [https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html](https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html)
+
+{% include youtubePlayer.html id="-JtgxH6hpuU" %}
+
 
 ### 2026 January
 

@@ -86,7 +86,7 @@ permalink: /categories/health/research-treatment/
 
 ### 2025 October
 
-2025-10-02 Republicans planned to allow the American Rescue Plan Act to expire. To learn more about this Act and what to expect next, follow these links here.
+2025-10-02 Republicans allowed the American Rescue Plan Act to expire. 
 
 [https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/](https://www.kff.org/affordable-care-act/how-the-american-rescue-plan-act-affects-subsidies-for-marketplace-shoppers-and-people-who-are-uninsured/)
 

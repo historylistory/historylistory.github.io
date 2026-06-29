@@ -38,6 +38,16 @@ permalink: /categories/health/world-health/
 
 [https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/](https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/)
 
+### 2025 November
+
+2025-11-27 The State Department directed its employees and grant-recipients to not commemorate World Aids Day.
+
+[https://www.theguardian.com/us-news/2025/nov/27/world-aids-day](https://www.theguardian.com/us-news/2025/nov/27/world-aids-day)
+
+[https://www.eatg.org/hiv-news/tets/](https://www.eatg.org/hiv-news/tets/)
+
+[https://www.forbes.com/sites/davewessner/2025/12/01/on-this-world-aids-day-the-us-declines-to-participate/](https://www.forbes.com/sites/davewessner/2025/12/01/on-this-world-aids-day-the-us-declines-to-participate/)
+
 ### 2026 January
 
 2026-01-21 In a study, Trump’s decision to block USAID resulted in hundreds of thousands of deaths from infectious diseases and malnutrition.

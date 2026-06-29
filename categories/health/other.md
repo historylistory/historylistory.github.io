@@ -40,7 +40,7 @@ permalink: /categories/health/other/
 
 ### 2025 November
 
-2025-11-27 The Trump administration announced it will no longer commemorate World Aids Day. The State Department directed its employees and grant recipients not to promote the event.
+2025-11-27 The State Department directed its employees and grant-recipients to not commemorate World Aids Day.
 
 [https://www.theguardian.com/us-news/2025/nov/27/world-aids-day](https://www.theguardian.com/us-news/2025/nov/27/world-aids-day)
 

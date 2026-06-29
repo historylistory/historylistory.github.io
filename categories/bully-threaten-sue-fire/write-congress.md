@@ -392,7 +392,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-12-25 Trump made more than 100 Christmas Day posts, including calls to revoke broadcast licenses from critical news outlets. 
 
-2025-12-30 Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado, allegedly in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
+2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
 
 2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 

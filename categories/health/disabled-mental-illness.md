@@ -42,23 +42,10 @@ permalink: /categories/health/disabled-mental-illness/
 
 [https://abcnews.go.com/US/trump-administration-pauses-6b-education-programs-ahead-school/story?id=123403964](https://abcnews.go.com/US/trump-administration-pauses-6b-education-programs-ahead-school/story?id=123403964)
 
-### 2025 November
-
-2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
-
-[https://truthsocial.com/@realDonaldTrump/posts/115625429081411360](https://truthsocial.com/@realDonaldTrump/posts/115625429081411360)
 
 ### 2025 December
 
-2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
-
-[https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/#:~:text=Tim%20Walz%20says%20people%20are,while%20driving%20by%20his%20house](https://www.washingtonexaminer.com/news/3907925/tim-walz-says-people-are-using-r-word-while-driving-by-his-house/)
-
-[https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-.pdf](https://www.montclair.edu/college-of-communication-and-media/wp-content/uploads/sites/20/2025/12/Trump-R-Word-Spike-on-X-.pdf)
-
-[https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/](https://dailymontanan.com/2025/12/06/the-unfortunate-resurrection-of-the-r-word/)
-
-2025-12-11 The White House claimed Calibri font—which helps people with reading difficulties, including dyslexia and low vision—was too "woke" and replaced it with Times New Roman.
+2025-12-11 The White House said Calibri font (which is intended to assist people with dyslexia and low vision) was too woke and had it replaced with Times New Roman. 
 
 [https://fortune.com/2025/12/11/calibri-is-woke-and-times-new-roman-is-maga-the-culture-wars-come-for-fonts/](https://fortune.com/2025/12/11/calibri-is-woke-and-times-new-roman-is-maga-the-culture-wars-come-for-fonts/)
 
