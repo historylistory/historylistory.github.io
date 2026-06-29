@@ -8,15 +8,16 @@ permalink: /categories/health/pseudoscience/
 
 ### 2025 May
 
-2025-05-30 In a letter from James Comer of Kentucky to RFK, Comer outlined how **MAHA cited several nonexistent and misinterpreted studies** to support their claims. In the letter Comer demanded information about the process MAHA was using to draft their reports.
-
-{% include youtubePlayer.html id="BDhtReb0eVk" %}
+2025-05-30 James Comer sent RFK a letter saying MAHA cited several nonexistent and misinterpreted studies to support their claims. In the letter Comer demanded information about the process MAHA was using to draft their reports.
 
 [https://oversightdemocrats.house.gov/sites/evo-subsites/democrats-oversight.house.gov/files/evo-media-document/2025-06-02-lynch-to-hhs-jfk-jt-re-maha-report.pdf](https://oversightdemocrats.house.gov/sites/evo-subsites/democrats-oversight.house.gov/files/evo-media-document/2025-06-02-lynch-to-hhs-jfk-jt-re-maha-report.pdf)
 
 [https://www.science.org/content/article/trump-officials-downplay-fake-citations-high-profile-report-children-s-health](https://www.science.org/content/article/trump-officials-downplay-fake-citations-high-profile-report-children-s-health)
 
 [https://www.notus.org/health-science/make-america-healthy-again-report-citation-errors](https://www.notus.org/health-science/make-america-healthy-again-report-citation-errors)
+
+{% include youtubePlayer.html id="BDhtReb0eVk" %}
+
 
 ### 2025 September
 

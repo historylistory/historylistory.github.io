@@ -93,7 +93,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 ### 2023
 
-2023-04-24 News outlets reported that the Florida Surgeon General **allegedly altered key findings** of a COVID study.
+2023-04-24 The Florida Surgeon General allegedly altered key findings of a COVID study.
 
 [https://www.politico.com/news/2023/04/24/florida-surgeon-general-covid-vaccine-00093510](https://www.politico.com/news/2023/04/24/florida-surgeon-general-covid-vaccine-00093510)
 

@@ -14,7 +14,7 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 
 ### 2025 January
 
-2025-01-20 The Republican Study Committee proposed a budget to raise the retirement age to 69. 
+2025-01-20 The Republican Study Committee proposed raising the retirement age to 69.
 
 [https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits](https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits)
 

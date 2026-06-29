@@ -182,7 +182,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-01-20 Project 2025 Chapter 14 outlines a complete overhaul of the DHHS to include eliminating the Affordable Care Act and encouraging more privatized systems like Medicare Advantage.
 
-2025-01-20 The Republican Study Committee proposed a budget to raise the retirement age to 69.
+2025-01-20 The Republican Study Committee proposed raising the retirement age to 69.
 
 2025-01-20 State government resources outline how the Trump tax cuts will lower taxes for the wealthy while increase taxes for the poor.
 

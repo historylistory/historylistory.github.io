@@ -137,9 +137,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 
-2021-09-22 During a radio interview on Dear Ohio while running for Senate, JD Vance was asked by host Curtis Jackson, *”Should a woman be forced to carry a child to term after she has been the victim of incest or rape?”* 
-
-JD Vance responded, *”Look, my view on this has been very clear, and I think the question betrays a certain presumption that’s wrong. It’s not whether a woman should be forced to bring a child to term, it’s whether a child should be allowed to live, even though the circumstances of that child’s birth are somehow inconvenient or a problem to the society. The question to me is really about the baby. We want women to have opportunities. We want women to have choices, but above all, we want women – and young boys in the womb – to have the right to life”*.
+2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He gave a long-winded “yes”.
 
 [https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/](https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/)
 
@@ -154,7 +152,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2022
 
-2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, argued that abortion wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
+2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
 
 [https://msmagazine.com/2022/07/22/alito-abortion-bans-history-discrimination-women-gender/](https://msmagazine.com/2022/07/22/alito-abortion-bans-history-discrimination-women-gender/)
 
@@ -222,17 +220,17 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2024 June
 
-2024-06-05 In June Republicans blocked a bill designed to protect contraception access.
+2024-06-05 Republicans blocked a bill designed to protect contraception access.
 
 [https://apnews.com/article/contraception-senate-abortion-biden-trump-reproductive-rights-3f9e8546624a3acf8e64d1138fcb84b1](https://apnews.com/article/contraception-senate-abortion-biden-trump-reproductive-rights-3f9e8546624a3acf8e64d1138fcb84b1)
 
-2024-06-11 (Even though) A national poll showed that 4-out-of-5 Americans **support** protection to contraception access.
+2024-06-11 A national poll showed that 4-out-of-5 Americans support protection to contraception access.
 
 [https://navigatorresearch.org/four-in-five-americans-support-legislation-protecting-access-to-contraception/](https://navigatorresearch.org/four-in-five-americans-support-legislation-protecting-access-to-contraception/)
 
 ### 2024 July
 
-2024-07-26 Recall the childless cat-lady remarks from JD Vance in 2021? During an interview with Fox’s Megyn Kelly, JD Vance doubled down on those remarks, saying, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
+2024-07-26 Vance doubled down on his cat lady remarks, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 
@@ -247,7 +245,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2024 September
 
-2024-09-10 During a debate, Trump falsely claimed that Democrats support “after birth” abortions.
+2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
 [https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865](https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865)
 
@@ -291,7 +289,7 @@ JD Vance responded, *”Look, my view on this has been very clear, and I think t
 
 ### 2025 January
 
-2025-01-20 One of the first things the Trump administration removed when Trump came into office were websites offering reproductive health information.
+2025-01-20 The Trump administration removed websites offering reproductive health information.
 
 [https://www.cbsnews.com/news/government-website-offering-reproductive-health-information-goes-offline/](https://www.cbsnews.com/news/government-website-offering-reproductive-health-information-goes-offline/)
 

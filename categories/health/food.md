@@ -26,7 +26,7 @@ permalink: /categories/health/food/
 
 ### 2025 April
 
-2025-04-01 Online resources reported that the FDA suspended a quality control program for raw milk following workforce cuts within the Department of Health and Human Services. For context highlighting the danger of this, 2024 findings concluded that the **bird flu virus was detected in raw milk samples** in late 2024. 
+2025-04-01 The FDA suspended a quality control program for raw milk following workforce cuts within the Department of Health and Human Services. 
 
 [https://www.unmc.edu/healthsecurity/transmission/2025/04/23/us-fda-suspends-milk-quality-tests-amid-workforce-cuts/](https://www.unmc.edu/healthsecurity/transmission/2025/04/23/us-fda-suspends-milk-quality-tests-amid-workforce-cuts/)
 

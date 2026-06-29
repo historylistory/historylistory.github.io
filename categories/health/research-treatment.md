@@ -8,7 +8,7 @@ permalink: /categories/health/research-treatment/
 
 ### 2025 January
 
-2025-01-01 The Trump administration cut $2B in federal grants to NIH, COVID 19 and HIV research studies on misinformation, anything to do with DEI, sickle cell research, Alzheimer’s research. The administration also tried to cut funding to dementia research until an appeal was filed and funds were reversed in April forcing them to reverse a $36M grant to UC Davis.
+2025-01-01 The Trump administration cut $2B in federal grants to NIH, COVID 19 and HIV research studies on misinformation, anything to do with DEI, sickle cell research, and Alzheimer’s research. The administration also tried to cut a $36M grant to UC Davis for dementia research until an appeal was filed and funds were reversed.
 
 [https://calmatters.org/education/higher-education/2025/04/dementia/](https://calmatters.org/education/higher-education/2025/04/dementia/)
 

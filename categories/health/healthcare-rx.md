@@ -34,7 +34,7 @@ permalink: /categories/health/healthcare-rx/
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 
-2025-01-20 Project 2025 Chapter 14 outlines a complete overhaul of the DHHS to include eliminating the Affordable Care Act and **encouraging more privatized systems** like Medicare Advantage.
+2025-01-20 Project 2025 Chapter 14 outlines a complete overhaul of the DHHS to include eliminating the Affordable Care Act and encouraging more privatized systems like Medicare Advantage.
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
 

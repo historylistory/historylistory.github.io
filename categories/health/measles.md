@@ -14,7 +14,7 @@ permalink: /categories/health/measles/
 
 ### 2025 January
 
-2025-01-01 January 2025 marked the beginning of a measles outbreak in Texas after vaccine rates dropped well below the necessary percentage to foster **herd immunity**.
+2025-01-01 Measles vaccine rates dropped, herd immunity was lost, and outbreaks popped up all over Texas. 
 
 [https://www.dshs.texas.gov/news-alerts/measles-outbreak-2025](https://www.dshs.texas.gov/news-alerts/measles-outbreak-2025)
 

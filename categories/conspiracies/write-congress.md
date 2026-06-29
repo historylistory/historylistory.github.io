@@ -111,7 +111,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
-2024-09-10 During a debate, Trump falsely claimed that Democrats support “after birth” abortions.
+2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
 2024-09-10 JD Vance posted on Truth Social “In the last several weeks, my office has received many inquiries from actual residents of Springfield who’ve said their neighbors’ pets or local wildlife were abducted by Haitian migrants. It’s possible, of course, that all of these rumors will turn out to be false”.
 

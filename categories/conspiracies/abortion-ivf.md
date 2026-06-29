@@ -16,7 +16,7 @@ permalink: /categories/conspiracies/abortion-ivf/
 
 ### 2024 September
 
-2024-09-10 During a debate, Trump falsely claimed that Democrats support “after birth” abortions.
+2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
 [https://www.npr.org/2024/09/10/nx-s1-5107942/abortion-roe-wade-ivf-donald-trump-kamala-harris-debate-2024](https://www.npr.org/2024/09/10/nx-s1-5107942/abortion-roe-wade-ivf-donald-trump-kamala-harris-debate-2024)
 
