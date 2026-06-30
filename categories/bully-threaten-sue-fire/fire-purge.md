@@ -416,3 +416,11 @@ SUB WALL [https://www.politico.com/news/2026/05/12/makary-fda-resign-white-house
 [https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3](https://www.youtube.com/watch?v=6SNPjD1lZHs&list=WL&index=3)
 
 SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/news/articles/cwy2vw8j0ddo)
+
+### 2026 June
+
+2026-06-29 SCOTUS decided 6-to-3 to allow Trump authority over firing heads of independent federal agencies. Trump then fired FTC Commissioner Rebecca Slaughter.
+
+[https://www.nbcnews.com/politics/supreme-court/supreme-court-rules-trump-cannot-fire-fed-member-lisa-cook-grants-powe-rcna234931](https://www.nbcnews.com/politics/supreme-court/supreme-court-rules-trump-cannot-fire-fed-member-lisa-cook-grants-powe-rcna234931)
+
+[https://abcnews.com/Politics/supreme-court-allows-trump-firing-ftc-commissioner/story?id=129203395](https://abcnews.com/Politics/supreme-court-allows-trump-firing-ftc-commissioner/story?id=129203395)
