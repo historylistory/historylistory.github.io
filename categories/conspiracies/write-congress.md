@@ -221,3 +221,6 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2026-04-18 Trump’s former press secretary Kayleigh McEnany posted, “Trump Derangement Syndrome (TDS) is driving several blue states to enable fraud!”. In 2020 she pushed election fraud claims and tried to have all Pennsylvanian ballots thrown out.  After disclosure of her financial statements showing she received funds from both Trump and TPUSA, Fox news fired her. 
 
 2026-04-20 The Onion obtained Alex Jones’ InfoWars. Alex Jones accused some of the owners of being “satanic pedophiles”.
+
+
+2026-05-23 Licensed psychiatrist Carole Lieberman and RFK are out designate Trump Derangement Syndrome a real diagnosis and assign it an International Classification of Diseases code.

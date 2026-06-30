@@ -95,6 +95,7 @@ You know your bite is poisonous, and now I’m going to die’.
 
 ### GET INVOLVED
 
+
 [Change.org](https://www.change.org/)
 
 [Mobilize](https://www.mobilize.us/)
@@ -128,6 +129,8 @@ You know your bite is poisonous, and now I’m going to die’.
 ### All Else
 
 [Agriculture: Farm Forward](https://www.farmforward.com)
+
+[Agriculture: Back Forty Action](https://www.backfortyaction.org/)
 
 [Campaign: FEC Data](https://www.fec.gov/data/)
 
@@ -192,6 +195,8 @@ You know your bite is poisonous, and now I’m going to die’.
 [Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
 
 [Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
+
+[Religion: Skeptics Annotated Bible](https://www.skepticsannotatedbible.com/)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
 

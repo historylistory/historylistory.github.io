@@ -688,3 +688,11 @@ SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c
 [https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039](https://www.msn.com/en-us/news/insight/raskin-probes-patel-over-alleged-1m-fbi-slush-fund/gm-GM21996039)
 
 [https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle](https://democrats-judiciary.house.gov/media-center/press-releases/ranking-member-raskin-launches-investigation-into-kash-patel-s-misuse-of-fbi-funds-for-unlawful-bonus-payments-to-inner-circle)
+
+2026-06-30 SCOTUS struck down a rule to limit how much political parties can spend on campaigns.
+
+[https://www.youtube.com/watch?v=ALIiodj8W6c&list=WL&index=1&t=19s](https://www.youtube.com/watch?v=ALIiodj8W6c&list=WL&index=1&t=19s)
+
+[https://www.npr.org/2026/06/30/nx-s1-5827039/supreme-court-campaign-finance](https://www.npr.org/2026/06/30/nx-s1-5827039/supreme-court-campaign-finance)
+
+[https://www.scotusblog.com/2026/06/justices-strike-down-campaign-finance-law/](https://www.scotusblog.com/2026/06/justices-strike-down-campaign-finance-law/)

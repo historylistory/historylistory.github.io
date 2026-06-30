@@ -57,3 +57,17 @@ permalink: /categories/conspiracies/trump-derangement-syndrome/
 [https://x.com/kayleighmcenany/status/2045639267439788408](https://x.com/kayleighmcenany/status/2045639267439788408)
 
 [https://www.pbs.org/newshour/tag/kayleigh-mcenany](https://www.pbs.org/newshour/tag/kayleigh-mcenany)
+
+### 2026 May
+
+2026-05-23 Licensed psychiatrist Carole Lieberman and RFK are out designate Trump Derangement Syndrome a real diagnosis and assign it an International Classification of Diseases code.
+
+[https://www.youtube.com/watch?v=uSA1ihyLKXA&list=WL&index=2&t=413s](https://www.youtube.com/watch?v=uSA1ihyLKXA&list=WL&index=2&t=413s)
+
+[https://www.yahoo.com/news/politics/articles/maga-pundit-claims-rfk-jr-220430640.html](https://www.yahoo.com/news/politics/articles/maga-pundit-claims-rfk-jr-220430640.html)
+
+[https://www.foxnews.com/opinion/david-marcus-trump-derangement-syndrome-isnt-mental-illness-mass-hysteria](https://www.foxnews.com/opinion/david-marcus-trump-derangement-syndrome-isnt-mental-illness-mass-hysteria)
+
+[https://www.peoplefor.org/rightwingwatch/its-all-very-scientific-government-going-declare-trump-derangement-syndrome](https://www.peoplefor.org/rightwingwatch/its-all-very-scientific-government-going-declare-trump-derangement-syndrome)
+
+
