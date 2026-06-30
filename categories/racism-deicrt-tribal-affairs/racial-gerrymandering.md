@@ -8,4 +8,10 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-gerrymandering/
 
 ### Commentary
 
-Racial gerrymandering: see redistricting topics under section ***Voting and Census Tampering***
+Racial gerrymandering: see these sections under Voting: 
+
+[https://historylistory.com/categories/voting-census/redistricting-census-tampering](https://historylistory.com/categories/voting-census/redistricting-census-tampering)
+
+[https://historylistory.com/categories/voting-census/voter-suppression-black-americans](https://historylistory.com/categories/voting-census/voter-suppression-black-americans)
+
+[https://historylistory.com/categories/voting-census/voter-suppression-native-americans](https://historylistory.com/categories/voting-census/voter-suppression-native-americans)

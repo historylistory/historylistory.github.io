@@ -5,6 +5,39 @@ category_slug: voting-census
 subcategory_slug: redistricting-census-tampering
 permalink: /categories/voting-census/redistricting-census-tampering/
 ---
+### 2006
+
+2006-06-28 Redistricting used to be conducted once a decade after a census. In 2006 courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
+
+[https://thearp.org/litigation/league-united-american-latin-citizens-v-perry/](https://thearp.org/litigation/league-united-american-latin-citizens-v-perry/)
+
+[https://www.ncsl.org/elections-and-campaigns/mid-decade-redistricting](https://www.ncsl.org/elections-and-campaigns/mid-decade-redistricting)
+
+[https://www.congress.gov/crs-product/IF13082](https://www.congress.gov/crs-product/IF13082)
+
+
+### 2013
+
+2013-06-25 Courts tossed out a ruling that areas with a history of discrimination get “pre-clearance” before redrawing maps. (see Shelby County, Alabama v. Holder, Attorney General). 
+
+[https://www.brennancenter.org/our-work/research-reports/preclearance-under-voting-rights-act](https://www.brennancenter.org/our-work/research-reports/preclearance-under-voting-rights-act)
+
+[https://scholarship.law.slu.edu/cgi/viewcontent.cgi?article=1129&context=lawjournalonline](https://scholarship.law.slu.edu/cgi/viewcontent.cgi?article=1129&context=lawjournalonline)
+
+[https://www.facebook.com/reel/940517798780271](https://www.facebook.com/reel/940517798780271)
+
+[https://www.cnn.com/2026/05/01/politics/video/van-jones-reacts-to-voting-rights-decision-ldn-digvid-vrtc](https://www.cnn.com/2026/05/01/politics/video/van-jones-reacts-to-voting-rights-decision-ldn-digvid-vrtc)
+
+[https://x.com/VanJones68/status/2049667941826806033](https://x.com/VanJones68/status/2049667941826806033)
+
+
+### 2019
+
+2019-06-17 Courts ruled that federal courts couldn’t stop states from drawling lines on a partisan basis (see Rucho v. Common Cause). 
+
+[https://www.supremecourt.gov/opinions/18pdf/18-422_9ol1.pdf](https://www.supremecourt.gov/opinions/18pdf/18-422_9ol1.pdf)
+
+[https://www.commoncause.org/work/common-cause-v-rucho/](https://www.commoncause.org/work/common-cause-v-rucho/)
 
 ### 2021
 
