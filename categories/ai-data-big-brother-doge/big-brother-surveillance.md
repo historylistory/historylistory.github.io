@@ -379,3 +379,8 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 
 [https://www.npr.org/2026/06/19/nx-s1-5863058/homeland-security-local-police-facial-recognition-identify-immigrants](https://www.npr.org/2026/06/19/nx-s1-5863058/homeland-security-local-police-facial-recognition-identify-immigrants)
 
+2026-06-30 SCOTUS ruled that geofence warrants are subject to Fourth Amendment protections. Justice Elena Kagan wrote, “An individual has a reasonable expectation of privacy in records about his cell phone’s location, and police intrude on that constitutionally protected interest when they demand the information”. 
+
+[https://www.scotusblog.com/2026/06/court-rules-that-law-enforcements-use-of-geofence-warrant-was-a-search/](https://www.scotusblog.com/2026/06/court-rules-that-law-enforcements-use-of-geofence-warrant-was-a-search/)
+
+[https://www.theguardian.com/us-news/2026/jun/29/supreme-court-geofence-warrants-case-decision](https://www.theguardian.com/us-news/2026/jun/29/supreme-court-geofence-warrants-case-decision)

@@ -655,3 +655,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-06-22 Trump’s UFC stunt destroyed the White House front lawn. Taxpayer cost to repair: pending. 
 
 2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
+
+2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
+

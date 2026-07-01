@@ -175,3 +175,14 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
 
+### 2026 June
+
+2026-06-30 SCOTUS ruled 6-to-3 to ban trans athletes from participating in women’s sports.
+
+[https://www.youtube.com/watch?v=9LaZa1VWxkg&list=WL&index=6&t=20s](https://www.youtube.com/watch?v=9LaZa1VWxkg&list=WL&index=6&t=20s)
+
+[https://www.scotusblog.com/2026/06/court-rules-that-states-can-exclude-transgender-athletes-from-girls-and-womens-sports-teams/](https://www.scotusblog.com/2026/06/court-rules-that-states-can-exclude-transgender-athletes-from-girls-and-womens-sports-teams/)
+
+[https://www.nbcnews.com/politics/supreme-court/supreme-court-upholds-state-transgender-sports-bans-rcna261384](https://www.nbcnews.com/politics/supreme-court/supreme-court-upholds-state-transgender-sports-bans-rcna261384)
+
+[https://www.cnn.com/2026/06/30/politics/transgender-athletes-supreme-court-decision-what-to-know](https://www.cnn.com/2026/06/30/politics/transgender-athletes-supreme-court-decision-what-to-know)

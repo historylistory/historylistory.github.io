@@ -476,3 +476,9 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue](https://www.aljazeera.com/news/2026/6/28/israel-kills-three-palestinians-in-gaza-as-attacks-on-tents-continue)
 
 [https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child](https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child)
+
+2026-06-29 Israeli soldiers shot 15-year-old Amir Ahmad Jawad Jaber in the head.
+
+[https://www.timesofisrael.com/liveblog_entry/israeli-forces-kill-palestinian-teen-in-west-bank-palestinian-health-ministry-says/](https://www.timesofisrael.com/liveblog_entry/israeli-forces-kill-palestinian-teen-in-west-bank-palestinian-health-ministry-says/)
+
+[https://www.lemonde.fr/en/international/article/2026/06/29/israeli-forces-kill-palestinian-teen-in-west-bank-says-palestinian-health-ministry_6754989_4.html](https://www.lemonde.fr/en/international/article/2026/06/29/israeli-forces-kill-palestinian-teen-in-west-bank-says-palestinian-health-ministry_6754989_4.html)

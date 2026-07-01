@@ -231,3 +231,19 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.espn.com/soccer/story/_/id/49029805/fifa-forces-haiti-remove-political-imagery-world-cup-jersey](https://www.espn.com/soccer/story/_/id/49029805/fifa-forces-haiti-remove-political-imagery-world-cup-jersey)
 
 [https://haitiantimes.com/2026/06/13/haiti-world-cup-official-jersey-2/](https://haitiantimes.com/2026/06/13/haiti-world-cup-official-jersey-2/)
+
+2026-06-26 Two federal officers showed up at a polling office in Syracuse New York to threaten a woman for posting on social media criticizing ICE officers. 
+
+[https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3](https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3)
+
+[https://www.syracuse.com/news/2026/06/federal-agents-track-down-syracuse-woman-demand-she-remove-instagram-post-about-ice.html](https://www.syracuse.com/news/2026/06/federal-agents-track-down-syracuse-woman-demand-she-remove-instagram-post-about-ice.html)
+
+[https://apnews.com/article/ice-poll-worker-syracuse-fa082f8ac25d019e93b526fdef37df6c](https://apnews.com/article/ice-poll-worker-syracuse-fa082f8ac25d019e93b526fdef37df6c)
+
+2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
+
+[https://www.youtube.com/watch?v=iL1oh6NbfUo&list=WL&index=4](https://www.youtube.com/watch?v=iL1oh6NbfUo&list=WL&index=4)
+
+[https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic](https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic)
+
+[https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/](https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/)

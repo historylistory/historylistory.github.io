@@ -696,3 +696,11 @@ SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c
 [https://www.npr.org/2026/06/30/nx-s1-5827039/supreme-court-campaign-finance](https://www.npr.org/2026/06/30/nx-s1-5827039/supreme-court-campaign-finance)
 
 [https://www.scotusblog.com/2026/06/justices-strike-down-campaign-finance-law/](https://www.scotusblog.com/2026/06/justices-strike-down-campaign-finance-law/)
+
+2026-06-30 Trump purchased $5M in stock from a company (Axon Enterprise) that makes taser weapons just 2 weeks before ICE secured a $220M contract for the devices.
+
+[https://www.pbs.org/newshour/politics/democrats-feud-over-stock-trading-amid-anti-corruption-messaging-against-trump](https://www.pbs.org/newshour/politics/democrats-feud-over-stock-trading-amid-anti-corruption-messaging-against-trump)
+
+[https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html](https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html)
+
+[https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html](https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html)

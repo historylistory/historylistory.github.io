@@ -212,3 +212,9 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://www.bbc.com/news/articles/c809jg1gj9yo](https://www.bbc.com/news/articles/c809jg1gj9yo)
 
 [https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7](https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7)
+
+### 2026 June
+
+2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
+
+[https://www.aljazeera.com/economy/2026/6/30/trump-tells-us-petrol-retailers-to-reduce-prices-immediately](https://www.aljazeera.com/economy/2026/6/30/trump-tells-us-petrol-retailers-to-reduce-prices-immediately)

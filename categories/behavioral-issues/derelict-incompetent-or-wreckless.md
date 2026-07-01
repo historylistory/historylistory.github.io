@@ -646,3 +646,13 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
 
 [https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3](https://www.youtube.com/watch?v=RjtlEEofW4o&list=WL&index=3)
+
+2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
+
+[https://www.youtube.com/watch?v=nyPMNsCHHVA&list=WL&index=5](https://www.youtube.com/watch?v=nyPMNsCHHVA&list=WL&index=5)
+
+[https://www.npr.org/2026/06/30/nx-s1-5876222/tom-kean-new-jersey-congress-depression](https://www.npr.org/2026/06/30/nx-s1-5876222/tom-kean-new-jersey-congress-depression)
+
+[https://www.pbs.org/newshour/politics/watch-rep-tom-kean-jr-says-he-was-recovering-from-depression-during-months-long-absence-from-congress](https://www.pbs.org/newshour/politics/watch-rep-tom-kean-jr-says-he-was-recovering-from-depression-during-months-long-absence-from-congress)
+
+[https://abc7ny.com/post/new-jersey-rep-tom-kean-jr-returns-dc-4-month-absence-reveals-depression-diagnosis/19421668/](https://abc7ny.com/post/new-jersey-rep-tom-kean-jr-returns-dc-4-month-absence-reveals-depression-diagnosis/19421668/)

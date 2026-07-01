@@ -590,3 +590,6 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-06-26 Epstein billionaire business associate Leon Black was subpoenaed shortly after he walked out of an oversight committee hearing and refused to answer questions.
 
 2026-06-26 A judge ordered release of unredacted Epstein files. 
+
+2026-06-30 SCOTUS rejected Trump’s case against E. Jean Carroll. 
+

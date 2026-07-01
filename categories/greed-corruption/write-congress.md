@@ -217,6 +217,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-03-05 Pam Bondi sought to limit ethics investigations involving DOJ attorneys by proposing a regulation which would allow the DOJ to head off state bar investigations.
 
+2026-03-05 Democrats introduced the No Getting Rich in Congress Act to ban the President, Vice President, members of Congress, candidates for federal office, and their dependents from buying and selling individual stock. 
+
 2026-03-06 Trump accused Bill Maher of having “Trump Derangement Syndrome” after Maher criticized Trump. Bill Maher responded, “I go by what George Bush said to Obama on the day he was inaugurated: ‘We want you to succeed’. I always want the American president to succeed, and I do give credit when you have. But there’s lots of stuff you do that is not my idea of success and I have every right to say so in a democracy…it’s not derangement for me to be always calling out the election denying obsession you have, or the pardons from my friends and punishment for my enemies mode of governing, or the side deals for your family that always seem to be part of everything. We see how rich you’ve all become, but the people of West Virginia don’t seem to be feeling the winning.”
 
 2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
@@ -289,3 +291,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 
 2026-06-30 SCOTUS struck down a rule to limit how much political parties can spend on campaigns.
+
+2026-06-30 Trump purchased $5M in stock from a company (Axon Enterprise) that makes taser weapons just 2 weeks before ICE secured a $220M contract for the devices.
+
+2026-06-30 Mamdani announced the permanent closure of Rikers Island, stating, “For decades, Rikers Island has represented one of the deepest failures of our City government…this milestone brings us closer to ending that chapter. We are replacing a system built around neglect with one centered on rehabilitation”. 
+

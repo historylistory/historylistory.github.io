@@ -132,3 +132,21 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/](https://www.reuters.com/legal/government/new-york-state-set-ban-law-enforcement-including-ice-wearing-masks-2026-05-07/)
 
 [https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches](https://www.democracynow.org/2026/5/8/headlines/new_york_to_ban_ice_agents_from_wearing_masks_and_raiding_schools_hospitals_or_churches)
+
+### 2026 June
+
+2026-06-26 Two federal officers showed up at a polling office in Syracuse New York to threaten a woman for posting on social media criticizing ICE officers. 
+
+[https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3](https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3)
+
+[https://www.syracuse.com/news/2026/06/federal-agents-track-down-syracuse-woman-demand-she-remove-instagram-post-about-ice.html](https://www.syracuse.com/news/2026/06/federal-agents-track-down-syracuse-woman-demand-she-remove-instagram-post-about-ice.html)
+
+[https://apnews.com/article/ice-poll-worker-syracuse-fa082f8ac25d019e93b526fdef37df6c](https://apnews.com/article/ice-poll-worker-syracuse-fa082f8ac25d019e93b526fdef37df6c)
+
+2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
+
+[https://www.youtube.com/watch?v=iL1oh6NbfUo&list=WL&index=4](https://www.youtube.com/watch?v=iL1oh6NbfUo&list=WL&index=4)
+
+[https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic](https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic)
+
+[https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/](https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/)

@@ -1859,3 +1859,9 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 2026-06-27 Ro Khanna wrote, “These strikes are a blatant violation of the War Powers Resolution that we passed. Trump must stop this war now – or we will take hm to court to compel him to do so”.
 
 [https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child](https://www.pbs.org/newshour/amp/world/israeli-strike-hits-a-tent-in-central-gaza-killing-3-including-a-child)
+
+2026-06-29 Officials in Quatar say there have been no high-level talks between the U.S. and Iran, even after Trump insisted he sent Jared Kushner and Steve Witcoff. Iran’s Foreign Minister denied a meeting in Tehran, calling it fake news.
+
+[https://time.com/article/2026/06/30/us-iran-peace-deal-talks-technical-doha-mediators-strait-of-hormuz/](https://time.com/article/2026/06/30/us-iran-peace-deal-talks-technical-doha-mediators-strait-of-hormuz/)
+
+[https://www.france24.com/en/middle-east/20260630-us-envoys-met-with-mediators-in-qatar-talks-with-iran-up-in-the-air](https://www.france24.com/en/middle-east/20260630-us-envoys-met-with-mediators-in-qatar-talks-with-iran-up-in-the-air)

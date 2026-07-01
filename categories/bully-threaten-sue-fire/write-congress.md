@@ -557,4 +557,8 @@ Manhattan grand jury in the hush-money case.
 
 2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.
 
+2026-06-26 Two federal officers showed up at a polling office in Syracuse New York to threaten a woman for posting on social media criticizing ICE officers. 
+
 2026-06-29 SCOTUS decided 6-to-3 to allow Trump authority over firing heads of independent federal agencies. Trump then fired FTC Commissioner Rebecca Slaughter.
+
+2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.

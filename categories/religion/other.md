@@ -172,3 +172,13 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 [https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque](https://www.dailysabah.com/opinion/op-ed/locked-on-target-building-3rd-temple-over-al-aqsa-mosque)
 
 [https://www.bbc.com/news/articles/cwy0nlv90jno](https://www.bbc.com/news/articles/cwy0nlv90jno)
+
+### 2026 July
+
+2026-07-01 A group of traditionalist Catholics gathered in Switzerland to break away from the Catholic church, ordain its own bishops and condemn Pope Leo XIV’s authority.
+
+[https://www.youtube.com/watch?v=WdJ0CcxLxhU&list=WL&index=2](https://www.youtube.com/watch?v=WdJ0CcxLxhU&list=WL&index=2)
+
+[https://cruxnow.com/vatican/2026/05/vatican-issues-final-warning-to-breakaway-traditionalist-sspx](https://cruxnow.com/vatican/2026/05/vatican-issues-final-warning-to-breakaway-traditionalist-sspx)
+
+[https://www.theguardian.com/world/2026/jun/30/pope-leo-conservative-sspx-ordain-bishops-warn](https://www.theguardian.com/world/2026/jun/30/pope-leo-conservative-sspx-ordain-bishops-warn)

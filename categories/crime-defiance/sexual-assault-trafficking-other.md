@@ -160,3 +160,9 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
 
 [https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)
+
+2026-06-30 SCOTUS rejected Trump’s case against E. Jean Carroll. 
+
+[https://www.pbs.org/newshour/politics/supreme-court-rejects-trumps-push-to-toss-5-million-verdict-in-e-jean-carroll-sexual-abuse-case](https://www.pbs.org/newshour/politics/supreme-court-rejects-trumps-push-to-toss-5-million-verdict-in-e-jean-carroll-sexual-abuse-case)
+
+[https://www.courthousenews.com/trump-denied-supreme-court-review-in-e-jean-carroll-sexual-assault-case/](https://www.courthousenews.com/trump-denied-supreme-court-review-in-e-jean-carroll-sexual-assault-case/)

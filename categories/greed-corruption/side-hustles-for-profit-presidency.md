@@ -104,6 +104,12 @@ permalink: /categories/greed-corruption/side-hustles-for-profit-presidency/
 
 {% include youtubePlayer.html id="Q6NLxtfZk00" %}
 
+2026-03-05 Democrats introduced the No Getting Rich in Congress Act to ban the President, Vice President, members of Congress, candidates for federal office, and their dependents from buying and selling individual stock. 
+
+[https://thehill.com/homenews/5768262-house-democrats-introduce-stock-ban/](https://thehill.com/homenews/5768262-house-democrats-introduce-stock-ban/)
+
+[https://www.democracynow.org/2026/6/30/headlines/trump_bought_stock_in_taser_company_before_ice_announced_220_million_contract](https://www.democracynow.org/2026/6/30/headlines/trump_bought_stock_in_taser_company_before_ice_announced_220_million_contract)
+
 
 2026-03-14 Trump received a $10B transactional payout for brokering TikTok’s sale to Larry Ellison. 
 
@@ -204,3 +210,13 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=LtBQIGtlEXQ&list=WL&index=3](htt
 FROM DEC 2025: [https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html](https://finance.yahoo.com/news/company-backed-donald-trump-jr-195700353.html)
 
 FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789](https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflicts-of-interest-defense-1789)
+
+### 2026 June
+
+2026-06-30 Trump purchased $5M in stock from a company (Axon Enterprise) that makes taser weapons just 2 weeks before ICE secured a $220M contract for the devices.
+
+[https://www.pbs.org/newshour/politics/democrats-feud-over-stock-trading-amid-anti-corruption-messaging-against-trump](https://www.pbs.org/newshour/politics/democrats-feud-over-stock-trading-amid-anti-corruption-messaging-against-trump)
+
+[https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html](https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html)
+
+[https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html](https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html)

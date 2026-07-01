@@ -104,3 +104,9 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 
 [https://news.un.org/en/story/2026/06/1167816](https://news.un.org/en/story/2026/06/1167816)
 
+2026-06-30 The UNs Resident Coordinator in Venezuela reported they were ordering 10K body bags. 
+
+[https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/](https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/)
+
+[https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/](https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/)
+

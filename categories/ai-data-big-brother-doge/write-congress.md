@@ -292,6 +292,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-18 DHS gave 1300 police departments facial recognition technology.
 
+2026-06-30 SCOTUS ruled that geofence warrants are subject to Fourth Amendment protections. Justice Elena Kagan wrote, “An individual has a reasonable expectation of privacy in records about his cell phone’s location, and police intrude on that constitutionally protected interest when they demand the information”. 
 
 
 

@@ -278,3 +278,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
 
 2026-06-29 Israel continued strikes in Gaza in designated safe zones including the killing of 13-year-old Eileen Al-Farra and several other children. 
+
+2026-06-29 Israeli soldiers shot 15-year-old Amir Ahmad Jawad Jaber in the head.

@@ -320,3 +320,9 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 2026-06-29 Nearly 50,000 people remained missing in Venezuela after the earthquake. 
 
 [https://www.democracynow.org/2026/6/29/headlines/nearly_50_000_remain_missing_in_venezuela_as_earthquake_rescue_efforts_pivot_to_recovery](https://www.democracynow.org/2026/6/29/headlines/nearly_50_000_remain_missing_in_venezuela_as_earthquake_rescue_efforts_pivot_to_recovery)
+
+2026-06-30 The UNs Resident Coordinator in Venezuela reported they were ordering 10K body bags. 
+
+[https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/](https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/)
+
+[https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/](https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/)

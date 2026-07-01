@@ -29,3 +29,14 @@ permalink: /categories/greed-corruption/for-profit-imprisonment/
 [https://www.npr.org/2026/05/12/g-s1-121766/ice-acting-director-venturella](https://www.npr.org/2026/05/12/g-s1-121766/ice-acting-director-venturella)
 
 [https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/](https://www.motherjones.com/politics/2026/05/ice-dhs-david-venturella-geo-group-private-prisons/)
+
+### 2026 June
+
+2026-06-30 Mamdani announced the permanent closure of Rikers Island, stating, “For decades, Rikers Island has represented one of the deepest failures of our City government…this milestone brings us closer to ending that chapter. We are replacing a system built around neglect with one centered on rehabilitation”. 
+
+[https://www.nyc.gov/mayors-office/news/2026/04/transcript--mayor-mamdani-announces-opening-of-first-of-its-kind](https://www.nyc.gov/mayors-office/news/2026/04/transcript--mayor-mamdani-announces-opening-of-first-of-its-kind)
+
+[https://www.democracynow.org/2026/6/30/headlines/new_york_mayor_mamdani_closes_part_of_rikers_island_jail](https://www.democracynow.org/2026/6/30/headlines/new_york_mayor_mamdani_closes_part_of_rikers_island_jail)
+
+[https://www.cbsnews.com/newyork/news/rikers-island-nyc-closing-zohran-mamdani-administration/](https://www.cbsnews.com/newyork/news/rikers-island-nyc-closing-zohran-mamdani-administration/)
+
