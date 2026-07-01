@@ -225,6 +225,13 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 [https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s](https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s)
 
+2026-04-29 SCOTUS ruled that anyone challenging a congressional map could only prevail if they had strong evidence the State intentionally drew its districts to afford minority voters less opportunity. 
+
+[https://www.supremecourt.gov/opinions/25pdf/24-109_21o3.pdf](https://www.supremecourt.gov/opinions/25pdf/24-109_21o3.pdf)
+
+[https://www.theguardian.com/us-news/2026/apr/29/supreme-court-louisiana-congressional-map-case-ruling](https://www.theguardian.com/us-news/2026/apr/29/supreme-court-louisiana-congressional-map-case-ruling)
+
+[https://www.bbc.com/news/articles/clyw3p7xv4wo](https://www.bbc.com/news/articles/clyw3p7xv4wo)
 
 2026-04-30 Trump urged Tennessee to redistrict to gain more Republican seats.
 
@@ -255,6 +262,27 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 [https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/](https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/)
 
 [https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/](https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/)
+
+2026-05-05 Even after Louisiana received more than 42,000 absentee ballots the governor declared a state of emergency and suspended the election so new maps could be drawn. The new map eliminated one of two majority Black districts. 
+
+[https://www.democracydocket.com/news-alerts/louisiana-governor-discarding-45000-votes-not-a-big-deal-and-not-my-fault/](https://www.democracydocket.com/news-alerts/louisiana-governor-discarding-45000-votes-not-a-big-deal-and-not-my-fault/)
+
+[https://www.americanprogress.org/article/the-supreme-courts-callais-decisions-undermine-the-voting-rights-act-and-sow-election-chaos/](https://www.americanprogress.org/article/the-supreme-courts-callais-decisions-undermine-the-voting-rights-act-and-sow-election-chaos/)
+
+[https://lailluminator.com/briefs/42000-louisianians-voted-absentee-before-gov-landry-suspended-us-house-primaries/](https://lailluminator.com/briefs/42000-louisianians-voted-absentee-before-gov-landry-suspended-us-house-primaries/)
+
+2026-05-06 After Tennessee divided up Memphis into three districts, Tennessee Republicans insisted they were unaware they were disenfranchising Black voters. When Senator Lamar asked Senator Stevens if he was aware that Memphis is predominantly African American, he said he was not aware. 
+
+[https://www.youtube.com/shorts/5G0YmyaCva4](https://www.youtube.com/shorts/5G0YmyaCva4)
+
+TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s)
+
+2026-05-07 When Alabama called for a special session to redraw its maps, it forced a vote while people were actively evacuating during a tornado warning. 
+
+[https://newrepublic.com/post/210063/alabama-republicans-vote-gerrymander-state-tornado-sirens-flood](https://newrepublic.com/post/210063/alabama-republicans-vote-gerrymander-state-tornado-sirens-flood)
+
+[https://alabamareflector.com/2026/05/06/amid-protests-flooding-and-evacuations-alabama-legislature-passes-special-election-bills/](https://alabamareflector.com/2026/05/06/amid-protests-flooding-and-evacuations-alabama-legislature-passes-special-election-bills/)
+
 
 2026-05-07 Trump pressured South Carolina to start their redistricting process. Not the will of the people – the will of Trump.
 

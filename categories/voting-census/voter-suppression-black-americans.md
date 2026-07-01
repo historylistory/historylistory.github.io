@@ -51,6 +51,26 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 
 [https://www.michigan.gov/ag/news/press-releases/2025/08/01/burkman-and-wohl-plead-to-intimidating-voters-in-robocall-case](https://www.michigan.gov/ag/news/press-releases/2025/08/01/burkman-and-wohl-plead-to-intimidating-voters-in-robocall-case)
 
+### 2023 
+
+2023-06-09 SCOTUS ruled that Alabama discriminated against Black voters.
+
+[https://eji.org/news/supreme-court-rules-alabama-discriminated-against-black-voters/](https://eji.org/news/supreme-court-rules-alabama-discriminated-against-black-voters/)
+
+### 2024
+
+2024-05-06 A group of white voters claimed the Louisiana congressional map “racially stigmatizes”, “racially stereotypes”, and “racially maligns” them. 
+
+[https://www.cnn.com/2024/05/06/politics/louisiana-congressional-map-voting-rights-act](https://www.cnn.com/2024/05/06/politics/louisiana-congressional-map-voting-rights-act)
+
+### 2025
+
+2025-10-15 A group of 12 self-described non-African American voters claimed that the Louisiana congressional map “injured” their “personal dignity”. 
+
+[https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01](https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01)
+
+
+
 ### 2026
 
 2026-04-29 SCOTUS struck down a Louisiana redistricting map by a vote of 6-3. SCOTUS also destroyed key voting rights provisions in the Voting Rights Act of 1965 which was originally designed to outlaw discriminatory voting practices that would disenfranchise Black voters.
@@ -69,6 +89,13 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 
 [https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s](https://www.youtube.com/watch?v=anVvwhRtSAo&list=WL&index=2&t=128s)
 
+2026-04-29 SCOTUS ruled that anyone challenging a congressional map could only prevail if they had strong evidence the State intentionally drew its districts to afford minority voters less opportunity. 
+
+[https://www.supremecourt.gov/opinions/25pdf/24-109_21o3.pdf](https://www.supremecourt.gov/opinions/25pdf/24-109_21o3.pdf)
+
+[https://www.theguardian.com/us-news/2026/apr/29/supreme-court-louisiana-congressional-map-case-ruling](https://www.theguardian.com/us-news/2026/apr/29/supreme-court-louisiana-congressional-map-case-ruling)
+
+[https://www.bbc.com/news/articles/clyw3p7xv4wo](https://www.bbc.com/news/articles/clyw3p7xv4wo)
 
 2026-04-30 Louisiana suspended congressional primaries so they could redraw their maps.
 
@@ -91,6 +118,26 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/](https://mississippitoday.org/2026/05/04/old-capitol-mississippi-redistricting/)
 
 [https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/](https://www.democracydocket.com/news-alerts/desantis-signs-gerrymandered-florida-map-into-law/)
+
+2026-05-05 Even after Louisiana received more than 42,000 absentee ballots the governor declared a state of emergency and suspended the election so new maps could be drawn. The new map eliminated one of two majority Black districts. 
+
+[https://www.democracydocket.com/news-alerts/louisiana-governor-discarding-45000-votes-not-a-big-deal-and-not-my-fault/](https://www.democracydocket.com/news-alerts/louisiana-governor-discarding-45000-votes-not-a-big-deal-and-not-my-fault/)
+
+[https://www.americanprogress.org/article/the-supreme-courts-callais-decisions-undermine-the-voting-rights-act-and-sow-election-chaos/](https://www.americanprogress.org/article/the-supreme-courts-callais-decisions-undermine-the-voting-rights-act-and-sow-election-chaos/)
+
+[https://lailluminator.com/briefs/42000-louisianians-voted-absentee-before-gov-landry-suspended-us-house-primaries/](https://lailluminator.com/briefs/42000-louisianians-voted-absentee-before-gov-landry-suspended-us-house-primaries/)
+
+2026-05-06 After Tennessee divided up Memphis into three districts, Tennessee Republicans insisted they were unaware they were disenfranchising Black voters. When Senator Lamar asked Senator Stevens if he was aware that Memphis is predominantly African American, he said he was not aware. 
+
+[https://www.youtube.com/shorts/5G0YmyaCva4](https://www.youtube.com/shorts/5G0YmyaCva4)
+
+TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s)
+
+2026-05-07 When Alabama called for a special session to redraw its maps, it forced a vote while people were actively evacuating during a tornado warning. 
+
+[https://newrepublic.com/post/210063/alabama-republicans-vote-gerrymander-state-tornado-sirens-flood](https://newrepublic.com/post/210063/alabama-republicans-vote-gerrymander-state-tornado-sirens-flood)
+
+[https://alabamareflector.com/2026/05/06/amid-protests-flooding-and-evacuations-alabama-legislature-passes-special-election-bills/](https://alabamareflector.com/2026/05/06/amid-protests-flooding-and-evacuations-alabama-legislature-passes-special-election-bills/)
 
 2026-05-07 Trump pressured South Carolina to start their redistricting process. Not the will of the people – the will of Trump.
 
@@ -142,6 +189,13 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 [https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat](https://www.pbs.org/newshour/politics/louisiana-passes-new-congressional-map-to-eliminate-majority-black-district-give-gop-another-seat)
 
 ### 2026 June
+
+2026-06-10 Louisiana, Mississippi and Alabama have never elected a Black representative outside a majority-Black district. 
+
+[https://www.facingsouth.org/2026/06/what-comes-next-after-dismantling-voting-rights-act-conversation-ari-berman](https://www.facingsouth.org/2026/06/what-comes-next-after-dismantling-voting-rights-act-conversation-ari-berman)
+
+[https://eji.org/news/supreme-court-undermines-black-political-participation-in-devastating-ruling-on-voting-rights-act/](https://eji.org/news/supreme-court-undermines-black-political-participation-in-devastating-ruling-on-voting-rights-act/)
+
 
 2026-06-17 Georgia lawmakers reversed a decision to gerrymander after civil rights activists pushed against the effort to disenfranchise Black voters.
 

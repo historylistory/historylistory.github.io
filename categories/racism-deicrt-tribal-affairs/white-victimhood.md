@@ -6,6 +6,13 @@ subcategory_slug: white-victimhood
 permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 ---
 
+### 2024
+
+2024-05-06 A group of white voters claimed the Louisiana congressional map “racially stigmatizes”, “racially stereotypes”, and “racially maligns” them. 
+
+[https://www.cnn.com/2024/05/06/politics/louisiana-congressional-map-voting-rights-act](https://www.cnn.com/2024/05/06/politics/louisiana-congressional-map-voting-rights-act)
+
+
 ### 2025 February
 
 2025-02-04 In response to the Potomac crash Senator Roger Marshall said, “Well, I think diversity issues did contribute to this accident, and what we know for sure is that under Joe Biden that they lowered the standards for people getting into air traffic control. And with that, the number of near misses increased 70% a year”. The Senator went on to say, “What I think you’re gonna find out is there were a lot of qualified white men that they were not hiring because they were holding spots for DEI hires”.
@@ -43,6 +50,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 [https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721](https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721)
 
 [https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
+
+### 2025 October
+
+2025-10-15 A group of 12 self-described non-African American voters claimed that the Louisiana congressional map “injured” their “personal dignity”. 
+
+[https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01](https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01)
+
 
 ### 2026 February
 
