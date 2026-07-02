@@ -34,7 +34,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 [https://www.bbc.com/news/articles/cn839xqdn5po](https://www.bbc.com/news/articles/cn839xqdn5po)
 
-2025-09-18 A 42-year-old man died in ICE custody. Reports stated that at least 14 people THAT WE KNOW OF have died in custody up to this date. For context, detainees are unreachable, and nobody knows where they are.
+2025-09-18 A 42-year-old man died in ICE custody, making it the fourteenth death up to this date. In-custody statistics had been difficult to obtain because nobody knew the whereabouts of their loved ones. 
 
 [https://www.democracynow.org/2025/9/22/headlines/42_year_old_man_dies_in_ice_custody_in_long_island](https://www.democracynow.org/2025/9/22/headlines/42_year_old_man_dies_in_ice_custody_in_long_island)
 

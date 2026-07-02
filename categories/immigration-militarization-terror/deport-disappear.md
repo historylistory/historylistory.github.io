@@ -70,7 +70,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 [https://progressive.international/wire/2025-09-24-immigration-judge-orders-mahmoud-khalil-to-be-deported/en](https://progressive.international/wire/2025-09-24-immigration-judge-orders-mahmoud-khalil-to-be-deported/en)
 
-2025-09-25 News outlets reported that the **detainees formerly kept at Alligator Alcatraz have come up missing** and nobody knows where they are.
+2025-09-25 Detainees formerly kept at Alligator Alcatraz came up missing and unaccounted for. 
 
 {% include youtubePlayer.html id="NwPbnsZ_XqU" %}
 

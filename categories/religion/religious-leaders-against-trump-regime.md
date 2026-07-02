@@ -130,6 +130,12 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://religionunplugged.com/news/when-who-and-what-of-a-new-christian-protest-against-trump](https://religionunplugged.com/news/when-who-and-what-of-a-new-christian-protest-against-trump)
 
+### 2025 September
+
+2025-09-20 Faith leaders held a prayer march in front of Naval Station Great Lakes in Chicago demanding ICE agents leave.
+
+{% include youtubePlayer.html id="meCcT7e5Av8" %}
+
 
 ### 2026 February
 

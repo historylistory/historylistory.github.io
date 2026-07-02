@@ -48,7 +48,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2025 September
 
-2025-09-16 Federal agents attacked an 80-year-old US citizen in Van Nys during a raid of that man’s business.
+2025-09-16 Federal agents attacked an 80-year-old US citizen in Van Nys during a raid of his business.
 
 {% include youtubePlayer.html id="j2gQBfP4Dhk" %}
 
@@ -56,7 +56,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 {% include youtubePlayer.html id="JtnPgzdaNho" %}
 
-2025-09-26 An ICE agent was relieved of duty after he was caught on camera violently shoving an immigrant's wife. In most cases, there is no footage or agents aren’t wearing body cameras.
+2025-09-26 An ICE agent was fired only after he was caught on camera violently shoving an immigrant's wife. At this point, ICE agents were not wearing body cameras. 
 
 [https://www.nbcnewyork.com/manhattan/ice-agent-suspended-video-federal-plaza/6396770/](https://www.nbcnewyork.com/manhattan/ice-agent-suspended-video-federal-plaza/6396770/)
 

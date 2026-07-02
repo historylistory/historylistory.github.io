@@ -305,7 +305,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-09-20 Footage from 2024 showed Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, MAGA does not care if Tom Homan took a bribe or not.
 
-2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney stated they would not comply.
+2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney refused to comply.
 
 2025-09-22 The Trump administration moved forward with $6B in arms sales to Israel including 30 Apache helicopters.
 

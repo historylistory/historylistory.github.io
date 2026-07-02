@@ -159,7 +159,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington](https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington)
 
-2025-09-15 Trump threatened in a Truth Social post to call an emergency to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
+2025-09-15 Trump threatened to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
 
 [https://ktul.com/news/nation-world/president-trump-threatens-federalize-dc-again-national-emergency-truth-social-post-immigration-enforcement-ice-dispute-bowser-mayor-metropolitan-police-cooperate-control-crime-surge-public-safety-law-illegal-aliens](https://ktul.com/news/nation-world/president-trump-threatens-federalize-dc-again-national-emergency-truth-social-post-immigration-enforcement-ice-dispute-bowser-mayor-metropolitan-police-cooperate-control-crime-surge-public-safety-law-illegal-aliens)
 
@@ -171,7 +171,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="meCcT7e5Av8" %}
 
-2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney stated **they will not comply** with that law
+2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney refused to comply.
 
 [https://www.cnn.com/2025/09/21/us/california-mask-ban-law-enforcement-newsom](https://www.cnn.com/2025/09/21/us/california-mask-ban-law-enforcement-newsom)
 

@@ -181,7 +181,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 [https://www.cnn.com/2024/07/11/politics/trump-allies-project-2025/index.html](https://www.cnn.com/2024/07/11/politics/trump-allies-project-2025/index.html)
 
-2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney stated they would not comply.
+2025-09-21 California Governor Newsom signed a law banning law enforcement from wearing masks, but the acting US Attorney refused to comply.
 
 [https://www.cnn.com/2025/09/21/us/california-mask-ban-law-enforcement-newsom](https://www.cnn.com/2025/09/21/us/california-mask-ban-law-enforcement-newsom)
 

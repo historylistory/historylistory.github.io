@@ -90,7 +90,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 September
 
-2025-09-27 ICE **detained an 8-year-old girl** Dasha Ramirez and her family while they were at a park outing.
+2025-09-27 ICE detained 8-year-old Dasha Ramirez and her family while they were at a park outing.
 
 [https://blockclubchicago.org/2025/09/30/family-taken-by-feds-from-millennium-park-separated-in-detention-centers-theyre-locking-up-children/](https://blockclubchicago.org/2025/09/30/family-taken-by-feds-from-millennium-park-separated-in-detention-centers-theyre-locking-up-children/)
 

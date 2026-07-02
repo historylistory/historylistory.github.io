@@ -228,6 +228,14 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html](https://www.nytimes.com/2025/09/15/business/media/washington-post-charlie-kirk-karen-attiah.html)
 
+2025-09-15 Trump threatened to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
+
+[https://ktul.com/news/nation-world/president-trump-threatens-federalize-dc-again-national-emergency-truth-social-post-immigration-enforcement-ice-dispute-bowser-mayor-metropolitan-police-cooperate-control-crime-surge-public-safety-law-illegal-aliens](https://ktul.com/news/nation-world/president-trump-threatens-federalize-dc-again-national-emergency-truth-social-post-immigration-enforcement-ice-dispute-bowser-mayor-metropolitan-police-cooperate-control-crime-surge-public-safety-law-illegal-aliens)
+
+[https://www.cnn.com/2025/09/15/politics/trump-washington-dc-emergency-ice](https://www.cnn.com/2025/09/15/politics/trump-washington-dc-emergency-ice)
+
+[https://truthsocial.com/@realDonaldTrump/posts/115206570863756188](https://truthsocial.com/@realDonaldTrump/posts/115206570863756188)
+
 2025-09-17 Trump demanded NBC fire Jimmy Fallon and Seth Meyers, “Do it, NBC.”
 
 [https://truthsocial.com/@realDonaldTrump/posts/115222372625104790](https://truthsocial.com/@realDonaldTrump/posts/115222372625104790)

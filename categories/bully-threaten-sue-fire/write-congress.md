@@ -278,6 +278,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-15 Representative Derrick Van Orden amplified a post identifying a U.S. Navy servicemember who had expressed no sorrow over Charlie Kirk's death, prompting viewers to outwardly dox servicemembers. He wrote, "“This person may be in my @USNavy, but he is no Sailor”. Military Support wrote, “This is —- of the US Navy he is stationed on the USS —- he thinks Charlie Kirk deserved to be M*rderLd for expressing his views. Dishonorable discharge would be fitting, he can’t be trusted to serve…”.
 
+2025-09-15 Trump threatened to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
+
 2025-09-16 Trump sued The New York Times for libel over reporting on an Epstein-related letter and accused the paper of supporting Kamala Harris. 
 
 2025-09-17 Trump demanded NBC fire Jimmy Fallon and Seth Meyers, “Do it, NBC.”
