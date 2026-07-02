@@ -473,3 +473,17 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 [https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai](https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai)
 
 THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant](https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant)
+
+2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.
+
+[https://www.youtube.com/watch?v=2t-fBSGBvkY&list=WL&index=4&t=176s](https://www.youtube.com/watch?v=2t-fBSGBvkY&list=WL&index=4&t=176s)
+
+[https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act](https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act)
+
+[https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
+
+2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
+
+[https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/](https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/)
+
+[https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509](https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509)

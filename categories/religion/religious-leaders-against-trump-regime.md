@@ -249,3 +249,15 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 2026-05-07 Marco Rubio met privately with Pope Leo XIV at the Vatican after months of public disagreements between the administration and the Pope
 
 [https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
+
+### 2026 July
+
+2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
+
+[https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo](https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo)
+
+[https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/](https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/)
+
+[https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide](https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide)
+
+[https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/](https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/)

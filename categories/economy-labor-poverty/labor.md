@@ -391,3 +391,17 @@ TIMESTAMP 2:24 [https://www.youtube.com/watch?v=pRYLrc4DU80&list=WL&index=2](htt
 [https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat](https://www.democracynow.org/2026/6/23/headlines/nyc_mayor_mamdani_orders_protections_for_outdoor_workers_facing_extreme_heat)
 
 [https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr](https://www.nyc.gov/mayors-office/news/2026/06/mayor-mamdani-signs-executive-order-protecting-workers-from-extr)
+
+### 2026 July
+
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
+[https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases](https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases)
+
+[https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death](https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death)
+
+[https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html](https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html)
+
+[https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
+
+PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)

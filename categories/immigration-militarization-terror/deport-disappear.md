@@ -132,3 +132,14 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 [https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war](https://www.democracynow.org/2026/6/12/headlines/report_state_dept_opens_probe_of_iranian_born_trita_parsi_critic_of_trumps_war)
 
 [https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html](https://www.cnbc.com/video/2026/06/15/us-iran-peace-deal-could-be-a-game-changer-for-the-whole-region.html)
+
+
+2026-06-30 US Immigration sent detainees to Venezuela in the aftermath of the earthquake. 
+
+[https://www.bbc.com/news/articles/c3eyxjy01y3o](https://www.bbc.com/news/articles/c3eyxjy01y3o)
+
+[https://www.npr.org/2026/06/30/nx-s1-5875287/venezuela-deportees-us-quakes](https://www.npr.org/2026/06/30/nx-s1-5875287/venezuela-deportees-us-quakes)
+
+[https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk](https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk)
+
+SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees](https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees)

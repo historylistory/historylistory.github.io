@@ -458,3 +458,15 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel](https://www.democracynow.org/2026/6/23/headlines/not_afraid_to_stand_up_to_genocide_united_auto_workers_vote_to_divest_from_israel)
 
 [https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/](https://truthout.org/articles/united-auto-workers-vote-to-divest-from-israel-in-historic-victory/)
+
+### 2026 July
+
+2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
+
+[https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo](https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo)
+
+[https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/](https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/)
+
+[https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide](https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide)
+
+[https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/](https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/)

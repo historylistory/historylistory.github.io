@@ -51,3 +51,9 @@ TIMESTAMP 10:12 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=6
 [https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic](https://www.ohchr.org/en/press-releases/2026/06/sudan-imminent-offensive-el-obeid-must-be-halted-turk-warns-catastrophic)
 
 [https://news.un.org/en/story/2026/06/1167752](https://news.un.org/en/story/2026/06/1167752)
+
+2026-06-23 The UN documented widespread sexual violence being used as a weapon of war in Sudan. 
+
+[https://news.un.org/en/story/2026/06/1167792](https://news.un.org/en/story/2026/06/1167792)
+
+[https://www.ohchr.org/en/press-releases/2026/06/un-report-documents-widespread-and-brutal-use-sexual-violence-sudan](https://www.ohchr.org/en/press-releases/2026/06/un-report-documents-widespread-and-brutal-use-sexual-violence-sudan)

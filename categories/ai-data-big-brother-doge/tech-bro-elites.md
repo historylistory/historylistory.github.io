@@ -170,3 +170,27 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.yahoo.com/news/politics/articles/global-order-ai-ceos-heads-132310109.html](https://www.yahoo.com/news/politics/articles/global-order-ai-ceos-heads-132310109.html)
 
 [https://www.cnbc.com/2026/06/17/g7-trump-ai-tech-leaders-openai-anthropic-google.html](https://www.cnbc.com/2026/06/17/g7-trump-ai-tech-leaders-openai-anthropic-google.html)
+
+
+2026-06-29 Elon Musk chastised MacKenzie Scott for donating $26 billion of her fortune, claiming generosity makes the world a worse place. 
+
+[https://www.businessinsider.com/elon-musk-mackenzie-scott-giving-doge-usaid-philanthropy-billionaires-wealth-2026-6](https://www.businessinsider.com/elon-musk-mackenzie-scott-giving-doge-usaid-philanthropy-billionaires-wealth-2026-6)
+
+[https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/](https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/)
+
+[https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html](https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html)
+
+
+### 2026 July
+
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
+[https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases](https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases)
+
+[https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death](https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death)
+
+[https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html](https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html)
+
+[https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
+
+PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)

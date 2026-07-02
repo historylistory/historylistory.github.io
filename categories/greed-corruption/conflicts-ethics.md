@@ -704,3 +704,11 @@ SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c
 [https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html](https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html)
 
 [https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html](https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html)
+
+### 2026 July
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+
+[https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts](https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts)
+
+[https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)

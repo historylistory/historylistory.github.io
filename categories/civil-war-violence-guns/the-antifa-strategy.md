@@ -123,3 +123,21 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/](https://www.motherjones.com/politics/2026/02/army-veteran-ian-austin-ice-protest-minneapolis-st-paul-church-don-lemon-released/)\
 
 [https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service](https://www.mprnews.org/story/2026/02/01/army-veteran-ian-austin-arrested-for-protesting-st-paul-church-service)
+
+### 2026 June
+
+2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
+
+[https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s](https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s)
+
+[https://www.democracynow.org/2026/6/25/prairieland_nine](https://www.democracynow.org/2026/6/25/prairieland_nine)
+
+[https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent](https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent)
+
+### 2026 July
+
+2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
+
+[https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail](https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail)
+
+[https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center](https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center)

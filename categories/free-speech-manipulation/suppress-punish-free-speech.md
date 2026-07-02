@@ -247,3 +247,17 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 [https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic](https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic)
 
 [https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/](https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/)
+
+### 2026 July
+
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
+[https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases](https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases)
+
+[https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death](https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death)
+
+[https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html](https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html)
+
+[https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
+
+PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)

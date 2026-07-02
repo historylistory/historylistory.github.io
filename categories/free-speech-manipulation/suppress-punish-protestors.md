@@ -366,10 +366,23 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/](https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/)
 
-2026-06-24 Eight protesters received decades-long sentences for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
+2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
 [https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s](https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s)
 
 [https://www.democracynow.org/2026/6/25/prairieland_nine](https://www.democracynow.org/2026/6/25/prairieland_nine)
 
 [https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent](https://www.pbs.org/newshour/show/anti-ice-protesters-sentenced-to-decades-in-prison-in-latest-crackdown-on-dissent)
+
+### 2026 July
+
+
+2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
+
+[https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1](https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1)
+
+2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
+
+[https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail](https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail)
+
+[https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center](https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center)

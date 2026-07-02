@@ -318,6 +318,7 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 
 [https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors](https://www.democracynow.org/2026/6/23/headlines/pentagon_says_latest_attack_on_alleged_drug_boat_killed_two_leaving_six_survivors)
 
+
 2026-06-25 Twin earthquakes devastated Venezuela.
 
 [https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1](https://www.youtube.com/watch?v=KENftuhiU8s&list=WL&index=1)
@@ -333,3 +334,13 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/](https://www.reuters.com/business/environment/hopes-finding-more-survivors-venezuela-earthquakes-fade-2026-06-30/)
 
 [https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/](https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/)
+
+2026-06-30 US Immigration sent detainees to Venezuela in the aftermath of the earthquake. 
+
+[https://www.bbc.com/news/articles/c3eyxjy01y3o](https://www.bbc.com/news/articles/c3eyxjy01y3o)
+
+[https://www.npr.org/2026/06/30/nx-s1-5875287/venezuela-deportees-us-quakes](https://www.npr.org/2026/06/30/nx-s1-5875287/venezuela-deportees-us-quakes)
+
+[https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk](https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk)
+
+SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees](https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees)

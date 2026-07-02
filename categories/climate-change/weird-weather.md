@@ -196,3 +196,25 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.cbsnews.com/losangeles/news/palisades-fire-jonathan-rinderknecht-mistrial/](https://www.cbsnews.com/losangeles/news/palisades-fire-jonathan-rinderknecht-mistrial/)
 
 [https://www.newsweek.com/why-the-palisades-fire-trial-verdict-is-about-more-than-just-blame-12125264](https://www.newsweek.com/why-the-palisades-fire-trial-verdict-is-about-more-than-just-blame-12125264)
+
+### 2026 July
+
+2026-07-01 The European Union Marine Environment Monitor report showed this is the ocean’s hottest June in history. 
+
+[https://marine.copernicus.eu/press/press-releases/persistent-ocean-warmth-and-expanding-marine-heatwaves-mark-first-half-2026](https://marine.copernicus.eu/press/press-releases/persistent-ocean-warmth-and-expanding-marine-heatwaves-mark-first-half-2026)
+
+[https://www.euractiv.com/news/worlds-oceans-break-june-heat-record-eu-monitor/](https://www.euractiv.com/news/worlds-oceans-break-june-heat-record-eu-monitor/)
+
+[https://www.nbcnews.com/science/climate-change/ocean-temperatures-hit-record-high-in-june-rcna352514](https://www.nbcnews.com/science/climate-change/ocean-temperatures-hit-record-high-in-june-rcna352514)
+
+[https://www.aljazeera.com/news/2026/7/1/worlds-oceans-experience-hottest-june-ever-scientists-say-more-heat-ahead](https://www.aljazeera.com/news/2026/7/1/worlds-oceans-experience-hottest-june-ever-scientists-say-more-heat-ahead)
+
+2026-07-01 More than 1000 people in France, 1000 people in Spain, and 800 people in Germany died from heat exposure. These numbers are likely to triple by 2100 due to climate change.
+
+[https://www.theguardian.com/environment/2026/jul/02/spain-france-new-heatwave-warning](https://www.theguardian.com/environment/2026/jul/02/spain-france-new-heatwave-warning)
+
+[https://people.com/france-reports-1000-excess-deaths-amid-heat-wave-12010213](https://people.com/france-reports-1000-excess-deaths-amid-heat-wave-12010213)
+
+[https://www.reuters.com/business/environment/france-records-1000-excess-deaths-during-record-breaking-heatwave-2026-06-28/](https://www.reuters.com/business/environment/france-records-1000-excess-deaths-during-record-breaking-heatwave-2026-06-28/)
+
+[https://www.ehn.org/heat-related-deaths-in-europe-could-triple-by-2100-due-to-climate-change](https://www.ehn.org/heat-related-deaths-in-europe-could-triple-by-2100-due-to-climate-change)

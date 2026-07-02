@@ -482,3 +482,15 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.timesofisrael.com/liveblog_entry/israeli-forces-kill-palestinian-teen-in-west-bank-palestinian-health-ministry-says/](https://www.timesofisrael.com/liveblog_entry/israeli-forces-kill-palestinian-teen-in-west-bank-palestinian-health-ministry-says/)
 
 [https://www.lemonde.fr/en/international/article/2026/06/29/israeli-forces-kill-palestinian-teen-in-west-bank-says-palestinian-health-ministry_6754989_4.html](https://www.lemonde.fr/en/international/article/2026/06/29/israeli-forces-kill-palestinian-teen-in-west-bank-says-palestinian-health-ministry_6754989_4.html)
+
+### 2026 July
+
+2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
+
+[https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo](https://www.democracynow.org/2026/7/2/headlines/presbyterian_church_usa_declares_israels_assault_on_gaza_a_genocide_urges_arms_embargo)
+
+[https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/](https://religionnews.com/2026/07/01/pcusa-calls-war-in-gaza-a-genocide-and-divests-from-complicit-corporations/)
+
+[https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide](https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide)
+
+[https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/](https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/)

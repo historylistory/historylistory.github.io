@@ -79,6 +79,17 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 
 ### 2022
 
+2022-01-01 Andrew Tate started “Hustlers University” and amassed followers of a right-wing anti-feminist pro-patriarchal movement.
+
+[https://www.youtube.com/watch?v=fyXbhsrb4Rs&list=WL&index=2&t=368s](https://www.youtube.com/watch?v=fyXbhsrb4Rs&list=WL&index=2&t=368s)
+
+[https://www.newyorker.com/magazine/2026/06/15/andrew-tates-empire-of-abuse](https://www.newyorker.com/magazine/2026/06/15/andrew-tates-empire-of-abuse)
+
+[https://www.theguardian.com/media/2022/aug/20/andrew-tate-money-making-scheme-for-fans-of-extreme-misogynist-closes](https://www.theguardian.com/media/2022/aug/20/andrew-tate-money-making-scheme-for-fans-of-extreme-misogynist-closes)
+
+[https://www.buzzfeednews.com/article/ikrd/andrew-tate-hustlers-university](https://www.buzzfeednews.com/article/ikrd/andrew-tate-hustlers-university)
+
+
 2022-07-15 Andrew Tate said, “If I have responsibility over her then I must have a degree of authority. You can’t be responsible for a dog if it doesn’t obey you”.
 
 [https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s](https://www.youtube.com/watch?v=o6vhLqqJMvU&t=7s)

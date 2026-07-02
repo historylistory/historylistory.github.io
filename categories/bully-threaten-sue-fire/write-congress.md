@@ -564,3 +564,7 @@ Manhattan grand jury in the hush-money case.
 2026-06-29 SCOTUS decided 6-to-3 to allow Trump authority over firing heads of independent federal agencies. Trump then fired FTC Commissioner Rebecca Slaughter.
 
 2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
+
+
+
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 

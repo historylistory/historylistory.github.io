@@ -468,3 +468,12 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law](https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law)
 
 [https://news.un.org/en/story/2026/06/1167816](https://news.un.org/en/story/2026/06/1167816)
+
+### 2026 July
+
+2026-07-01 Sister Leticia Ugboaja was detained by ICE while walking to mass. 
+
+[https://www.ncregister.com/cna/nun-arrested-by-ice-while-walking-to-sunday-mass-in-texas-released-after-lawmakers-intervention](https://www.ncregister.com/cna/nun-arrested-by-ice-while-walking-to-sunday-mass-in-texas-released-after-lawmakers-intervention)
+
+[https://www.texastribune.org/2026/06/30/texas-mcallen-nun-ice-detention-sister-letty/](https://www.texastribune.org/2026/06/30/texas-mcallen-nun-ice-detention-sister-letty/)
+

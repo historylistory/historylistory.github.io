@@ -270,3 +270,7 @@ The following examples highlight these concerns, while some are included for his
 2026-06-25 Twin earthquakes devastated Venezuela.
 
 2026-06-26 A judge declared a mistrial in the Palisades fire arson case against Jonathan Rinderkecht. The DOJ said they will continue to pursue. 
+
+2026-07-01 The European Union Marine Environment Monitor report showed this is the ocean’s hottest June in history. 
+
+2026-07-01 More than 1000 people in France, 1000 people in Spain, and 800 people in Germany died from heat exposure. These numbers are likely to triple by 2100 due to climate change.

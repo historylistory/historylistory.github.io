@@ -852,6 +852,13 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-25 A billion-dollar port in South Carolina was shut down. 
 
+2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
+
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
 
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
 2026-07-02 Trump declined to renew the USMCA trade deal with Mexico and Canada. 
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+

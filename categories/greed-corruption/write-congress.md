@@ -296,3 +296,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-06-30 Mamdani announced the permanent closure of Rikers Island, stating, “For decades, Rikers Island has represented one of the deepest failures of our City government…this milestone brings us closer to ending that chapter. We are replacing a system built around neglect with one centered on rehabilitation”. 
 
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 

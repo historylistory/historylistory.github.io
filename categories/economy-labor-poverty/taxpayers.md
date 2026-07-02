@@ -501,3 +501,13 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)
 
 [https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265](https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265)
+
+### 2026 July
+
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+
+[https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts](https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts)
+
+[https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)
+

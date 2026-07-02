@@ -585,11 +585,19 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-06-23 The DOJ charged 455 defendants with healthcare fraud. 
 
+2026-06-24 Trump cancelled signage of the affordable housing bill until the SAVE act passes.
+
 2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
 
 2026-06-26 Epstein billionaire business associate Leon Black was subpoenaed shortly after he walked out of an oversight committee hearing and refused to answer questions.
 
 2026-06-26 A judge ordered release of unredacted Epstein files. 
 
+2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
+
 2026-06-30 SCOTUS rejected Trump’s case against E. Jean Carroll. 
 
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+
+2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.

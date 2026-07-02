@@ -101,3 +101,9 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 2026-04-30 Former Army Ranger and paratrooper Congressman Jason Crow pressed Hegseth about conflicts of interest surrounding Special Advisor Tim Parlatore.
 
 [https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)
+
+### 2026 July
+
+2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
+
+[https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1](https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1)

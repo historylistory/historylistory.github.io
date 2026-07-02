@@ -171,3 +171,8 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
 
+2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
+
+[https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/](https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/)
+
+[https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509](https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509)

@@ -796,3 +796,10 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says](https://www.aljazeera.com/news/2026/6/11/detained-gaza-doctor-hussam-abu-safia-shows-signs-of-torture-family-says)
 
+2026-06-29 Elon Musk chastised MacKenzie Scott for donating $26 billion of her fortune, claiming generosity makes the world a worse place. 
+
+[https://www.businessinsider.com/elon-musk-mackenzie-scott-giving-doge-usaid-philanthropy-billionaires-wealth-2026-6](https://www.businessinsider.com/elon-musk-mackenzie-scott-giving-doge-usaid-philanthropy-billionaires-wealth-2026-6)
+
+[https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/](https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/)
+
+[https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html](https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html)

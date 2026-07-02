@@ -166,3 +166,13 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.pbs.org/newshour/politics/supreme-court-rejects-trumps-push-to-toss-5-million-verdict-in-e-jean-carroll-sexual-abuse-case](https://www.pbs.org/newshour/politics/supreme-court-rejects-trumps-push-to-toss-5-million-verdict-in-e-jean-carroll-sexual-abuse-case)
 
 [https://www.courthousenews.com/trump-denied-supreme-court-review-in-e-jean-carroll-sexual-assault-case/](https://www.courthousenews.com/trump-denied-supreme-court-review-in-e-jean-carroll-sexual-assault-case/)
+
+### 2026 July
+
+
+2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+
+[https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts](https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts)
+
+[https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)
+
