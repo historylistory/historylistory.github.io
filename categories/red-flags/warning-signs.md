@@ -212,6 +212,14 @@ PAY WALL [https://www.independent.ie/comment/letters/letters-as-an-irish-america
 
 [https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464](https://abcnews.go.com/Politics/landmark-case-supreme-court-rule-trumps-bid-control/story?id=128073464)
 
+2025-12-10 Trump put his face on national park passes. 
+
+[https://www.cnn.com/2025/12/11/politics/trump-face-replace-images-national-parks-passes-lawsuit](https://www.cnn.com/2025/12/11/politics/trump-face-replace-images-national-parks-passes-lawsuit)
+
+[https://biologicaldiversity.org/w/news/press-releases/lawsuit-challenges-trump-use-of-headshot-on-national-parks-pass-2025-12-10/](https://biologicaldiversity.org/w/news/press-releases/lawsuit-challenges-trump-use-of-headshot-on-national-parks-pass-2025-12-10/)
+
+[https://abcnews.com/US/face-lawsuit-targets-plan-put-trumps-image-popular/story?id=128292660](https://abcnews.com/US/face-lawsuit-targets-plan-put-trumps-image-popular/story?id=128292660)
+
 ### 2026 January
 
 2026-01-14 The Dutch say Trump is more dangerous than Adolf Hitler. 

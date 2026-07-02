@@ -40,6 +40,13 @@ permalink: /categories/ai-data-big-brother-doge/ai-other/
 
 [https://techcrunch.com/2026/02/04/after-backlash-adobe-cancels-adobe-animate-shutdown-and-puts-app-on-maintenance-mode/](https://techcrunch.com/2026/02/04/after-backlash-adobe-cancels-adobe-animate-shutdown-and-puts-app-on-maintenance-mode/)
 
+2026-02-13 Waymo is paying DoorDash drivers to come by and close robotaxi doors. 
+
+[https://www.thedriverlessdigest.com/p/waymo-is-paying-doordash-drivers](https://www.thedriverlessdigest.com/p/waymo-is-paying-doordash-drivers)
+
+[https://techcrunch.com/2026/02/12/waymo-is-asking-doordash-drivers-to-shut-the-doors-of-its-self-driving-cars/](https://techcrunch.com/2026/02/12/waymo-is-asking-doordash-drivers-to-shut-the-doors-of-its-self-driving-cars/)
+
+
 2026-02-18 Western digital and several other companies announced that due to AI data center demands, nearly all their hard drive stock is sold out.
 
 [https://www.t3.com/tech/laptops/western-digitals-entire-2026-hard-drive-stock-already-sold-out-ramaggedon-could-prove-even-more-disastrous-on-your-pocket](https://www.t3.com/tech/laptops/western-digitals-entire-2026-hard-drive-stock-already-sold-out-ramaggedon-could-prove-even-more-disastrous-on-your-pocket)

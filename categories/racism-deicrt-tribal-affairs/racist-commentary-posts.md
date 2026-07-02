@@ -539,6 +539,15 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 [https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2](https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2)
 
+2026-06-25 The Daily Wire released an Islamophobic movie “Infidels”. 
+
+[https://ew.com/jonathan-majors-daily-wire-run-hide-fight-infidels-movie-trailer-12006876](https://ew.com/jonathan-majors-daily-wire-run-hide-fight-infidels-movie-trailer-12006876)
+
+[https://www.dailywire.com/episode/behind-the-wire-ep-49](https://www.dailywire.com/episode/behind-the-wire-ep-49)
+
+[https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b](https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b)
+
+
 2026-06-26 Visitors at Trump’s Great American State Fair were surprised with a confederate flag hanging by an entrance display. 
 
 [https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4](https://www.youtube.com/watch?v=kZrGxpLmbxo&list=WL&index=4)
@@ -546,3 +555,4 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair](https://spectrumlocalnews.com/nc/charlotte/news/2026/06/26/confederate-flag-displayed-at-n-c--exhibit-at-america-s-state-fair)
 
 [https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html](https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html)
+

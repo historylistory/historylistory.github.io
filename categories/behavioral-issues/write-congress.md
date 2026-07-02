@@ -332,6 +332,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-12-10 DHS released a video of a Venezuelan oil tanker seizure to “Momma Said Knock You Out” by LL Cool J.
 
+2025-12-10 Trump put his face on national park passes. 
+
 2025-12-15 Trump invoked “Trump Derangement Syndrome” while posting about the murder of director Rob Reiner and his wife.
 
 2025-12-17 Kash Patel discussed his girlfriend on a Katie Miller podcast while he was supposed to be investigating the Brown University shooting and overseeing the manhunt for the killer.

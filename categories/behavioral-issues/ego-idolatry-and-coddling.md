@@ -175,6 +175,15 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://x.com/secrubio/status/1996368261827666104?s=46&t=-DGlDYI6esU-4We1z9gHiQ](https://x.com/secrubio/status/1996368261827666104?s=46&t=-DGlDYI6esU-4We1z9gHiQ)
 
+2025-12-10 Trump put his face on national park passes. 
+
+[https://www.cnn.com/2025/12/11/politics/trump-face-replace-images-national-parks-passes-lawsuit](https://www.cnn.com/2025/12/11/politics/trump-face-replace-images-national-parks-passes-lawsuit)
+
+[https://biologicaldiversity.org/w/news/press-releases/lawsuit-challenges-trump-use-of-headshot-on-national-parks-pass-2025-12-10/](https://biologicaldiversity.org/w/news/press-releases/lawsuit-challenges-trump-use-of-headshot-on-national-parks-pass-2025-12-10/)
+
+[https://abcnews.com/US/face-lawsuit-targets-plan-put-trumps-image-popular/story?id=128292660](https://abcnews.com/US/face-lawsuit-targets-plan-put-trumps-image-popular/story?id=128292660)
+
+
 2025-12-18 The Kennedy Center was renamed to include Trump’s name and had himself named the head of the board. Then he announced the center would close in February 2026. 
 
 [https://www.cnn.com/2025/12/30/politics/kennedy-center-cancelations-trump-name](https://www.cnn.com/2025/12/30/politics/kennedy-center-cancelations-trump-name)

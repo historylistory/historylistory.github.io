@@ -29,3 +29,13 @@ I realize I am missing a lot here. I just created this section April 30, 2026.
 [https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/](https://yellowhammernews.com/watch-alabama-attorney-general-candidates-unleash-tv-ad-blitz-you-can-allahu-akbar-your-butt-all-the-way-back-to-the-middle-east/)
 
 TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4)
+
+### 2026 June
+
+2026-06-25 The Daily Wire released an Islamophobic movie “Infidels”. 
+
+[https://ew.com/jonathan-majors-daily-wire-run-hide-fight-infidels-movie-trailer-12006876](https://ew.com/jonathan-majors-daily-wire-run-hide-fight-infidels-movie-trailer-12006876)
+
+[https://www.dailywire.com/episode/behind-the-wire-ep-49](https://www.dailywire.com/episode/behind-the-wire-ep-49)
+
+[https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b](https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b)

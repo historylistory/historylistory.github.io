@@ -84,6 +84,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
+2023-11-13 Social media conspiracy claims spread that Bill Gates bioengineered, and then released, genetically modified ticks to release the alpha-gal virus. 
+
 2024-01-08 Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.
 
 2024-01-26 News outlets reported a wave of misleading claims about immigration, the economy, electric vehicles, the Panama Canal, 2020, and January 6. 
