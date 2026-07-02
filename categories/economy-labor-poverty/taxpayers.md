@@ -26,7 +26,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2019
 
-2019-02-15 Trump declared a national emergency so he could ***redirect $8B in military construction and treasury funds*** into building the border wall***, and the ACLU sued.
+2019-02-15 Trump declared a national emergency so he could redirect $8 billion dollars away from military construction and treasury funds towards building the border wall, and the ACLU sued.
 
 [https://www.congress.gov/crs-product/R45908](https://www.congress.gov/crs-product/R45908)
 

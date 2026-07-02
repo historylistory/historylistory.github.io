@@ -30,23 +30,24 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 ### 2018
 
-2018-01-25 More people began to question the infrastructure planning of the border wall.
+2018-01-25 Texas smugglers reviewed Trump’s wall project and claimed it wouldn’t stop immigration or drug trafficking. 
 
 [https://www.texastribune.org/2018/01/25/texas-smugglers-say-trumps-border-wall-wouldnt-stop-immigrants-drugs-p/](https://www.texastribune.org/2018/01/25/texas-smugglers-say-trumps-border-wall-wouldnt-stop-immigrants-drugs-p/)
 
-2018-11-07 During a statement in the White House, Trump used the language "invasion" when referring to immigration at the border. It is important to keep this in mind because **Habeas Corpus has a suspension clause dependent upon any “rebellion or invasion”**.
-
-{% include youtubePlayer.html id="gXd8vdrhtfg" %}
+2018-11-07 Trump started using the language “invasion” when referring to immigration because Habeas Corpus has a suspension clause dependent upon any “rebellion or invasion”.
 
 [https://immigrantjustice.org/press-release/trump-asylum-ban-2-0-blocks-nearly-all-migrants-seeking-u-s-protection/](https://immigrantjustice.org/press-release/trump-asylum-ban-2-0-blocks-nearly-all-migrants-seeking-u-s-protection/)
 
+{% include youtubePlayer.html id="gXd8vdrhtfg" %}
+
+
 ### 2019
 
-2019-01-08 During an address at the Oval office, Trump made his case for what he said would be a $5.7B wall project. He reiterated that Mexico would pay for it.
+2019-01-08 Trump claimed again his $5.7B border wall project would be paid for by Mexico. 
 
 [https://www.cnbc.com/2019/01/08/trump-makes-grisly-case-for-border-wall-describing-beheadings-hammer-murders.html](https://www.cnbc.com/2019/01/08/trump-makes-grisly-case-for-border-wall-describing-beheadings-hammer-murders.html)
 
-2019-02-15 Trump declared a national emergency to transfer military construction and treasury funds to the tune of $8B into building the border wall, and the ACLU sued.
+2019-02-15 Trump declared a national emergency so he could redirect $8 billion dollars away from military construction and treasury funds towards building the border wall, and the ACLU sued.
 
 [https://www.congress.gov/crs-product/R45908](https://www.congress.gov/crs-product/R45908)
 

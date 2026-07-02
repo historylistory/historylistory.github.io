@@ -6,6 +6,16 @@ subcategory_slug: abroad
 permalink: /categories/children/abroad/
 ---
 
+### 2019 
+
+2019-06-30 A memo issued by the USCIS attempted to strip away certain protections for underage unaccompanied immigrants, impacting their ability to access their right to asylum. In one example, the U.S. government was confining children alone in hotels for weeks without access to counsel or proper medical care.
+
+[https://immigrantjustice.org/a-timeline-of-the-first-trump-administrations-efforts-to-end-asylum/](https://immigrantjustice.org/a-timeline-of-the-first-trump-administrations-efforts-to-end-asylum/)
+
+[https://www.propublica.org/article/her-rapist-threatened-to-make-her-disappear-instead-of-asylum-ice-put-her-in-a-hotel-and-sent-her-back](https://www.propublica.org/article/her-rapist-threatened-to-make-her-disappear-instead-of-asylum-ice-put-her-in-a-hotel-and-sent-her-back)
+
+UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDoxMHBVY2ktLVFTOFVYcWJYSHVHTGVxU196TGtZ/view?resourcekey=0-BKG3ZppXyMaoh0cRmf6EkA](https://drive.google.com/file/d/0B_6gbFPjVDoxMHBVY2ktLVFTOFVYcWJYSHVHTGVxU196TGtZ/view?resourcekey=0-BKG3ZppXyMaoh0cRmf6EkA)
+
 ### 2025 January
 
 2025-01-24 The administration cut portions of PEPFAR funding which provided lifesaving treatment for pregnant women, breastfeeding mothers, orphans, and vulnerable children. Reports linked the cuts to disruptions in care and child deaths. 
