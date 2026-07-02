@@ -82,3 +82,13 @@ Also out of left field, one conservative commentator praised the win as a show o
 [https://www.bbc.com/news/articles/c809jg1gj9yo](https://www.bbc.com/news/articles/c809jg1gj9yo)
 
 [https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7](https://www.youtube.com/watch?v=0qjHogB8GKs&list=WL&index=7)
+
+### 2026 July
+
+2026-07-02 Trump declined to renew the USMCA trade deal with Mexico and Canada. 
+
+[https://www.cnbc.com/2026/07/01/trump-usmca-canada-mexico-trade-treaty.html](https://www.cnbc.com/2026/07/01/trump-usmca-canada-mexico-trade-treaty.html)
+
+[https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633](https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633)
+
+[https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/](https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/)

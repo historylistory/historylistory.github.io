@@ -22,11 +22,11 @@ permalink: /categories/military-veterans/other/
 
 [https://www.baltimorepolice.org/news/baltimore-police-department-releases-2025-mid-year-crime-report-and-key-highlights](https://www.baltimorepolice.org/news/baltimore-police-department-releases-2025-mid-year-crime-report-and-key-highlights)
 
-2025-08-25 National Guard troops in Washington D.C. were given orders to **carry weapons**.
+2025-08-25 National Guard troops in Washington D.C. were given orders to carry weapons.
 
 [https://www.cnn.com/2025/08/24/politics/national-guard-dc-weapons](https://www.cnn.com/2025/08/24/politics/national-guard-dc-weapons)
 
-2025-08-25 During a press conference in the Oval office, Trump made threats to send military forces into Chicago.
+2025-08-25 Trump threatened to send military forces into Chicago. 
 
 [https://www.politico.com/news/2025/08/25/trump-national-guard-chicago-00523253](https://www.politico.com/news/2025/08/25/trump-national-guard-chicago-00523253)
 

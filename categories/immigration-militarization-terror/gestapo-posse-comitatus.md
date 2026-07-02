@@ -91,19 +91,19 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.baltimorepolice.org/news/baltimore-police-department-releases-2025-mid-year-crime-report-and-key-highlights](https://www.baltimorepolice.org/news/baltimore-police-department-releases-2025-mid-year-crime-report-and-key-highlights)
 
-2025-08-25 National Guard troops in Washington D.C. were given orders to **carry weapons**.
+2025-08-25 National Guard troops in Washington D.C. were given orders to carry weapons.
 
 [https://www.cnn.com/2025/08/24/politics/national-guard-dc-weapons](https://www.cnn.com/2025/08/24/politics/national-guard-dc-weapons)
 
-2025-08-25 During a press conference in the Oval office, Trump made threats to send military forces into Chicago.
+2025-08-25 Trump threatened to send military forces into Chicago. 
 
 [https://www.politico.com/news/2025/08/25/trump-national-guard-chicago-00523253](https://www.politico.com/news/2025/08/25/trump-national-guard-chicago-00523253)
 
-2025-08-25 In a statement to media, Governor Pritzker issued a warning of authoritarian creep and a dangerous power grab.
+2025-08-25 Governor Pritzker warned of authoritarian creep and a dangerous power grab.
 
 [https://www.facebook.com/watch/?v=1608455650508903](https://www.facebook.com/watch/?v=1608455650508903)
 
-2025-08-28 Tom Homan stated he was going to ramp up ICE in Los Angeles and stage in Chicago.
+2025-08-28 Tom Homan said he would ramp up ICE in Los Angeles and stage in Chicago.
 
 [https://lbpost.com/news/immigration/border-czar-immigration-enforcement-to-ramp-up-in-la-other-cities/](https://lbpost.com/news/immigration/border-czar-immigration-enforcement-to-ramp-up-in-la-other-cities/)
 
@@ -143,7 +143,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.scotusblog.com/2025/09/supreme-court-allows-federal-officers-to-more-freely-make-immigration-stops-in-los-angeles/](https://www.scotusblog.com/2025/09/supreme-court-allows-federal-officers-to-more-freely-make-immigration-stops-in-los-angeles/)
 
-2025-09-08 DHS launched **Operation Midway Blitz** in Chicago, politicizing a drunk driving hit and run in Illinois, and pointing fingers at the governor's sanctuary policies.
+2025-09-08 DHS launched Operation Midway Blitz in Chicago, politicized a drunk driving hit and run in Illinois, and pointed fingers at the governor’s sanctuary policies.
 
 [https://www.dhs.gov/news/2025/09/08/ice-launches-operation-midway-blitz-honor-katie-abraham-target-criminal-illegal](https://www.dhs.gov/news/2025/09/08/ice-launches-operation-midway-blitz-honor-katie-abraham-target-criminal-illegal)
 

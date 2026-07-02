@@ -23,7 +23,7 @@ permalink: /categories/foreign-affairs-isolation/sudan/
 
 ### 2025 August
 
-2025-08-28 News outlets reported that both Rwanda and South Sudan would be taking immigrants deported by the U.S.
+2025-08-28 The Trump administration deported detainees to Rwanda and South Sudan. 
 
 [https://www.pbs.org/newshour/world/more-african-nations-are-receiving-third-country-immigrants-deported-by-the-u-s-here-are-5-things-to-know](https://www.pbs.org/newshour/world/more-african-nations-are-receiving-third-country-immigrants-deported-by-the-u-s-here-are-5-things-to-know)
 

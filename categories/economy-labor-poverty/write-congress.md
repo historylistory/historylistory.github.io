@@ -356,7 +356,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-09-14 Trump requested an additional $58M in taxpayer funds for security. 
 
-2025-09-14 Trump’s government spending on immigration reached $75B.
+2025-09-14 Trump’s government spending on immigration reached $75 billion.
 
 2025-09-15 Trump considered selling TikTok to Larry Ellison. 
 

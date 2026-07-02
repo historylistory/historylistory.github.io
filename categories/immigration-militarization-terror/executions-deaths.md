@@ -24,7 +24,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 ### 2025 September
 
-2025-09-12 During ICE presence in Franklin Park Illinois an agent shot Silverio Villegas Gonzalez to death. DHS maintained that the suspect dragged an agent with their car, yet video footage available has not substantiated any of those claims. Onlookers took footage of agents pulling the man’s lifeless body out of a car. Some news sources stated **agents were not wearing body****cams**.
+2025-09-12 During ICE presence in Franklin Park Illinois an agent shot Silverio Villegas Gonzalez to death. DHS maintained that the suspect dragged an agent with their car, yet video footage available has not substantiated any of those claims. Onlookers took footage of agents pulling the man’s lifeless body out of a car. Some news sources stated agents were not wearing bodycams.
 
 [https://www.hrw.org/news/2025/09/16/investigate-death-of-mexican-national-during-ice-stop](https://www.hrw.org/news/2025/09/16/investigate-death-of-mexican-national-during-ice-stop)
 

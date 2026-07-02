@@ -62,25 +62,25 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 [https://www.cbsnews.com/miami/news/detainees-describe-worms-in-food-sewage-near-beds-inside-alligator-alcatraz/](https://www.cbsnews.com/miami/news/detainees-describe-worms-in-food-sewage-near-beds-inside-alligator-alcatraz/)
 
-2025-07-16 A class action suit was filed against the Trump administration for **thousands of unlawful arrests and detentions**, citing immigrants were lawfully appearing for their scheduled hearings.
+2025-07-16 A class action suit was filed against the Trump administration for thousands of unlawful arrests and detentions, citing immigrants were lawfully appearing for their scheduled hearings.
 
 [https://immigrantjustice.org/press-release/unlawful-ice-arrests-at-immigration-courthouses-prompt-lawsuit-by-advocates-and-immigrants/](https://immigrantjustice.org/press-release/unlawful-ice-arrests-at-immigration-courthouses-prompt-lawsuit-by-advocates-and-immigrants/)
 
 ### 2025 August
 
-2025-08-14 News outlets reported **ongoing** inhumane conditions and treatment at Alligator Alcatraz.
+2025-08-14 News outlets reported ongoing inhumane conditions and treatment at Alligator Alcatraz.
 
 [https://abcnews.go.com/US/youre-dead-alive-families-advocates-allege-inhumane-conditions/story?id=124645763](https://abcnews.go.com/US/youre-dead-alive-families-advocates-allege-inhumane-conditions/story?id=124645763)
 
-2025-08-14 DeSantis announced a second ICE detention facility in Florida will open, calling it Deportation Depot.
+2025-08-14 DeSantis announced Deportation Depot; a second ICE detention facility in Florida.
 
 [https://www.pbs.org/newshour/politics/desantis-announces-plans-for-second-immigration-detention-facility-dubbed-deportation-depot](https://www.pbs.org/newshour/politics/desantis-announces-plans-for-second-immigration-detention-facility-dubbed-deportation-depot)
 
-2025-08-19 DHS sent out a post on X announcing the upcoming Cornhusker Clink.
+2025-08-19 DHS announced the opening of Cornhusker Clink. 
 
 [https://x.com/DHSgov/status/1957931320044138759](https://x.com/DHSgov/status/1957931320044138759)
 
-2025-08-27 Long-time community organizer and valid DACA holder Catalina Xochitl Santiago was detained at a domestic flight while on the way to work in El Paso. Even after a judge ruled that her DACA status was valid she remained in detention.
+2025-08-27 Long-time community organizer and valid DACA holder Catalina Xochitl Santiago was detained at a domestic flight while on the way to work in El Paso and was kept in detention even after a judge ruled her DACA status was valid. 
 
 [https://www.theguardian.com/us-news/2025/aug/27/daca-recipient-detention-immigration](https://www.theguardian.com/us-news/2025/aug/27/daca-recipient-detention-immigration)
 
@@ -91,7 +91,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 [https://stateline.org/2025/09/04/wildfire-veterans-furious-at-dhs-claim-that-raided-crews-were-not-firefighters/](https://stateline.org/2025/09/04/wildfire-veterans-furious-at-dhs-claim-that-raided-crews-were-not-firefighters/)
 
 
-2025-08-28 A judge ordered the shutdown of Alligator Alcatraz for environmental reasons. While inhumane conditions were not enough to close the facility, touting the environmental impact of the facility may have been a loophole.
+2025-08-28 A judge ordered the shutdown of Alligator Alcatraz for environmental reasons. 
 
 [https://www.newsweek.com/ron-desantis-wasted-250-million-alligator-alcatraz-it-faces-closure-2120638](https://www.newsweek.com/ron-desantis-wasted-250-million-alligator-alcatraz-it-faces-closure-2120638)
 
