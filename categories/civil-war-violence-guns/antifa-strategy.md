@@ -74,7 +74,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 {% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
-2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 [https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests](https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests)
 

@@ -157,7 +157,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 October
 
-2025-10-02 Trump posted false claims on social media that Democrats want to give healthcare to illegal immigrants. 
+2025-10-02 Trump falsely claimed that Democrats want to give healthcare to illegal immigrants. 
 
 2025-10-05 Kash Patel posted false video evidence on his X account of the so-called ramming of DHS vehicles by Marimar Martinez, which later turned out to be video from another unrelated vehicular assault. This came to light after video evidence surfaced that DHS was lying about the events concerning Marimar Martinez, who they shot multiple times.
 

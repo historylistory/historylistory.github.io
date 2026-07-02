@@ -336,7 +336,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY.
 
-2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 

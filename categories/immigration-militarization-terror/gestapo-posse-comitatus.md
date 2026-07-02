@@ -183,7 +183,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="k2wVMYCAfyc" %}
 
-2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 [https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests](https://www.theguardian.com/us-news/2025/sep/05/trump-portland-video-protests)
 
@@ -197,21 +197,25 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="hTgQRv3BRfg" %}
 
-2025-09-30 During an MSNBC interview, Senator Tammy Duckworth stated, “**Our troops did not sign up to be on the streets to intimidate our neighbors**".
+2025-09-30 In a statement Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
 {% include youtubePlayer.html id="46bOyMz5kqo" %}
 
 ### 2025 October
 
-2025-10-01 By October 2025, every single city where the military had been deployed has been **governed ONLY by Democratic mayors**.
+2025-10-01 By October 2025, Trump only deployed military to cities governed by Democrat mayors. 
 
-2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
+2025-10-01 Benny Johnson, Chris Lewandowski and Kristi Noem claimed there would be ICE presence at the Super Bowl. 
 
 [https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/](https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/)
 
 [https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/](https://www.rollingstone.com/music/music-latin/kristi-noem-ice-super-bowl-blasts-nfl-bad-bunny-1235440974/)
 
-2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were "**unleashed**" and stated, "**we are about to provide you with a level of support that you cannot even imagine**".
+2025-10-01 Illinois investigated ICE for numerous allegations of feuding with residents and endangering first responders.
+
+[https://abc7.com/post/ice-chicago-illinois-governor-says-troops-could-deployed-city-immigration-agents-patrol-downtown/17916427/](https://abc7.com/post/ice-chicago-illinois-governor-says-troops-could-deployed-city-immigration-agents-patrol-downtown/17916427/)
+
+2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were “unleashed”, saying, “we are about to provide you with a level of support that you cannot even imagine”.
 
 {% include youtubePlayer.html id="gZvOJjq81cQ" %}
 

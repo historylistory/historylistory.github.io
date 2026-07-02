@@ -200,7 +200,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-09-29 Trump briefly shared and then deleted an AI-generated video featuring Lara Trump promoting “Medbeds.”
 
-2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 2025-10-05 Mike Johnson posted, “as a condition for ending the Democrat shutdown, Democrats want hospitals (to be) paid MORE to treat illegal aliens than American citizens”.
 

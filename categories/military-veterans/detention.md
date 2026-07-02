@@ -45,7 +45,7 @@ permalink: /categories/military-veterans/detention/
 
 ### 2025 September
 
-2025-09-30 During an MSNBC interview, Senator Tammy Duckworth stated, “**Our troops did not sign up to be on the streets to intimidate our neighbors**".
+2025-09-30 In a statement Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
 {% include youtubePlayer.html id="46bOyMz5kqo" %}
 

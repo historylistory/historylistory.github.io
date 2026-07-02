@@ -277,7 +277,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/](https://www.forbes.com/sites/suzannerowankelleher/2025/10/14/airports-refuse-dhs-video-blaming-democrats-shutdown-not-hatch-act-violation/)
 
-2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
+2025-10-01 Benny Johnson, Chris Lewandowski and Kristi Noem claimed there would be ICE presence at the Super Bowl. 
 
 [https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/](https://www.nbcbayarea.com/news/local/trump-adviser-ice-super-bowl-lx/3957699/)
 

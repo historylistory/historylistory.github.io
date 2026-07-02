@@ -255,7 +255,7 @@ couldn’t remember where he assigned Walker, stating, “…and now he’s goin
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages 
 included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
-2025-10-01 Benny Johnson and Chris Lewandowski discussed ICE presence at the Super Bowl. Kristi Noem confirmed this later. 
+2025-10-01 Benny Johnson, Chris Lewandowski and Kristi Noem claimed there would be ICE presence at the Super Bowl. 
 
 2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
 

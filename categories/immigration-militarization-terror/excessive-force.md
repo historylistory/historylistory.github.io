@@ -66,15 +66,15 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2025 October
 
-2025-10-01 Illinois sought to launch investigations into ICE for numerous allegations of feuding with protestors and **endangering first responders** and residents.
+2025-10-01 Illinois investigated ICE for numerous allegations of feuding with residents and endangering first responders.
 
 [https://abc7.com/post/ice-chicago-illinois-governor-says-troops-could-deployed-city-immigration-agents-patrol-downtown/17916427/](https://abc7.com/post/ice-chicago-illinois-governor-says-troops-could-deployed-city-immigration-agents-patrol-downtown/17916427/)
 
-2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were "**unleashed**" and stated, "**we are about to provide you with a level of support that you cannot even imagine**".
+2025-10-02 During a Memphis Safe Task Force conference, Stephen Miller told law enforcement they were “unleashed”, saying, “we are about to provide you with a level of support that you cannot even imagine”.
 
 {% include youtubePlayer.html id="gZvOJjq81cQ" %}
 
-2025-10-02 ICE raided a Chicago apartment in the middle of the night using riot trucks, smoke grenades and helicopters. Agents used zip ties, **dragged children out naked**, and when residents asked ICE why they were zip-tying children too an agent responded, "**fuck them kids**".
+2025-10-02 ICE raided a Chicago apartment in the middle of the night with riot trucks, smoke grenades and helicopters. Agents used zip ties, dragged children out naked, and when residents asked ICE why they were zip-tying children too an agent responded, “fuck them kids”.
 
 {% include youtubePlayer.html id="vOXOWAhFz0A" %}
 

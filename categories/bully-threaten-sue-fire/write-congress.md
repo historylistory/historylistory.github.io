@@ -314,7 +314,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
-2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
 2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
 
