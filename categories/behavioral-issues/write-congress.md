@@ -193,7 +193,7 @@ Plan. On the first day of the war in Iran, the US launched a Tomahawk missile in
 
 2025-06-24 Trump shouted “They don’t know what the fuck they’re doing” about Iran and Israel.
 
-2025-06-30 Laura Loomer joked that alligators would get “65 million meals” from migrants. She wrote on X, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
+2025-06-30 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
 2025-07-01 Trump floated holding a UFC event on the White House lawn and confirmed later in October they will be having it in June 2026.
 

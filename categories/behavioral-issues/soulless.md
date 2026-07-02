@@ -225,7 +225,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 {% include youtubePlayer.html id="f-POfJnbHIs" %}
 
-2025-06-30 Laura Loomer joked that alligators would get “65 million meals” from migrants. She wrote on X, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
+2025-06-30 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 

@@ -54,13 +54,11 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2025 July
 
-2025-07-03 Alligator Alcatraz was erected and was estimated to cost roughly **$450M** per year to maintain. **Karoline Leavitt said with a smile there's only "one road in and one flight out"**. DeSantis promises more facilities.
+2025-07-03 Alligator Alcatraz was erected and was estimated to cost roughly $450M per year to maintain. Karoline Leavitt said with a smile there’s only “one road in and one flight out”. DeSantis promises more facilities.
 
 {% include youtubePlayer.html id="Urvg3bCjq8Q" %}
 
-{% include youtubePlayer.html id="Urvg3bCjq8Q" %}
-
-2025-07-11 Reports came in about inhumane conditions at Alligator Alcatraz including flooding, water issues, worms in the food, and the spread of disease.
+2025-07-11 Reports emerged about inhumane conditions at Alligator Alcatraz including flooding, water issues, worms in the food, and the spread of disease.
 
 [https://www.cbsnews.com/miami/news/detainees-describe-worms-in-food-sewage-near-beds-inside-alligator-alcatraz/](https://www.cbsnews.com/miami/news/detainees-describe-worms-in-food-sewage-near-beds-inside-alligator-alcatraz/)
 

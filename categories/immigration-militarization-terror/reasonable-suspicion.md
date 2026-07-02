@@ -29,7 +29,7 @@ permalink: /categories/immigration-militarization-terror/reasonable-suspicion/
 
 ### 2025 July
 
-2025-07-11 Tom Homan stated that they don't need probable cause to detain someone, just reasonable suspicion.
+2025-07-11 Tom Homan claimed DHS didn’t need probable cause to detain someone, just reasonable suspicion.
 
 [https://thehill.com/homenews/administration/5396985-trump-homan-immigration-detainments/](https://thehill.com/homenews/administration/5396985-trump-homan-immigration-detainments/)
 

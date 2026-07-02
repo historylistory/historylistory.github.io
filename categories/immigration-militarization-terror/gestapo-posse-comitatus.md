@@ -53,11 +53,11 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 ### 2025 July
 
-2025-07-01 The Senate passed an unprecedented **$170B (billion)** in spending for immigration enforcement.
+2025-07-01 The Senate passed an unprecedented $170 billion in spending for immigration enforcement.
 
 [https://www.americanimmigrationcouncil.org/press-release/congress-approves-unprecedented-funding-mass-detention-deportation-2025/](https://www.americanimmigrationcouncil.org/press-release/congress-approves-unprecedented-funding-mass-detention-deportation-2025/)
 
-2025-07-07 During a press conference Karoline Leavitt addressed Operation Summer Heat which she stated, “has our murder rate trending in the lowest direction in United States history”.
+2025-07-07 Karoline Leavitt addressed Operation Summer Heat saying, “has our murder rate trending in the lowest direction in United States history”.
 
 {% include youtubePlayer.html id="rM3xqO_KJZ8" %}
 
