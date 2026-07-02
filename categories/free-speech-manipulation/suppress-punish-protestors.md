@@ -366,7 +366,7 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/](https://www.amnesty.org/en/latest/news/2026/06/uk-terrorist-sentence-for-palestine-action-marks-dangerous-move-against-right-to-protest/)
 
-2026-06-24 Protesters are now receiving decades-long sentences for demonstrating outside detention centers.
+2026-06-24 Eight protesters received decades-long sentences for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
 [https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s](https://www.youtube.com/watch?v=5IYVyPLd17Y&list=WL&index=4&t=74s)
 

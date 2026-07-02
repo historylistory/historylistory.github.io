@@ -376,7 +376,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
 
-2026-06-24 Protesters are now receiving decades-long sentences for demonstrating outside detention centers.
+2026-06-24 Eight protesters received decades-long sentences for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
 2026-06-26 Two federal officers showed up at a polling office in Syracuse New York to threaten a woman for posting on social media criticizing ICE officers. 
 
