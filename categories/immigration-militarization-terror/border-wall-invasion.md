@@ -104,7 +104,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/guaranteeing-the-states-protection-against-invasion/](https://www.whitehouse.gov/presidential-actions/2025/01/guaranteeing-the-states-protection-against-invasion/)
 
-2025-04-17 American citizens including licensed doctors and attorneys began receiving legitimate but erroneous DHS emails telling them to leave the country, stating “It is time for you to leave the United States”.
+2025-04-17 American citizens, licensed doctors and attorneys received letters from DHS telling them, “It is time for you to leave the United States”.
 
 [https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698](https://www.nbcnews.com/news/us-news/doctor-email-immigration-leave-country-rcna201698)
 

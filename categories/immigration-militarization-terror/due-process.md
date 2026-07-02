@@ -42,7 +42,7 @@ permalink: /categories/immigration-militarization-terror/due-process/
 
 ### 2025 May
 
-2025-05-06 During a confirmation hearing, Lauren Underwood asked Kristi Noem if she believed the Constitution guaranteed due process to everyone in America. Kristi Noem refused to give a definitive answer.
+2025-05-06 During a confirmation hearing, Lauren Underwood asked Kristi Noem if she believed the Constitution guaranteed due process to everyone in America, to which Kristi Noem refused to answer.
 
 [https://www.facebook.com/watch/?v=1369851931132185](https://www.facebook.com/watch/?v=1369851931132185)
 

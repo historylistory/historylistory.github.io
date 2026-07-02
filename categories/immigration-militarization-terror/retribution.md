@@ -8,7 +8,7 @@ permalink: /categories/immigration-militarization-terror/retribution/
 
 ### 2025 June
 
-2025-06-13 During an address, Kristi Noem said the reason feds were in Los Angeles were due to “socialist and burdensome leadership”.
+2025-06-13 Kristi Noem claimed that feds were in Los Angeles due to “socialist and burdensome leadership”.
 
 [https://www.ms.now/opinion/msnbc-opinion/kristi-noem-alex-padilla-detained-los-angeles-ice-rcna212764](https://www.ms.now/opinion/msnbc-opinion/kristi-noem-alex-padilla-detained-los-angeles-ice-rcna212764)
 

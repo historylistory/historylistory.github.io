@@ -164,7 +164,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-03-25 Minnesota introduced SF 2589 to study what they call “Trump Derangement Syndrome”.
 
-2025-04-30 The White House shared an altered image labeling Abrego Garcia’s tattoos as “M-S-1-3”; Trump later insisted the image was authentic.
+2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
 
 2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced Bill HR3432 the so-called “Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn’t aligned with the Trump agenda must be suffering from a mental illness. This was not the first use of this phraseology - it was also found in an opinion article in 2023 “Bari Weiss Derangement Syndrome”.
 

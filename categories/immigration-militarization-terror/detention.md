@@ -35,7 +35,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 [https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673](https://apnews.com/article/leqaa-kordia-ice-immigration-trump-f3c4cb201d00038313f202653b3f4673)
 
-2025-03-18 News outlets reported family outcries because their loved ones being detained were **not** gang members **or** criminals.
+2025-03-18 The Trump administration repeatedly detained non-criminal and non-violent people. 
 
 [https://abcnews.go.com/US/families-migrants-relatives-deported-ice-gang-members/story?id=119892593](https://abcnews.go.com/US/families-migrants-relatives-deported-ice-gang-members/story?id=119892593)
 

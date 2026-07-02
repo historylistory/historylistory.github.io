@@ -32,6 +32,16 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 [https://www.nytimes.com/interactive/2025/03/15/opinion/foreign-aid-cuts-impact.html](https://www.nytimes.com/interactive/2025/03/15/opinion/foreign-aid-cuts-impact.html)
 
+### 2025 February
+
+2025-02-14 The Trump administration rerouted agents from child sex trafficking, drug trafficking, weapon trafficking investigations to focus on immigration enforcement. 
+
+[https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf](https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf)
+
+[https://www.nytimes.com/2025/11/16/us/politics/dhs-agents-reassigned.html#:~:text=The%20Department%20of%20Homeland%20Security%20has%20diverted%20thousands%20of%20federal,to%20prioritize%20new%20immigration%20officers](https://www.nytimes.com/2025/11/16/us/politics/dhs-agents-reassigned.html).
+
+[https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
+
 ### 2025 July
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 

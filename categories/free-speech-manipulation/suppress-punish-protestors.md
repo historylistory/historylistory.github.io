@@ -181,7 +181,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114650947329138948](https://truthsocial.com/@realDonaldTrump/posts/114650947329138948)
 
-2025-06-11 A federal judge blocked Trump from deporting Mahmoud Khalil, ruling that it was **unconstitutional** to detain or deport someone based on their political advocacy.
+2025-06-11 A federal judge blocked Trump from deporting Mahmoud Khalil, ruling that it was unconstitutional to detain or deport someone based on their political advocacy.
 
 [https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/](https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/)
 

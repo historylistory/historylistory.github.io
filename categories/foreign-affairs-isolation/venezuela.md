@@ -23,6 +23,13 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://www.bbc.com/news/world-latin-america-46982692](https://www.bbc.com/news/world-latin-america-46982692)
 
+### 2025 March
+
+2025-03-06 Trump invoked the Wartime Alien Enemies Act of 1798 to bypass due process and target Venezuelan immigrants.
+
+[https://www.brennancenter.org/our-work/analysis-opinion/president-trump-illegally-invokes-alien-enemies-act-brennan-center-reacts](https://www.brennancenter.org/our-work/analysis-opinion/president-trump-illegally-invokes-alien-enemies-act-brennan-center-reacts)
+
+
 ### 2025 August
 
 2025-01-20 Pages 179 and 181 of the Heritage Foundation’s Project 2025 calls to take action against Venezuela.

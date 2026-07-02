@@ -118,7 +118,7 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 ### 2025 June
 
-2025-06-11 The DOJ issued a memorandum **making it possible to strip citizenship from naturalized Americans**.
+2025-06-11 The DOJ issued a memorandum making it possible to strip citizenship from naturalized Americans.
 
 [https://ohiocapitaljournal.com/2025/07/18/trump-efforts-to-strip-citizenship-from-naturalized-americans-likely-violate-constitutional-rights/](https://ohiocapitaljournal.com/2025/07/18/trump-efforts-to-strip-citizenship-from-naturalized-americans-likely-violate-constitutional-rights/)
 

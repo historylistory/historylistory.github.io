@@ -95,6 +95,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-02-03 Congress passed the bipartisan Give Kids a Chance Act to speed development of pediatric cancer drug combinations. 
 
+2025-02-14 The Trump administration rerouted agents from child sex trafficking, drug trafficking, weapon trafficking investigations to focus on immigration enforcement. 
+
 2025-02-14 Immigration-enforcement priorities reportedly diverted agents AWAY from drug trafficking, weapons trafficking, and child-trafficking investigations
 
 2025-04-08 The Fairness for Stay-at-Home Parents Act was introduced

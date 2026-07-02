@@ -46,6 +46,14 @@ permalink: /categories/children/immigrants/
 
 [https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
 
+2025-02-14 The Trump administration rerouted agents from child sex trafficking, drug trafficking, weapon trafficking investigations to focus on immigration enforcement. 
+
+[https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf](https://www.congress.gov/119/meeting/house/117980/documents/HHRG-119-GO00-20250305-SD017.pdf)
+
+[https://www.nytimes.com/2025/11/16/us/politics/dhs-agents-reassigned.html#:~:text=The%20Department%20of%20Homeland%20Security%20has%20diverted%20thousands%20of%20federal,to%20prioritize%20new%20immigration%20officers](https://www.nytimes.com/2025/11/16/us/politics/dhs-agents-reassigned.html).
+
+[https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
+
 2025-08-31 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation. 
 
 [https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala](https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala)

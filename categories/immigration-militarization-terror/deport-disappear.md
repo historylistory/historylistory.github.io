@@ -12,7 +12,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 {% include youtubePlayer.html id="jMtGXSB8tlU" %}
 
-2025-04-30 The White House shared an altered image labeling Abrego Garcia’s tattoos as “M-S-1-3”; Trump later insisted the image was authentic.
+2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
 
 {% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 
@@ -46,7 +46,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 ### 2025 May
 
-2025-05-16 The Supreme Court blocked deportations under the Alien Enemies Act, but Samuel Alito and Clarence Thomas, in a dissent, claimed the court didn’t have the jurisdiction to stop deportations.
+2025-05-16 The Supreme Court blocked deportations under the Alien Enemies Act, but Samuel Alito and Clarence Thomas claimed the court didn’t have the jurisdiction to stop deportations.
 
 [https://www.npr.org/2025/05/16/g-s1-67244/supreme-court-texas-alien-enemies-act](https://www.npr.org/2025/05/16/g-s1-67244/supreme-court-texas-alien-enemies-act)
 
@@ -54,7 +54,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 ### 2025 June
 
-2025-06-11 A federal judge blocked Trump from deporting Mahmoud Khalil, ruling that it was **unconstitutional** to detain or deport someone based on their political advocacy.
+2025-06-11 A federal judge blocked Trump from deporting Mahmoud Khalil, ruling that it was unconstitutional to detain or deport someone based on their political advocacy.
 
 [https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/](https://mondoweiss.net/2025/06/federal-judge-blocks-trump-from-continuing-to-detain-mahmoud-khalil-over-his-political-activism/)
 

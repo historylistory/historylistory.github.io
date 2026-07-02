@@ -46,7 +46,7 @@ permalink: /categories/conspiracies/immigrants/
 
 ### 2025 April
 
-2025-04-30 The White House shared an altered image labeling Abrego Garcia’s tattoos as “M-S-1-3”; Trump later insisted the image was authentic.
+2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
 
 {% include youtubePlayer.html id="H0Z-Ver2K9c" %}
 
