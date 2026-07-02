@@ -12,10 +12,6 @@ permalink: /categories/immigration-militarization-terror/children/
 
 [https://www.cnn.com/2015/08/19/politics/donald-trump-birthright-american-citizenship](https://www.cnn.com/2015/08/19/politics/donald-trump-birthright-american-citizenship)
 
-2015-08-25 During an interview, Jeb Bush said Trump’s plans were not grounded in conservative principles and would cost **hundreds of billions of dollars**; Regardless of his correct assertion, it is fair to note he also used the terminology "anchor babies" alongside his conservative constituents.
-
-[https://www.nbcnews.com/news/asian-america/jeb-bush-draws-fire-blaming-asians-anchor-baby-debate-n415421](https://www.nbcnews.com/news/asian-america/jeb-bush-draws-fire-blaming-asians-anchor-baby-debate-n415421)
-
 ### 2017
 
 2017-01-20 The Trump administration used child separation as a deterrent to asylum seekers. 

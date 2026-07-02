@@ -8,13 +8,13 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 ### 2015
 
-2015-06-16 Trump first pitched building a wall and made promises that Mexico would pay for it.
+2015-06-16 Trump first pitched building a wall and promised Mexico would pay for it.
 
 [https://www.npr.org/2016/04/05/473109475/trumps-plan-to-make-mexico-pay-for-the-wall](https://www.npr.org/2016/04/05/473109475/trumps-plan-to-make-mexico-pay-for-the-wall)
 
 ### 2016
 
-2016-09-01 During an election speech in Phoenix AZ, Trump made another guarantee to the crowd that **Mexico would be paying** for the wall.
+2016-09-01 During an election speech in Phoenix AZ Trump promised the crowd Mexico would pay to build the wall.
 
 [https://www.congress.gov/crs-product/R45908](https://www.congress.gov/crs-product/R45908)
 
@@ -22,7 +22,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 ### 2017
 
-2017-04-05 During a Congressional hearing, John Kelly acknowledged that illegal drugs from Mexico "**mostly come through the ports of entry**". It took until around August before some began to speculate building a wall would not actually stop drugs from entering the US.
+2017-04-05 John Kelly acknowledged that illegal drugs from Mexico “mostly come through the ports of entry”, further confirming that building a wall would do nothing to stop drugs from entering the US.
 
 [https://www.c-span.org/program/senate-committee/border-security-and-public-safety/475195](https://www.c-span.org/program/senate-committee/border-security-and-public-safety/475195)
 

@@ -74,7 +74,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2018
 
-2018-01-12 Trump referred to African countries Haiti and El Salvador as **shithole** nations, and during an Oval Office meeting stated that Haitian immigrants “all have AIDS”.
+2018-01-11 Trump denounced countries like Haiti, El Salvador, and certain African nations as “shithole” countries during a meeting and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting. 
 
 [https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946](https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946)
 
@@ -85,6 +85,10 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 [https://chc.house.gov/media-center/press-releases/chc-chair-statement-on-trump-shithole-countries-comment](https://chc.house.gov/media-center/press-releases/chc-chair-statement-on-trump-shithole-countries-comment)
 
 [https://abc7.com/post/haitian-migrants-donald-trump-former-president-immigration/11108741/](https://abc7.com/post/haitian-migrants-donald-trump-former-president-immigration/11108741/)
+
+[https://www.theguardian.com/us-news/2018/jan/11/trump-pans-immigration-proposal-as-bringing-people-from-shithole-countries](https://www.theguardian.com/us-news/2018/jan/11/trump-pans-immigration-proposal-as-bringing-people-from-shithole-countries)
+
+[https://x.com/VicenteFoxQue/status/951586161931235328](https://x.com/VicenteFoxQue/status/951586161931235328)
 
 2018-10-23 Fox news host Megyn Kelly had to publicly apologize for insensitive comments she made about black face.
 

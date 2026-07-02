@@ -8,9 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 ### 1920
 
-1920-01-01 If you pay attention to the eugenics movement, **Americans considered whites "the right people**".  **Charles Davenport proposed building a wall too**, to "keep out the cheaper races" as he put it. If a history lesson doesn’t make clear the racist implications of not welcoming migrants, **keep in mind** news outlets began to report in October 2025 how **the Trump administration began** work **to overhaul the refugee system so it would favor white people**.
-
-{% include youtubePlayer.html id="vmRb-0v5xfI" %}
+1920-01-01 During the rise of the eugenics movement Charles Davenport proposed building a wall to “keep out the cheaper races”.
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
 
@@ -19,6 +17,8 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 [https://www.yahoo.com/news/articles/us-refugee-system-may-undergo-050027315.html](https://www.yahoo.com/news/articles/us-refugee-system-may-undergo-050027315.html)
 
 [https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
+
+{% include youtubePlayer.html id="vmRb-0v5xfI" %}
 
 ### 2018
 
