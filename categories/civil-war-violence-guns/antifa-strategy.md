@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: The ANTIFA Strategy
+title: ANTIFA Strategy
 category_slug: civil-war-violence-guns
-subcategory_slug: the-antifa-strategy
-permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
+subcategory_slug: antifa-strategy
+permalink: /categories/civil-war-violence-guns/antifa-strategy/
 ---
 
 ### 2017
@@ -22,6 +22,20 @@ permalink: /categories/civil-war-violence-guns/the-antifa-strategy/
 [https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/](https://www.politifact.com/factchecks/2018/feb/06/donald-trump/donald-trumps-pants-fire-claim-about-treason/)
 
 LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
+
+### 2021
+
+2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
+
+{% include youtubePlayer.html id="w7Bg5_-7e00" %}
+
+{% include youtubePlayer.html id="CJuNHI2KP5w" %}
+
+### 2024 October
+
+2024-10-07 Pro Israel groups including Canary Mission peddled conspiracies on social media that Columbia University student and pro-Palestinian activist Mahmoud Khalil helped plan Hamas attacks. White House press secretary Karoline Leavitt also alleged Khalil distributed fliers with a Hamas logo. On March 8 2025 the Trump administration arrested him and shipped him to Louisiana.
+
+[https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
 ### 2025 March
 
@@ -105,6 +119,11 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.theguardian.com/us-news/2025/dec/05/pam-bondi-antifa-tax-crimes](https://www.theguardian.com/us-news/2025/dec/05/pam-bondi-antifa-tax-crimes)
 
 ### 2026 January
+
+2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
+
+[https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest](https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest)
+
 
 2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 

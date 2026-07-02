@@ -643,7 +643,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
 
 2026-06-15 Trump said he may or may not personally show up to sign the Memorandum of Understanding. 
-
+ 
 2026-06-16 After Trump had it painted blue, the Reflecting Pool turned green.
 
 2026-06-17 Kash Patel prematurely disclosed investigation on social media about an ongoing criminal investigation and nearly compromised the entire mission. 

@@ -52,7 +52,11 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2016-12-02 Pizzagate spread online after leaked Podesta emails were falsely interpreted as code for a Clinton-linked child sex ring.
 
+2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
+
 2017-10-01 QAnon began on 4chan when an anonymous user claimed ‘Q clearance’ and posted cryptic pro-Trump messages and the slogan “Where we go one, we go all.”
+
+2018-02-05 During a speech Trump accused Democrats of treason.
 
 2018-11-01 Marjorie Taylor Greene posted a deleted theory that California wildfires were started by “space solar generators.
 
@@ -164,6 +168,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-03-05 Missouri Attorney General Andrew Bailey called for an investigation into Biden’s use of an autopen, arguing it could invalidate executive actions.
 
+2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
+
 2025-03-25 Minnesota introduced SF 2589 to study what they call “Trump Derangement Syndrome”.
 
 2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
@@ -180,17 +186,35 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-07-23 Tulsi Gabbard claimed in a conspiracy-board post that newly released intelligence documents showed the Obama administration manufactured evidence of Russian election interference in 2016
 
+2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group. 
+
 2025-09-08 Trump posted “THE BIDEN AUTOPEN SCANDAL IS BIG, NOT AS BIG AS THE RUSSIA, RUSSIA, RUSSIA HOAX, OR THE RIGGED 2020 PRESIDENTIAL ELECTION, BUT, NEVERTHELESS, ONE OF THE BIGGEST, EVER!!!”
 
 2025-09-13 Laura Loomer posted, “How much you want to bet we are going to find out there is a Trans terror cell that groomed Tyler Robinson and possibly even provided him with the gun to kill Charlie? It seems like this was very pre-meditated”. On the same day in a separate post, Loomer responded to News Wire “It’s time to designate the transgender movement as a terrorist movement.” The next day the Scoop sent out a Poll “Should we ban transgenders from purchasing firearms?”
 
+2025-09-23 Karoline Leavitt announced plans to designate "Antifa" a domestic terrorist organization, citing a White House report linking various incidents of violence to left-wing activism. The September 22 2025 press release begins “President Donald J. Trump is right: the violence problem is on the Left”.
+
+2025-09-25 Trump signed NSPM-7, which included references to anti-Christian beliefs among terrorism indicators. 
+
+2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa, posting on social media that Portland was “war ravaged” and that he planned to authorize “full force”. 
+
 2025-09-29 Trump briefly shared and then deleted an AI-generated video featuring Lara Trump promoting “Medbeds.”
 
+2025-09-29 Multiple media outlets found that Fox News used viral riot footage from 2020 to report on current protests in Portland.
+
 2025-10-05 Mike Johnson posted, “as a condition for ending the Democrat shutdown, Democrats want hospitals (to be) paid MORE to treat illegal aliens than American citizens”.
+
+2025-10-08 Trump claimed protesters were paid organizers, “…when you see the signs and they’re all made out of beautiful paper…with beautiful wood handles…these are not people that write out their signs…these are paid anarchists”.
+
+2025-10-08 Senator Roger Marshall claimed the upcoming No Kings protest would be organized by paid agitators and suggested National Guard deployment might be necessary. Speaker Mike Johnson called it a "Hate America Rally.”
+
+2025-10-10 Mike Johnson again criticized the No Kings protest, calling it a "Hate America rally”. 
 
 2025-10-11 Trump revived January 6 conspiracy claims, “THE BIDEN FBI PLACED 274 AGENTS INTO THE CROWD ON JANUARY 6. If this is so, which it is, a lot of very good people will be owed big apologies. What a SCAM – DO SOMETHING!!! President DJT”.
 
 2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
+
+2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 
 2025-11-03 Conservative activist Laura Loomer received Pentagon press credentials.
 
@@ -199,6 +223,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-11-14 Mike Johnson used the government shutdown to claim multiple times that the Democrats “broke the American healthcare system”.
 
 2025-11-20 The CDC website was altered to promote claims linking vaccines and autism.
+
+2025-12-04 The Justice Department issued a broad domestic-terrorism directive focused on alleged Antifa-related activity. Remember: this administration accused Alexi Pretti of terrorism, and they shot him in the back 10 times. 
 
 2025-12-10 Coordinated bot activity on social media promoted the false narrative that Taylor Swift was a Nazi.
 
@@ -216,6 +242,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2026-01-27 Representative Ilhan Omar was attacked by a far-right activist during a town hall. Trump later claimed the incident had been staged.
 
+2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 
+
 2026-03-06 Trump accused Bill Maher of having “Trump Derangement Syndrome” after Maher criticized Trump. Bill Maher responded, “I go by what George Bush said to Obama on the day he was inaugurated: ‘We want you to succeed’. I always want the American president to succeed, and I do give credit when you have. But there’s lots of stuff you do that is not my idea of success and I have every right to say so in a democracy…it’s not derangement for me to be always calling out the election denying obsession you have, or the pardons from my friends and punishment for my enemies mode of governing, or the side deals for your family that always seem to be part of everything. We see how rich you’ve all become, but the people of West Virginia don’t seem to be feeling the winning.”
 
 2026-03-20 FEMA official George Phillips claimed his truck levitated 40 miles and he was teleported to a Waffle House. Phillips promoted voter fraud allegations in 2016. 
@@ -226,3 +254,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 
 2026-05-23 Licensed psychiatrist Carole Lieberman and RFK are out designate Trump Derangement Syndrome a real diagnosis and assign it an International Classification of Diseases code.
+
+2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
+
+2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.

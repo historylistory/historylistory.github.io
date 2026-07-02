@@ -73,6 +73,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results.
 
+2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
+
 2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
 
 2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
@@ -118,6 +120,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2024-08-03 Jack Posobiec's book “Unhumans” argued that left-wing movements undermine civilization and promoted themes associated with anti-communist political activism. This person also promoted the Pizzagate. 
 
 2024-08-07 During a Shelby Police Department memorial service JD Vance politicized an officer’s death and blamed Kamala Harris policies for it.
+
+2024-10-07 Pro Israel groups including Canary Mission peddled conspiracies on social media that Columbia University student and pro-Palestinian activist Mahmoud Khalil helped plan Hamas attacks. White House press secretary Karoline Leavitt also alleged Khalil distributed fliers with a Hamas logo. On March 8 2025 the Trump administration arrested him and shipped him to Louisiana.
 
 2024-10-31 During an interview with Tucker Carlson, Trump called Liz Cheney a radical war hawk and stated, “let’s put her with the rifles standing there with nine barrels shooting at her” and “let’s see how she feels about it, you know, when the guns are trained on her face”.
 
@@ -346,6 +350,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-10-10 Mike Johnson again criticized the No Kings protest, calling it a "Hate America rally”.
 
+2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
+
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 
 2025-10-29 Senator Susan Collins broke with Trump on a vote involving tariff-related emergency powers.
@@ -367,6 +373,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2025-12-19 Tucker Carlson and Ben Shapiro clashed at a TPUSA event over Israel and foreign policy.
 
 2025-12-22 Megyn Kelly and Ben Shapiro publicly disagreed during AmericaFest.
+
+2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
 2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
