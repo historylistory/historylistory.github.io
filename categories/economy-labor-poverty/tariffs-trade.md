@@ -378,3 +378,13 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://scdailygazette.com/2026/06/25/sc-ports-temporarily-halts-leatherman-operations-in-face-of-high-costs-waning-demand/](https://scdailygazette.com/2026/06/25/sc-ports-temporarily-halts-leatherman-operations-in-face-of-high-costs-waning-demand/)
 
 [https://www.freightwaves.com/news/trade-uncertainty-leads-south-carolina-ports-to-temporarily-shut-down-container-terminal](https://www.freightwaves.com/news/trade-uncertainty-leads-south-carolina-ports-to-temporarily-shut-down-container-terminal)
+
+### 2026 July
+
+2026-07-02 Trump declined to renew the USMCA trade deal with Mexico and Canada. 
+
+[https://www.cnbc.com/2026/07/01/trump-usmca-canada-mexico-trade-treaty.html](https://www.cnbc.com/2026/07/01/trump-usmca-canada-mexico-trade-treaty.html)
+
+[https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633](https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633)
+
+[https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/](https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/)

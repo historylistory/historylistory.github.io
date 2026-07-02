@@ -853,3 +853,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-06-25 A billion-dollar port in South Carolina was shut down. 
 
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
+
+2026-07-02 Trump declined to renew the USMCA trade deal with Mexico and Canada. 
