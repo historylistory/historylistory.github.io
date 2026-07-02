@@ -55,7 +55,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 ### 2021
 
-2021-07-26 A news article quoted JD Vance as saying, *”…you can’t have so many people coming to the country at a time when our own families aren’t replicating themselves…”*. 
+2021-07-26 JD Vance said, ”You can’t have so many people coming to the country at a time when our own families aren’t replicating themselves”.
 
 [https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/](https://www.washingtonpost.com/politics/2021/07/26/jd-vances-plan-let-parents-vote-their-kids-might-not-work-way-he-thinks/)
 
@@ -67,7 +67,7 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 
 ### 2022
 
-2022-03-17 Then Ohio Senate candidate JD Vance stated on Fox News with Tucker Carlson, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. **We have an invasion in this country**.”
+2022-03-17 JD Vance claimed immigration was an invasion, saying on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
 
 [https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/](https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/)
 

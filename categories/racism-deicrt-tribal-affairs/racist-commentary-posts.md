@@ -134,7 +134,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message](https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message)
 
-2023-11-16 Mike Davis, while on the Benny Show, referenced children born in the US to non-citizens as anchor babies and stated, "We're gonna put kids in cages, it's going to be glorious…**sieg****gulag**".
+2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
 

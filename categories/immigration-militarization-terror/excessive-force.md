@@ -16,27 +16,9 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.historynewsnetwork.org/article/trumps-praise-for-china-over-tiananmen-square-year](https://www.historynewsnetwork.org/article/trumps-praise-for-china-over-tiananmen-square-year)
 
-### 2020 - This is the behavior, right?
-
-2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
-
-[https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement](https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement)
-
-[https://www.acludc.org/lafayette-square-attack-timeline/](https://www.acludc.org/lafayette-square-attack-timeline/)
-
-[https://www.nbcnews.com/politics/justice-department/doj-reaches-settlement-2020-cases-involving-lafayette-square-protester-rcna24325](https://www.nbcnews.com/politics/justice-department/doj-reaches-settlement-2020-cases-involving-lafayette-square-protester-rcna24325)
-
-[https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church](https://en.wikipedia.org/wiki/Donald_Trump_photo_op_at_St._John%27s_Church)
-
-[https://www.cnn.com/2022/05/02/politics/esper-trump-protesters](https://www.cnn.com/2022/05/02/politics/esper-trump-protesters)
-
-[https://www.theguardian.com/us-news/2021/jun/25/donald-trump-general-mark-milley-crack-skulls](https://www.theguardian.com/us-news/2021/jun/25/donald-trump-general-mark-milley-crack-skulls)
-
-[https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary](https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary)
-
 ### 2024
 
-2024-09-29 During a campaign rally in Eerie Pennsylvania, Trump quipped “One rough hour – and I mean real rough – the word will get out and it will end immediately, you know?” suggesting that police should be allowed to be extraordinarily rough to deter crime and not suffer any consequences.
+2024-09-29 During a campaign rally in Eerie Pennsylvania, Trump suggested unlimited police brutality with no consequences,  “One rough hour – and I mean real rough – the word will get out and it will end immediately, you know?”.
 
 [https://people.com/donald-trump-evokes-purge-one-violent-day-solve-crime-8720495](https://people.com/donald-trump-evokes-purge-one-violent-day-solve-crime-8720495)
 

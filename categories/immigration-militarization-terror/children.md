@@ -32,7 +32,7 @@ permalink: /categories/immigration-militarization-terror/children/
 
 ### 2023
 
-2023-11-16 Mike Davis, while on the Benny Show, referenced children born in the US to non-citizens as anchor babies and stated, "We're gonna put kids in cages, it's going to be glorious…**sieg****gulag**".
+2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 
 [https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html](https://www.yahoo.com/news/gonna-put-kids-cages-meet-200752325.html)
 

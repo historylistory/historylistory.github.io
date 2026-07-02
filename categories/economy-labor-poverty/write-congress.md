@@ -126,15 +126,17 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2024-06-11 Trump posted on social media that bitcoin mining was the last line of defense against a CBDC (Central Bank Digital Currency).
 
-2024-07-10 During a National Conservatism convention, JD Vance claimed, “…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
+2024-07-10 Vance said during a National Conservatism convention, “Look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 2024-07-18 Trump campaigned on the promise that he would reduce inflation on day one.
 
 2024-07-24 The federal minimum wage of 7.25 had been stuck at that rate for 15 years.
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “…There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 2024-09-18 JD Vance funded AcreTrader, which led to consolidation of farmland and reduced competition. Allegedly, JD Vance’s firm bought up American farmland and resold it to foreign investors.
+
+2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
 
 2024-10-24 Yale reported on the ease of manipulating prediction markets.  
 

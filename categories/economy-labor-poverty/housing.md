@@ -20,6 +20,23 @@ permalink: /categories/economy-labor-poverty/housing/
 
 [https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/](https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/)
 
+### 2024
+
+2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
+
+[https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/](https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/)
+
+[https://www.politifact.com/factchecks/2024/oct/23/jd-vance/vance-wrongly-blames-rural-hospital-closures-on-im/](https://www.politifact.com/factchecks/2024/oct/23/jd-vance/vance-wrongly-blames-rural-hospital-closures-on-im/)
+
+[https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve/](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve/)
+
+[https://www.washingtonpost.com/business/2024/10/02/vance-immigration-housing/](https://www.washingtonpost.com/business/2024/10/02/vance-immigration-housing/)
+
+[https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+{% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+
 ### 2025 January
 
 2025-01-06 The CFPB sued Vanderbilt for setting up borrowers to fail in manufactured home loans. Clayton Homes owns 50% of the manufactured house market, Berkshire Hathaway owns its finance, lease, insurance and property management companies. The allegation: the company makes the home virtually unaffordable after buyers already settled a deal, then take the property back from the buyer later. Homeowners also complained of quality issues such as “congolium”, particle board, heavy leaks, safety issues, cardboard under the vinyl, sheetrock under insulation, and mold. 

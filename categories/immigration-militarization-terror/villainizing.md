@@ -54,7 +54,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 {% include youtubePlayer.html id="bZvTStL5GB8" %}
 
-2024-07-10 During a National Conservatism convention, JD Vance claimed, “…look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
+2024-07-10 Vance said during a National Conservatism convention, “Look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 [https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve)
 
@@ -73,7 +73,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 {% include youtubePlayer.html id="NtRPLCso0Sw" %}
 
-2024-09-17 During a campaign stop in Eau Claire, JD Vance was quoted by a local newspaper saying, *”…we’re bankrupting…a lot of hospitals by forcing [them to] provide care for people who don’t have the legal right to be in our country…”*. Experts and economists both rejected Vance’s false and sensational claims. 
+2024-09-17 During a campaign stop in Eau Claire, JD Vance was quoted by a local newspaper saying, ”We’re bankrupting… a lot of hospitals by forcing [them to] provide care for people who don’t have the legal right to be in our country”. 
 
 [https://www.jsonline.com/story/news/politics/elections/2024/09/17/takeaways-from-jd-vances-campaign-stop-in-eau-claire/75212263007/](https://www.jsonline.com/story/news/politics/elections/2024/09/17/takeaways-from-jd-vances-campaign-stop-in-eau-claire/75212263007/)
 
@@ -87,7 +87,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
-2024-10-02 In a transcript of the Walz-Vance debate, JD Vance stated, *”…illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.* Experts and economists both rejected Vance’s false and sensational claims. 
+2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
 
 [https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/](https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/)
 
@@ -139,7 +139,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 September
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, *“…There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”*
+2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
