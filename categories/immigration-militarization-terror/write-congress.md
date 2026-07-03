@@ -648,7 +648,7 @@ protocol.
 
 2026-05-04 Customers pulled their money out of Citizens Bank for funding ICE.
 
-2026-05-05 (context) DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers.
+2026-05-05 DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers.
 
 2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
 

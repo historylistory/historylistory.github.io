@@ -43,19 +43,29 @@ permalink: /categories/crime-defiance/pardons/
 
 ### 2025 January
 
-2025-01-20 Trump blanket-pardoned J6ers.
+2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing). Many of the insurrectionists included Proud Boys and Oath Keeper militia members who he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods.
+
+[https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/](https://glaad.org/fact-sheet-for-reporters-trumps-pardon-of-jan-6th-insurrectionists/)
+
+DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.youtube.com/watch?v=n_S5sYC1nKw)
+
+[https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764](https://www.nbcnews.com/politics/justice-department/capitol-riot-defendant-arrest-kidnapping-assault-banuelos-rcna242764)
+
+[https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/](https://www.cbsnews.com/news/high-profile-us-capitol-riot-defendant-facing-charges-of-kidnapping-and-sexually-assaulting-woman/)
+
+[https://www.jan-6.com/violent-rioters?gad_source=1&gad_campaignid=22652988915&gbraid=0AAAAA9WFESVyAbTpSlvPmWix-vf1o2Ty7&gclid=Cj0KCQjwuKnGBhD5ARIsAD19Rsav-iqkdcTMw8jNQD9QgyTLZZHqFkthzkAt3gIXZXSUmri0-R2vB5saAo4NEALw_wcB](https://www.jan-6.com/violent-rioters?gad_source=1&gad_campaignid=22652988915&gbraid=0AAAAA9WFESVyAbTpSlvPmWix-vf1o2Ty7&gclid=Cj0KCQjwuKnGBhD5ARIsAD19Rsav-iqkdcTMw8jNQD9QgyTLZZHqFkthzkAt3gIXZXSUmri0-R2vB5saAo4NEALw_wcB)
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/granting-pardons-and-commutation-of-sentences-for-certain-offenses-relating-to-the-events-at-or-near-the-united-states-capitol-on-january-6-2021/](https://www.whitehouse.gov/presidential-actions/2025/01/granting-pardons-and-commutation-of-sentences-for-certain-offenses-relating-to-the-events-at-or-near-the-united-states-capitol-on-january-6-2021/)
 
 [https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight](https://oversightdemocrats.house.gov/news/press-releases/president-trumps-pardons-stick-taxpayers-bill-january-6-attack-oversight)
-
-2026-01-20 When Trump pardoned 1500 J6 insurrectionists (including Proud Boys leader Enrique Tarrio), he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods.
 
 [https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735](https://www.nbcnews.com/politics/justice-department/trump-set-pardon-defendants-stormed-capitol-jan-6-2021-rcna187735)
 
 [https://www.bbc.com/news/articles/c5y7l47xrpko](https://www.bbc.com/news/articles/c5y7l47xrpko)
 
 [https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund](https://www.pbs.org/newshour/politics/ex-proud-boys-leader-enrique-tarrio-tells-pbs-news-he-believes-hes-owed-tens-of-millions-from-doj-fund)
+
+{% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
 
 2025-01-23 Trump pardoned two D.C. police officers convicted in a fatal crash.

@@ -165,7 +165,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-01-20 Trump rescinded Executive Order 13989 Ethics Commitments by Executive Branch Personnel.
 
-2025-01-20 Trump blanket-pardoned J6ers.
+2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing). Many of the insurrectionists included Proud Boys and Oath Keeper militia members who he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods.
 
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
