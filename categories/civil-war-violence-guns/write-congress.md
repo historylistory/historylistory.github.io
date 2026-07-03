@@ -384,7 +384,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-01-27 Representative Ilhan Omar was attacked by a far-right activist during a town hall. Trump later claimed the incident had been staged.
 
-2026-01-28 After ICE agents killed Alex Pretti, Trump argued Pretti should not have carried a firearm at the protest, drawing criticism from gun-rights organizations including the NRA and Gun Owners of America.
+2026-01-28 After ICE agents killed Alex Pretti, Trump drew criticism from the NRA and Gun Owners of America when he doubled down on Pretti’s murder, saying he should not have carried a firearm at the protest. 
 
 2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
 
@@ -407,6 +407,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-03-12 One person was killed and two more were wounded at ROTC Old Dominion University after a gunman with a history of political violence opened fire.
 
 2026-03-12 Candace Owens broke with Trump over Israel and Iran policy.
+
+2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”. 
 
 2026-03-13 Laura Loomer and Tucker Carlson exchanged personal attacks during a dispute involving allegations of antisemitism.
 

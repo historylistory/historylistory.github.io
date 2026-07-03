@@ -231,7 +231,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
 
-2026-01-27 ICE agents shot 37-year-old Patrick Schlegel in Arivaca Arizona allegedly for smuggling immigrants into the country and brandishing a gun.
+2026-01-27 ICE agents shot 37-year-old Patrick Schlegel in Arivaca Arizona. Agents claimed he was smuggling immigrants into the country and brandishing a gun.
 
 [https://www.nbcnews.com/news/us-news/person-shot-border-patrol-involved-arizona-rcna256137](https://www.nbcnews.com/news/us-news/person-shot-border-patrol-involved-arizona-rcna256137)
 
@@ -245,13 +245,13 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2026 February
 
-2026-02-13 Former ICE attorney Ryan Schwank left the agency stating, “"I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken." The full video is on CSPAN, but some of the clips I watched he cited he was duty bound to report that the legally required training for ICE was deficient, cut down by at least 240 hours, instructors were receiving secretive orders to violate the Constitution, and they ceased all the legal instruction regarding use of force to name a few.
+2026-02-13 Former ICE attorney Ryan Schwank left the agency, saying, “”I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken.” 
 
 [https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
 
 {% include youtubePlayer.html id="s6TrCEeJW0M" %}
 
-2026-02-16 Two ICE agents were suspended and faced a criminal investigation for lying about shooting a Venezuelan immigrant Julio Cesar Sosa Celles and his cousin Alfredo Alejandro Aljouro on **January 14****th****2026**. DHS claimed the two attacked ICE agents with a snow shovel and broom, and Kristi Noem claimed it was an “attempted murder of federal law enforcement”, but video evidence contradicted DHS and Noem’s claims.
+2026-02-16 Two ICE agents who shot a Venezuelan immigrant Julio Cesar Sosa Celles and his cousin Alfredo Alejandro Aljouro were suspended and investigated for lying about the shooting. The agents claimed the victims attacked them with a snow shovel, while Kristi Noem alleged it was “attempted murder of federal law enforcement”. Video did not substantiate, and contradicted, their claims. 
 
 [https://www.bbc.com/news/articles/cy8l9jp1z3yo](https://www.bbc.com/news/articles/cy8l9jp1z3yo)
 

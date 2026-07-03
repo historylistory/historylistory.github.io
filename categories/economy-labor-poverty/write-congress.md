@@ -546,6 +546,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-02-13 “The Epstein Class War”: the wealthy and well-connected remain insulated from consequences as they hold all the political power.
 
+2026-02-16 The Trump administration spent $38 billion in taxpayer money to acquire warehouses across the country and turn them into detention centers. 
+
 2026-02-19 The Federal Reserve signaled they would have to raise interest rates.
 
 2026-02-19 JP Morgan reported that mid-size companies were hit the hardest from tariffs and that manufacturing jobs were not actually coming back to the U.S. like Trump promised.

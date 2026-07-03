@@ -369,7 +369,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district](https://www.btselem.org/firearms/20250317_the_killing_of_a_two_year_old_and_injuring_her_mother_and_aunt_in_muthallath_a_shuhada_in_jenin_district)
 
-2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear she was crying.
+2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear as though she was crying.
 
 [https://www.nbcnews.com/politics/white-house/white-house-shares-altered-photo-arrested-minnesota-protester-nekima-l-rcna255595](https://www.nbcnews.com/politics/white-house/white-house-shares-altered-photo-arrested-minnesota-protester-nekima-l-rcna255595)
 
@@ -418,6 +418,13 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
 [https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/](https://stluciatimes.com/178617/2026/02/trump-acknowledges-us-campaign-has-damaged-fishing-industry/)
+
+2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
+
+[https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
+
+{% include youtubePlayer.html id="KtddP80PrWY" %}
+
 
 ### 2026 March
 

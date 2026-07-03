@@ -92,7 +92,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
-2026-03-12 In May of 2025 Trump had accused South Africa of white genocide and invited white South Afrikaners to migrate to the U.S. By March 2026, those who migrated to the U.S. decided it would be best to return to South Africa, citing a better cost of living in South Africa, less racism, and concerns over growing violence from the Trump regime such as the execution of American citizens by ICE. One article quotes a South Afrikaner as stating, **“People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.**
+2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”. 
 
 [https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/](https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/)
 

@@ -179,11 +179,22 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2026 January
 
-2026-01-28 After ICE agents killed Alex Pretti, Trump argued Pretti should not have carried a firearm at the protest, drawing criticism from gun-rights organizations including the NRA and Gun Owners of America.
+2026-01-28 After ICE agents killed Alex Pretti, Trump drew criticism from the NRA and Gun Owners of America when he doubled down on Pretti’s murder, saying he should not have carried a firearm at the protest. 
 
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 
 [https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/](https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/)
+
+### 2026 March
+
+2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”. 
+
+[https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/](https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/)
+
+[https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588](https://www.latintimes.com/some-white-south-africans-are-reportedly-leaving-us-return-home-amid-safety-concerns-i-dont-595588)
+
+[https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
+
 
 ### 2026 June
 

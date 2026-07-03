@@ -110,7 +110,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2026 January
 
-2026-01-14 ICE agents deployed flash bangs and tear gas in Minneapolis and hit a vehicle of a family headed home from a basketball game. After the attack, airbags deployed and the vehicle filled with tear gas. **A six-month-old went unconscious and stopped breathing**.
+2026-01-14 ICE agents deployed flash bangs and tear gas in Minneapolis and hit a vehicle of a family headed home from a basketball game. After the attack, airbags deployed and the vehicle filled with tear gas. A six-month-old went unconscious and stopped breathing.
 
 [https://newrepublic.com/post/205376/ice-attack-car-kids-six-month-old-unconscious](https://newrepublic.com/post/205376/ice-attack-car-kids-six-month-old-unconscious)
 

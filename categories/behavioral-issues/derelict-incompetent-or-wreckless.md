@@ -293,7 +293,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
 
-2026-01-28 Kristi Noem and Stephen Miller blamed each other after Alex Pretti’s execution.
+2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 

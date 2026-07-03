@@ -294,13 +294,15 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="tAq8NkMIjd8" %}
 
-2026-01-21 ICE launched “Operation Catch of the Day” in Maine and began entering homes without judicial warrants.
+2026-01-21 ICE launched “Operation Catch of the Day” in Maine and entered homes without judicial warrants.
 
 [https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens](https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens)
 
-[https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens](https://www.dhs.gov/news/2026/01/21/ice-launches-operation-catch-day-targeting-worst-worst-criminal-illegal-aliens)
+2026-01-26 After the two public executions in Minnesota (Pretti and Good) Dan Bovino was demoted from command.
 
-2026-01-27 Following two public executions of American citizens Greg Bovino was demoted as Border Patrol command.
+[https://www.theatlantic.com/politics/2026/01/greg-bovino-demoted-minneapolis-border-patrol/685770/](https://www.theatlantic.com/politics/2026/01/greg-bovino-demoted-minneapolis-border-patrol/685770/)
+
+[https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/](https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/)
 
 [https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html](https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html)
 
@@ -310,6 +312,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.youtube.com/watch?v=LzXB8-019R4](https://www.youtube.com/watch?v=LzXB8-019R4)
 {% include youtubePlayer.html id="LzXB8-019R4" %}
+
 
 ### 2026 February
 

@@ -364,11 +364,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-01-21 Trump repeatedly confused Greenland with Iceland at Davos. Leavitt insisted he did not, saying, “no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it”. Also at the World Economic Forum, Trump stated, “but sometimes you need a dictator”.
 
-2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear she was crying.
+2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear as though she was crying.
 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
-2026-01-28 Kristi Noem and Stephen Miller blamed each other after Alex Pretti’s execution.
+2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
@@ -405,6 +405,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles on an all-girls school, killing 170 schoolchildren.
 
 2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
+
+2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
 2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
 

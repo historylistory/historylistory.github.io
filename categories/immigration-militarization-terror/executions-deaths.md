@@ -86,7 +86,7 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://thehill.com/opinion/lindseys-lens/5689158-minneapolis-ice-agent-resignation/](https://thehill.com/opinion/lindseys-lens/5689158-minneapolis-ice-agent-resignation/)
 
-2026-01-23 ICE fatally shot and killed 37-year-old VA nurse Alex Pretti when he tried to help a woman who was being surrounded by ICE agents. According to sources, Pretti did have a concealed carry license. DHS reported they killed Pretti because he threatened to shoot ICE agents, but several witnesses and captured video showed Pretti only holding his phone. Six ICE agents tackled Pretti and removed what appeared to be a gun from him, pepper sprayed him, held him face-down and then shot him several times in the back. After the shooting, DHS refused to share evidence with local investigators.
+2026-01-23 ICE fatally shot and killed 37-year-old VA nurse Alex Pretti when he tried to help a woman surrounded by ICE. According to sources, Pretti did have a concealed carry license. DHS reported they killed Pretti because he threatened to shoot ICE agents, but several witnesses and captured video showed Pretti only holding his phone. Six ICE agents tackled Pretti and removed what appeared to be a gun from him, pepper sprayed him, held him face-down and then shot him several times in the back. After the shooting, DHS refused to share evidence with local investigators and blocked Minnesota law enforcement from the crime scene. 
 
 [https://www.npr.org/2026/01/25/nx-s1-5687875/minneapolis-shooting-minnesota-ice-alex-pretti-dhs-investigation](https://www.npr.org/2026/01/25/nx-s1-5687875/minneapolis-shooting-minnesota-ice-alex-pretti-dhs-investigation)
 
@@ -126,11 +126,19 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
 
-2026-01-26 After the killing of Alex Pretti, Dan Bovino was demoted and set to leave Minnesota.
-
+2026-01-26 After the two public executions in Minnesota (Pretti and Good) Dan Bovino was demoted from command.
 [https://www.theatlantic.com/politics/2026/01/greg-bovino-demoted-minneapolis-border-patrol/685770/](https://www.theatlantic.com/politics/2026/01/greg-bovino-demoted-minneapolis-border-patrol/685770/)
 
 [https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/](https://www.cbsnews.com/minnesota/live-updates/dhs-secretary-kristi-noem-under-scrutiny-bovino-exits-minnesota-after-alex-pretti-killing/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html](https://www.the-independent.com/news/world/americas/us-politics/greg-bovino-dhs-investigations-deportations-ice-b2940552.html)
+
+[https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march](https://www.mprnews.org/story/2026/03/17/gregory-bovino-to-retire-from-us-border-patrol-in-march)
+
+[https://www.bbc.com/news/articles/c75e24grnv3o](https://www.bbc.com/news/articles/c75e24grnv3o)
+
+[https://www.youtube.com/watch?v=LzXB8-019R4](https://www.youtube.com/watch?v=LzXB8-019R4)
+{% include youtubePlayer.html id="LzXB8-019R4" %}
 
 2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
@@ -138,11 +146,11 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 [https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/](https://time.com/7358403/nra-trump-clash-gun-carrying-rights-pretti-federal-agents/)
 
-2026-01-28 After ICE agents killed Alex Pretti, Trump argued Pretti should not have carried a firearm at the protest, drawing criticism from gun-rights organizations including the NRA and Gun Owners of America.
+2026-01-28 After ICE agents killed Alex Pretti, Trump drew criticism from the NRA and Gun Owners of America when he doubled down on Pretti’s murder, saying he should not have carried a firearm at the protest. 
 
 [https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting](https://www.theguardian.com/us-news/2026/jan/29/trump-administration-gun-rights-groups-minnesota-shooting)
 
-2026-01-28 Kristi Noem and Stephen Miller blamed each other after Alex Pretti’s execution.
+2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)
 
@@ -178,9 +186,9 @@ SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-go
 
 2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
-{% include youtubePlayer.html id="KtddP80PrWY" %}
-
 [https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
+
+{% include youtubePlayer.html id="KtddP80PrWY" %}
 
 ### 2026 March
 
@@ -194,7 +202,7 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343](https://www.wtae.com/article/daphy-michel-haitian-asylum-seeker-death-ruled-homicide/71573343)
 
-2026-03-12 In May of 2025 Trump had accused South Africa of white genocide and invited white South Afrikaners to migrate to the U.S. By March 2026, those who migrated to the U.S. decided it would be best to return to South Africa, citing a better cost of living in South Africa, less racism, and concerns over growing violence from the Trump regime such as the execution of American citizens by ICE. One article quotes a South Afrikaner as stating, **“People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.**
+2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”. 
 
 [https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/](https://www.reuters.com/world/us/trump-says-white-south-africans-are-persecuted-some-are-returning-better-life-2026-03-11/)
 

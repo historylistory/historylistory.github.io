@@ -180,6 +180,12 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html](https://www.cnbc.com/2026/01/29/trump-sues-irs-and-treasury-for-10-billion-over-leak-of-tax-records.html)
 
+### 2026 February
+
+2026-02-16 The Trump administration spent $38 billion in taxpayer money to acquire warehouses across the country and turn them into detention centers. 
+
+[https://www.mercurynews.com/2026/02/16/dhs-ice-warehouse-detention-center-expansion/](https://www.mercurynews.com/2026/02/16/dhs-ice-warehouse-detention-center-expansion/)
+
 
 ### 2026 March
 

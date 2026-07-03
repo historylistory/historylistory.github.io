@@ -107,7 +107,7 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 
 ### 2026 February
 
-2026-02-16 A federal judge ordered the Trump administration to return Babson College student Annie Lucia Lopez Belloza after she was wrongfully deported to Honduras in November while she was flying home to surprise her family for Thanksgiving. She was told there was an issue with her boarding pass at the gate and then detained by federal agents.   
+2026-02-16 A federal judge ordered the Trump administration to return Babson College student Annie Lucia Lopez Belloza. Belloza was on her way to her family for Thanksgiving when she was detained and wrongfully deported to Honduras. 
 
 [https://www.cnn.com/2025/12/01/us/babson-college-student-deported-thanksgiving-hnk](https://www.cnn.com/2025/12/01/us/babson-college-student-deported-thanksgiving-hnk)
 

@@ -197,11 +197,11 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 [https://thehill.com/homenews/state-watch/5688969-oglala-sioux-tribe-demands-action/](https://thehill.com/homenews/state-watch/5688969-oglala-sioux-tribe-demands-action/)
 
-2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear she was crying.
+2026-01-22 ICE arrested civil rights attorney Nekima Levy Armstrong during a protest in St. Paul Minnesota. The White House then doctored and digitally altered a photo of her arrest to make it appear as though she was crying.
 
 [https://www.nbcnews.com/politics/white-house/white-house-shares-altered-photo-arrested-minnesota-protester-nekima-l-rcna255595](https://www.nbcnews.com/politics/white-house/white-house-shares-altered-photo-arrested-minnesota-protester-nekima-l-rcna255595)
 
-2026-01-22 Two Brooklyn Park Minnesota women were detained by ICE while they were monitoring school bus drop off locations for safety. During their custody, the arresting agent had a seizure. The women stated they were released from handcuffs so they could render emergency medical assistance to the agent. DHS later made a statement, saying that the women “lied to law enforcement stating they were nurses” and that they never rendered assistance.
+2026-01-22 Two Brooklyn Park Minnesota women were detained by ICE while monitoring school bus drop off locations. During their custody, the arresting agent had a seizure. The women said they were released from handcuffs so they could render emergency medical assistance to the agent. DHS later made a statement, saying that the women “lied to law enforcement stating they were nurses” and that they never rendered assistance.
 
 [https://www.mprnews.org/story/2026/02/03/brooklyn-park-women-help-seizing-ice-agent-while-detained](https://www.mprnews.org/story/2026/02/03/brooklyn-park-women-help-seizing-ice-agent-while-detained)
 
@@ -234,14 +234,14 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2026 February
 
-2026-02-14 According to Reuters, courts have ruled by now 4,400 times that ICE jailed people illegally.
+2026-02-14 By this date ICE jailed people illegally at least 4400 times. 
 
 [https://www.reuters.com/legal/government/courts-have-ruled-4400-times-that-ice-jailed-people-illegally-it-hasnt-stopped-2026-02-14/](https://www.reuters.com/legal/government/courts-have-ruled-4400-times-that-ice-jailed-people-illegally-it-hasnt-stopped-2026-02-14/)
 
 [https://www.commondreams.org/news/ice-illegal-arrests](https://www.commondreams.org/news/ice-illegal-arrests)
 
 
-2026-02-16 The Trump administration announced plans to spend $38B to acquire warehouses across the US to retrofit them into detention centers.
+2026-02-16 The Trump administration spent $38 billion in taxpayer money to acquire warehouses across the country and turn them into detention centers. 
 
 [https://www.mercurynews.com/2026/02/16/dhs-ice-warehouse-detention-center-expansion/](https://www.mercurynews.com/2026/02/16/dhs-ice-warehouse-detention-center-expansion/)
 
