@@ -174,3 +174,29 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 [https://www.foxbusiness.com/politics/rfk-jr-faces-pushback-after-questioning-safety-dunkin-starbucks-sugary-drinks](https://www.foxbusiness.com/politics/rfk-jr-faces-pushback-after-questioning-safety-dunkin-starbucks-sugary-drinks)
 
 [https://www.cbsnews.com/news/rfk-jr-challenges-dunkin-starbucks-sugary-drinks-safety/](https://www.cbsnews.com/news/rfk-jr-challenges-dunkin-starbucks-sugary-drinks-safety/)
+
+### 2026 June
+
+2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
+[https://www.usatoday.com/story/news/politics/2026/02/20/trump-executive-order-glyphosate-rfk-maha-moms/88780353007/](https://www.usatoday.com/story/news/politics/2026/02/20/trump-executive-order-glyphosate-rfk-maha-moms/88780353007/)
+
+[https://www.aol.com/news/decision-sickening-maha-leaders-feel-234923560.html](https://www.aol.com/news/decision-sickening-maha-leaders-feel-234923560.html)
+
+[https://www.nbcnews.com/health/health-news/supreme-court-ruling-roundup-weedkiller-maha-betrayed-rcna351796](https://www.nbcnews.com/health/health-news/supreme-court-ruling-roundup-weedkiller-maha-betrayed-rcna351796)
+
+[https://www.chemistryworld.com/news/us-supreme-court-ruling-supports-bayers-defence-in-roundup-lawsuits/4023791.article](https://www.chemistryworld.com/news/us-supreme-court-ruling-supports-bayers-defence-in-roundup-lawsuits/4023791.article)
+
+[https://www.reuters.com/legal/government/bayers-725-billion-roundup-settlement-gets-august-hearing-date-2026-06-30/](https://www.reuters.com/legal/government/bayers-725-billion-roundup-settlement-gets-august-hearing-date-2026-06-30/)
+
+### 2026 July
+
+2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
+
+[https://cen.acs.org/policy/regulation/epa-microplastics-pfas-drinking-water-contaminants-ucmr/104/web/2026/07](https://cen.acs.org/policy/regulation/epa-microplastics-pfas-drinking-water-contaminants-ucmr/104/web/2026/07)
+
+[https://www.plasticsnews.com/public-policy/pn-epa-rejects-microplastics-drinking-water-testing/](https://www.plasticsnews.com/public-policy/pn-epa-rejects-microplastics-drinking-water-testing/)
+
+[https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524](https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524)
+
+[https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans](https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans)

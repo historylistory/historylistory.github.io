@@ -57,6 +57,17 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 [https://therevealer.org/all-aboard-the-orphan-train/](https://therevealer.org/all-aboard-the-orphan-train/)
 
+### 1992
+
+1992-05-02 Vice President Dan Quayle criticized the TV show Murphy Brown for portraying single motherhood, accusing the show of “mocking the importance of fathers” and citing a lack of values. 
+
+[https://www.vh1.com/news/a63wrv/murphy-brown-candice-bergen-single-mother-controversy](https://www.vh1.com/news/a63wrv/murphy-brown-candice-bergen-single-mother-controversy)
+
+[https://www.remindmagazine.com/article/37143/murphy-brown-dan-quayle-criticism/](https://www.remindmagazine.com/article/37143/murphy-brown-dan-quayle-criticism/)
+
+[https://www.cnn.com/2024/09/22/entertainment/dan-quayle-murphy-brown-cat-ladies-cec](https://www.cnn.com/2024/09/22/entertainment/dan-quayle-murphy-brown-cat-ladies-cec)
+
+
 ### 1994
 
 1994-01-01 Evangelicals pushed a national “purity” movement containing distorted and misleading information, racist stereotypes and anti-LGBTQ+ rhetoric. 

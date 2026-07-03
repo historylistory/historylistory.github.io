@@ -271,6 +271,10 @@ The following examples highlight these concerns, while some are included for his
 
 2026-06-26 A judge declared a mistrial in the Palisades fire arson case against Jonathan Rinderkecht. The DOJ said they will continue to pursue. 
 
+2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
 2026-07-01 The European Union Marine Environment Monitor report showed this is the ocean’s hottest June in history. 
 
 2026-07-01 More than 1000 people in France, 1000 people in Spain, and 800 people in Germany died from heat exposure. These numbers are likely to triple by 2100 due to climate change.
+
+2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
