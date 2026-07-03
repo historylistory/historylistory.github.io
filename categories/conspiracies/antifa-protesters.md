@@ -125,7 +125,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest](https://www.foxnews.com/media/masked-agitator-tells-laura-ingraham-shes-getting-paid-right-now-during-anti-ice-protest)
 
 
-2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
+2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 [https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
 

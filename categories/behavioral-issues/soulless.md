@@ -702,7 +702,7 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 
 PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/news/articles/cg73l2d079ko)
 
-2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
+2026-04-29 ICE agent Jonathan Ross returned to duty after Renee Nicole Good's killing.
 
 [https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
 

@@ -187,7 +187,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2026 January
 
-2026-01-12 Kristi Noem changed ICE detention center policies in an attempt to block Congressional members from inspections without a 7-day notice.
+2026-01-12 Kristi Noem changed ICE detention center policies in effort to block Congressional members from inspections without a 7-day notice.
 
 [https://www.axios.com/2026/01/11/noem-limits-congress-ice-facility-access-after-shooting](https://www.axios.com/2026/01/11/noem-limits-congress-ice-facility-access-after-shooting)
 

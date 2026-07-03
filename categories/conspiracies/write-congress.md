@@ -238,7 +238,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
-2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
+2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 2026-01-27 Representative Ilhan Omar was attacked by a far-right activist during a town hall. Trump later claimed the incident had been staged.
 

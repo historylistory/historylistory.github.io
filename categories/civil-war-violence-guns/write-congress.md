@@ -376,7 +376,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
-2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
+2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 2026-01-17 Mitch McConnell opposed Trump's tariff-emergency declaration and was subsequently criticized by Trump.
 

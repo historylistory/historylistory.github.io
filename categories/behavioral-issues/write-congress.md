@@ -352,7 +352,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 
-2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
+2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 2026-01-14 Trump flipped off an autoworker during a Ford plant visit.
 
@@ -588,7 +588,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-29 Trump added his image to U.S. passports.
 
-2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
+2026-04-29 ICE agent Jonathan Ross returned to duty after Renee Nicole Good's killing.
 
 2026-04-29 The Trump administration attempted to weaken the Endangered Species Act to expand drilling and mining but the vote was delayed over bipartisan concern. 
 

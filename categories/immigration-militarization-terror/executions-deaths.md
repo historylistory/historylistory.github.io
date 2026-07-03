@@ -44,7 +44,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 [https://wordinblack.com/2026/01/ice-agent-killed-black-man-los-angeles-why-no-arrest/](https://wordinblack.com/2026/01/ice-agent-killed-black-man-los-angeles-why-no-arrest/)
 
-2026-01-04 News outlets report that so far 32 people had died in ICE custody and there had been 9 officer-involved shootings up to this date that the public was aware of.
+2026-01-04 By this date 32 people had died in ICE custody and there had been 9 officer-involved shootings that have been made public.
 
 [https://www.theguardian.com/us-news/ng-interactive/2026/jan/04/ice-2025-deaths-timeline](https://www.theguardian.com/us-news/ng-interactive/2026/jan/04/ice-2025-deaths-timeline)
 
@@ -52,7 +52,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 ### 2026 January
 
-2026-01-07 ICE fatally shot and killed a 37-year-old mother of three, claiming she allegedly hit an ICE officer with her vehicle. Trump posted on social media that the officer was hit by the vehicle and lucky to be alive. Video shows the officer out of the way of the vehicle, taking video with his phone, walking away from the scene unscathed, and continuing to play with his phone immediately after the incident. The body cam footage showed the woman’s final words, “It’s okay, I’m not mad at you” and someone in the background calling the woman a “fucking bitch”.
+2026-01-07 ICE fatally shot and killed a 37-year-old mother of three Renee Nicole Good, claiming she hit an ICE officer with her vehicle. Trump posted on social media that the officer was hit by the vehicle and lucky to be alive. Video shows the officer walking away from the scene unscathed and doing something on his phone immediately after killing Renee Nicole Good. The body cam footage showed her final words, “It’s okay, I’m not mad at you” while someone in the background called her a “fucking bitch”.
 
 [https://www.theguardian.com/us-news/2026/jan/09/ice-agent-minneapolis-bodycam-footage](https://www.theguardian.com/us-news/2026/jan/09/ice-agent-minneapolis-bodycam-footage)
 
@@ -60,19 +60,19 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 [https://www.cnn.com/2026/01/08/us/renee-nicole-good-minneapolis-ice-shooting-hnk](https://www.cnn.com/2026/01/08/us/renee-nicole-good-minneapolis-ice-shooting-hnk)
 
-2026-01-09 The DOJ blocked Minnesota law officials from investigating the shooting of the 37-year-old mom Nicole Good.
+2026-01-09 The DOJ blocked Minnesota law officials from investigating the shooting of the 37-year-old mom Renee Nicole Good.
 
 [https://www.cnn.com/2026/01/09/politics/investigation-minneapolis-ice-shooting-deviates-police-shooting-playbook](https://www.cnn.com/2026/01/09/politics/investigation-minneapolis-ice-shooting-deviates-police-shooting-playbook)
 
 {% include youtubePlayer.html id="JPci0fAmo40" %}
 
-2026-01-09 News media reported that a neighbor saw federal agents removing evidence from the home of Jonathan Ross, the ICE agent who fatally shot Nicole Good.
+2026-01-09 News media reported that a neighbor saw federal agents removing evidence from the home of Jonathan Ross, the ICE agent who fatally shot Renee Nicole Good.
 
 [https://www.theguardian.com/us-news/2026/jan/10/fbi-investigation-minneapolis-ice-shooting-renee-nicole-good#:~:text=%E2%80%9CThe%20fact%20that%20Pam%20Bondi's,in%20the%20shooting%20with%20him](https://www.theguardian.com/us-news/2026/jan/10/fbi-investigation-minneapolis-ice-shooting-renee-nicole-good).
 
 [https://www.bbc.com/news/articles/cvgnvqrxl0xo](https://www.bbc.com/news/articles/cvgnvqrxl0xo)
 
-2026-01-12 Leavitt defended ICE after the Nicole Goode murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
+2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 [https://www.youtube.com/watch?v=khfNzAKC8Wg](https://www.youtube.com/watch?v=khfNzAKC8Wg)
 
@@ -80,7 +80,7 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html](https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html)
 
-2026-01-13 Six prosecutors and four DOJ civil rights leaders quit after the DOJ tried to conduct a criminal investigation into Nicole Good’s widowed spouse.
+2026-01-13 Six prosecutors and four DOJ civil rights leaders quit after the DOJ tried to conduct a criminal investigation into Renee Nicole Good's widowed spouse.
 
 [https://www.theguardian.com/us-news/2026/jan/13/doj-attorneys-resign-minneapolis-ice-shooting](https://www.theguardian.com/us-news/2026/jan/13/doj-attorneys-resign-minneapolis-ice-shooting)
 
@@ -211,7 +211,7 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802](https://www.nbcnews.com/news/us-news/ice-report-deaths-detainees-rcna340802)
 
-2026-04-29 ICE agent Jonathan Ross returned to duty after Nicole Goode’s killing.
+2026-04-29 ICE agent Jonathan Ross returned to duty after Renee Nicole Good's killing.
 
 [https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty](https://www.democracynow.org/2026/4/29/headlines/daily_beast_ice_agent_who_shot_and_killed_renee_good_back_on_duty)
 
