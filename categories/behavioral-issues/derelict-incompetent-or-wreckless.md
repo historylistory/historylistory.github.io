@@ -433,18 +433,6 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
 
-2026-03-19 During Senator Markwayne Mullin’s confirmation hearing before being appointed the new head of DHS, Rand Paul confronted Mullin about a past comment where he said he understood why Paul was assaulted and suffered rib fractures. 
-
-[https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief](https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief)
-
-[https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate](https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate)
-
-[https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/](https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/)
-
-[https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659](https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659)
-
-[https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
-
 2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)

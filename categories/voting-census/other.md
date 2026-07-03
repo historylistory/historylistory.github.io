@@ -145,12 +145,6 @@ OTHER SHADY BUSINESS
 
 [https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id](https://podcasts.apple.com/id/podcast/bannon-ice-agents-in-airports-are-test-run-for-2026-election/id1450288257?i=1000757120663&l=id)
 
-2026-03-25 Watch Adam Mockler arguments about the legality of ICE, free and fair elections, and the Iran war (the meat of the interview is at timestamp 7:33). 
-
-[https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
-
-[https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
-
 ### 2026 June
 
 

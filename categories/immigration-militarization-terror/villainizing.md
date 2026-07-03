@@ -274,7 +274,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2026 March
 
-2026-03-18 Senator Markwayne Mullin – who was selected to replace Kristi Noem as DHS secretary – said he regretted calling Alex Pretti a “deranged individual” during a Senate hearing.
+2026-03-18 Senator Markwayne Mullin said he regretted calling Alex Pretti a “deranged individual” during a Senate hearing.
 
 [https://www.politico.com/live-updates/2026/03/18/congress/mullins-comments-on-pretti-and-good-00833803](https://www.politico.com/live-updates/2026/03/18/congress/mullins-comments-on-pretti-and-good-00833803)
 

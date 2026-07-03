@@ -352,18 +352,6 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/](https://www.texastribune.org/2026/03/06/south-padre-immigration-officer-shooting/)
 
-2026-03-19 During Senator Markwayne Mullin’s confirmation hearing before being appointed the new head of DHS, Rand Paul confronted Mullin about a past comment where he said he understood why Paul was assaulted and suffered rib fractures. 
-
-[https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief](https://www.foxnews.com/politics/tell-me-my-face-top-moments-mullins-heated-confirmation-hearing-trumps-next-dhs-chief)
-
-[https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate](https://www.axios.com/2026/03/18/rand-paul-mullin-dhs-hearing-senate)
-
-[https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/](https://thehill.com/homenews/senate/5789478-rand-paul-markwayne-mullin-dhs/)
-
-[https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659](https://www.politico.com/news/2026/03/18/paul-challenges-mullin-over-assault-comments-during-dhs-grilling-00833659)
-
-[https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817](https://www.whas11.com/video/news/politics/tell-it-to-my-face-rand-paul-confronts-dhs-nominee-markwayne-mullin/417-bfc5149c-d94b-408f-b5a9-51c53b932817)
-
 2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
 [https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
@@ -395,12 +383,6 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 [https://www.nbcnews.com/politics/politics-news/tom-homan-ice-crowded-airport-security-tsa-screenings-wait-times-rcna264618](https://www.nbcnews.com/politics/politics-news/tom-homan-ice-crowded-airport-security-tsa-screenings-wait-times-rcna264618)
 
 [https://thehill.com/policy/transportation/5795316-homan-ice-tsa-plan-dhs-shutdown/](https://thehill.com/policy/transportation/5795316-homan-ice-tsa-plan-dhs-shutdown/)
-
-2026-03-25 Watch Adam Mockler arguments about the legality of ICE, free and fair elections, and the Iran war (the meat of the interview is at timestamp 7:33). 
-
-[https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5](https://www.youtube.com/watch?v=2_cLP8iiKZw&list=WL&index=5)
-
-[https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html](https://www.yahoo.com/news/articles/cnn-guest-demands-answer-scott-031709832.html)
 
 ### 2026 April
 

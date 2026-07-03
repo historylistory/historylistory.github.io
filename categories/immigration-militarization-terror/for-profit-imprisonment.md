@@ -45,7 +45,7 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 
 ### Behind Closed Doors
 
-2026-05-05 (context) DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers. 
+2026-05-05 DHS closed its internal watchdog offices that track the abuse of immigrants. This came after a Washington Post investigation found an increase in abuse and excessive force carried out on detainees as the Trump administration over-packs detention centers. 
 
 [https://whistleblower.org/in-the-news/cnn-cuts-to-dhs-watchdogs-spark-more-questions-as-deportation-efforts-increase/](https://whistleblower.org/in-the-news/cnn-cuts-to-dhs-watchdogs-spark-more-questions-as-deportation-efforts-increase/)
 
