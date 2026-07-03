@@ -93,6 +93,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2022-10-01 Following Elon Musk's acquisition of Twitter researchers reported increases in impersonation, misinformation, and hate speech. Elon Musk also allowed users to pay their way for their blue check verification. 
 
+2022-10-22 Oath Keepers members testified about a cache of weapons stashed at a hotel for potential Jan 6 violence.
+
 2022-10-28 Paul Pelosi was attacked with a hammer in his home. Charlie Kirk responded to the Pelosi attack on his podcast, “…why is the Conservative movement to blame for gay schizophrenic nudists that are hemp jewelry makers breaking into somebody’s home…” and then urged a “brave patriot” to post bail for the suspect.
 
 2023-02-08 Arkansas Governor Sarah Huckabee Sanders framed politics as a choice between "normal or crazy", accused Democrats of promoting "woke fantasies." and asserted that Republicans “are under attack in a left-wing culture war”.

@@ -91,6 +91,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2021-01-06 January 6 riots. Multiple lawsuits were filed seeking damages for injuries and losses related to the insurrection. (Covered separately.)
 
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
+
 2021-01-11 The House introduced Resolution 24 to impeach Trump for incitement of insurrection; it failed to secure a majority vote in February 2021.
 
 2021-01-15 New York Attorney General Letitia James investigated Trump's company for allegedly inflating property values on financial statements.

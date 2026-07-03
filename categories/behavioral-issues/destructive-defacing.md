@@ -6,6 +6,16 @@ subcategory_slug: destructive-defacing
 permalink: /categories/behavioral-issues/destructive-defacing/
 ---
 
+### 2021
+
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
+
+[https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/#:~:text=On%20January%206%2C%202021%2C%20the,the%20attack%20and%20its%20aftermath](https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/)
+
+[https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election](https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election)
+
+[https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf](https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf)
+
 ### 2025 January
 
 2025-01-28 Bill HR792 was introduced to force U.S. park services to carve Trump’s face into the side of Mount Rushmore.

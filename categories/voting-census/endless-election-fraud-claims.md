@@ -125,7 +125,7 @@ OTHER SHADY BUSINESS
 
 ### 2021 January
 
-2021-01-02 (context) Just prior to the J6 insurrection, Ted Cruz and a group of Republican senators publicly announced their intention to vote against accepting the electoral college results.
+2021-01-02 Just prior to the J6 insurrection, Ted Cruz and a group of Republican senators publicly announced their intention to vote against accepting the electoral college results.
 
 [https://abc7.com/post/ted-cruz-electoral-college-congress-certification-mike-pence/9289536/](https://abc7.com/post/ted-cruz-electoral-college-congress-certification-mike-pence/9289536/)
 

@@ -99,6 +99,27 @@ permalink: /categories/greed-corruption/conflicts-ethics/
 
 {% include youtubePlayer.html id="cPx2tc3MLi4" %}
 
+### 2021
+
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
+
+[https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/#:~:text=On%20January%206%2C%202021%2C%20the,the%20attack%20and%20its%20aftermath](https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/)
+
+[https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election](https://www.pbs.org/newshour/politics/jan-6-panel-releases-final-report-alleges-trump-engaged-in-conspiracy-to-overturn-election)
+
+[https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf](https://d3i6fh83elv35t.cloudfront.net/static/2022/12/Report_FinalReport_Jan6SelectCommittee.pdf)
+
+2021-01-06 Jared Wise was caught on camera saying "kill 'em all". Trump later hired him on as a senior advisor to the DOJ.
+
+[https://www.democracynow.org/2025/8/8/headlines/doj_hires_jan_6_rioter_who_encouraged_killing_police_officers](https://www.democracynow.org/2025/8/8/headlines/doj_hires_jan_6_rioter_who_encouraged_killing_police_officers)
+
+[https://www.cbsnews.com/video/justice-department-hires-man-charged-jan-6/](https://www.cbsnews.com/video/justice-department-hires-man-charged-jan-6/)
+
+[https://www.justice.gov/usao-dc/press-release/file/1585991/dl](https://www.justice.gov/usao-dc/press-release/file/1585991/dl)
+
+[https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot](https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot)
+
+
 ### 2022
 
 

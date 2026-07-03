@@ -48,7 +48,7 @@ permalink: /categories/j6/supporting-actors/
 
 [https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf](https://docs.house.gov/meetings/JU/JU08/20220121/114349/HHRG-117-JU08-Bio-KellyJ-20220121.pdf)
 
-2022-10-22 According to several news articles, Oath Keepers members testified about a cache of weapons stashed at a hotel for potential Jan 6 violence.
+2022-10-22 Oath Keepers members testified about a cache of weapons stashed at a hotel for potential Jan 6 violence.
 
 [https://www.cbsnews.com/news/oath-keepers-seditious-conspiracy-stewart-rhodes-witness-testifies-weapons-cache-today-2022-10-12/](https://www.cbsnews.com/news/oath-keepers-seditious-conspiracy-stewart-rhodes-witness-testifies-weapons-cache-today-2022-10-12/)
 
@@ -74,17 +74,11 @@ permalink: /categories/j6/supporting-actors/
 
 ### 2024
 
-2024-04-25 Featured on a Steve Bannon podcast, Mike Davis provided his own red-herring fallacy "news" report in front of the Supreme Court during the Trump immunity hearing.
-
-[https://x.com/mrddmia/status/1783550254052233298?s=43](https://x.com/mrddmia/status/1783550254052233298?s=43)
-
-[https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358](https://www.politico.com/news/magazine/2024/09/20/mike-davis-trump-potential-attorney-general-profile-00179358)
-
 2024-10-17 During a campaign event in Miami Florida, Trump called January 6th a “day of love”.
 
 [https://www.bbc.com/news/articles/ckgnxej1dn0o](https://www.bbc.com/news/articles/ckgnxej1dn0o)
 
-2024-10-31 JD Vance delivered a speech at the Turning Point rally in North Carolina. During the speech he stated that J6 was **not** a constitutional crisis, but rather the **opposite** of a constitutional crisis and that Donald Trump was trying to challenge an election through constitutional means.
+2024-10-31 During a TPUSA rally in North Carolina JD Vance claimed J6 was not a constitutional crisis, but rather the opposite and that Trump was trying to challenge an election through constitutional means.
 
 [https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/](https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/)
 

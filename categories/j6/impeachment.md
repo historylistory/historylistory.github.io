@@ -14,6 +14,6 @@ permalink: /categories/j6/impeachment/
 
 ### 2022
 
-2022-06-09 A public hearing was held to investigate the insurrection. A list of key witnesses can be found at the link below.
+2022-06-09 A public hearing was held to investigate the insurrection. 
 
-[https://www.pbs.org/newshour/politics/who-are-the-key-players-in-the-jan-6-committee-hearings-so-far](https://www.pbs.org/newshour/politics/who-are-the-key-players-in-the-jan-6-committee-hearings-so-far)
+LIST OF KEY WITNESSES: [https://www.pbs.org/newshour/politics/who-are-the-key-players-in-the-jan-6-committee-hearings-so-far](https://www.pbs.org/newshour/politics/who-are-the-key-players-in-the-jan-6-committee-hearings-so-far)

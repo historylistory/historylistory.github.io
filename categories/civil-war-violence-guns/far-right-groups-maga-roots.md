@@ -39,6 +39,17 @@ permalink: /categories/civil-war-violence-guns/far-right-groups-maga-roots/
 [https://time.com/4536212/james-okeefe-project-veritas-video-democrats/](https://time.com/4536212/james-okeefe-project-veritas-video-democrats/)
 
 
+### 2022
+
+2022-10-22 Oath Keepers members testified about a cache of weapons stashed at a hotel for potential Jan 6 violence.
+
+[https://www.cbsnews.com/news/oath-keepers-seditious-conspiracy-stewart-rhodes-witness-testifies-weapons-cache-today-2022-10-12/](https://www.cbsnews.com/news/oath-keepers-seditious-conspiracy-stewart-rhodes-witness-testifies-weapons-cache-today-2022-10-12/)
+
+[https://www.politico.com/news/2022/10/12/oath-keeper-weapons-firearms-jan-6-hotel-00061449](https://www.politico.com/news/2022/10/12/oath-keeper-weapons-firearms-jan-6-hotel-00061449)
+
+[https://www.nbcnews.com/politics/justice-department/oath-keeper-testifies-massive-gun-pile-stashed-hotel-eve-jan-6-rcna51749](https://www.nbcnews.com/politics/justice-department/oath-keeper-testifies-massive-gun-pile-stashed-hotel-eve-jan-6-rcna51749)
+
+[https://www.wabe.org/oath-keepers-jury-hears-about-massive-weapon-cache-on-jan-6/](https://www.wabe.org/oath-keepers-jury-hears-about-massive-weapon-cache-on-jan-6/)
 
 
 ### 2026

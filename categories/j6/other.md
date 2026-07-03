@@ -24,7 +24,7 @@ permalink: /categories/j6/other/
 
 ### 2024
 
-2024-12-02 Karoline Leavitt deleted old posts condemning January 6 after later running for Congress.
+2024-12-02 Once she ran for Congress, Karoline Leavitt allegedly deleted old posts condemning January 6.
 
 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 

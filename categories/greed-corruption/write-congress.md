@@ -68,6 +68,10 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
+
+2021-01-06 Jared Wise was caught on camera saying "kill 'em all". Trump later hired him on as a senior advisor to the DOJ.
+
 2021-01-17 An upside-down U.S. flag was displayed outside Justice Samuel Alito’s Virginia home, and an “Appeal to Heaven” flag flew at his New Jersey property. Both symbols have been linked to far-right Christian nationalist movements.
 
 2021-08-29 JD Vance was quoted as attributing his entire career to Peter Thiel. Thiel invested in JD Vance’s venture capital firm and backed Vance’s 2022 Senate campaign as the ‘largest amount given to a single candidate in congressional history’.

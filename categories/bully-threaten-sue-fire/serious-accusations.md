@@ -62,7 +62,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/countering-domestic-terrorism-and-organized-political-violence/](https://www.whitehouse.gov/presidential-actions/2025/09/countering-domestic-terrorism-and-organized-political-violence/)
 
-2025-09-25 Casey Goonan, who set off a series of Molotov cocktails during a protest on Gaza was sentenced to 20 years in prison and labeled a domestic terrorist. For context, the White House passed a very vague memorandum NSPM-7 which allows them to label any outliers or non-Trump supporters as domestic terrorists. By contrast, Trump pardoned J6er David Dempsey who pepper sprayed and beat multiple officers during the J6 riot.
+2025-09-25 Casey Goonan was sentenced to 20 years and labeled a terrorist for setting off a series of Molotov cocktails during a protest on Gaza. By contrast, Trump pardoned J6 insurrectionist David Dempsy who pepper sprayed and beat multiple officers during the J6 riot. 
 
 [https://dailynorthwestern.com/tag/casey-goonan/](https://dailynorthwestern.com/tag/casey-goonan/)
 

@@ -35,7 +35,7 @@ permalink: /categories/behavioral-issues/weird-random/
 
 [https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303](https://people.com/donald-trump-claims-joan-rivers-voted-him-president-8667303)
 
-2024-12-02 Karoline Leavitt deleted old posts condemning January 6 after later running for Congress.
+2024-12-02 Once she ran for Congress, Karoline Leavitt allegedly deleted old posts condemning January 6.
 
 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s](https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=862s)
 

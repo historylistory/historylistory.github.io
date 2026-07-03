@@ -52,7 +52,7 @@ DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.you
 
 [https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot](https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot)
 
-2025-08-28 J6 insurrectionists received  **refunds** for their criminal fines.
+2025-08-28 J6 insurrectionists received refunds for their criminal fines.
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010](https://www.msnbc.com/rachel-maddow-show/maddowblog/first-time-jan-6-rioter-gets-refund-paid-restitution-rcna228010)
 
@@ -66,7 +66,7 @@ DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.you
 
 {% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
-2025-09-25 Casey Goonan, who set off a series of Molotov cocktails during a protest on Gaza was sentenced to 20 years in prison and labeled a domestic terrorist. For context, the White House passed a very vague memorandum NSPM-7 which allows them to label any outliers or non-Trump supporters as domestic terrorists. By contrast, **Trump pardoned J6er David Dempsey who pepper sprayed and beat multiple officers during the J6 riot.**
+2025-09-25 Casey Goonan was sentenced to 20 years and labeled a terrorist for setting off a series of Molotov cocktails during a protest on Gaza. By contrast, Trump pardoned J6 insurrectionist David Dempsy who pepper sprayed and beat multiple officers during the J6 riot. 
 
 [https://dailynorthwestern.com/tag/casey-goonan/](https://dailynorthwestern.com/tag/casey-goonan/)
 

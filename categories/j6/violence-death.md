@@ -8,7 +8,7 @@ permalink: /categories/j6/violence-death/
 
 ### 2021 January
 
-2021-01-06 There is plenty of footage, articles, and pictures of the riot, including but not limited to insurrectionists demolishing the capitol, relieving themselves on desks, law enforcement officers being attacked. There is also final footage of an officer who died of a stroke 7 hours later because of the mob attack. Multiple lawsuits were filed for damages and bodily harm incurred from the J6 insurrection.
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
 
 [https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/#:~:text=On%20January%206%2C%202021%2C%20the,the%20attack%20and%20its%20aftermath](https://www.loc.gov/collections/january-6th-attack-on-the-us-capitol-web-archive/about-this-collection/)
 

@@ -68,6 +68,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2021-01-06 “Jesus is my Savior — Trump is my President” signs appeared during January 6 events.
 
+2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
+
 2021-02-18 Ted Cruz vacationed in Cancun during the Texas power crisis, later repeating a similar trip during Texas flooding in 2025.
 
 2021-09-01 JD Vance praised Alex Jones and Peter Thiel as unconventional truth-tellers during a Teneo Retreat event presented by the Venverloh Family Foundation. 
@@ -124,7 +126,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2024-11-25 Pete Hegseth argued in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules”.’
 
-2024-12-02 Karoline Leavitt deleted old posts condemning January 6 after later running for Congress.
+2024-12-02 Once she ran for Congress, Karoline Leavitt allegedly deleted old posts condemning January 6.
 
 2025-01-20 Mike Johnson temporarily raised flags during Jimmy Carter’s mourning period at Trump’s request.
 
