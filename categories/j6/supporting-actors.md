@@ -12,7 +12,7 @@ permalink: /categories/j6/supporting-actors/
 
 ### 2020
 
-2020-01-01 Multiple sources reported on “Stop the Steal” leaders promoting false claims of fraud in the 2020 elections and organizing protests leading up to the J6 insurrection.
+2020-01-01 Leaders of the “Stop the Steal” movement promoted false claims of fraud in the 2020 elections and organized protests leading up to the J6 insurrection.
 
 [https://www.komu.com/news/nationworld/stop-the-steal-leader-cooperating-with-dojs-investigation-of-capitol-riot/article_13dc0083-bb0f-52bd-9695-619d5e969f4d.html](https://www.komu.com/news/nationworld/stop-the-steal-leader-cooperating-with-dojs-investigation-of-capitol-riot/article_13dc0083-bb0f-52bd-9695-619d5e969f4d.html)
 

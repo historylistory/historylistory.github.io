@@ -64,7 +64,9 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2020-04-01 Karoline Leavitt leveraged “blue-collar roots,” though reports said her family business received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
 
-2020-12-19 Trump posted on social media “Big protest in D.C on january 6th Be there, will be wild!”
+2020-12-15 After Biden won Trump posted, “This Fake election can no longer stand. Get moving Republicans”.
+
+2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
 2021-01-17 An upside-down U.S. flag was displayed outside Justice Samuel Alito’s Virginia home, and an “Appeal to Heaven” flag flew at his New Jersey property. Both symbols have been linked to far-right Christian nationalist movements.
 

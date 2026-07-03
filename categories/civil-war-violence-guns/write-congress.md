@@ -69,7 +69,9 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2020-08-25 Kyle Rittenhouse shot three protesters during unrest in Kenosha, Wisconsin. He was acquitted on all charges including first-degree intentional homicide and later received support from many conservatives. Reports later stated Kash Patel assisted in efforts to pursue lawsuits on Rittenhouse's behalf. 
 
-2020-12-19 Trump posted on social media “Big protest in D.C on january 6th Be there, will be wild!”
+2020-12-15 After Biden won Trump posted, “This Fake election can no longer stand. Get moving Republicans”.
+
+2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
 2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results.
 

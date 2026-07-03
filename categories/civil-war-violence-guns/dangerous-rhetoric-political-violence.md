@@ -95,7 +95,11 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/](https://www.ktalnews.com/news/u-s-world/pirro-anyone-who-brings-a-gun-to-dc-should-count-on-going-to-jail/)
 
-2020-12-19 Trump posted on social media “Big protest in D.C on january 6th Be there, will be wild!”
+2020-12-15 After Biden won Trump posted, “This Fake election can no longer stand. Get moving Republicans”.
+
+[https://abcnews.go.com/Politics/timeline-donald-trumps-election-denial-claims-republican-politicians/story?id=89168408](https://abcnews.go.com/Politics/timeline-donald-trumps-election-denial-claims-republican-politicians/story?id=89168408)
+
+2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
 [https://www.presidency.ucsb.edu/documents/tweets-december-19-2020](https://www.presidency.ucsb.edu/documents/tweets-december-19-2020)
 

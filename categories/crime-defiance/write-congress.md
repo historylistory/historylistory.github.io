@@ -81,7 +81,9 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2020-07-24 The ACLU sued Trump over a new census order.
 
-2020-12-19 Trump posted on social media “Big protest in D.C on january 6th Be there, will be wild!”
+2020-12-15 After Biden won Trump posted, “This Fake election can no longer stand. Get moving Republicans”.
+
+2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
 2020-12-21 The NAACP sued Trump over allegations that the administration is deliberately trying to disenfranchise Black voters in Michigan.
 
