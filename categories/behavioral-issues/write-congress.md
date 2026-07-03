@@ -328,6 +328,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-12-04 The Pentagon Inspector General released a report stating Hegseth endangered servicemembers through Signal leaks.
 
+2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
+
 2025-12-07 Alex Karp gave a widely discussed jittery interview.
 
 2025-12-10 DHS released a video of a Venezuelan oil tanker seizure to “Momma Said Knock You Out” by LL Cool J.

@@ -161,7 +161,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2025 December - reports of torture
 
-2025-12-04 Amnesty International reported on details of torture at two ICE facilities in Florida – Krome and Alligator Alcatraz – including placing people in 2x2 foot cage-like structures for hours at a time as a means of punishment. At this time, Alligator Alcatraz was still open pending an appeal to the suit filed in June. It is also worth nothing that Alligator Alcatraz is STATE run, not Federal, so there is no federal oversight.
+2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
 
 [https://www.amnestyusa.org/reports/torture-and-enforced-disappearances-in-the-sunshine-state-human-rights-violations-at-alligator-alcatraz-and-krome-in-florida/](https://www.amnestyusa.org/reports/torture-and-enforced-disappearances-in-the-sunshine-state-human-rights-violations-at-alligator-alcatraz-and-krome-in-florida/)
 

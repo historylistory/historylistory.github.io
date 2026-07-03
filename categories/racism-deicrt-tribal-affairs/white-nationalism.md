@@ -158,6 +158,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
 
+[https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166](https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166)
+
+[https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe](https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe)
+
+
 2025-10-20 News outlets reported on a leaked Nazi post from Trump-nominee Paul Ingrassia “**I do have a Nazi streak in me from time to time**”. According to articles, this came from a text chain obtained by Politico and included context that the Martin Luther King holiday should be “tossed into the seventh circle of hell”. Ingrassia withdrew his nomination the very next day.
 
 [https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak](https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak)

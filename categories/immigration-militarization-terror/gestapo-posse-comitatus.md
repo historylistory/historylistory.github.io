@@ -255,7 +255,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 ### 2025 December
 
-2025-12-31 News outlets reported ICE started using online influencer and geo-targeting to recruit a specific type of ICE candidate; anyone who followed UFC fights or NASCAR, lived near military bases, or exhibit conservative values.
+2025-12-31 ICE used online influencer and geo-targeting to recruit a specific type of ICE candidate; anyone who followed UFC fights or NASCAR, lived near military bases, or exhibit conservative values.
 
 [https://mashable.com/article/ice-recruiting-social-media-influencers-leaked-document](https://mashable.com/article/ice-recruiting-social-media-influencers-leaked-document)
 

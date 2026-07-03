@@ -301,6 +301,22 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 ### 2025 December
 
+2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
+
+[https://www.amnestyusa.org/reports/torture-and-enforced-disappearances-in-the-sunshine-state-human-rights-violations-at-alligator-alcatraz-and-krome-in-florida/](https://www.amnestyusa.org/reports/torture-and-enforced-disappearances-in-the-sunshine-state-human-rights-violations-at-alligator-alcatraz-and-krome-in-florida/)
+
+[https://www.amnesty.org/en/documents/amr51/0511/2025/en/](https://www.amnesty.org/en/documents/amr51/0511/2025/en/)
+
+[https://www.amnesty.org/en/latest/news/2025/12/estados-unidos-nuevas-investigaciones-revelan-violaciones-de-derechos-humanos-en-los-centros-de-detencion-de-alligator-alcatraz-y-krome-en-florida/](https://www.amnesty.org/en/latest/news/2025/12/estados-unidos-nuevas-investigaciones-revelan-violaciones-de-derechos-humanos-en-los-centros-de-detencion-de-alligator-alcatraz-y-krome-en-florida/)
+
+[https://www.wgcu.org/top-story/2025-12-04/amnesty-international-report-details-human-rights-violations-at-everglades-and-krome-detention-centers](https://www.wgcu.org/top-story/2025-12-04/amnesty-international-report-details-human-rights-violations-at-everglades-and-krome-detention-centers)
+
+[https://www.theguardian.com/us-news/2025/dec/04/first-thing-alligator-alcatraz-detainees-human-rights-violations-amnesty-report-alleges](https://www.theguardian.com/us-news/2025/dec/04/first-thing-alligator-alcatraz-detainees-human-rights-violations-amnesty-report-alleges)
+
+[https://www.bbc.com/news/articles/crl5ry3rgzro](https://www.bbc.com/news/articles/crl5ry3rgzro)
+
+[https://www.everglades.org/alligator-alcatraz-status-update-127-days-of-americas-worst-idea/](https://www.everglades.org/alligator-alcatraz-status-update-127-days-of-americas-worst-idea/)
+
 2025-12-15 Trump invoked “Trump Derangement Syndrome” while posting about the murder of director Rob Reiner and his wife.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115724141568860081](https://truthsocial.com/@realDonaldTrump/posts/115724141568860081)

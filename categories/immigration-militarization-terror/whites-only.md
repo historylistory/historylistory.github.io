@@ -16,13 +16,11 @@ permalink: /categories/immigration-militarization-terror/whites-only/
 
 [https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
 
-### 2025 December
-
-2025-12-09 During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania, Trump went on a rant about why we only take immigrants from predominantly non-white countries and lamented that we don’t receive more immigrants from Norway, Sweden or Denmark. For context, most citizens of countries like Norway don’t enter the US because it would technically be a downgrade in standards for them, as they enjoy better social healthcare, earn more income while working fewer hours, are recorded to live longer, women enjoy their right and advocacy to their own health care choices, and things like medical coverage, retirement and paid leave aren’t tied up into employment. People who come from what Trump frequently refers to as “shit-hole” countries leave because powerful global leaders extract wealth and democracy from their countries in the first place.
-
 [https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166](https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166)
 
 [https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe](https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe)
+
+
 
 ### 2026 February
 

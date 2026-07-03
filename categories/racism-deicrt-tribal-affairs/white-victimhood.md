@@ -43,6 +43,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 [https://media.aflegal.org/wp-content/uploads/2025/07/16174340/John-Hopkins-Med-School-Letter.pdf?_gl=1*dib8r8*_ga*MTAxNTM5NzMxMy4xNzUxMzA0OTI1*_ga_17LL3LHD2X*czE3NTI3NjIwNzMkbzEkZzEkdDE3NTI3NjIwOTckajM2JGwwJGgw](https://media.aflegal.org/wp-content/uploads/2025/07/16174340/John-Hopkins-Med-School-Letter.pdf?_gl=1*dib8r8*_ga*MTAxNTM5NzMxMy4xNzUxMzA0OTI1*_ga_17LL3LHD2X*czE3NTI3NjIwNzMkbzEkZzEkdDE3NTI3NjIwOTckajM2JGwwJGgw)
 
+### 2025 October
+
+2025-10-15 A group of 12 self-described non-African American voters claimed that the Louisiana congressional map “injured” their “personal dignity”. 
+
+[https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01](https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01)
+
 2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
@@ -51,12 +57,9 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 [https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
 
-### 2025 October
+[https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166](https://abcnews.go.com/Politics/trump-ramps-anti-immigrant-rhetoric-embraces-phrase-hole/story?id=128279166)
 
-2025-10-15 A group of 12 self-described non-African American voters claimed that the Louisiana congressional map “injured” their “personal dignity”. 
-
-[https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01](https://transcripts.cnn.com/show/foavb/date/2024-05-11/segment/01)
-
+[https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe](https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe)
 
 ### 2026 February
 
