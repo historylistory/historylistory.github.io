@@ -20,7 +20,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-native
 
 ### 2025 November
 
-2025-11-28 Elaine Miles, a member of the Confederated Tribes of the Umatilla Indian Reservation and known for her acting role in Northern Exposure, was detained and questioned by ICE. News outlets reported that when she provided her tribal identification card, ICE accused her of providing a fake ID.
+2025-11-28 Elaine Miles, a member of the Confederated Tribes of the Umatilla Indian Reservation and known for her acting role in Northern Exposure, was detained and questioned by ICE. When she provided her tribal identification card ICE accused her of providing a fake ID.
 
 [https://www.newsweek.com/northern-exposure-actress-elaine-miles-detained-by-ice-told-id-is-fake-11124694](https://www.newsweek.com/northern-exposure-actress-elaine-miles-detained-by-ice-told-id-is-fake-11124694)
 

@@ -233,7 +233,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 ### 2025 November
 
-2025-11-14 The Trump administration announced plans to expand immigration crackdown to New Orleans. DHS called it Operation Swamp Sweep, which they later upgraded in December to Operation Catahoula Crunch and added both armored vehicles and Special ops.
+2025-11-14 The Trump administration announced Operation Swamp Sweep in New Orleans, which they later renamed Operation Catahoula Crunch. The DHS operations included armored vehicles and special ops.
 
 [https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/](https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/)
 
@@ -245,7 +245,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.dhs.gov/news/2025/12/03/dhs-launches-operation-catahoula-crunch-new-orleans-targeting-criminal-illegal](https://www.dhs.gov/news/2025/12/03/dhs-launches-operation-catahoula-crunch-new-orleans-targeting-criminal-illegal)
 
-2025-11-14 ICE agents prepared to go to Charlotte, North Carolina for a new crackdown on immigration. Local departments stated they were not aware of the arrival.
+2025-11-14 Local departments in Charlotte, North Carolina said they were not made aware that ICE would be arriving in their hometown. 
 
 [https://www.cnn.com/2025/11/17/us/charlotte-north-carolina-immigration-border-patrol](https://www.cnn.com/2025/11/17/us/charlotte-north-carolina-immigration-border-patrol)
 

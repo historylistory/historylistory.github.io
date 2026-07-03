@@ -153,7 +153,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://apnews.com/article/immigration-agents-child-arrest-los-angeles-home-depot-2681d62ec00efb09ebe76c47ecedf6c0](https://apnews.com/article/immigration-agents-child-arrest-los-angeles-home-depot-2681d62ec00efb09ebe76c47ecedf6c0)
 
-2025-11-20 A federal judge dismissed charges against Marimar Martinez where she was accused of ramming a Border Patrol vehicle. The defense presented evidence including body camera video and text messages contradicting claims initially made by ICE. For context, this was the case from October 4th 2025 where ICE agents repeatedly shot Marimar Martinez during a raid.
+2025-11-20 A federal judge dismissed charges against Marimar Martinez after reviewing body camera footage disproving DHS claims. 
 
 [https://abc7chicago.com/post/department-justice-drops-charges-marimar-martinez-anthony-ruiz-accused-ramming-customs-border-protection-car/18180857/](https://abc7chicago.com/post/department-justice-drops-charges-marimar-martinez-anthony-ruiz-accused-ramming-customs-border-protection-car/18180857/)
 
@@ -163,7 +163,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.cnn.com/2025/11/21/us/marimar-martinez-shooting-case-what-we-know](https://www.cnn.com/2025/11/21/us/marimar-martinez-shooting-case-what-we-know)
 
-2025-11-20 Media outlets released video of a 58-year-old grandmother and 30-year US citizen from Maryland Rabbiatu Kuyateh being dragged by ICE and deported to Ghana.
+2025-11-20 Video footage showed ICE in Maryland dragging around 58-year-old Rabbiatu Kuyateh before deporting her to Ghana. She was a US citizen of 30 years. 
 
 [https://www.nbcwashington.com/investigations/woman-deported-from-maryland-shown-on-video-being-dragged-in-ghana/4018734/](https://www.nbcwashington.com/investigations/woman-deported-from-maryland-shown-on-video-being-dragged-in-ghana/4018734/)
 

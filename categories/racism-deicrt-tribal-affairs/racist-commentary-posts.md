@@ -330,7 +330,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://x.com/LauraLoomer/status/1988100437913071858](https://x.com/LauraLoomer/status/1988100437913071858)
 
-2025-11-27 Trump claimed Somali refugees were taking over Minnesota, described Somali gangs as predatory, attacked Governor Tim Walz, and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 
 {% include youtubePlayer.html id="lOlZlti8bUA" %}
 
@@ -362,7 +362,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2025 December
 
-2025-12-02 During a press conference Trump referred to Somali immigrants as “garbage” and said they should be sent back home, stating “we’re going to go the wrong way if we keep taking in garbage into our country”. One news outlet quoted the president as saying, “These are people who do nothing but complain…they complain, and from where they came from they got nothing…when they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
+2025-12-02 Trump said about Somali immigrants, “We’re going to go the wrong way if we keep taking in garbage into our country”. He also said, “These are people who do nothing but complain. They complain, and from where they came from they got nothing. When they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
@@ -370,7 +370,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
-2025-12-03 Tom Emmer went on Fox News claiming 80% of crimes being committed in Minnesota were being committed by Somalis.
+2025-12-03 Tom Emmer claimed on Fox News that 80% of crimes in Minnesota were committed by Somalis.
 
 [https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
 

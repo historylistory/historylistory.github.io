@@ -362,7 +362,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-11-24 Senator Ron Johnson criticized deficit spending and tariff policies, arguing they threatened long-term fiscal stability.
 
-2025-11-27 Trump claimed Somali refugees were taking over Minnesota, described Somali gangs as predatory, attacked Governor Tim Walz, and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 
 2025-12-04 The Justice Department issued a broad domestic-terrorism directive focused on alleged Antifa-related activity.  Remember: this administration accused Alexi Pretti of terrorism, and they shot him in the back 10 times.
 

@@ -8,7 +8,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 ### 2025 November
 
-2025-11-27 Trump claimed Somali refugees were taking over Minnesota, described Somali gangs as predatory, attacked Governor Tim Walz, and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 
 {% include youtubePlayer.html id="lOlZlti8bUA" %}
 
@@ -22,7 +22,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 ### 2025 December
 
-2025-12-02 During a press conference Trump referred to Somali immigrants as “garbage” and said they should be sent back home, stating “we’re going to go the wrong way if we keep taking in garbage into our country”. One news outlet quoted the president as saying, “These are people who do nothing but complain…they complain, and from where they came from they got nothing…when they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
+2025-12-02 Trump said about Somali immigrants, “We’re going to go the wrong way if we keep taking in garbage into our country”. He also said, “These are people who do nothing but complain. They complain, and from where they came from they got nothing. When they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
@@ -30,7 +30,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
-2025-12-03 The Trump administration announced a task force specifically targeting Somali immigrants in Minnesota. The DOJ called it **Operation Metro Surge.**The surge of agents being sent to Minneapolis occurred right after a right-wing podcaster harassed local Somalian daycares.
+2025-12-03 The Trump administration announced Operation Metro Surge, a task force designed to specifically target Somali immigrants in Minnesota. 
 
 [https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/](https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/)
 
@@ -38,7 +38,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 [https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/](https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/)
 
-2025-12-03 Tom Emmer went on Fox News claiming 80% of crimes being committed in Minnesota were being committed by Somalis.
+2025-12-03 Tom Emmer claimed on Fox News that 80% of crimes in Minnesota were committed by Somalis.
 
 [https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
 

@@ -137,7 +137,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.aclu-in.org/campaigns-initiatives/fair-redistricting-indiana/](https://www.aclu-in.org/campaigns-initiatives/fair-redistricting-indiana/)
 
-2025-12-03 The Trump administration announced a task force specifically targeting Somali immigrants in Minnesota. The DOJ called it **Operation Metro Surge.**The surge of agents being sent to Minneapolis occurred right after a right-wing podcaster harassed local Somalian daycares.
+2025-12-03 The Trump administration announced Operation Metro Surge, a task force designed to specifically target Somali immigrants in Minnesota. 
 
 [https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/](https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/)
 

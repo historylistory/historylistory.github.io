@@ -10,6 +10,12 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-islamo
 
 I realize I am missing a lot here. I just created this section April 30, 2026. 
 
+### 2025 November
+
+2025-11-18 Texas Governor Greg Abbot deemed the Council on American-Islamic Relations as a terrorist organization and banned them or anyone associated with them from purchasing or acquiring Texas land. The organization later filed a lawsuit.
+
+[https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/](https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/)
+
 ### 2026 March
 
 2026-03-12 Congressman Randy fine posted on social media, “We need more Islamophobia, not less. Fear of Islam is rational”.

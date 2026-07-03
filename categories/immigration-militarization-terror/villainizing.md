@@ -211,7 +211,25 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 November
 
-2025-11-27 Trump claimed Somali refugees were taking over Minnesota, described Somali gangs as predatory, attacked Governor Tim Walz, and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar stated “…this is what he does, and he tries to stoke division and make people hate each other”.
+2025-11-26 After an Afghan national shot two National Guard troops in DC, the Trump administration weaponized the tragedy. Kristi Noem suggested the suspect was radicalized in the U.S., and Trump used the shooting to ban Afghan asylum seekers from entering the country. For context, Operation Allies Welcome was a program set up to allow Afghans targeted by Taliban for working with U.S. forces to reach asylum, and many of them have waited 20 or more years to work through a rigorous vetting process to get here. By singling out Afghani immigrants, current Afghani residents of the U.S. reportedly fear for their safety.  The Trump administration blamed Biden for the shooting even though the suspect was vetted during both the Biden and Trump administrations.
+
+[https://www.npr.org/2025/11/27/nx-s1-5622991/afghan-refugee-program-national-guard-shooting-suspect](https://www.npr.org/2025/11/27/nx-s1-5622991/afghan-refugee-program-national-guard-shooting-suspect)
+
+[https://www.bbc.com/news/articles/cpwk2p0d94xo](https://www.bbc.com/news/articles/cpwk2p0d94xo)
+
+[https://abcnews.go.com/Politics/noem-national-guard-shooting-suspect-radicalized-us/story?id=127977510](https://abcnews.go.com/Politics/noem-national-guard-shooting-suspect-radicalized-us/story?id=127977510)
+
+[https://www.nbcnews.com/politics/trump-administration/kristi-noem-radicalized-dc-national-guard-asylum-shooting-rcna246477](https://www.nbcnews.com/politics/trump-administration/kristi-noem-radicalized-dc-national-guard-asylum-shooting-rcna246477)
+
+[https://www.theguardian.com/us-news/2025/nov/30/kristi-noem-national-guard-shooting-deportation-flights](https://www.theguardian.com/us-news/2025/nov/30/kristi-noem-national-guard-shooting-deportation-flights)
+
+[https://www.foxnews.com/video/6385764249112](https://www.foxnews.com/video/6385764249112)
+
+[https://www.cnn.com/us/live-news/shooting-washington-dc-national-guard-11-26-25](https://www.cnn.com/us/live-news/shooting-washington-dc-national-guard-11-26-25)
+
+[https://www.pbs.org/newshour/politics/watch-trump-says-national-guard-soldier-has-died-after-shooting-blames-biden-administration](https://www.pbs.org/newshour/politics/watch-trump-says-national-guard-soldier-has-died-after-shooting-blames-biden-administration)
+
+2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 
 {% include youtubePlayer.html id="lOlZlti8bUA" %}
 
@@ -225,7 +243,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 December
 
-2025-12-02 During a press conference Trump referred to Somali immigrants as “garbage” and said they should be sent back home, stating “we’re going to go the wrong way if we keep taking in garbage into our country”. One news outlet quoted the president as saying, “These are people who do nothing but complain…they complain, and from where they came from they got nothing…when they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
+2025-12-02 Trump said about Somali immigrants, “We’re going to go the wrong way if we keep taking in garbage into our country”. He also said, “These are people who do nothing but complain. They complain, and from where they came from they got nothing. When they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
@@ -233,15 +251,18 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 [https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
-2025-12-03 The Trump administration announced a task force specifically targeting Somali immigrants in Minnesota.
+2025-12-03 The Trump administration announced Operation Metro Surge, a task force designed to specifically target Somali immigrants in Minnesota. 
 
 [https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/](https://thehill.com/homenews/state-watch/5631530-trump-targets-minnesota-somali-community/)
 
 [https://www.house.mn.gov/members/Profile/News/15535/41031](https://www.house.mn.gov/members/Profile/News/15535/41031)
 
-2025-12-04 The DOJ initiated **Operation Metro Surge** to target Somali immigrants in Minneapolis.
-
 [https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/](https://www.cbsnews.com/minnesota/live-updates/ice-somali-immigrants-minneapolis-st-paul/)
+
+2025-12-03 Tom Emmer claimed on Fox News that 80% of crimes in Minnesota were committed by Somalis.
+
+[https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
+
 
 ### 2026 March
 

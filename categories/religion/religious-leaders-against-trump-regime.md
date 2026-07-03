@@ -136,6 +136,14 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 {% include youtubePlayer.html id="meCcT7e5Av8" %}
 
+### 2025 November
+
+2025-11-13 The United States Conference of Catholic Bishops rebuked the mass deportations, calling it “dehumanizing rhetoric and violence”.
+
+[https://www.usccb.org/news/2025/us-bishops-fall-plenary-assembly-meet-november-10-13](https://www.usccb.org/news/2025/us-bishops-fall-plenary-assembly-meet-november-10-13)
+
+[https://www.denvercatholic.org/us-bishops-issue-a-special-message-on-immigration](https://www.denvercatholic.org/us-bishops-issue-a-special-message-on-immigration)
+
 
 ### 2026 February
 
