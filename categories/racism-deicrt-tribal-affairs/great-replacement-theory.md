@@ -91,7 +91,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 ### 2025 October
 
-2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, *”…it is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say ‘I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers’.* 
+2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.
+
+[https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
+
+[https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721](https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721)
+
+[https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
+
+2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
 
 [https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
 

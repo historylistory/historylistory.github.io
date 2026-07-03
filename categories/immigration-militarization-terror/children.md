@@ -96,7 +96,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 October
 
-2025-10-25 ICE agents deployed tear gas in a park in Chicago, disrupting a local children’s Halloween party and parade. During the incident, agents in tactical gear pulled a 67-year-old man out of his car and dragged him in front of children. The man stated agents fractured his ribs.
+2025-10-25 ICE agents deployed tear gas in a park in Chicago near a local children’s Halloween party. During the incident, agents in tactical gear pulled a 67-year-old man out of his car and dragged him in front of children, fracturing his ribs. 
 
 [https://www.fox32chicago.com/news/outrage-after-federal-agents-use-tear-gas-just-before-halloween-parade-old-irving-park](https://www.fox32chicago.com/news/outrage-after-federal-agents-use-tear-gas-just-before-halloween-parade-old-irving-park)
 

@@ -223,7 +223,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.nilc.org/press/as-president-trump-militarizes-u-s-cities-tennessee-leaders-sue-to-block-unlawful-national-guard-deployment-in-memphis/](https://www.nilc.org/press/as-president-trump-militarizes-u-s-cities-tennessee-leaders-sue-to-block-unlawful-national-guard-deployment-in-memphis/)
 
-2025-10-27 During his visit to Japan Trump stated he might send **full-service military to our cities** instead of the National Guard.
+2025-10-27 During his visit to Japan Trump stated he might send full-service military to our cities instead of the National Guard.
 
 [https://www.nbcchicago.com/news/local/trump-warns-he-will-send-more-than-national-guard-to-some-u-s-cities-if-we-need/3844549/](https://www.nbcchicago.com/news/local/trump-warns-he-will-send-more-than-national-guard-to-some-u-s-cities-if-we-need/3844549/)
 

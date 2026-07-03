@@ -132,7 +132,7 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 ### 2025 October
 
-2025-10-15 News outlets reported that Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented about the U.S. not receiving more immigrants from places like Norway or Sweden.
+2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.
 
 [https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
 

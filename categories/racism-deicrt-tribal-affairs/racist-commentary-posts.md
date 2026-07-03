@@ -305,7 +305,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms](https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms)
 
-2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, *”…it is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say ‘I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers’.* 
+2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
 
 [https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
 

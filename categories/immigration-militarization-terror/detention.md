@@ -117,7 +117,7 @@ permalink: /categories/immigration-militarization-terror/detention/
 
 ### 2025 October
 
-2025-10-03 Alderman Jessie Fuentes was arrested by ICE at Humboldt Park hospital for asking officers if they had a federal warrant. In the video you can see Alderman Fuentes was calm and cooperative.
+2025-10-03 Alderman Jessie Fuentes was arrested by ICE at Humboldt Park hospital for asking officers if they had a federal warrant. 
 
 {% include youtubePlayer.html id="Hh9jDOP7NOM" %}
 

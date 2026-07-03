@@ -60,7 +60,7 @@ permalink: /categories/military-veterans/other/
 
 {% include youtubePlayer.html id="46bOyMz5kqo" %}
 
-2025-10-27 During his visit to Japan Trump stated he might send **full-service military to our cities** instead of the National Guard.
+2025-10-27 During his visit to Japan Trump stated he might send full-service military to our cities instead of the National Guard.
 
 [https://www.nbcchicago.com/news/local/trump-warns-he-will-send-more-than-national-guard-to-some-u-s-cities-if-we-need/3844549/](https://www.nbcchicago.com/news/local/trump-warns-he-will-send-more-than-national-guard-to-some-u-s-cities-if-we-need/3844549/)
 

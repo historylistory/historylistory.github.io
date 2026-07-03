@@ -78,7 +78,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 {% include youtubePlayer.html id="vOXOWAhFz0A" %}
 
-2025-10-03 News outlets in Chicago reported that masked federal agents **threw chemical irritants** outside the Logan Square grocery store.
+2025-10-03 ICE agents threw chemical irritants at citizens outside the Logan Square grocery store in Chicago.
 
 [https://chicago.suntimes.com/news/2025/10/03/federal-agent-chemical-irritants-rico-fresh-logan-square](https://chicago.suntimes.com/news/2025/10/03/federal-agent-chemical-irritants-rico-fresh-logan-square)
 
@@ -86,17 +86,17 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html](https://www.oregonlive.com/politics/2025/10/federal-agents-knock-down-elderly-couple-during-portland-protest.html)
 
-2025-10-04 ICE agents in Chicago opened fire and shot a U.S. citizen. The woman, bleeding profusely from multiple gunshot wounds, drove herself to a nearby business where workers tried to stop the bleeding and called 911. DHS alleged the woman was on their watchlist for doxxing agents online and claimed she tried to ram the vehicle of federal agents. According to news outlets, her lawyer stated footage from their body cam contradicted their accounts. In this case, agents wore body cam footage according to reports. In other cases, it has been reported that agents have not been wearing body cameras.
-
-{% include youtubePlayer.html id="A9kapAhTqDs" %}
+2025-10-04 ICE agents in Chicago opened fire and shot a U.S. citizen. The woman, bleeding profusely from multiple gunshot wounds, drove herself to a nearby business where workers tried to stop the bleeding and called 911. DHS said the woman was on their watchlist for doxxing agents and alleged she tried to ram them with her vehicle. Footage later released from body cam video contradicted their accounts. 
 
 [https://www.theguardian.com/us-news/2025/oct/10/chicago-woman-shot-by-border-patrol-indicted](https://www.theguardian.com/us-news/2025/oct/10/chicago-woman-shot-by-border-patrol-indicted)
 
-2025-10-05 ICE agents in Chicago **tear-gassed local police officers**.
+{% include youtubePlayer.html id="A9kapAhTqDs" %}
+
+2025-10-05 ICE agents in Chicago tear-gassed local police officers.
 
 [https://www.youtube.com/shorts/onCvjvWN7zA](https://www.youtube.com/shorts/onCvjvWN7zA)
 
-025-10-05 ICE agents shot a U.S. citizen Marimar Maritnez multiple times during a raid. News outlets uncovered body cam footage of DHS ICE agents taunting the victim by shouting “do something bitch” during the interaction.
+2025-10-05 ICE agents shot US citizen Marimar Maritnez multiple times during a raid. Uncovered body cam footage showed ICE agents taunting the victim and shouting “do something bitch” during the interaction.
 
 [https://www.reuters.com/world/us/bodycam-footage-conflicts-with-dhs-account-chicago-womans-shooting-by-border-2025-10-08/](https://www.reuters.com/world/us/bodycam-footage-conflicts-with-dhs-account-chicago-womans-shooting-by-border-2025-10-08/)
 
@@ -108,15 +108,16 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.npr.org/2026/01/31/nx-s1-5690124/ice-alex-pretti-immigration-unproven-claims-dhs-enforcement-arrests](https://www.npr.org/2026/01/31/nx-s1-5690124/ice-alex-pretti-immigration-unproven-claims-dhs-enforcement-arrests)
 
-2025-10-09 ICE agents in Chicago **shot a Presbyterian minister** **in the head** with a pepper ball.
+2025-10-09 ICE agents were caught on video standing on a rooftop shooting at a Presbyterian minister below. The agent shot the minister in the head. 
 
+[https://www.youtube.com/watch?v=Xc6aKQHFGnQ](https://www.youtube.com/watch?v=Xc6aKQHFGnQ)
 {% include youtubePlayer.html id="Xc6aKQHFGnQ" %}
 
-2025-10-09 Four cemetery workers and U.S. citizens were arrested by ICE during this week while trying to help a struggling man in a local nearby river. They stated ICE agents **drew guns at them, sprayed them with mace, used excessive force, and zip tied them**.
+2025-10-09 Four cemetery workers and were arrested by ICE while trying to help a struggling man in a local nearby river. ICE agents drew guns at them, sprayed them with mace, used excessive force, and zip tied them.
 
 [https://www.chicagotribune.com/2025/10/13/ice-forest-park-cemetery-workers/](https://www.chicagotribune.com/2025/10/13/ice-forest-park-cemetery-workers/)
 
-2025-10-14 ICE agents tear-gassed residents on the Southeast side of Chicago during a raid, detaining U.S. citizens and bystanders.
+2025-10-14 ICE agents tear-gassed residents on the Southeast side of Chicago during a raid.
 
 [https://abcnews.go.com/US/profoundly-concerned-judge-orders-ice-official-testify-after/story?id=126585221](https://abcnews.go.com/US/profoundly-concerned-judge-orders-ice-official-testify-after/story?id=126585221)
 
@@ -124,11 +125,11 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 {% include youtubePlayer.html id="-EipyVGQSZY" %}
 
-2025-10-21 Federal ICE agents shot Carlitos Ricardo Parias during a targeted traffic stop, stating he allegedly tried to ram officers with his vehicle. Charges were dropped in December because agents didn’t comply with court deadlines, the defendant was not given proper access to counsel while being detained, and DHS wouldn’t release body cam footage.
+2025-10-21 Federal ICE agents shot Carlitos Ricardo Parias during a targeted traffic stop, claiming he tried to ram officers with his vehicle. Charges were dropped in December because agents didn’t comply with court deadlines, the defendant was not given proper access to counsel while being detained, and DHS wouldn’t release body cam footage.
 
 [https://www.nbclosangeles.com/news/local/indictment-dropped-against-tiktoker-shot-by-a-federal-agent-in-south-la/3821945/](https://www.nbclosangeles.com/news/local/indictment-dropped-against-tiktoker-shot-by-a-federal-agent-in-south-la/3821945/)
 
-2025-10-25 ICE agents deployed tear gas in a park in Chicago, disrupting a local children’s Halloween party and parade. During the incident, agents in tactical gear pulled a 67-year-old man out of his car and dragged him in front of children. The man stated agents fractured his ribs.
+2025-10-25 ICE agents deployed tear gas in a park in Chicago near a local children’s Halloween party. During the incident, agents in tactical gear pulled a 67-year-old man out of his car and dragged him in front of children, fracturing his ribs. 
 
 [https://www.fox32chicago.com/news/outrage-after-federal-agents-use-tear-gas-just-before-halloween-parade-old-irving-park](https://www.fox32chicago.com/news/outrage-after-federal-agents-use-tear-gas-just-before-halloween-parade-old-irving-park)
 

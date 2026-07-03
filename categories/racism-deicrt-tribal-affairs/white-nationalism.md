@@ -149,6 +149,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.politico.com/news/2025/10/15/capitol-police-investigating-swastika-in-gop-congressional-office-00609704](https://www.politico.com/news/2025/10/15/capitol-police-investigating-swastika-in-gop-congressional-office-00609704)
 
+
+2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.
+
+[https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html](https://www.nytimes.com/2025/10/15/us/politics/trump-refugee-white-people.html)
+
+[https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721](https://www.ndtv.com/world-news/trump-refugee-overhaul-to-favour-white-south-africans-europeans-report-9464721)
+
+[https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034](https://www.newsweek.com/us-refugee-groups-sound-alarm-potential-trump-changes-10894034)
+
 2025-10-20 News outlets reported on a leaked Nazi post from Trump-nominee Paul Ingrassia “**I do have a Nazi streak in me from time to time**”. According to articles, this came from a text chain obtained by Politico and included context that the Martin Luther King holiday should be “tossed into the seventh circle of hell”. Ingrassia withdrew his nomination the very next day.
 
 [https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak](https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak)
