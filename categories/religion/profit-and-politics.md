@@ -110,7 +110,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 2023
 
-2023-03-03 In a news story out of Tennessee Ken Peters of Patriot Church offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people, but praised the Proud Boys. 
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 

@@ -8,7 +8,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 ### 1955
 
-1955-01-01 For context only, the anti-LGBTQ Westboro Baptist church was founded. They are known for their picketing, harassment, and slogan “God hates f-gs”.
+1955-01-01 The anti-LGBTQ Westboro Baptist church was founded. They are known for their picketing, harassment, and slogan “God hates f-gs”.
 
 [https://www.godhatesfags.com/](https://www.godhatesfags.com/)
 
@@ -45,7 +45,7 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 ### 2022
 
-2022-06-01 Director Justin Folk produced titled “What is a Woman” starring conservative Matt Walsh.  In Walsh’s speech, he accused schoolboards who allowed gender identity of child abuse, preying upon impressionable children and indoctrination.
+2022-06-01 Matt Walsh was featured in the anti-gay propaganda film “What is a Woman”. In the documentary Walsh accused schools of child abuse for allowing gender identity. 
 
 [https://en.wikipedia.org/wiki/What_Is_a_Woman%3F](https://en.wikipedia.org/wiki/What_Is_a_Woman%3F)
 

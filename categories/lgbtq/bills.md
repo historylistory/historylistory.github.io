@@ -8,7 +8,7 @@ permalink: /categories/lgbtq/bills/
 
 ### 2023
 
-2023-08-23 Missouri introduced SB134 the "Vulnerable Child Compassion and Protection Act" which prohibited gender identity or the acknowledgement of it, and aimed to threaten teachers who helped students accept their gender identities.
+2023-08-23 Missouri introduced SB134 the “Vulnerable Child Compassion and Protection Act” to prohibit gender identity or acknowledgement and threaten teachers who helped students accept their gender identities.
 
 [https://senate.mo.gov/23info/BTS_Web/Bill.aspx?SessionType=r&BillID=44406](https://senate.mo.gov/23info/BTS_Web/Bill.aspx?SessionType=r&BillID=44406)
 
@@ -16,7 +16,7 @@ permalink: /categories/lgbtq/bills/
 
 ### 2024
 
-2024-02-29 Missouri passed HB 2885 to classify teachers as sex offenders for supporting social transition or for using preferred pronouns.
+2024-02-29 Missouri passed HB 2885 to classify teachers as sex offenders for supporting social transition or using preferred pronouns.
 
 [https://www.cnn.com/2024/03/08/us/missouri-lawmakers-felony-transgender-students-reaj](https://www.cnn.com/2024/03/08/us/missouri-lawmakers-felony-transgender-students-reaj)
 
@@ -37,7 +37,7 @@ permalink: /categories/lgbtq/bills/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/](https://www.whitehouse.gov/presidential-actions/2025/01/initial-rescissions-of-harmful-executive-orders-and-actions/)
 
-2025-01-21 The Trump administration pushed to ban the X option from passport applications.
+2025-01-21 The Trump administration removed the X option from passport applications.
 
 [https://www.businesstravelnews.com/Global/X-Gender-Passport-Holders-Face-Uncertainty-Under-Trump-Executive-Order](https://www.businesstravelnews.com/Global/X-Gender-Passport-Holders-Face-Uncertainty-Under-Trump-Executive-Order)
 

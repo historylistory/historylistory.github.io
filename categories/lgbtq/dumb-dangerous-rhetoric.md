@@ -15,7 +15,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 ### 2015
 
-2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools (law.cornell.edu). He repeated what he wrote in 2020 in an address to the Federalist Society.
+2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools”. He repeated what he wrote in 2020 in an address to the Federalist Society. (law.cornell.edu)
 
 [https://www.nbcnews.com/politics/supreme-court/secret-recording-puts-spotlight-alitos-strong-conservative-views-relig-rcna156535](https://www.nbcnews.com/politics/supreme-court/secret-recording-puts-spotlight-alitos-strong-conservative-views-relig-rcna156535)
 
@@ -27,13 +27,13 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 [https://www.azquotes.com/quote/1410063](https://www.azquotes.com/quote/1410063)
 
-2015-07-01 In an interview, Doug Wilson said that same-sex marriage was a more serious problem than supporting slavery.
+2015-07-01 Doug Wilson claimed same-sex marriage was a more serious problem than supporting slavery.
 
 [https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html#:~:text=16.,Belz%2C%20Editor%20of%20World%20Magazine](https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html).
 
 ### 2017
 
-2017-02-22 Conservative writer Rod Dreher wrote, *“…LGBT activism is the tip of the spear at our throats in the culture war”.* 
+2017-02-22 Conservative writer Rod Dreher wrote, “LGBT activism is the tip of the spear at our throats in the culture war”.
 
 [https://www.theamericanconservative.com/benedict-option-good-for-the-gays/](https://www.theamericanconservative.com/benedict-option-good-for-the-gays/)
 
@@ -61,7 +61,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 [https://www.youtube.com/watch?v=5KoD_78cOVA](https://www.youtube.com/watch?v=5KoD_78cOVA)
 
-2023-03-03 In a news story out of Tennessee Ken Peters of Patriot Church offered harsh words for planned parenthood and transgenders, but gentle sentiment for the Proud Boys.
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people, but praised the Proud Boys. 
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 
