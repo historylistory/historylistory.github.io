@@ -162,7 +162,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2025 March
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
+2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
 
 [https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
 

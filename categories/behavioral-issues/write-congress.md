@@ -124,7 +124,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2024-10-23 Tucker Carlson delivered an embarrassing “daddy’s home” speech at the RNC and referenced spankings. 
 
-2024-11-25 Pete Hegseth argued in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules”.’
+2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
 2024-12-02 Once she ran for Congress, Karoline Leavitt allegedly deleted old posts condemning January 6.
 
@@ -156,7 +156,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action 
+2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
 Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
 
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.

@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2024
 
-2024-11-25 Pete Hegseth argued in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules”.’
+2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
 [https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances#:~:text='We%20will%20rip%20your%20arms,cares%20what%20other%20countries%20think?%E2%80%9D](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances)
 
@@ -36,7 +36,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2025 March
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs before the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
+2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
 
 [https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
 

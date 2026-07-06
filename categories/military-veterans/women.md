@@ -8,7 +8,7 @@ permalink: /categories/military-veterans/women/
 
 ### 2024
 
-2024-11-15 During a podcast promoting his book, Pete Hegseth stated "**I’m straight up just saying we shouldn’t have women in combat roles**”.
+2024-11-15 During a podcast promoting his book, Pete Hegseth stated “I’m straight up just saying we shouldn’t have women in combat roles”.
 
 [https://19thnews.org/2024/11/women-veterans-react-trump-pete-hegseth-combat/](https://19thnews.org/2024/11/women-veterans-react-trump-pete-hegseth-combat/)
 

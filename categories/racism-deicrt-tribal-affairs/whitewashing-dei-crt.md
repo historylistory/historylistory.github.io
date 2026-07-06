@@ -227,7 +227,7 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 [https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html](https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html)
 
-2025-02-10 Pete Hegseth signed a memorandum to rename Fort Liberty back to Fort Bragg back to a Confederate general. However, in the memorandum Hegseth referred to PFC Roland Bragg, a different “Bragg” from the original General.
+2025-02-10 Pete Hegseth signed a memorandum to rename Fort Liberty back to Fort Bragg. The original naming of the military installation was for a Confederate general and slave owner. Hegseth claimed this time it was after a PFC Purple Heart recipient from WWII. The base had originally been named to Fort Liberty in 2023 to remove Confederate ties. 
 
 [https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg](https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg)
 
