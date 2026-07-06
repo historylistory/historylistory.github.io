@@ -221,7 +221,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-09-10 Auron MacIntyre wrote, “They shot the voice of reason through the throat so now it’s time to become unreasonable”.
 
-2025-09-10 Jason Chaffetz publicly speculated that the shooter might be transgender
+2025-09-10 Jason Chaffetz publicly speculated the Charlie Kirk shooter was transgender. 
 
 2025-09-10 During a Fox News interview, Greg Gutfield stated “…if they can do this they can do anything - I think that was the message”, claimed it is hard to radicalize Republicans, and that Democrats “better watch out” because they “woke them the f-ck up”.
 

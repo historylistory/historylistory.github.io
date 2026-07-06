@@ -115,7 +115,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 ### 2025 September
 
-2025-09-10 Jason Chaffetz publicly speculated that the shooter might be transgender
+2025-09-10 Jason Chaffetz publicly speculated the Charlie Kirk shooter was transgender. 
 
 [https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness](https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness)
 
@@ -133,7 +133,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 [https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/](https://guardian.ng/news/nigeria/metro/kirk-murder-suspect-lived-with-trans-partner-utah-governor/)
 
-2025-09-16 Ronny Jackson on Newsmax stated that trans people have psychiatric illnesses and gender dysphoria.
+2025-09-16 Ronny Jackson falsely claimed while on Newsmax that trans people have psychiatric illnesses and gender dysphoria.
 
 [https://www.thepinknews.com/2025/09/18/ronny-jackson-trans-comments-disgusting/](https://www.thepinknews.com/2025/09/18/ronny-jackson-trans-comments-disgusting/)
 
@@ -143,7 +143,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 ### 2025 December
 
-2025-12-11 During a podcast interview, MAGA preacher Joel Webbon stated, “Homosexuality is degenerate. It is bad for the populace. It’s bad for society. It’s been incredibly harmful. We’ve seen a full fullcourt press against our own children as the sacrificial lamb in order to appease older gay men and make them feel better about themselves. It’s wicked, it’s predatory, and I think – yeah – it is appropriate for us to be able to call it what it is and say ‘Wait a second, this is perverse, it’s wicked, it’s faggotry”. For context, this person also has been reported allegedly stating women should **not** have the right to vote and that Dr. Martin Luther King Junior is in hell.
+2025-12-11 Joel Webbon said, “Homosexuality is degenerate. It is bad for the populace. It’s bad for society. It’s been incredibly harmful. We’ve seen a full fullcourt press against our own children as the sacrificial lamb in order to appease older gay men and make them feel better about themselves. It’s wicked, it’s predatory, and I think – yeah – it is appropriate for us to be able to call it what it is and say ‘Wait a second, this is perverse, it’s wicked, it’s faggotry”. This person also allegedly claimed women should not vote and Dr. Martin Luther King Junior is in hell.
 
 [https://www.lgbtqnation.com/2025/12/hate-preacher-demands-christians-start-calling-gay-men-fats/](https://www.lgbtqnation.com/2025/12/hate-preacher-demands-christians-start-calling-gay-men-fats/)
 

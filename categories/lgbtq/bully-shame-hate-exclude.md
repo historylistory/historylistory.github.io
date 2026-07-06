@@ -126,7 +126,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 August
 
-2025-08-12 There were boycotts because the Minnesota Vikings have male cheerleaders.
+2025-08-12 MAGA conservatives boycotted the Minnesota Vikings because they had male cheerleaders.
 
 [https://www.newsweek.com/minnesota-vikings-male-cheerleaders-backlash-maga-conservatives-2113363](https://www.newsweek.com/minnesota-vikings-male-cheerleaders-backlash-maga-conservatives-2113363)
 
@@ -147,7 +147,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 October
 
-2025-10-28 Now Texas judges who refuse to perform gay marriages will not face charges of judicial partiality.
+2025-10-28 Texas ruled that judges who refuse to perform gay marriages will not have to face charges of judicial partiality.
 
 [https://www.texastribune.org/2025/10/29/texas-judges-gay-marriages-rule-supreme-court/](https://www.texastribune.org/2025/10/29/texas-judges-gay-marriages-rule-supreme-court/)
 
@@ -159,7 +159,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 [https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775](https://apnews.com/article/stonewall-monument-rainbow-flag-removed-e58b12c1c9482e4b2cf02fef55e0f775)
 
-2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
+2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
 
 [https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon](https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon)
 

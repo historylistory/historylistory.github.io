@@ -167,7 +167,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 [https://truthsocial.com/@realDonaldTrump/posts/116004776659519984](https://truthsocial.com/@realDonaldTrump/posts/116004776659519984)
 
 
-2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
+2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
 
 [https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon](https://www.theguardian.com/us-news/2026/feb/27/scouting-america-transgender-ban-pentagon)
 

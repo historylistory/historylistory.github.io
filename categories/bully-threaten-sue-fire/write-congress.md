@@ -370,7 +370,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-11-09 Trump threatened to sue the BBC for $1 billion over alleged edits to coverage of his January 6 remarks. 
 
-2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
+2025-11-19 Sixteen-year veteran of the FBI David Maltinsky was fired for displaying a Pride flag.
 
 2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 

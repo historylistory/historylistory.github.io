@@ -175,7 +175,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-11-07 The Guardian reported on “Atlas,” an alleged ExxonMobil-backed climate-change denial campaign.
 
-2025-11-12 Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit where he criticized DEI initiatives, political correctness, and what he called “climate change worship” during a public speech.
+2025-11-12 During the 4th Annual Northeast Indiana Defense Summit Pete Hegseth criticized DEI initiatives, political correctness, and what he called “climate change worship”.
 
 2025-11-20 The administration expanded offshore oil and gas sales.
 

@@ -177,15 +177,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2025 November
 
-2025-11-12 Pete Hegseth gave a speech at the 4th Annual Northeast Indiana Defense Summit where he criticized DEI initiatives, political correctness, and what he called “climate change worship” during a public speech.
-
-{% include youtubePlayer.html id="s2undI6MmQs" %}
+2025-11-12 During the 4th Annual Northeast Indiana Defense Summit Pete Hegseth criticized DEI initiatives, political correctness, and what he called “climate change worship”.
 
 [https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/](https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/)
 
 [https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/](https://www.banks.senate.gov/news/press-releases/secretary-of-war-pete-hegseth-addresses-the-4th-annual-northeast-indiana-defense-summit/)
 
 [https://www.washingtontimes.com/news/2025/nov/14/hegseth-says-us-must-defend-freedom-christians-worship/](https://www.washingtontimes.com/news/2025/nov/14/hegseth-says-us-must-defend-freedom-christians-worship/)
+
+{% include youtubePlayer.html id="s2undI6MmQs" %}
 
 ### 2025 December
 

@@ -237,7 +237,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-02-17 A judge ordered the Trump administration to reinstate a slavery exhibit at the Presidential House in Philadelphia, citing George Orwell’s 1984, comparing the Trump administration to the book’s totalitarian regime which revised historical records to align with its own narratives.
 
-2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should to back to being the Boy Scouts and originally founded, a group that develops boys into men”.
+2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
 
 2026-03-01 Pete Hegseth ordered a ban on US troops attending graduate-level programs at Ivy League and other top-tier universities, labelling them “woke breeding grounds of toxic indoctrination”.
 

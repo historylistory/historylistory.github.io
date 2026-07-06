@@ -107,7 +107,7 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 ### 2025 November
 
-2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
+2025-11-19 Sixteen-year veteran of the FBI David Maltinsky was fired for displaying a Pride flag.
 
 [https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
 

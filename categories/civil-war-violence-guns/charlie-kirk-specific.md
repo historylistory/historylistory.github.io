@@ -80,7 +80,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://bayarea.binnews.com/content/2025-09-11-party-of-murder-maga-declares-war-on-left-after-charlie-kirks-death/#:~:text=Christopher%20Rufo%2C%20a%20senior%20fellow,The%20shooter%20remains%20at%20large](https://bayarea.binnews.com/content/2025-09-11-party-of-murder-maga-declares-war-on-left-after-charlie-kirks-death/).
 
-2025-09-10 Jason Chaffetz publicly speculated that the shooter might be transgender
+2025-09-10 Jason Chaffetz publicly speculated the Charlie Kirk shooter was transgender. 
 
 [https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness](https://www.notus.org/us-news/former-rep-jason-chaffetz-charlie-kirk-shooting-eyewitness)
 

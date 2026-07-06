@@ -248,7 +248,7 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.nbcnews.com/politics/justice-department/judge-dismisses-cases-james-comey-letitia-james-finding-prosecutor-was-rcna244775](https://www.nbcnews.com/politics/justice-department/judge-dismisses-cases-james-comey-letitia-james-finding-prosecutor-was-rcna244775)
 
-2025-11-19 Former FBI employee David Maltinsky (a 16-year FBI veteran) was fired for displaying a Pride flag.
+2025-11-19 Sixteen-year veteran of the FBI David Maltinsky was fired for displaying a Pride flag.
 
 [https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/](https://www.cbsnews.com/news/fbi-lawsuit-employee-fired-pride-flag/)
 
