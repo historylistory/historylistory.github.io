@@ -86,6 +86,11 @@ APRIL 2007 REPORT [https://aspe.hhs.gov/sites/default/files/migrated_legacy_file
 
 DECEMBER 2004 REPORT [https://spot.colorado.edu/~tooley/HenryWaxman.pdf](https://spot.colorado.edu/~tooley/HenryWaxman.pdf)
 
+### 2001
+
+2001-09-09 Republicans restricted federal funding for STEM cell research, limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure.  
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/](https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/)
 
 ### 2012
 
@@ -403,6 +408,9 @@ The ban was supported by **ADF International legal communications director Elyss
 
 [https://www.youtube.com/shorts/rAWXsaJdZqw](https://www.youtube.com/shorts/rAWXsaJdZqw)
 
+2026-01-22 Republicans banned the use of fetal tissue in research, further limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure
+
+[https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research](https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research)
 
 ### 2026 March
 

@@ -34,6 +34,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 1994-01-01 Evangelicals pushed a national “purity” movement containing distorted and misleading information, racist stereotypes and anti-LGBTQ+ rhetoric. 
 
+2001-09-09 Republicans restricted federal funding for STEM cell research, limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure.  
+
 2005-01-01 RFK Jr. published, “Deadly Immunity”, claiming government health agencies colluded with big pharma to hide the dangers of vaccines.
 
 2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.
@@ -375,6 +377,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-01-15 Trump unveiled his “Great Healthcare Plan”. Without specific details on funding of the plan, Trump promised to lower prescription prices, reduce insurance premiums, and implement a direct payment system to qualifying citizens so people can purchase their own healthcare.
 
 2026-01-21 In a study, Trump’s decision to block USAID resulted in hundreds of thousands of deaths from infectious diseases and malnutrition.
+
+2026-01-22 Republicans banned the use of fetal tissue in research, further limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure
 
 2026-01-23 The Trump administration announced that it would not be paying the $260M it still owes to the World Health Organization. January 23 2026 marked one year after Trump signed Executive Order 14155 to separate from them.
 

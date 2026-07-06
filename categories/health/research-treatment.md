@@ -6,6 +6,13 @@ subcategory_slug: research-treatment
 permalink: /categories/health/research-treatment/
 ---
 
+### 2001
+
+2001-09-09 Republicans restricted federal funding for STEM cell research, limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure.  
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/](https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/)
+
+
 ### 2025 January
 
 2025-01-01 The Trump administration cut $2B in federal grants to NIH, COVID 19 and HIV research studies on misinformation, anything to do with DEI, sickle cell research, and Alzheimer’s research. The administration also tried to cut a $36M grant to UC Davis for dementia research until an appeal was filed and funds were reversed.
@@ -98,6 +105,11 @@ permalink: /categories/health/research-treatment/
 
 [https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024](https://www.naco.org/news/countdown-arpa-slfrf-obligation-deadline-what-counties-need-know-december-31-2024)
 
+### 2026 January
+
+2026-01-22 Republicans banned the use of fetal tissue in research, further limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure
+
+[https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research](https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research)
 
 
 
