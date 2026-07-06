@@ -171,7 +171,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2026 April
 
-2026-04-17 Wired reported Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
+2026-04-17 Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
 
 [https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/](https://www.wired.com/story/madison-square-garden-jim-dolan-surveillance-machine/)
 
