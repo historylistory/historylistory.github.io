@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Military
-category_slug: lgbtq
-subcategory_slug: military
-permalink: /categories/lgbtq/military/
+title: LGBTQ
+category_slug: military-veterans
+subcategory_slug: lgbtq
+permalink: /categories/military-veterans/lgbtq/
 ---
 
 ### 2017 
@@ -21,6 +21,7 @@ permalink: /categories/lgbtq/military/
 2021-01-25 Biden revoked Trump’s transgender military ban. 
 
 [https://en.wikipedia.org/wiki/Presidential_Memorandum_on_Military_Service_by_Transgender_Individuals_(2017)](https://en.wikipedia.org/wiki/Presidential_Memorandum_on_Military_Service_by_Transgender_Individuals_(2017))
+
 
 ### 2025 January
 
