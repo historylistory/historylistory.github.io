@@ -108,7 +108,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/](https://www.centcom.mil/MEDIA/PRESS-RELEASES/Press-Release-View/Article/4432850/loss-of-us-kc-135-over-iraq/)
 
-2026-03-13 Pete Hegseth stated that “no quarter” will be shown to Iran. He stated, quote, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona stated, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill them instead. This violates the law of armed conflict.
+2026-03-13 Pete Hegseth threatened no quarter, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona clarified, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill, which violates the law of armed conflict.
 
 [https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law](https://www.aljazeera.com/news/2026/3/14/analysts-say-us-threat-of-no-quarter-for-iran-violates-international-law)
 
@@ -122,7 +122,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3](https://www.youtube.com/watch?v=WTwyfDfO_r4&list=WL&index=3)
 
-2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned over the Iran war. In a letter he wrote, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. Trump said, *”I always thought he was a nice guy but I always thought he was weak on security”*.  Two days later the FBI conducted an investigation into Joe Kent for alleged leaks.
+2026-03-17 The Counter-Terrorism Center director and retired combat veteran Joe Kent resigned, writing, “I cannot in good conscience support the ongoing war in Iran. Iran posed no imminent threat to our nation, and it is clear that we started this war due to pressure from Israel and its powerful American lobby”. Trump responded, ”I always thought he was a nice guy, but I always thought he was weak on security”. Two days later the FBI investigated Joe Kent for alleged leaks.
 
 [https://x.com/joekent16jan19/status/2033897242986209689](https://x.com/joekent16jan19/status/2033897242986209689)
 
@@ -146,7 +146,7 @@ permalink: /categories/military-veterans/war/
 
 {% include youtubePlayer.html id="AXwyCbAm6t4" %}
 
-2026-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
+2026-03-22 Trump said, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.
 
 [https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/](https://www.cbsnews.com/news/trump-says-he-doesnt-want-to-call-iran-conflict-a-war-because-of-need-for-congressional-approval/)
 

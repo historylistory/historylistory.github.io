@@ -443,7 +443,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-03-18 Pam Bondi and Todd Blanche briefed a congressional committee on the Epstein investigation. The hearing included a heated exchange between Representatives Summer Lee and James Comer.
 
-2026-03-22 During a GOP fundraising event Trump told the audience, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”. He has also referred to the war as “an excursion”.
+2026-03-22 Trump said, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.
 
 2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 

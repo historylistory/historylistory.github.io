@@ -448,7 +448,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-12 Kash Patel said FBI agents would train with UFC fighters.
 
-2026-03-13 Pete Hegseth stated that “no quarter” will be shown to Iran. He stated, quote, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona stated, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill them instead. This violates the law of armed conflict.
+2026-03-13 Pete Hegseth threatened no quarter, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona clarified, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill, which violates the law of armed conflict.
 
 2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
@@ -470,9 +470,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-20 FEMA official George Phillips claimed his truck levitated 40 miles and he was teleported to a Waffle House. Phillips promoted voter fraud allegations in 2016. 
 
-2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
+2026-03-20 A military-friendly AI OnlyFans girlfriend ‘Jessica Foster’ went viral among MAGA supporters. 
 
-2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Trump publicly celebrated Robert Mueller’s death, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 

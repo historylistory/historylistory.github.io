@@ -108,7 +108,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html](https://www.nytimes.com/2025/12/10/climate/gregg-phillips-fema.html)
 
-2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
+2026-03-20 A military-friendly AI OnlyFans girlfriend ‘Jessica Foster’ went viral among MAGA supporters. 
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 
@@ -117,6 +117,9 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
+
+[https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans](https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans)
+
 
 2026-03-25 The White House scrambled to erase footage they didn’t expect to become public.
 

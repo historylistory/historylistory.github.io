@@ -174,7 +174,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 ### 2026 March
 
-2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
+2026-03-20 A military-friendly AI OnlyFans girlfriend ‘Jessica Foster’ went viral among MAGA supporters. 
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 
@@ -183,6 +183,9 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 [https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
+
+[https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans](https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans)
+
 
 2026-03-25 Meta and YouTube were found negligent in a landmark social-media addiction case.
 

@@ -536,7 +536,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 [https://www.fastcompany.com/91511269/kash-patel-nike-sneakers](https://www.fastcompany.com/91511269/kash-patel-nike-sneakers)
 
 
-2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Trump publicly celebrated Robert Mueller’s death, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
 

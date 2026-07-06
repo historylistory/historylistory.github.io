@@ -592,7 +592,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s](https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s)
 
-2026-03-21 Trump celebrated Robert Mueller’s death online, writing, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
+2026-03-21 Trump publicly celebrated Robert Mueller’s death, “Robert Mueller just died. Good, I’m glad he’s dead. He can no longer hurt innocent people! President DONALD J. TRUMP”
 
 [https://truthsocial.com/@realDonaldTrump/posts/116268334535345382](https://truthsocial.com/@realDonaldTrump/posts/116268334535345382)
 

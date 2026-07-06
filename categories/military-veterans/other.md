@@ -94,7 +94,7 @@ permalink: /categories/military-veterans/other/
 
 [https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html](https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html)
 
-2026-03-20 Predominantly MAGA supporters were fooled by AI-generated MAGA influencer “Jessica Foster.”
+2026-03-20 A military-friendly AI OnlyFans girlfriend ‘Jessica Foster’ went viral among MAGA supporters. 
 
 [https://www.youtube.com/watch?v=L7QUAtlMZJs](https://www.youtube.com/watch?v=L7QUAtlMZJs)
 
@@ -103,6 +103,9 @@ permalink: /categories/military-veterans/other/
 [https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html](https://www.yahoo.com/news/articles/maga-swooning-over-beautiful-army-135041682.html)
 
 [https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376](https://www.ndtv.com/world-news/maga-who-is-jessica-foster-blonde-us-army-soldier-posed-with-trump-putin-zelensky-she-was-ai-11247376)
+
+[https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans](https://www.euronews.com/culture/2026/03/17/meet-jessica-foster-the-viral-onlyfans-ai-fooling-millions-of-maga-fans)
+
 
 ### 2026 April
 
