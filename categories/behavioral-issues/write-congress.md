@@ -225,7 +225,7 @@ Plan. On the first day of the war in Iran, the US launched a Tomahawk missile in
 
 2025-09-04 RFK admitted he did not know major COVID statistics during a Senate hearing.
 
-2025-09-05 Trump signed an order renaming the Department of Defense the “Department of War.”
+2025-09-05 Trump ordered the Department of Defense be renamed to the Department of War without Congressional approval. 
 
 2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
@@ -252,7 +252,7 @@ couldn’t remember where he assigned Walker, stating, “…and now he’s goin
 
 2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
 
-2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
+2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
 
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages 
 included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
@@ -420,7 +420,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
 
-2026-03-06 Trump minimized dangers in the Strait of Hormuz before tanker attacks occurred. He said to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
+2026-03-06 Trump minimized dangers in the Strait of Hormuz to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Afterwards, six tankers were struck. 
 
 2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 

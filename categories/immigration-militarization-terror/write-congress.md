@@ -239,7 +239,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-08-05 Trump threatened federal control of Washington D.C. after Edward “Big Balls” Coristine was attacked.
 
-2025-08-11 Regardless of the 30-year-low in crime, Trump continued his authoritarian creep and sent the National Guard to Washington D.C.
+2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
 2025-08-14 News outlets reported ongoing inhumane conditions and treatment at Alligator Alcatraz.
 
@@ -275,7 +275,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-09-02 A judge ruled that Trump broke the law by sending National Guard troops to Los Angeles.
 
-2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago Illinois.
+2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago.
 
 2025-09-04 A man in Bremerton Washington was caught impersonating an officer, casting further doubt on the legitimacy of masked or undercover agents making immigration arrests.
 
@@ -293,11 +293,11 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-09-12 During ICE presence in Franklin Park Illinois an agent shot Silverio Villegas Gonzalez to death. DHS maintained that the suspect dragged an agent with their car, yet video footage available has not substantiated any of those claims. Onlookers took footage of agents pulling the man’s lifeless body out of a car. Some news sources stated agents were not wearing bodycams.
 
-2025-09-12 Trump told Fox News that the head of Union Pacific asked him to send National Guard troops to Saint Louis Missouri (loophole?).
+2025-09-12 Trump claimed that the head of Union Pacific asked him to send National Guard troops to St. Louis Missouri. 
 
 2025-09-14 Trump’s government spending on immigration reached $75 billion.
 
-2025-09-15 Trump sent National Guard troops to Memphis Tennessee regardless of a 25-year-low in crime.
+2025-09-15 Trump sent National Guard troops to Memphis Tennessee despite a 25-year-low in crime.
 
 2025-09-15 Trump threatened to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
 
@@ -335,7 +335,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-09-29 MSNBC interviewed retired US Army Lieutenant General Mark Hertling who expressed concern about the militarized approach in U.S. cities.
 
-2025-09-30 In a statement Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
+2025-09-30 Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
 2025-10-01 Illinois investigated ICE for numerous allegations of feuding with residents and endangering first responders.
 

@@ -461,7 +461,7 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 [https://www.cnn.com/2026/03/02/politics/six-soldiers-killed-in-iranian-strike-kuwait](https://www.cnn.com/2026/03/02/politics/six-soldiers-killed-in-iranian-strike-kuwait)
 
-2026-03-03 Several sources reported that servicemembers were calling in complaints because their commanders were framing the war in Iran as a biblical mandate, and that commanders were telling them Trump was anointed by God to light the signal fire in Iran to cause Armageddon. The Military Religious Freedom Foundation reported receiving hundreds of complaints from servicemembers across all branches of the military.
+2026-03-03 The Military Religious Freedom Foundation received hundreds of complaints across all branches of the military after commanders told subordinates that the war in Iran was a biblical mandate and that Trump was anointed by God to light the signal fire in Iran to cause Armageddon. 
 
 [https://www.military.com/daily-news/2026/03/03/military-officers-accused-of-framing-iran-war-biblical-mandate.html](https://www.military.com/daily-news/2026/03/03/military-officers-accused-of-framing-iran-war-biblical-mandate.html)
 
@@ -667,7 +667,7 @@ SUB WALL [https://fortune.com/2026/03/10/trump-says-iran-war-end-soon/](https://
 
 [https://edition.cnn.com/world/live-news/iran-war-us-israel-trump-03-11-26?post-id=cmmmmhvyy00023b6u108rfblm](https://edition.cnn.com/world/live-news/iran-war-us-israel-trump-03-11-26?post-id=cmmmmhvyy00023b6u108rfblm)
 
-2026-03-10 Talk emerged about reinstating the military draft. Although no plans were confirmed, GOP leaders didn’t say the option wasn’t on the table.
+2026-03-10 The Trump administration reconsidered the military draft. 
 
 [https://www.military.com/daily-news/2026/03/09/could-there-be-military-draft-trump-administration-says-its-table.html](https://www.military.com/daily-news/2026/03/09/could-there-be-military-draft-trump-administration-says-its-table.html)
 

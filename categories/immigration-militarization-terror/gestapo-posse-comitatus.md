@@ -81,7 +81,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://truthsocial.com/@realDonaldTrump/posts/114977985620971126](https://truthsocial.com/@realDonaldTrump/posts/114977985620971126)
 
-2025-08-11 Regardless of the 30-year-low in crime, Trump continued his authoritarian creep and sent the National Guard to Washington D.C.
+2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
 [https://www.bbc.com/news/articles/cm2110me5g4o](https://www.bbc.com/news/articles/cm2110me5g4o)
 
@@ -123,7 +123,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://calmatters.org/justice/2025/09/trump-national-guard-posse-comitatus/](https://calmatters.org/justice/2025/09/trump-national-guard-posse-comitatus/)
 
-2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago Illinois.
+2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago.
 
 [https://news.wttw.com/2025/09/02/trump-plans-send-texas-national-guard-armed-military-personnel-chicago-pritzker](https://news.wttw.com/2025/09/02/trump-plans-send-texas-national-guard-armed-military-personnel-chicago-pritzker)
 
@@ -149,13 +149,14 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.dhs.gov/news/2025/09/16/secretary-kristi-noem-ground-law-enforcement-chicago-while-dhs-arrests-worst-worst](https://www.dhs.gov/news/2025/09/16/secretary-kristi-noem-ground-law-enforcement-chicago-while-dhs-arrests-worst-worst)
 
-2025-09-12 Trump told Fox News that the head of Union Pacific asked him to send National Guard troops to Saint Louis Missouri (loophole?).
-
-{% include youtubePlayer.html id="SH4EI2aHorY" %}
+2025-09-12 Trump claimed that the head of Union Pacific asked him to send National Guard troops to St. Louis Missouri. 
 
 [https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis](https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis)
 
-2025-09-15 Trump sent National Guard troops to Memphis Tennessee regardless of a 25-year-low in crime.
+{% include youtubePlayer.html id="SH4EI2aHorY" %}
+
+
+2025-09-15 Trump sent National Guard troops to Memphis Tennessee despite a 25-year-low in crime.
 
 [https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington](https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington)
 
@@ -197,7 +198,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 {% include youtubePlayer.html id="hTgQRv3BRfg" %}
 
-2025-09-30 In a statement Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
+2025-09-30 Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
 {% include youtubePlayer.html id="46bOyMz5kqo" %}
 

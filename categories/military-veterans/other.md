@@ -12,7 +12,7 @@ permalink: /categories/military-veterans/other/
 
 [https://www.npr.org/2025/07/16/nx-s1-5469676/la-national-guard-deployment](https://www.npr.org/2025/07/16/nx-s1-5469676/la-national-guard-deployment)
 
-2025-08-11 Regardless of the 30-year-low in crime, Trump continued his authoritarian creep and sent the National Guard to Washington D.C.
+2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
 [https://www.bbc.com/news/articles/cm2110me5g4o](https://www.bbc.com/news/articles/cm2110me5g4o)
 
@@ -38,17 +38,17 @@ permalink: /categories/military-veterans/other/
 
 [https://calmatters.org/justice/2025/09/trump-national-guard-posse-comitatus/](https://calmatters.org/justice/2025/09/trump-national-guard-posse-comitatus/)
 
-2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago Illinois.
+2025-09-02 Trump attempted to utilize the Texas National Guard for deployment to Chicago.
 
 [https://news.wttw.com/2025/09/02/trump-plans-send-texas-national-guard-armed-military-personnel-chicago-pritzker](https://news.wttw.com/2025/09/02/trump-plans-send-texas-national-guard-armed-military-personnel-chicago-pritzker)
 
-2025-09-12 Trump told Fox News that the head of Union Pacific asked him to send National Guard troops to Saint Louis Missouri (loophole?).
-
-{% include youtubePlayer.html id="SH4EI2aHorY" %}
+2025-09-12 Trump claimed that the head of Union Pacific asked him to send National Guard troops to St. Louis Missouri. 
 
 [https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis](https://www.stlpr.org/government-politics-issues/2025-09-12/trump-railroad-leader-send-national-guard-st-louis)
 
-2025-09-15 Trump sent National Guard troops to Memphis Tennessee regardless of a 25-year-low in crime.
+{% include youtubePlayer.html id="SH4EI2aHorY" %}
+
+2025-09-15 Trump sent National Guard troops to Memphis Tennessee despite a 25-year-low in crime.
 
 [https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington](https://www.pbs.org/newshour/politics/trump-deploys-national-guard-to-memphis-calling-it-a-replica-of-his-crackdown-on-washington)
 
@@ -56,7 +56,7 @@ permalink: /categories/military-veterans/other/
 
 {% include youtubePlayer.html id="hTgQRv3BRfg" %}
 
-2025-09-30 In a statement Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
+2025-09-30 Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
 {% include youtubePlayer.html id="46bOyMz5kqo" %}
 
@@ -84,7 +84,7 @@ permalink: /categories/military-veterans/other/
 
 [https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3](https://www.businessinsider.com/stuck-in-doha-middle-east-turmoil-flight-turned-back-midair-2026-3)
 
-2026-03-10 Trump appointed Erika Kirk to the Air Force Academy board to push Turning Point USA indoctrination on the U.S. military.
+2026-03-10 Trump appointed Erika Kirk to the Air Force Academy board to push Turning Point USA indoctrination.
 
 [https://www.usatoday.com/story/news/politics/2026/03/10/trump-appoints-erika-kirk-air-force-academy-board-charlie/89081470007/](https://www.usatoday.com/story/news/politics/2026/03/10/trump-appoints-erika-kirk-air-force-academy-board-charlie/89081470007/)
 

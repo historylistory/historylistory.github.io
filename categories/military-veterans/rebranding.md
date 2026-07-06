@@ -20,17 +20,17 @@ permalink: /categories/military-veterans/rebranding/
 
 ### 2025 September
 
-2025-09-05 Trump signed an order renaming the Department of Defense the “Department of War.”
+2025-09-05 Trump ordered the Department of Defense be renamed to the Department of War without Congressional approval. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/](https://www.whitehouse.gov/presidential-actions/2025/09/restoring-the-united-states-department-of-war/)
 
-2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
-
-{% include youtubePlayer.html id="zjMJK_oGkuo" %}
+2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
 
 [https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698](https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698)
 
 [https://www.thedailybeast.com/pentagon-petes-cringey-fafo-threat-met-with-awkward-silence/](https://www.thedailybeast.com/pentagon-petes-cringey-fafo-threat-met-with-awkward-silence/)
+
+{% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
 ### 2025 November
 

@@ -36,13 +36,13 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956](https://www.politico.com/news/magazine/2025/09/08/scott-bessent-bill-pulte-blowup-00549956)
 
-2025-09-30 Pete Hegseth gathered military leaders to discuss appearances, his book, and anti-DEI messaging in Quantico. 
-
-{% include youtubePlayer.html id="zjMJK_oGkuo" %}
+2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
 
 [https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698](https://www.nbcnews.com/now/video/pete-hegseth-says-defense-department-standards-will-redefine-toxic-leadership-248730693698)
 
 [https://www.thedailybeast.com/pentagon-petes-cringey-fafo-threat-met-with-awkward-silence/](https://www.thedailybeast.com/pentagon-petes-cringey-fafo-threat-met-with-awkward-silence/)
+
+{% include youtubePlayer.html id="zjMJK_oGkuo" %}
 
 ### 2025 October
 

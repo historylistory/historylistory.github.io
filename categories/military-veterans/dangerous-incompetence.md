@@ -84,7 +84,7 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2026 March
 
-2026-03-06 Trump minimized dangers in the Strait of Hormuz before tanker attacks occurred. He said to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Six tankers were struck, and media posted video of fuel tankers burning near Al Faw Port of Basra, Iraq on March 12.
+2026-03-06 Trump minimized dangers in the Strait of Hormuz to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Afterwards, six tankers were struck. 
 
 [https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/](https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/)
 

@@ -38,7 +38,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 August
 
-2025-08-01 The Trump administration announced its plans to prevent Veterans from accessing abortion care or counseling.
+2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling. 
 
 [https://reproductiverights.org/5-things-trump-va-abortion-ban/](https://reproductiverights.org/5-things-trump-va-abortion-ban/)
 

@@ -175,7 +175,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 2026 March
 
-2026-03-03 Several sources reported that servicemembers were calling in complaints because their commanders were framing the war in Iran as a biblical mandate, and that commanders were telling them Trump was anointed by God to light the signal fire in Iran to cause Armageddon. The Military Religious Freedom Foundation reported receiving hundreds of complaints from servicemembers across all branches of the military.
+2026-03-03 The Military Religious Freedom Foundation received hundreds of complaints across all branches of the military after commanders told subordinates that the war in Iran was a biblical mandate and that Trump was anointed by God to light the signal fire in Iran to cause Armageddon. 
 
 [https://www.military.com/daily-news/2026/03/03/military-officers-accused-of-framing-iran-war-biblical-mandate.html](https://www.military.com/daily-news/2026/03/03/military-officers-accused-of-framing-iran-war-biblical-mandate.html)
 
@@ -187,7 +187,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 [https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/](https://www.militaryreligiousfreedom.org/2026/03/mrff-inundated-with-complaints-of-gleeful-commanders-telling-troops-iran-war-is-part-of-gods-divine-plan-to-usher-in-the-return-of-jesus-christ/)
 
-2026-03-10 Trump appointed Erika Kirk to the Air Force Academy board to push Turning Point USA indoctrination on the U.S. military.
+2026-03-10 Trump appointed Erika Kirk to the Air Force Academy board to push Turning Point USA indoctrination.
 
 [https://www.usatoday.com/story/news/politics/2026/03/10/trump-appoints-erika-kirk-air-force-academy-board-charlie/89081470007/](https://www.usatoday.com/story/news/politics/2026/03/10/trump-appoints-erika-kirk-air-force-academy-board-charlie/89081470007/)
 
