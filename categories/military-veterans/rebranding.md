@@ -12,7 +12,7 @@ permalink: /categories/military-veterans/rebranding/
 
 [https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/](https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/)
 
-2025-06-27 Pete Hegseth announced a Naval ship name change during Pride Month, citing that being named after a gay military member was "political" and did not align with his warrior ethos. Hegseth wrote on social media, “I am pleased to announce that the United States Navy is renaming the USNS Harvey Milk to the USNS Oscar V. Peterson. We are taking the politics out of ship naming”.
+2025-06-27 During Pride Month Pete Hegseth renamed USNS Harvey Milk to USNS Oscar V Peterson, claiming the original name was political and didn’t align with a warrior ethos. 
 
 [https://abcnews.go.com/Politics/hegseth-announces-usns-harvey-milk-renamed-usns-oscar/story?id=123266490](https://abcnews.go.com/Politics/hegseth-announces-usns-harvey-milk-renamed-usns-oscar/story?id=123266490)
 

@@ -100,7 +100,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 March
 
-2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women's swim team. In July, Trump released $175M in funding **back** to University of Pennsylvania **only after they agreed to remove transgender** Lia Thomas' records and issue an apology.
+2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team. In July, Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology.
 
 [https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes](https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes)
 
@@ -112,15 +112,15 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 July
 
-2025-07-01 (although uncertain of date - video was derived from YouTube as commentary) Video of Charlie Kirk getting schooled by a Cambridge student about same-sex marriage.
+2025-07-01 Please enjoy this video of Charlie Kirk getting schooled by a Cambridge student about same-sex marriage.
 
 {% include youtubePlayer.html id="xiZ18yazj14" %}
 
-2025-07-17 The 988 suicide and crisis line specifically for LGBTQ+ was shut down permanently in effort to roll back DEI.
+2025-07-17 The 988 suicide and crisis line for LGBTQ+ was permanently shut down.
 
 [https://www.thetrevorproject.org/blog/closed-trump-admin-officially-shuts-down-the-988-suicide-crisis-lifelines-lgbtq-youth-specialized-services/](https://www.thetrevorproject.org/blog/closed-trump-admin-officially-shuts-down-the-988-suicide-crisis-lifelines-lgbtq-youth-specialized-services/)
 
-2025-07-21 In an effort to avoid “woke” ideology and the LGBTQ+ community, Derek Huffman of Texas moved his family to Russia. Once there, Russia sent him to the front lines of a combat zone.
+2025-07-21 Derek Huffman moved his family from Texas to Russia to avoid “woke” ideology. Once moved, Russia sent him to the front lines of a combat zone. 
 
 [https://www.texarkanagazette.com/news/2025/jul/31/texas-man-who-fled-to-russia-to-escape-woke/](https://www.texarkanagazette.com/news/2025/jul/31/texas-man-who-fled-to-russia-to-escape-woke/)
 

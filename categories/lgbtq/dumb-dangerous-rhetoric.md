@@ -105,7 +105,7 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 ### 2025 April
 
-2025-04-22 In the case of Mahmood v. Montgomery County the plaintiff argued that parents should have the right to veto or strike individual curriculum from education they found objectionable to their own religious reliefs. During this case, Samuel Alito addressed the book “Uncle Bobby’s Wedding” during an oral argument, stating, “I don’t think anyone can read that and say ‘Well, this is just telling children that there are occasions when men marry other men’. Uncle Bobby gets married to his boyfriend Jamie and everybody’s happy, and everything is, you know, portrays this – uh – everyone accepts this except for the little girl Chloe who has reservations about it, but her mother corrects her. No, you shouldn’t have any reservations about this. As I said, it has a clear moral message…”. For context, the book has nothing to do with the child’s reservations about same-sex marriage – it is about the child being worried she won’t get to spend as much time with her uncle anymore.
+2025-04-22 In Mahmood v. Montgomery county, plaintiffs argued that parents should have the right to opt their children out of curriculum that conflicts with their religious beliefs. During the arguments Justice Samuel Alito cited the book Uncle Bobby’s Wedding and his opinion about its moral message. 
 
 [https://en.wikipedia.org/wiki/Mahmoud_v._Taylor#:~:text=The%20Supreme%20Court%20heard%20oral,reprimand%20any%20children%20who%20disagree.%22](https://en.wikipedia.org/wiki/Mahmoud_v._Taylor)
 

@@ -35,7 +35,7 @@ permalink: /categories/military-veterans/lgbtq/
 
 ### 2025 March
 
-2025-03-07 The Trump administration purged 26,000 military photos of anything with so much as a keyword indicating women or minorities. They even purged photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it. 
+2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities. That included photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it.
 
 [https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074](https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074)
 
@@ -43,7 +43,7 @@ permalink: /categories/military-veterans/lgbtq/
 
 ### 2025 June
 
-2025-06-27 Pete Hegseth announced a Naval ship name change during Pride Month, citing that being named after a gay military member was "political" and did not align with his warrior ethos. Hegseth wrote on social media, “I am pleased to announce that the United States Navy is renaming the USNS Harvey Milk to the USNS Oscar V. Peterson. We are taking the politics out of ship naming”.
+2025-06-27 During Pride Month Pete Hegseth renamed USNS Harvey Milk to USNS Oscar V Peterson, claiming the original name was political and didn’t align with a warrior ethos. 
 
 [https://abcnews.go.com/Politics/hegseth-announces-usns-harvey-milk-renamed-usns-oscar/story?id=123266490](https://abcnews.go.com/Politics/hegseth-announces-usns-harvey-milk-renamed-usns-oscar/story?id=123266490)
 

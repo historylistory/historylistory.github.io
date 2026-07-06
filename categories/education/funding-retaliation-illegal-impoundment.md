@@ -48,7 +48,7 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.ed.gov/about/news/press-release/doj-hhs-ed-and-gsa-announce-initial-cancelation-of-grants-and-contracts-columbia-university-worth-400-million](https://www.ed.gov/about/news/press-release/doj-hhs-ed-and-gsa-announce-initial-cancelation-of-grants-and-contracts-columbia-university-worth-400-million)
 
-2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women's swim team.
+2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team. In July, Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology.
 
 [https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes](https://www.npr.org/2025/03/20/nx-s1-5333675/university-pennsylvania-upenn-trump-suspends-funding-trans-student-athletes)
 

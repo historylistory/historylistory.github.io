@@ -107,7 +107,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-02-19 Republican lawmakers in both Indiana and Washington removed state funding for Dolly Parton’s Imagination Library, a program which provided free books to schoolchildren.
 
-2025-03-07 The Trump administration purged 26,000 military photos of anything with so much as a keyword indicating women or minorities. They even purged photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it. 
+2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities. That included photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it.
 
 2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
 
@@ -119,7 +119,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-03-20 Trump appointed Charlie Kirk to the Air Force Academy Board.
 
-2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team.
+2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team. In July, Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology.
 
 2025-03-21 Columbia University agreed to administration demands in exchange for restoring funding, but funding was later frozen again. Three months later Andrew Nixon stated, “There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely”.
 
