@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Veterans Who Won't Stand for It"
+title: "Veterans Stand Up"
 category_slug: military-veterans
-subcategory_slug: veterans-who-wont-stand-for-it
-permalink: /categories/military-veterans/veterans-who-wont-stand-for-it/
+subcategory_slug: veterans-stand-up
+permalink: /categories/military-veterans/veterans-stand-up/
 ---
 
 ### 2025 June
