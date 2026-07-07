@@ -359,7 +359,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-10-04 ICE agents in Chicago opened fire and shot a U.S. citizen. The woman, bleeding profusely from multiple gunshot wounds, drove herself to a nearby business where workers tried to stop the bleeding and called 911. DHS said the woman was on their watchlist for doxxing agents and alleged she tried to ram them with her vehicle. Footage later released from body cam video contradicted their accounts. 
 
-2025-10-05 ICE agents shot US citizen Marimar Maritnez multiple times during a raid. Uncovered body cam footage showed ICE agents taunting the victim and shouting “do something bitch” during the interaction.
+2025-10-05 ICE agents shot US citizen Marimar Maritnez multiple times during a raid. Uncovered body cam footage showed ICE agents taunting the victim and shouting “do something bitch” during the interaction. Afterwards an agent texted "i fired 5 rounds and she had 7 holes". 
 
 2025-10-05 Kash Patel posted false video evidence on his X account of the so-called ramming of DHS vehicles by Marimar Martinez, which later turned out to be video from another unrelated vehicular assault. This came to light after video evidence surfaced that DHS was lying about the events concerning Marimar Martinez, who they shot multiple times.
 

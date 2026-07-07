@@ -96,7 +96,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 [https://www.youtube.com/shorts/onCvjvWN7zA](https://www.youtube.com/shorts/onCvjvWN7zA)
 
-2025-10-05 ICE agents shot US citizen Marimar Maritnez multiple times during a raid. Uncovered body cam footage showed ICE agents taunting the victim and shouting “do something bitch” during the interaction.
+2025-10-05 ICE agents shot US citizen Marimar Maritnez multiple times during a raid. Uncovered body cam footage showed ICE agents taunting the victim and shouting “do something bitch” during the interaction. Afterwards an agent texted "i fired 5 rounds and she had 7 holes". 
 
 [https://www.reuters.com/world/us/bodycam-footage-conflicts-with-dhs-account-chicago-womans-shooting-by-border-2025-10-08/](https://www.reuters.com/world/us/bodycam-footage-conflicts-with-dhs-account-chicago-womans-shooting-by-border-2025-10-08/)
 
