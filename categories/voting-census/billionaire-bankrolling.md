@@ -8,7 +8,7 @@ permalink: /categories/voting-census/billionaire-bankrolling/
 
 ### 2025
 
-Elections used to be decided by voters. Is it now pay-to-play?
+Elections used to be decided by voters. Now it's pay-to-play
 
 [https://patrioticmillionaires.org/](https://patrioticmillionaires.org/)
 

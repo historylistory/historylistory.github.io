@@ -84,6 +84,22 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 ### 2026 March
 
+2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They told them to find their own way out.
+
+[https://www.usnews.com/news/u-s-news-decision-points/articles/2026-03-05/u-s-tells-citizens-in-the-middle-east-to-leave-but-how](https://www.usnews.com/news/u-s-news-decision-points/articles/2026-03-05/u-s-tells-citizens-in-the-middle-east-to-leave-but-how)
+
+[https://www.kvue.com/article/syndication/associatedpress/americans-stuck-in-the-middle-east-recount-finding-their-way-home-with-little-government-help/616-87d51366-6651-4d87-b34a-9cb39e2a0169](https://www.kvue.com/article/syndication/associatedpress/americans-stuck-in-the-middle-east-recount-finding-their-way-home-with-little-government-help/616-87d51366-6651-4d87-b34a-9cb39e2a0169)
+
+[https://www.politico.com/news/2026/03/04/evacuation-middle-east-iran-war-00812898](https://www.politico.com/news/2026/03/04/evacuation-middle-east-iran-war-00812898)
+
+[https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/](https://www.cbsnews.com/news/americans-trying-to-evacuate-middle-east-frustrated-with-government-response/)
+
+2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
+
+[https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless)
+
+[https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
+
 2026-03-06 Trump minimized dangers in the Strait of Hormuz to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Afterwards, six tankers were struck. 
 
 [https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/](https://thehill.com/business/5774913-donald-trump-oil-tankers-strait-hormuz/)

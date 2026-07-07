@@ -163,7 +163,7 @@ OTHER SHADY BUSINESS
 
 ### 2022
 
-2022-04-22 Kari Lake and Mark Finchem demanded that Arizona stop using accessible voting and electronic ballot tabulation machines for the 2022 midterms. They requested Arizona instead count ballots by hand. In October 2022, Kari Lake told reporters "**I'm going to be your worst****fricken****nightmare**".
+2022-04-22 Kari Lake and Mark Finchem demanded that Arizona stop using accessible voting and electronic ballot tabulation machines for the 2022 midterms. They requested Arizona instead count ballots by hand. In October 2022, Kari Lake told reporters "I'm going to be your worst f-ing nightmare". 
 
 [https://statesunited.org/resources/lake-v-hobbs/](https://statesunited.org/resources/lake-v-hobbs/)
 
