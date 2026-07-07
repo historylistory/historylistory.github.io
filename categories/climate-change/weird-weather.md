@@ -218,3 +218,12 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.reuters.com/business/environment/france-records-1000-excess-deaths-during-record-breaking-heatwave-2026-06-28/](https://www.reuters.com/business/environment/france-records-1000-excess-deaths-during-record-breaking-heatwave-2026-06-28/)
 
 [https://www.ehn.org/heat-related-deaths-in-europe-could-triple-by-2100-due-to-climate-change](https://www.ehn.org/heat-related-deaths-in-europe-could-triple-by-2100-due-to-climate-change)
+
+2026-07-05 A super typhoon in Guam hit 180mph winds. 
+
+[https://weather.com/2026/07/07/storms/hurricane/super-typhoon-bavi-northern-marianas-guam-taiwan-china-forecast](https://weather.com/2026/07/07/storms/hurricane/super-typhoon-bavi-northern-marianas-guam-taiwan-china-forecast)
+
+[https://www.yahoo.com/news/weather-news/articles/very-dangerous-super-typhoon-nears-044638817.html](https://www.yahoo.com/news/weather-news/articles/very-dangerous-super-typhoon-nears-044638817.html)
+
+[https://www.npr.org/2026/07/05/g-s1-132052/guam-pacific-islands-brace-super-typhoon-bavi](https://www.npr.org/2026/07/05/g-s1-132052/guam-pacific-islands-brace-super-typhoon-bavi)
+

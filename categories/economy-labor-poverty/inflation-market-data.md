@@ -439,3 +439,20 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 [https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/](https://www.bankrate.com/banking/federal-reserve/fomc-meeting-recap-january-2025/)
 
+2026-06-30 Airline fares climbed 26.5%
+
+[https://fortune.com/2026/06/30/airfare-airline-ticket-costs-domestic-versus-international-jet-fuel/](https://fortune.com/2026/06/30/airfare-airline-ticket-costs-domestic-versus-international-jet-fuel/)
+
+[https://finance.yahoo.com/economy/articles/expect-prices-high-stay-high-155812555.html](https://finance.yahoo.com/economy/articles/expect-prices-high-stay-high-155812555.html)
+
+[https://www.usinflationcalculator.com/inflation/airfare-inflation/](https://www.usinflationcalculator.com/inflation/airfare-inflation/)
+
+### 2026 July
+
+2026-07-06 Microsoft cut 4800 more jobs, citing a loss of 64 cents for every dollar the company invested. 
+
+[https://www.businessinsider.com/microsoft-jobs-cuts-across-sales-and-xbox-read-the-memo-2026-7](https://www.businessinsider.com/microsoft-jobs-cuts-across-sales-and-xbox-read-the-memo-2026-7)
+
+[https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html](https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html)
+
+[https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html](https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html)

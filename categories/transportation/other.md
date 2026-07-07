@@ -134,3 +134,13 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/](https://www.cbsnews.com/news/boeing-737-max-crash-victim-family-jury-49-5-million/)
 
+### 2026 June
+
+2026-06-30 Airline fares climbed 26.5%
+
+[https://fortune.com/2026/06/30/airfare-airline-ticket-costs-domestic-versus-international-jet-fuel/](https://fortune.com/2026/06/30/airfare-airline-ticket-costs-domestic-versus-international-jet-fuel/)
+
+[https://finance.yahoo.com/economy/articles/expect-prices-high-stay-high-155812555.html](https://finance.yahoo.com/economy/articles/expect-prices-high-stay-high-155812555.html)
+
+[https://www.usinflationcalculator.com/inflation/airfare-inflation/](https://www.usinflationcalculator.com/inflation/airfare-inflation/)
+

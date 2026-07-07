@@ -323,3 +323,12 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide](https://www.newarab.com/news/us-presbyterian-church-votes-recognise-gaza-genocide)
 
 [https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/](https://www.cair.com/press_releases/cair-welcomes-presbyterian-churchs-vote-recognizing-gaza-genocide/)
+
+2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
+
+[https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank](https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank)
+
+[https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/](https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/)
+
+[https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
+

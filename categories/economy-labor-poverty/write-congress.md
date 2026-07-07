@@ -858,9 +858,14 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
 
+2026-06-30 Airline fares climbed 26.5%
+
 2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
 
 2026-07-02 Trump declined to renew the USMCA trade deal with Mexico and Canada. 
 
 2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
 
+2026-07-06 Microsoft cut 4800 more jobs, citing a loss of 64 cents for every dollar the company invested. 
+
+2026-07-06 Trump said the administration is developing an Australian-style retirement savings plan. 

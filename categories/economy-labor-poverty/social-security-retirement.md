@@ -117,3 +117,11 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 [https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
 
 [https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)
+
+### 2026 July
+
+2026-07-06 Trump said the administration is developing an Australian-style retirement savings plan. 
+
+[https://www.foxbusiness.com/politics/trump-looking-very-strongly-australia-style-retirement-system-taking-that-making-sharper](https://www.foxbusiness.com/politics/trump-looking-very-strongly-australia-style-retirement-system-taking-that-making-sharper)
+
+[https://thehill.com/homenews/administration/5955060-trump-australia-retirement-plan/](https://thehill.com/homenews/administration/5955060-trump-australia-retirement-plan/)

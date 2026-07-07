@@ -826,3 +826,14 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/](https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/)
 
 [https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html](https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html)
+
+### 2026 July
+
+2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
+
+[https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank](https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank)
+
+[https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/](https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/)
+
+[https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
+

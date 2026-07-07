@@ -278,3 +278,6 @@ The following examples highlight these concerns, while some are included for his
 2026-07-01 More than 1000 people in France, 1000 people in Spain, and 800 people in Germany died from heat exposure. These numbers are likely to triple by 2100 due to climate change.
 
 2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
+
+2026-07-05 A super typhoon in Guam hit 180mph winds. 
+
