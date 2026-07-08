@@ -76,13 +76,9 @@ permalink: /recommended-links/
 
 [GET INVOLVED: 50501](https://www.fiftyfifty.one/)
 
-[GET INVOLVED: MIRAC](https://www.miracmn.com/)
-
 [GET INVOLVED: ACLU](https://www.aclu.org/)
 
 [GET INVOLVED: Fair Fight Action](https://www.fairfight.com/)
-
-[GET INVOLVED: HavenWatch](https://havenwatch.org/)
 
 [GET INVOLVED: Goods Unite Us](https://www.goodsuniteus.com/)
 
@@ -91,6 +87,12 @@ permalink: /recommended-links/
 [GET INVOLVED: People for the American Way](https://www.peoplefor.org/)
 
 [GET INVOLVED: DCCC.org](https://dccc.org/)
+
+[GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
+
+[GET INVOLEVD/IMMIGRATION: FIEL Houston](https://fielhouston.org/)
+
+[GET INVOLVED/IMMIGRATION: HavenWatch](https://havenwatch.org/)
 
 [GET INVOLVED/PETITION: Change.org](https://www.change.org/)
 
@@ -158,7 +160,7 @@ permalink: /recommended-links/
 
 [WOMEN VETERANS: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
 
-[WHERE TO FILE?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
+[WHAT IS THIS?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
 
 
 ### THE SNAKE POEM TRANSCRIPT
