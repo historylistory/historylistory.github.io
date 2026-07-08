@@ -168,6 +168,8 @@ A private account on X has posted the video, but due to the account being privat
 
 ### 2024 March
 
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
 2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
 [https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied](https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied)

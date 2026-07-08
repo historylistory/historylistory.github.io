@@ -25,6 +25,18 @@ permalink: /categories/bully-threaten-sue-fire/threats-all-others/
 
 {% include youtubePlayer.html id="hnqLk3FqIJ8" %}
 
+### 2024 
+
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
+[https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html](https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746](https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746)
+
+[https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653](https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653)
+
+[https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453](https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453)
+
 ### 2025
 
 2025-09-17 Sinclair Broadcasting demanded the FCC and ABC take further action on Kimmel to make a direct apology to the Kirk family and make a meaningful personal donation to Turning Point USA.

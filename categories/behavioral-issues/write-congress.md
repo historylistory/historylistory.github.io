@@ -96,6 +96,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2024-03-07 Katie Britt delivered a widely mocked State of the Union response.
 
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
 2024-05-02 Lauren Boebert unsuccessfully tried to tear down a Palestinian flag during a protest at George Washington University. 
 
 2024-05-17 Marjorie Taylor Greene mocked Jasmine Crockett’s eyelashes during a committee meeting.

@@ -111,6 +111,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2024-02-23 At CPAC, Kash Patel called for building an "army" to help Trump fight the media, the deep state, education systems, and border policies 
 
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
 2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
 2024-07-13 This was the first assassination attempt on Trump in Butler PA. Ryan Routh, the convicted assailant who attempted to assassinate Trump, later attempted to stab himself in the neck after being found guilty September 23, 2025. One of the MAGA followers constructed a statue of Trump out of nails. 

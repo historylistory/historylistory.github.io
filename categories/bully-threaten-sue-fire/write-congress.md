@@ -110,6 +110,8 @@ Manhattan grand jury in the hush-money case.
 
 2024-01-24 Trump withheld aid for California wildfires unless they agreed to two conditions: 1) enact voter ID laws and 2) release waters from a wildlife preserve.
 
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
 2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.

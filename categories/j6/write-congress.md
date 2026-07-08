@@ -66,6 +66,8 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2023-12-06 During a campaign rally in Texas, Trump referred to the J6 prisoners as “hostages”.
 
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
 2024-06-28 The Supreme Court threw out all charges on insurrectionist Joseph Fischer.
 
 2024-10-17 During a campaign event in Miami Florida, Trump called January 6th a “day of love”.

@@ -105,6 +105,18 @@ permalink: /categories/red-flags/warning-signs/
 
 [https://abcnews.go.com/Politics/trump-raises-new-alarms-dictator-except-day/story?id=105416124](https://abcnews.go.com/Politics/trump-raises-new-alarms-dictator-except-day/story?id=105416124)
 
+### 2024 March
+
+2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
+[https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html](https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746](https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746)
+
+[https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653](https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653)
+
+[https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453](https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453)
+
 ### 2024 May
 
 2024-05-17 Article: “Roy Cohn: The mysterious US lawyer who helped Donald Trump rise to power.” The article notes Cohn’s role in McCarthy-era investigations and his later mentorship of Trump during Trump’s early business career in New York City. 
