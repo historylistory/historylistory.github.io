@@ -70,3 +70,10 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 [https://truthsocial.com/@realDonaldTrump/posts/116620553611959468](https://truthsocial.com/@realDonaldTrump/posts/116620553611959468)
 
+### 2026 July
+
+2026-07-08 Trump insisted again the US should control Greenland, and Denmark’s Prime Minister rejected renewed demands. 
+
+[https://www.youtube.com/watch?v=Grp1FQhSt00&list=WL&index=3](https://www.youtube.com/watch?v=Grp1FQhSt00&list=WL&index=3)
+
+[https://www.pbs.org/newshour/world/trump-again-demands-greenland-as-nato-unveils-military-projects-worth-billions-to-prove-its-firepower](https://www.pbs.org/newshour/world/trump-again-demands-greenland-as-nato-unveils-military-projects-worth-billions-to-prove-its-firepower)

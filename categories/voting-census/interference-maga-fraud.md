@@ -286,3 +286,13 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
 
 [https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)
+
+### 2026 July
+
+2026-07-07 Allegedly Texas Attorney General Ken Paxton has been voting illegally. 
+
+[https://www.houstonpublicmedia.org/articles/voting/2026/07/08/556512/ken-paxton-voting-election-law/](https://www.houstonpublicmedia.org/articles/voting/2026/07/08/556512/ken-paxton-voting-election-law/)
+
+[https://www.texastribune.org/2026/07/07/ken-paxton-voting-election-law/](https://www.texastribune.org/2026/07/07/ken-paxton-voting-election-law/)
+
+[https://www.ms.now/the-briefing-with-jen-psaki/watch/texas-gop-senate-candidate-paxton-has-been-voting-illegally-report-suggests-2505898051965](https://www.ms.now/the-briefing-with-jen-psaki/watch/texas-gop-senate-candidate-paxton-has-been-voting-illegally-report-suggests-2505898051965)

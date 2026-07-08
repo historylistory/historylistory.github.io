@@ -837,3 +837,14 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
 
+2026-06-23 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care. 
+
+[https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights](https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights)
+
+[https://www.justice.gov/olc/media/1446701/dl](https://www.justice.gov/olc/media/1446701/dl)
+
+[https://www.youtube.com/watch?v=YuwUQpaTjCM](https://www.youtube.com/watch?v=YuwUQpaTjCM)
+
+[https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5](https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5)
+
+[https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)

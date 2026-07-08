@@ -205,3 +205,14 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 [https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california](https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california)
 
 [https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330](https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330)
+
+### 2026 July
+
+2026-07-06 The DOJ rolled back more regulations on gun restrictions including a rule intended to close a gun-show loop hole, reducing regulations on short barrel and bump stocks (used in a mass shooting in 2017), and allowing some with mental illness to purchase firearms. 
+
+[https://www.youtube.com/watch?v=pm9ONjR1Gac&list=WL&index=2&t=19s](https://www.youtube.com/watch?v=pm9ONjR1Gac&list=WL&index=2&t=19s)
+
+[https://www.pbs.org/newshour/show/trump-administration-takes-major-steps-to-roll-back-gun-regulations](https://www.pbs.org/newshour/show/trump-administration-takes-major-steps-to-roll-back-gun-regulations)
+
+[https://www.nbcnews.com/politics/justice-department/justice-department-moves-roll-back-gun-regulations-rcna342825](https://www.nbcnews.com/politics/justice-department/justice-department-moves-roll-back-gun-regulations-rcna342825)
+

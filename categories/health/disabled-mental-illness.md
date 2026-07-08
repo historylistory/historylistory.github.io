@@ -117,3 +117,14 @@ permalink: /categories/health/disabled-mental-illness/
 
 [https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities](https://www.aclu.org/press-releases/aclu-statement-on-doj-memo-threatening-the-right-to-community-living-for-people-with-disabilities)
 
+2026-06-23 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care. 
+
+[https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights](https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights)
+
+[https://www.justice.gov/olc/media/1446701/dl](https://www.justice.gov/olc/media/1446701/dl)
+
+[https://www.youtube.com/watch?v=YuwUQpaTjCM](https://www.youtube.com/watch?v=YuwUQpaTjCM)
+
+[https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5](https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5)
+
+[https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)

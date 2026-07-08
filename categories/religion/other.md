@@ -182,3 +182,10 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 [https://cruxnow.com/vatican/2026/05/vatican-issues-final-warning-to-breakaway-traditionalist-sspx](https://cruxnow.com/vatican/2026/05/vatican-issues-final-warning-to-breakaway-traditionalist-sspx)
 
 [https://www.theguardian.com/world/2026/jun/30/pope-leo-conservative-sspx-ordain-bishops-warn](https://www.theguardian.com/world/2026/jun/30/pope-leo-conservative-sspx-ordain-bishops-warn)
+
+2026-07-02 The Vatican excommunicated six bishops from the ultraconservative Society of St Pius X. 
+
+[https://www.youtube.com/watch?v=MK13322Y-cI&list=WL&index=6&t=19s](https://www.youtube.com/watch?v=MK13322Y-cI&list=WL&index=6&t=19s)
+
+[https://www.pillarcatholic.com/p/vatican-confirms-six-sspx-bishops](https://www.pillarcatholic.com/p/vatican-confirms-six-sspx-bishops)
+
