@@ -4,60 +4,6 @@ title: Recommended Links
 permalink: /recommended-links/
 ---
 
-### THE SNAKE POEM VIDEO
-
-2017-04-29 Snake Poem 
-
-[https://www.youtube.com/watch?v=qSrOXvoNLwg](https://www.youtube.com/watch?v=qSrOXvoNLwg)
-
-### THE SNAKE POEM TRANSCRIPT
-
-“On her way to work one morning, down the path, along the lake,
-
-A tender-hearted woman saw a poor, half-frozen snake.
-
-His pretty-colored skin had been all frosted with the dew.
-
-‘Poor thing!’, she cried, ‘I’ll take you in, and I’ll take care of you!’.
-
-***Trump interjects and says, “…the border.”***
-
-‘Take me in, oh tender woman. Take me in for heaven’s sake. 
-
-Take me in, oh tender woman’ sighed the vicious snake. 
-
-She wrapped him up all cozy in a comforter of silk,
-
-And laid him by her fireside, with some honey, and some milk.
-
-She hurried home from work that night, and as soon as she arrived,
-
-She found that pretty snake she had taken in had been revived.
-
-‘Take me in, oh tender woman. Take me in for heaven’s sake. 
-
-Take me in, oh tender woman’ sighed that vicious snake.
-
-She clutched him to her bosom, ‘You’re so beautiful!’ she cried.
-
-‘But if I hadn’t brought you in by now, oh heavens, you would have died’.
-
-She stroked his pretty skin again, and kissed him, and held him tight.
-
-But instead of saying thank you, that snake gave her a vicious bite!
-
-‘Take me in, oh tender woman. Take me in for heaven’s sake. 
-
-Take me in, oh tender woman’ sighed the vicious snake.
-
-‘I have saved you!’ cried the woman, ‘and you’ve bitten me, heavens why?
-
-You know your bite is poisonous, and now I’m going to die’.
-
-‘Oh shut up, silly woman’ said the reptile with a grin.
-
-‘You knew damn well I was a snake before you took me in’.
-
 
 ### Big Ugly Bill & Heritage Foundation Projects
 
@@ -69,64 +15,8 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Project 2026 PDF](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
 
-### SPOTLIGHT LINK
 
-2026-03-18 Ms. Rachel and other public figures launched a petition calling for closure of the Dilley, Texas ICE detention center after hearing accounts from detained children. Check out her petition on Change.org.
-
-[https://www.change.org/](https://www.change.org/)
-
-[https://c.org/rwjMpM6cX5](https://c.org/rwjMpM6cX5)
-
-[https://www.change.org/p/close-dilley-ice-detention-center-protect-children](https://www.change.org/p/close-dilley-ice-detention-center-protect-children)
-
-[https://www.instagram.com/msrachelforlittles](https://www.instagram.com/msrachelforlittles)
-
-[https://www.youtube.com/@msrachel](https://www.youtube.com/@msrachel)
-
-[https://www.chron.com/culture/article/ms-rachel-texas-ice-letter-22160474.php](https://www.chron.com/culture/article/ms-rachel-texas-ice-letter-22160474.php)
-
-[https://www.chron.com/news/article/dilley-ice-children-videos-22083880.php](https://www.chron.com/news/article/dilley-ice-children-videos-22083880.php)
-
-[https://www.motherjones.com/politics/2026/03/ms-rachel-ice-dilley-detention-center-accurso/](https://www.motherjones.com/politics/2026/03/ms-rachel-ice-dilley-detention-center-accurso/)
-
-[https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786](https://www.nbcnews.com/news/us-news/ms-rachel-ice-detention-children-immigration-dilley-texas-center-rcna263786)
-
-[https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368](https://www.nbcnews.com/pop-culture/pop-culture-news/ms-rachel-echoes-support-palestinian-children-rcna206368)
-
-### GET INVOLVED
-
-
-[Change.org](https://www.change.org/)
-
-[Mobilize](https://www.mobilize.us/)
-
-[Indivisible](https://indivisible.org/)
-
-[50501](https://www.fiftyfifty.one/)
-
-[MIRAC](https://www.miracmn.com/)
-
-[ACLU](https://www.aclu.org/)
-
-[Fair Fight Action](https://www.fairfight.com/)
-
-[HavenWatch](https://havenwatch.org/)
-
-[Goods Unite Us](https://www.goodsuniteus.com/)
-
-[5 Calls](https://5calls.org)
-
-[People for the American Way](https://www.peoplefor.org/)
-
-[Ballotpedia](https://www.ballotpedia.org)
-
-[USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
-
-[US Vote Foundation](https://www.usvotefoundation.org)
-
-[DCCC.org](https://dccc.org/)
-
-### All Else
+### Everything Else (alphabetical order)
 
 [Agriculture: Farm Forward](https://www.farmforward.com)
 
@@ -178,6 +68,44 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Gaza - Gym Rat In Gaza on Instagram](https://www.instagram.com/gym_rat_in_gaza/?hl=en)
 
+[GET INVOLVED: Change.org](https://www.change.org/)
+
+[GET INVOLVED: Mobilize](https://www.mobilize.us/)
+
+[GET INVOLVED: Indivisible](https://indivisible.org/)
+
+[GET INVOLVED: 50501](https://www.fiftyfifty.one/)
+
+[GET INVOLVED: MIRAC](https://www.miracmn.com/)
+
+[GET INVOLVED: ACLU](https://www.aclu.org/)
+
+[GET INVOLVED: Fair Fight Action](https://www.fairfight.com/)
+
+[GET INVOLVED: HavenWatch](https://havenwatch.org/)
+
+[GET INVOLVED: Goods Unite Us](https://www.goodsuniteus.com/)
+
+[GET INVOLVED: 5 Calls](https://5calls.org)
+
+[GET INVOLVED: People for the American Way](https://www.peoplefor.org/)
+
+[GET INVOLVED: DCCC.org](https://dccc.org/)
+
+[GET INVOLVED/PETITION: Change.org](https://www.change.org/)
+
+[GET INVOLVED/PETITION: Close Dilley Detention Center](https://www.change.org/p/close-dilley-ice-detention-center-protect-children)
+
+[GET INVOLVED/PETITION: Ms. Rachel Instagram](https://www.instagram.com/msrachelforlittles)
+
+[GET INVOLVED/PETITION: Ms. Rachel YouTube](https://www.youtube.com/@msrachel)
+
+[GET INVOLVED/VOTE: Ballotpedia](https://www.ballotpedia.org)
+
+[GET INVOLVED/VOTE: USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
+
+[GET INVOLVED/VOTE: US Vote Foundation](https://www.usvotefoundation.org)
+
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
@@ -197,6 +125,8 @@ You know your bite is poisonous, and now I’m going to die’.
 [Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
 
 [Religion: Skeptics Annotated Bible](https://www.skepticsannotatedbible.com/)
+
+[Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
@@ -226,10 +156,55 @@ You know your bite is poisonous, and now I’m going to die’.
 
 [Vatican News: Pope Francis - First Sunday of Lent](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
 
-{% include youtubePlayer.html id="pbsTj8RrqsI" %}
-
 [WOMEN VETERANS: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
 
 [WHERE TO FILE?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
 
 
+### THE SNAKE POEM TRANSCRIPT
+
+“On her way to work one morning, down the path, along the lake,
+
+A tender-hearted woman saw a poor, half-frozen snake.
+
+His pretty-colored skin had been all frosted with the dew.
+
+‘Poor thing!’, she cried, ‘I’ll take you in, and I’ll take care of you!’.
+
+***Trump interjects and says, “…the border.”***
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed the vicious snake. 
+
+She wrapped him up all cozy in a comforter of silk,
+
+And laid him by her fireside, with some honey, and some milk.
+
+She hurried home from work that night, and as soon as she arrived,
+
+She found that pretty snake she had taken in had been revived.
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed that vicious snake.
+
+She clutched him to her bosom, ‘You’re so beautiful!’ she cried.
+
+‘But if I hadn’t brought you in by now, oh heavens, you would have died’.
+
+She stroked his pretty skin again, and kissed him, and held him tight.
+
+But instead of saying thank you, that snake gave her a vicious bite!
+
+‘Take me in, oh tender woman. Take me in for heaven’s sake. 
+
+Take me in, oh tender woman’ sighed the vicious snake.
+
+‘I have saved you!’ cried the woman, ‘and you’ve bitten me, heavens why?
+
+You know your bite is poisonous, and now I’m going to die’.
+
+‘Oh shut up, silly woman’ said the reptile with a grin.
+
+‘You knew damn well I was a snake before you took me in’.

@@ -1,8 +1,8 @@
 ---
 layout: subcategory
-title: 1900
+title: Blank
 category_slug: 30-second-questions
-subcategory_slug: 1900
+subcategory_slug: blank
 permalink: /categories/30-second-questions/blank/
 ---
 
