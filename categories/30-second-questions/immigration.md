@@ -28,9 +28,13 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) JD vance said immigrants are to blame for cost of living, but even after ICE pushed out so many so far, the crisis is worse. If you could sum it up into a ration between immigrants and American corporations monopolizing, fixing prices, price couging, and pushing thier bottom lines, who do you think would be more likely to blame for cost of living...
 
+### Deaths
+
+(QUESTION IN PROGRESS, NOT READY) ICE keeps claiming people they kill were trying to ram them with their vehicle, but every time body cam footage or bystander video surfaces, it proves the agents are lying. ------ this is a statement what is the question
 
 
+### Gestapo
 
-
+(QUESTION IN PROGRESS, NOT READY) Bongino was caught cosplaying in a Nazi overcoat, DHS destroy the flood meme, reasonable suspicion seems to mean anyone with an accent or dark skin, immigration going door to door asking people to rat out neighbors, and DHS campaigning to Proud boys and oath keepers with itchy trigger fingers, we've had several publicly executed victims over this, and peole are being rounded up into camps and disappearing without a trace and their family can't find them. What part about this doesn't scream gestapo to you? 
 
 

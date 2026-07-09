@@ -30,7 +30,9 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) You say trump is unconventional and laugh at that but what if a democratic president acted like this ... also, 
 
+(QUESTION IN PROGRESS, NOT READY) some trump supporters say they are fine with trumps behavior. does that iunclude when he celebrated the deaths of (give all the examples here) or threatened violence when he said (xyz)
 
+(QUESTION IN PROGRESS, NOT READY) some trump supporters blow off trump's quips as that just being how he is. What about when what he says actually does damage, like when people try to inject themselves with bleach to treat COVID, or people refuse to apply for assistance after a flood because they believe their property will be seized, or folks storm the capitol, or women stop taking tylenol, or parents stop vaccinating their children?s When did it become okay to overlook the influence and power the president's words have over its people? 
 
 
 
