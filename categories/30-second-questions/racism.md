@@ -23,6 +23,10 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
 
 
+### White Nationalists
 
+(QUESTION IN PROGRESS, NOT READY) Young republican website leak. JD vance defended it saying they're all just kids. The group ranges in ages from 18 to 35. Messages included _______. Is it appropriate for a sitting vice president to defend and overlook dangerous rhetoric like this?
+
+(QUESTION IN PROGRESS, NOT READY) There is a pattern of trump defending white nationalists. He called unite the right very fine people, pardoned several oath keepers and proud boys, dined with nick fuentes, 
 
 

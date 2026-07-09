@@ -6,16 +6,6 @@ subcategory_slug: weaponizing-god
 permalink: /categories/religion/weaponizing-god/
 ---
 
-### COMMENTARY
-
-While there is far too much to fully address, the intention of this future section will be to highlight clear patterns of cherry picking, hypocrisy, and twisting scripture. Though I’m not religious or deeply versed in scripture, I can still recognize when religion is being manipulated or used for personal gain.
-
-Due to the lofty nature of this section, I don’t have a timeline for completion.
-
-### Prior to March 2026
-
-There is much to cover; still trying to gather. However, such events are peppered throughout the file
-
 ### 1973
 
 1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
