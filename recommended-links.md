@@ -120,7 +120,13 @@ permalink: /recommended-links/
 
 [LGBTQ: TransLegislation Tracker](https://translegislation.com/)
 
+[Media: AllSides.com](https://www.allsides.com/news-source/elle-magazine-media-bias)
+
 [NON PROFITS](https://greatnonprofits.org/org/foundation-for-women-warriors)
+
+[Polls: YouGov.com](https://yougov.com/)
+
+[Polls: Gallup](https://www.gallup.com/home.aspx)
 
 [Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
 
