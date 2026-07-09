@@ -37,7 +37,7 @@ permalink: /categories/foreign-affairs-isolation/lebanon/
 
 [https://www.moroccoworldnews.com/2026/03/282069/nearly-700000-displaced-in-lebanon-as-us-israels-war-on-iran-widens/](https://www.moroccoworldnews.com/2026/03/282069/nearly-700000-displaced-in-lebanon-as-us-israels-war-on-iran-widens/)
 
-2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
+2026-03-25 The Pentagon deployed roughly 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships. This came a day after Trump claimed Iran agreed to no nuclear weapons and Israel announced plans to occupy South Lebanon.
 
 [https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
 

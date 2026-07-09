@@ -50,9 +50,8 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 March
 
-2026-03-26 Hegseth removed female and Black Army officers from a promotion list. He did this again in June to the Navy. 
 
-2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, leaving some senior military officials to question if women and minorities were being singled out. In the same article presenting this information, the article wrote that Chief of Staff Ricky Buria told the Army Secretary Daniel Driscoll about assigning Major General Antoinette R. Gant command of the Military District of Washington **President Trump would not want to stand next to a Black female officer at military events.**
+2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, and Chief of Staff Ricky Buria allegedly told Army Secretary Daniel Driscoll not to assign Major General Antoinette R. Gant command of the Military District of Washington because President Trump wouldn’t want to stand next to a Black female officer at events. 
 
 [https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html](https://www.nytimes.com/2026/03/27/us/hegseth-promotion-list.html)
 

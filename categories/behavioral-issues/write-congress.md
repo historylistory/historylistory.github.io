@@ -494,7 +494,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
-2026-03-27 Rob Schneider called for reinstating the military draft.
+2026-03-27 Hollywood actor Rob Schneider publicly expressed his support for reinstating the military draft.
 
 2026-03-28 Trump frequently golfed during the Iran war.
 

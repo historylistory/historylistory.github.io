@@ -135,7 +135,7 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2](https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2)
 
 
-2026-03-27 Rob Schneider called for reinstating the military draft.
+2026-03-27 Hollywood actor Rob Schneider publicly expressed his support for reinstating the military draft.
 
 [https://x.com/RobSchneider/status/2037596986715852893](https://x.com/RobSchneider/status/2037596986715852893)
 

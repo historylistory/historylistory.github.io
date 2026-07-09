@@ -112,20 +112,6 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 [https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html](https://www.cnbc.com/2026/03/11/cargo-ship-struck-strait-of-hormuz-uk-iran-war.html)
 
-2026-03-26 More mysterious trading patterns emerged on Polymarket. 
-
-[https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket](https://www.theguardian.com/us-news/2026/mar/23/bets-us-iran-ceasefire-show-signs-of-insider-knowledge-say-experts-polymarket)
-
-[https://www.cbsnews.com/news/polymarket-insider-trading-rules-iran-war-venezuela/](https://www.cbsnews.com/news/polymarket-insider-trading-rules-iran-war-venezuela/)
-
-[https://www.nbcnews.com/business/consumer/insider-trading-prediction-markets-trump-rules-rcna265452](https://www.nbcnews.com/business/consumer/insider-trading-prediction-markets-trump-rules-rcna265452)
-
-[https://www.axios.com/2026/03/25/trump-iran-oil-insider-trading](https://www.axios.com/2026/03/25/trump-iran-oil-insider-trading)
-
-[https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny](https://www.aljazeera.com/news/2026/3/25/large-polymarket-wall-street-bets-on-trumps-war-news-under-scrutiny)
-
-[https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
-
 ### 2026 April
 
 2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides. 

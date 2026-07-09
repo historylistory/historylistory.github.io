@@ -163,7 +163,9 @@ permalink: /categories/military-veterans/war/
 {% include youtubePlayer.html id="aYZC0-FKEJM&t=16s" %}
 
 
-2026-03-24 In a statement, former Pentagon chief and widely regarded former Marine Jim Mattis said, “I can’t identify a lot of good options” to resolve the conflict (in Iran) without significant loss or long-term commitment. He also said, “I think that what we’re seeing is a situation where targetry never makes up for a lack of strategy”. FYI nicknames: “Warrior Monk”, “Mad-Dog Mattis”, and “General Chaos”. 
+2026-03-24 Former Pentagon Chief Jim Mattis said, “I can’t identify a lot of good options” about resolving the conflict in Iran and said we were in a tough spot. 
+
+[https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-00841109](https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-00841109)
 
 [https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s](https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s)
 
@@ -175,7 +177,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/](https://www.militarytimes.com/off-duty/military-culture/2019/01/01/youre-not-some-p-ssy-sitting-on-the-sidelines-other-mattis-isms-secretary-of-defense-edition/)
 
-2026-03-25 Even after the White House gave pushback concerning “boots on the ground”, this was the week the Pentagon deployed up to 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships.  This came a day after Trump claimed Iran agreed to having no nuclear weapons, but Trump could not elaborate further. Also this week Israel announced plans to occupy all South Lebanon.
+2026-03-25 The Pentagon deployed roughly 3000 paratroopers from the 82nd Airborne Division to the Middle East, 2500 troops from the 31st Marine Expeditionary Unit, along with 4500 troops and 3 more ships. This came a day after Trump claimed Iran agreed to no nuclear weapons and Israel announced plans to occupy South Lebanon.
 
 [https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s](https://www.youtube.com/watch?v=sQOYVX8fWiw&list=WL&index=13&t=25s)
 
@@ -197,7 +199,7 @@ permalink: /categories/military-veterans/war/
 
 [https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1](https://www.youtube.com/watch?v=sNBRgrndNoE&list=WL&index=1)
 
-2026-03-27 Rob Schneider called for reinstating the military draft.
+2026-03-27 Hollywood actor Rob Schneider publicly expressed his support for reinstating the military draft.
 
 [https://x.com/RobSchneider/status/2037596986715852893](https://x.com/RobSchneider/status/2037596986715852893)
 

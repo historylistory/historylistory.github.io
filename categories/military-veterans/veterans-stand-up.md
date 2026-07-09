@@ -76,7 +76,9 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 ### 2026 March
 
-2026-03-24 In a statement, former Pentagon chief and widely regarded former Marine Jim Mattis said, “I can’t identify a lot of good options” to resolve the conflict (in Iran) without significant loss or long-term commitment. He also said, “I think that what we’re seeing is a situation where targetry never makes up for a lack of strategy”. FYI nicknames: “Warrior Monk”, “Mad-Dog Mattis”, and “General Chaos”. 
+2026-03-24 Former Pentagon Chief Jim Mattis said, “I can’t identify a lot of good options” about resolving the conflict in Iran and said we were in a tough spot. 
+
+[https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-00841109](https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-00841109)
 
 [https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s](https://www.youtube.com/watch?v=GlYqQ-ko2Ls&list=WL&index=7&t=8s)
 
