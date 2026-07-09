@@ -875,3 +875,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-08 ExxonMobil’s top attorney Robert Levy retired and joined Trump’s newly renamed Energy and Natural Resources Division, previously the Environment and Natural Resources Division. Co-president of Public Citizen’s Robert Weissman wrote, “Big Oil’s capture of the U.S. government is now complete. The Justice Department that should be fighting to protect clean air and water and avert catastrophic climate change will now work on behalf of polluters to advance the poisoning of people and the planet”. 
 
 2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
+
+2026-07-09 Trump launched Freedom Fuel gas stations. 

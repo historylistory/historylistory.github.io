@@ -304,3 +304,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 
 2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
+
+2026-07-09 Trump launched Freedom Fuel gas stations. 

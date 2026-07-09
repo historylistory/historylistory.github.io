@@ -220,3 +220,15 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 [https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html](https://finance.yahoo.com/markets/stocks/articles/trump-bought-5-million-taser-163954298.html)
 
 [https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html](https://finance.yahoo.com/markets/stocks/articles/trumps-family-account-bought-5m-194500387.html)
+
+### 2026 July
+
+2026-07-09 Trump launched Freedom Fuel gas stations. 
+
+[https://www.youtube.com/watch?v=9P9863BWLTI&list=WL&index=1](https://www.youtube.com/watch?v=9P9863BWLTI&list=WL&index=1)
+
+[https://thehill.com/policy/energy-environment/5958968-white-house-launches-freedom-fuel-gas-stations/](https://thehill.com/policy/energy-environment/5958968-white-house-launches-freedom-fuel-gas-stations/)
+
+[https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/](https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/)
+
+[https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations](https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations)
