@@ -19,15 +19,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 
 2013-11-02 Renisha McBride was shot and killed after she knocked on a door and the homeowner thought she was breaking in. 
 
-2014-11-02 A twelve-year-old child Tamir Rice was shot outside a rec center by a police officer. A grand jury declined to bring criminal charges against the shooting or responding officers, the DOJ found insufficient evidence to support federal charges, but the DOJ did find a pattern of excessive force. They settled a civil rights lawsuit with Tamir Rice’s family though they did not admit wrongdoing. 
+2014-11-02 Twelve-year-old Tamir Rice was killed outside a rec center by a police officer. A grand jury declined to bring criminal charges against the officer.
 
-2015-06-17 This was the date of the Charleston church shooting. The shooter was a white supremacist. Not only did the suspect enter the church and spend 45 minutes in worship with the congregation prior to his killing spree, he waited until they were in prayer before he began the massacre, firing approximately 74 rounds, and then told one of the victims “I’m going to leave you here to tell the story”. Dylan Roof remains on death row in Terre Haute Federal Prison in Indiana.
+2015-06-17 A white supremacist opened fire at Charleston church, but only after he spend 45 minutes in worship with the congregation. The suspect waited until everyone was in prayer before he began the massacre, firing approximately 74 rounds, and then told one of the victims “I’m going to leave you here to tell the story”. Dylan Roof remains on death row in Terre Haute Federal Prison in Indiana.
 
 [https://www.history.com/this-day-in-history/june-17/charleston-ame-church-shooting](https://www.history.com/this-day-in-history/june-17/charleston-ame-church-shooting)
 
 [https://www.nbcnews.com/news/us-news/death-sentence-upheld-man-who-killed-9-south-carolina-church-n1277667](https://www.nbcnews.com/news/us-news/death-sentence-upheld-man-who-killed-9-south-carolina-church-n1277667)
 
-2016-10-20 Seventeen-year-old Laquan McDonald was shot in the back 16 times by a Chicago police officer. The officer was in jail for three years only.
+2016-10-20 A Chicago police officer shot 17-year-old Laquan McDonald in the back 16 times and only served three years in jail.
 
 [https://www.npr.org/2022/02/03/1077574977/jason-van-dyke-chicago-police-released-laquan-mcdonald](https://www.npr.org/2022/02/03/1077574977/jason-van-dyke-chicago-police-released-laquan-mcdonald)
 
@@ -67,7 +67,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 ### 2016
 
-2016-03-18 As co-founder of Black Lives Matter Alicia Garza stated in a conference, "we are expected to participate in democracy while receiving conditional citizenship in return".
+2016-03-18 Black Lives Matter co-founder Alicia Garza stated, “We are expected to participate in democracy while receiving conditional citizenship in return”.
 
 [http://opentranscripts.org/transcript/why-black-lives-matter/](http://opentranscripts.org/transcript/why-black-lives-matter/)
 

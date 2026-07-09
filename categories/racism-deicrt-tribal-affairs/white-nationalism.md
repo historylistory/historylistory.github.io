@@ -20,7 +20,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2017
 
-2017-05-21 (context) The alt-right developed their own social site GAB where far-right figures and white nationalists could freely express their opinions and views.
+2017-05-21 The alt-right developed social platform GAB where white nationalists can freely express their opinions and views.
 
 [https://www.npr.org/sections/alltechconsidered/2017/05/21/529005840/feeling-sidelined-by-mainstream-social-media-far-right-users-jump-to-gab](https://www.npr.org/sections/alltechconsidered/2017/05/21/529005840/feeling-sidelined-by-mainstream-social-media-far-right-users-jump-to-gab)
 

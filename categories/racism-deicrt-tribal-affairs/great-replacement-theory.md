@@ -16,7 +16,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 ### 2015
 
-2015-09-06 Stephen Miller recommended “The Camp of the Saints” book to Breitbart, which is a racist French novel about white genocide and the **great replacement theory**.
+2015-09-06 Stephen Miller allegedly recommended “The Camp of the Saints” to Breitbart News. This book a French novel about white genocide and the great replacement theory.
 
 [https://www.splcenter.org/resources/extremist-files/stephen-miller/](https://www.splcenter.org/resources/extremist-files/stephen-miller/)
 

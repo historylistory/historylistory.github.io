@@ -35,7 +35,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
-2016-07-06 Trump posted an image on social media showing Hillary Clinton in front of cash and a Star of David with the caption, “Most Corrupt Candidate Ever.”
+2016-07-06 Trump posted an image of Hillary Clinton in front of cash and a Star of David captioned, “Most Corrupt Candidate Ever.”
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
 
