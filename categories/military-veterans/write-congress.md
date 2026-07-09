@@ -70,6 +70,8 @@ pending text
 
 2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
 
+2025-06-07 National Guard troops were deployed to Los Angeles in response to anti-ICE raids.
+
 2025-06-13 A VA nurse explained during an interview, “there has been a long-time nursing staffing crisis…on top of that they are saying ‘not only are we not going to hire and fill those positions, we’re going to get rid of more staff”.
 
 2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.
@@ -87,6 +89,8 @@ pending text
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
 
 2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling.
+
+2025-08-05 Trump threatened federal control of Washington D.C. after Edward "Big Balls" Coristine was attacked.
 
 2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
@@ -110,6 +114,8 @@ pending text
 
 2025-09-15 Trump sent National Guard troops to Memphis Tennessee despite a 25-year-low in crime.
 
+2025-09-15 Trump threatened to federalize Washington D.C. after Mayor Muriel Bowser stated they would not cooperate with ICE.
+
 2025-09-24 Pete Hegseth shut down the Women Advisory Council for the military.
 
 2025-09-29 MSNBC interviewed retired US Army Lieutenant General Mark Hertling who expressed concern about the militarized approach in U.S. cities.
@@ -118,9 +124,15 @@ pending text
 
 2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
 
+2025-10-01 By October 2025, Trump only deployed military to cities governed by Democrat mayors. 
+
 2025-10-04 ICE agents knocked down and pepper sprayed 84-year-old Vietnam Veteran Richard Eckman while he was leaning on his walker. Agents also launched a projectile at his wife Laurie who sustained a bleeding head injury from the attack.
 
 2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
+
+2025-10-17 Tennessee leaders sued Trump for deploying the National Guard to Memphis.
+
+2025-10-27 During his visit to Japan Trump stated he might send full-service military to our cities instead of the National Guard.
 
 2025-10-27 During his visit to Japan Trump stated he might send full-service military to our cities instead of the National Guard.
 
@@ -129,6 +141,8 @@ pending text
 2025-11-12 During the 4th Annual Northeast Indiana Defense Summit Pete Hegseth criticized DEI initiatives, political correctness, and what he called “climate change worship”.
 
 2025-11-14 ICE deported Purple Heart veteran with PTSD Jose Barco in Florence Arizona.
+
+2025-11-14 The Trump administration announced Operation Swamp Sweep in New Orleans, which they later renamed Operation Catahoula Crunch. The DHS operations included armored vehicles and special ops.
 
 2025-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats.
 
@@ -258,6 +272,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
 
 2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic.
+
+2026-06-04 Three armed National Guard soldiers approached, physically assaulted and detained a woman on her own porch. 
 
 2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies.
 

@@ -36,7 +36,7 @@ permalink: /recommended-links/
 
 [Climate Change: National Drought Mitigation Center](https://drought.unl.edu/Publications/AnnualReports.aspx)
 
-[NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers)
+[NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers) *NOTICE*: It appears the DOJ rerouted this link so the study doesn't appear. However, if you hit the little [archive] link next to it, it will take you to the so-called "Way Back Machine" so you can obtain the study. 
 
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 

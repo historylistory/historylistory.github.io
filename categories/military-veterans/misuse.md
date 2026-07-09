@@ -16,25 +16,22 @@ A military state to suppress people and prevent an uprising
 
 [https://www.nbcnews.com/news/us-news/2000-national-guard-troops-duty-l-legal-battle-deployment-continues-rcna213678](https://www.nbcnews.com/news/us-news/2000-national-guard-troops-duty-l-legal-battle-deployment-continues-rcna213678)
 
-
 ### 2025 July
 
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
 
 [https://www.npr.org/2025/07/16/nx-s1-5469676/la-national-guard-deployment](https://www.npr.org/2025/07/16/nx-s1-5469676/la-national-guard-deployment)
 
-
-### 2025 August
-
 ### 2025 August
 
 2025-08-05 Trump threatened federal control of Washington D.C. after Edward "Big Balls" Coristine was attacked.
 
-{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
-
 [https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293](https://www.nbcnews.com/politics/trump-administration/trump-threatens-federal-control-dc-attack-doge-staffer-coristine-rcna223293)
 
 [https://truthsocial.com/@realDonaldTrump/posts/114977985620971126](https://truthsocial.com/@realDonaldTrump/posts/114977985620971126)
+
+{% include youtubePlayer.html id="Fb7yKvOQE_c" %}
+
 
 2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
