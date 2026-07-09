@@ -6,6 +6,35 @@ subcategory_slug: tribal-affairs
 permalink: /categories/racism-deicrt-tribal-affairs/tribal-affairs/
 ---
 
+### 2012
+
+2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America. 
+
+[https://www.harrywalker.com/speakers/rick-santorum](https://www.harrywalker.com/speakers/rick-santorum)
+
+[https://www.nbcnews.com/politics/2016-election/candidates/rick-santorum/](https://www.nbcnews.com/politics/2016-election/candidates/rick-santorum/)
+
+[https://en.wikipedia.org/wiki/Rick_Santorum](https://en.wikipedia.org/wiki/Rick_Santorum)
+
+[https://civilrights.org/2003/04/22/civil-rights-coalition-appalled-by-senator-rick-santorums-attack-on-gay-and-lesbian-equality/](https://civilrights.org/2003/04/22/civil-rights-coalition-appalled-by-senator-rick-santorums-attack-on-gay-and-lesbian-equality/)
+
+[https://www.hrc.org/press-releases/santorums-anti-gay-rhetoric-meeting-icy-reception-in-new-hampshire](https://www.hrc.org/press-releases/santorums-anti-gay-rhetoric-meeting-icy-reception-in-new-hampshire)
+
+[https://www.dignityusa.org/articles/dignityusa-responds-to-comments-by-senator-rick-santorum](https://www.dignityusa.org/articles/dignityusa-responds-to-comments-by-senator-rick-santorum)
+
+EXCELLENT ARTICLE [https://glaad.org/gap/rick-santorum/](https://glaad.org/gap/rick-santorum/)
+
+EXCELLENT ARTICLE [https://www.peoplefor.org/rightwingwatch/post/cpac-2019-a-lot-like-a-trump-campaign-event](https://www.peoplefor.org/rightwingwatch/post/cpac-2019-a-lot-like-a-trump-campaign-event)
+
+CNN CUT TIES WITH HIM [https://www.huffpost.com/entry/rick-santorum-cnn-native-americans_n_60a92fa6e4b0313547978140](https://www.huffpost.com/entry/rick-santorum-cnn-native-americans_n_60a92fa6e4b0313547978140)
+
+SANTORUM OPINION ON MLK JR [https://www.peoplefor.org/rightwingwatch/post/martin-luther-king-jr-according-to-the-right](https://www.peoplefor.org/rightwingwatch/post/martin-luther-king-jr-according-to-the-right)
+
+SANTORUM ON GAY MARRIAGE [https://www.peoplefor.org/rightwingwatch/post/santorum-allowing-gay-marriage-like-changing-the-chemical-equation-for-water](https://www.peoplefor.org/rightwingwatch/post/santorum-allowing-gay-marriage-like-changing-the-chemical-equation-for-water)
+
+SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-native-american-culture_n_6086ddb7e4b05af50db9656b?or](https://www.huffpost.com/entry/rick-santorum-native-american-culture_n_6086ddb7e4b05af50db9656b?or)
+
+
 ### 2024
 
 2024-10-01 During a Kendrick Idaho meeting, representatives claimed that **discrimination doesn't exist in Idaho**. When a Nez Perc member stated the contrary, Senator Forman told Trish Carter Goodheart to **go back to where she came from** and proceeded to storm out. Senator Forman is still running for the 2026 election.

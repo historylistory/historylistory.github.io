@@ -24,6 +24,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
+2001-09-18 The Patriot Act under Obama was introduced a week after 9/11 and also had issues with mass surveillance because it involved the bulk collection of Americans’ telephone records. 
+
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
 
 2009-04-13 Peter Thiel wrote in The Education of a Libertarian that expanded welfare and women’s suffrage made “capitalist democracy” an oxymoron, adding that he no longer believed “freedom and democracy are compatible.”
@@ -272,6 +274,8 @@ I do not agree with the current direction of technology policy in my country, pa
 2026-05-25 Pope Leo called for AI to be “disarmed” and more heavily regulated.
 
 2026-05-26 Trump rescinded a proposed AI safety-vetting executive order, prompting criticism from Senator Mark Kelly about billionaire influence over AI policy. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”.
+
+2026-06-02 Citizens increasingly criticized Flock surveillance for its misuse and scope creep.
 
 2026-06-10 Data centers are seizing Georgian residents’ homes and contaminating the drinking water. 
 

@@ -33,6 +33,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 1992-01-01 The anti-gay propaganda film “The Gay Agenda” was produced by Christian right-wing fundamentalist group Springs of Life Ministries.
 
+2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America. 
+
 2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools”. He repeated what he wrote in 2020 in an address to the Federalist Society. (law.cornell.edu)
 
 2015-07-01 Doug Wilson claimed same-sex marriage was a more serious problem than supporting slavery.

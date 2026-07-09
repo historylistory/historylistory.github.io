@@ -42,6 +42,17 @@ Think About:
 
 [https://www.wired.com/story/snaps-new-ar-specs-cost-2195/](https://www.wired.com/story/snaps-new-ar-specs-cost-2195/)
 
+### 2001
+
+2001-09-18 The Patriot Act under Obama was introduced a week after 9/11 and also had issues with mass surveillance because it involved the bulk collection of Americans’ telephone records. 
+
+[https://epic.org/issues/surveillance-oversight/patriot-act/](https://epic.org/issues/surveillance-oversight/patriot-act/)
+
+[https://www.pbs.org/wgbh/frontline/article/obama-on-mass-government-surveillance-then-and-now/](https://www.pbs.org/wgbh/frontline/article/obama-on-mass-government-surveillance-then-and-now/)
+
+[https://www.brennancenter.org/our-work/research-reports/obamas-surveillance-reform-promises-one-year-later](https://www.brennancenter.org/our-work/research-reports/obamas-surveillance-reform-promises-one-year-later)
+
+
 ### 2003 
 
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
@@ -374,6 +385,19 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.bbc.com/news/articles/cj37z8357e5o](https://www.bbc.com/news/articles/cj37z8357e5o)
 
 ### 2026 June
+
+2026-06-02 Citizens increasingly criticized Flock surveillance for its misuse and scope creep.
+
+[https://www.aclu.org/campaigns-initiatives/get-the-flock-out](https://www.aclu.org/campaigns-initiatives/get-the-flock-out)
+
+[https://www.npr.org/2026/02/17/nx-s1-5612825/flock-contracts-canceled-immigration-survillance-concerns](https://www.npr.org/2026/02/17/nx-s1-5612825/flock-contracts-canceled-immigration-survillance-concerns)
+
+[https://www.eff.org/deeplinks/2026/06/get-flock-out-here](https://www.eff.org/deeplinks/2026/06/get-flock-out-here)
+
+[https://www.eff.org/deeplinks/2025/12/effs-investigations-expose-flock-safetys-surveillance-abuses-2025-review](https://www.eff.org/deeplinks/2025/12/effs-investigations-expose-flock-safetys-surveillance-abuses-2025-review)
+
+[https://www.flocksafety.com/blog/why-are-some-flock-cameras-being-removed-by-cities](https://www.flocksafety.com/blog/why-are-some-flock-cameras-being-removed-by-cities)
+
 
 2026-06-18 DHS gave 1300 police departments facial recognition technology.
 
