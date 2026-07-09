@@ -33,7 +33,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 1992-08-17 Pat Buchanan declared a cultural and religious war as part of his "Make America First Again" campaign. 
 
-1999-08-16 David Horowitz published a Salon article criticizing the NAACP's lawsuit against gun manufacturers and arguing that social problems should not be attributed primarily to systemic oppression. He wrote, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”. 
+1999-08-16 David Horowitz published an article in Salon, writing, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
 
 2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
 

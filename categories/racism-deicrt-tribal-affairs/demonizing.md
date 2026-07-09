@@ -26,13 +26,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 1999
 
-1999-08-16 David Horowitz published a Salon article criticizing the NAACP's lawsuit against gun manufacturers and arguing that social problems should not be attributed primarily to systemic oppression. He wrote, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”. 
+1999-08-16 David Horowitz published an article in Salon, writing, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
 
 [https://www.salon.com/1999/08/16/naacp/](https://www.salon.com/1999/08/16/naacp/)
 
 ### 2001
 
-2001-01-01 Stephen Miller invited David Horowitz to speak at his high school and started a group called “Horowitz’s Students for Academic Freedom”. For context, David Horowitz wrote an article in Salon.com in 1999 writing, ““If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?” and “Guns don’t kill black people, other blacks do”.
+2001-01-01 Stephen Miller invited David Horowitz to speak at his high school and started a group called “Horowitz’s Students for Academic Freedom”. 
 
 [https://www.salon.com/1999/08/16/naacp/](https://www.salon.com/1999/08/16/naacp/)
 
@@ -40,7 +40,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2007 
 
-2007-01-01 Stephen Miller accused universities of censorship because they refused to run ads from a website www.terrorismawareness.org which claimed that “Muslims have problems living peacefully with their neighbors”. 
+2007-01-01 Stephen Miller accused universities of censorship because they refused to run an ad that claimed “Muslims have problems living peacefully with their neighbors”.
 
 [https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/](https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/)
 

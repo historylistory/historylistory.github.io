@@ -8,7 +8,7 @@ permalink: /categories/education/villainizing-rhetoric/
 
 ### 2007
 
-2007-01-01 Stephen Miller accused universities of censorship because they refused to run ads from a website www.terrorismawareness.org which claimed that “Muslims have problems living peacefully with their neighbors”. 
+2007-01-01 Stephen Miller accused universities of censorship because they refused to run an ad that claimed “Muslims have problems living peacefully with their neighbors”.
 
 [https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/](https://progressive.org/latest/stephen-miller-unveiled-new-docs-reveal-the-stark-racism-of-/)
 

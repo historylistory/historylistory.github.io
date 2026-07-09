@@ -7,7 +7,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 ---
 ### 2006
 
-2006-06-28 Redistricting used to be conducted once a decade after a census. In 2006 courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
+2006-06-28 Courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
 
 [https://thearp.org/litigation/league-united-american-latin-citizens-v-perry/](https://thearp.org/litigation/league-united-american-latin-citizens-v-perry/)
 

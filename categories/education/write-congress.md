@@ -40,7 +40,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 1967-01-01 Interesting FYI: Project Rebound was founded, offering hope and higher education opportunities for formerly incarcerated individuals. Project Rebound Metrics from 2016 to 2016 had an astounding recidivism rate of 0%, meaning all students enrolled in their program did not re-offend, which also by that metric means the project has a 100% success rate. It assisted with books, school supplies, and help with childcare during school.
 
-2007-01-01 Stephen Miller accused universities of censorship because they refused to run ads from a website www.terrorismawareness.org which claimed that “Muslims have problems living peacefully with their neighbors”. 
+2007-01-01 Stephen Miller accused universities of censorship because they refused to run an ad that claimed “Muslims have problems living peacefully with their neighbors”.
 
 2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 

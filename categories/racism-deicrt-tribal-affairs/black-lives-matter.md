@@ -13,11 +13,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 [https://en.wikipedia.org/wiki/Rodney_King](https://en.wikipedia.org/wiki/Rodney_King)
 
 
-2009-01-01 Twenty-two-year-old Oscar Grant was killed by officers in Oakland CA responding to a fight on a transit.
+2009-01-01 Twenty-two-year-old Oscar Grant was killed by officers in Oakland CA.
 
-2012-02-26 Trayvon Martin was walking home from a convenience store while visiting a family townhouse at the Retreat at Twin Lakes. He was fatally shot by George Zimmerman who claimed self-defense and cited Florida’s Stand Your Ground law. Zimmerman was only charged and tried a year later after heavy media coverage and protest rallies. 
+2012-02-26 Trayvon Martin was walking home from a convenience store while visiting a family townhouse when he was fatally shot by George Zimmerman who claimed self-defense and cited Florida’s Stand Your Ground law. Zimmerman was only charged and tried a year later after heavy media coverage and protest rallies. 
 
-2013-11-02 Renisha McBride was shot and killed by shotgun when she knocked on a door and the homeowner thought she was breaking in. 
+2013-11-02 Renisha McBride was shot and killed after she knocked on a door and the homeowner thought she was breaking in. 
 
 2014-11-02 A twelve-year-old child Tamir Rice was shot outside a rec center by a police officer. A grand jury declined to bring criminal charges against the shooting or responding officers, the DOJ found insufficient evidence to support federal charges, but the DOJ did find a pattern of excessive force. They settled a civil rights lawsuit with Tamir Rice’s family though they did not admit wrongdoing. 
 

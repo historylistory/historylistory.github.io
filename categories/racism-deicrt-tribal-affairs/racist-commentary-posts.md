@@ -26,13 +26,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2002
 
-2002-03-27 Stephen Miller wrote an article in the Santa Monica Lookout titled “**Political Correctness out of Control**”. In reference to Native Americans he wrote, “I suppose then that our country would have been better off if our soldiers never killed anyone, and we watched as our nation was obliterated by the evil in the world, as we sung songs of peace and love. Or, better yet, we could have lived with the Indians, learning how to finger paint and make tepees”. He also ranted about his school translating documents into Spanish, adhering to what he believed were liberal guidelines, offering condoms, and accused them of paying no heed to American holidays while giving attention to Mexican holidays.
+2002-03-27 Stephen Miller wrote an article in the Santa Monica Lookout, “I suppose then that our country would have been better off if our soldiers never killed anyone, and we watched as our nation was obliterated by the evil in the world, as we sung songs of peace and love. Or, better yet, we could have lived with the Indians, learning how to finger paint and make tepees”. He also ranted about his school translating documents into Spanish or giving attention to Mexican holidays.
 
 [https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
 
 ### 2006
 
-2006-10-10 Stephen Miller wrote in the Duke Chronicle "Affirmative action places a false and pernicious label on every black person in our country as being part of a special class of people needing special assistance. It advances students beyond their levels of academic preparation and, in condescendingly lowering the bar for millions of people, so too lowers motivation and achievement”. 
+2006-10-10 Stephen Miller wrote in the Duke Chronicle, “Affirmative action places a false and pernicious label on every black person in our country as being part of a special class of people needing special assistance. It advances students beyond their levels of academic preparation and, in condescendingly lowering the bar for millions of people, so too lowers motivation and achievement”. 
 
 [https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7](https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7)
 

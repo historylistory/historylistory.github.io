@@ -45,7 +45,7 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 
 ### 2001
 
-2001-01-01 Stephen Miller reportedly called into Larry Elder's radio show while in high. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
+2001-01-01 Stephen Miller reportedly called into Larry Elder’s radio show while in high school. Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote that women knew less about politics than men, and claimed systemic racism was lie.
 
 [https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
 

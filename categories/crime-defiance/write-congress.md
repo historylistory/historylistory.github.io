@@ -45,7 +45,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2000-01-01 Trump said Epstein had "stolen" one of his spa employees; Virginia Giuffre would have been 16 at the time.
 
-2001-01-01 Stephen Miller reportedly called into Larry Elder's radio show while in high. For context, Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote an article saying women knew less about politics than men, and called systemic racism a lie.
+2001-01-01 Stephen Miller reportedly called into Larry Elder’s radio show while in high school. Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote that women knew less about politics than men, and claimed systemic racism was lie.
 
 2003-01-01 This is the year the Epstein birthday book was compiled, including a letter from Trump of a naked woman’s outline and the following, “Voice Over – There must be more to live than having everything. Donald – Yes, there is, but I won’t tell you what it is. Jeffrey – Nor will I, since I also know what it is. Donald – We have certain things in common, Jeffrey. Jeffrey – Yes, we do, come to think of it. Donald – Enigmas never age, have you noticed that? Jeffrey – As a matter of fact, it was clear to me the last time I saw you. Donald – A pal is a wonderful thing. Happy Birthday – and may every day be another wonderful secret”.
 

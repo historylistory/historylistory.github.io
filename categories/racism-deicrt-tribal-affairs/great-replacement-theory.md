@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 
 ### 2010
 
-2010-01-01 This is the year podcasts increasingly referenced **the Great Replacement theory** in extremist circles like the 2017 "Unite the Right" rally. As an example of how dangerous this conspiracy is, the white supremacist responsible for the Buffalo NY massacre in 2022 bought into the great replacement theory; **it was found in his manifesto**.
+2010-01-01 Discussion of the Great Replacement Theory surfaced a lot more and even showed up later in 2022 during the Buffalo NY massacre when it was mentioned in the manifesto. 
 
 [https://www.newyorker.com/magazine/2017/12/04/the-french-origins-of-you-will-not-replace-us](https://www.newyorker.com/magazine/2017/12/04/the-french-origins-of-you-will-not-replace-us)
 
