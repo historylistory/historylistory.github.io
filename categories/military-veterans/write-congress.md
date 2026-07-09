@@ -17,7 +17,23 @@ You can start it however you'd like.
 
 ### SAMPLE LETTER
 
-pending text
+Dear Sir or Madam,
+
+How can anyone support a President who does not support the military? How can anyone support a Secretary of Defense who has repeatedly shown poor judgment?
+
+The President called fallen service members "suckers" and "losers." He also wants to use the National Guard as a political tool to intimidate civilians. That is not their mission, and it is not what they volunteered to do.
+
+Secretary Pete Hegseth has said he does not believe women belong in combat and eliminated the military's Women's Advisory Council. He also opposes transgender Americans serving in the military, despite many having served this country honorably and with distinction. These decisions judge service members by ideology instead of merit.
+
+The campaign to rename the Department of Defense as the "Department of War" is unnecessary, expensive, and political. The effort to rename ships and military installations to promote a so-called "warrior ethos" is equally political and divisive. At the same time, respected military leaders and public servants are being fired, forced out, or purged simply because they are Black, female, or both.
+
+Even more concerning is the direction of military policy. Efforts to weaken the rules of engagement, disregard the Geneva Conventions, and take an openly hostile posture toward NATO should alarm every American. A sitting President who threatens military action against multiple countries and speaks of taking over peaceful nations should be a clear warning.
+
+The future plan outlined in Section 224 of the proposed 2027 Defense Bill to merge aspects of the U.S. and Israeli militaries has received almost no public attention. Whether people support or oppose that proposal, it deserves serious public debate.
+
+When this period ends, there must be a full investigation. The conduct of this administration goes far beyond politics and raises serious questions about the integrity, leadership, and future of our military.
+
+The examples below explain the basis for my concerns. Some are included for historical context, while others document more recent actions.
 
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
