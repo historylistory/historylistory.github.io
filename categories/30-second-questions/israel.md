@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Behavior
+title: Israel
 category_slug: 30-second-questions
-subcategory_slug: behavior
-permalink: /categories/30-second-questions/behavior/
+subcategory_slug: israel
+permalink: /categories/30-second-questions/israel/
 ---
 
 ### Notice to Reader
@@ -16,19 +16,11 @@ Questions will be added over time, with the goal of including reliable sources a
 
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
-### Lies
+### Soulless
 
-(QUESTION IN PROGRESS, NOT READY) Said mexico to pay for border wall...
-
-(QUESTION IN PROGRESS, NOT READY) Inflation down day one...
-
-(QUESTION IN PROGRESS, NOT READY) whitehouse ballroom from private donors...
+(QUESTION IN PROGRESS, NOT READY) Israel’s finance minister called Gaza a “real-estate bonanza”, said the “demolition phase” was complete, and that a business plan was on Trump’s desk what do you think about this statement from the finance minister, and the fact that trump posted ai generated video of gaza as a waterfront resort with gift shops lined with little gold trump statues? 
 
 
-
-### Unconventional
-
-(QUESTION IN PROGRESS, NOT READY) You say trump is unconventional and laugh at that but what if a democratic president acted like this ... also, 
 
 
 
