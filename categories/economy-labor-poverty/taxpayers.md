@@ -318,7 +318,7 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 [https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare](https://www.cnn.com/2026/04/02/politics/donald-trump-iran-war-daycare)
 
-2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery. 
+2026-04-15 The White House submitted plans for a $125M Triumphal Arch to overshadow Arlington Cemetery.
 
 [https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136](https://www.c-span.org/clip/white-house-event/white-house-to-submit-plans-for-america-250-triumphal-arch/5199136)
 

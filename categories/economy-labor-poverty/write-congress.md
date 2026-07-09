@@ -640,8 +640,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-04-03 Trump’s new budget seeks TSA privatization.
 
-2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
-
 2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 2026-04-07 Fox News struck a deal with Kalshi for prediction market data.
@@ -662,7 +660,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-04-15 Tapatio was bought out by a private equity firm.
 
-2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery.
+2026-04-15 The White House submitted plans for a $125M Triumphal Arch to overshadow Arlington Cemetery.
 
 2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran. Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
 

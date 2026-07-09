@@ -213,7 +213,7 @@ permalink: /categories/military-veterans/war/
 
 [https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/](https://fox8.com/news/actor-rob-schneider-calls-for-return-of-military-draft/)
 
-2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which are war crimes. When asked, Karoline Leavitt said, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists expressed war-crime concerns, Karoline Leavitt continued, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
+2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which would be a war crime. When asked, Karoline Leavitt defended Trump, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists pointed out war-crime concerns, Karoline Leavitt responded, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
 
 [https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/](https://www.thedailybeast.com/leavitt-melts-down-after-being-quizzed-on-trump-war-crimes/)
 
@@ -241,7 +241,7 @@ permalink: /categories/military-veterans/war/
 
 [https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/](https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/)
 
-2026-04-09 Survivors of a deadly attack by Iranian drone strikes in Kuwait March 1st 2026 said they were not prepared or fortified. Pete Hesgeth told officials the unit was fortified and the drone strike was a “squirter”, but soldiers are disputing Hegseth’s claims.
+2026-04-09 Survivors of a deadly attack in Kuwait March 1st 2026 said they were not prepared or fortified despite Hegseth asserting they were. 
 
 [https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/](https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/)
 
@@ -251,9 +251,9 @@ permalink: /categories/military-veterans/war/
 
 [https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485](https://www.latintimes.com/survivors-deadly-drone-strike-kuwait-dispute-us-account-say-base-was-unprepared-596485)
 
-2026-04-09 The Trump administration announced automatic draft registration will start in December 2026.
+2026-04-09 The Trump administration announced automatic draft registration will begin December 2026.
 
-[https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/])https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/
+[https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/](https://thehill.com/policy/defense/5826082-military-draft-selective-service-system-automatic-registration/)
 
 [https://www.usatoday.com/story/news/nation/2026/04/10/us-military-draft-automatic-registration-impacts/89552441007/](https://www.usatoday.com/story/news/nation/2026/04/10/us-military-draft-automatic-registration-impacts/89552441007/)
 

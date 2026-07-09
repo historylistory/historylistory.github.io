@@ -544,7 +544,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-14 RFK wrote IN HIS OWN BOOK “RFK Jr, the Fall and Rise” that he once pulled over to carve out the penis of a dead raccoon to study later. He wrote, **“I was standing in front of my parked car on I-684 cutting the penis out of a road killed raccoon, thinking about how weird some of my family members have turned out to be”. **
 
-2026-04-15 The White House submitted plans for a Triumphal Arch estimated to cost at least $125 million and totally overshadow Arlington Cemetery. 
+2026-04-15 The White House submitted plans for a $125M Triumphal Arch to overshadow Arlington Cemetery.
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 

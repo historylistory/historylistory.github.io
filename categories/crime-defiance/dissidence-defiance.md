@@ -357,7 +357,7 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 ### 2026 April
 
-2026-04-01 Hegseth nullified the Army’s investigation into the pilot who used an Apache helicopter to perform a low fly-by of Kid Rock’s mansion. In an X post Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
+2026-04-01 Hegseth nullified the Army’s investigation into the pilot who did a low fly-by of Kid Rock’s mansion. Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
 
 [https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html](https://www.stripes.com/branches/army/2026-04-01/kid-rock-apache-helicopter-hegseth-21246722.html)
 
