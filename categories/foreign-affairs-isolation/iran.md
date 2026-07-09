@@ -1859,3 +1859,13 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://time.com/article/2026/06/30/us-iran-peace-deal-talks-technical-doha-mediators-strait-of-hormuz/](https://time.com/article/2026/06/30/us-iran-peace-deal-talks-technical-doha-mediators-strait-of-hormuz/)
 
 [https://www.france24.com/en/middle-east/20260630-us-envoys-met-with-mediators-in-qatar-talks-with-iran-up-in-the-air](https://www.france24.com/en/middle-east/20260630-us-envoys-met-with-mediators-in-qatar-talks-with-iran-up-in-the-air)
+
+### 2026 July
+
+2026-07-08 The US conducted more strikes in Iran allegedly in retaliation for Iranian strikes, ending the ceasefire. 
+
+[https://www.cnn.com/2026/07/08/world/live-news/iran-war-nato-summit-ukraine-trump](https://www.cnn.com/2026/07/08/world/live-news/iran-war-nato-summit-ukraine-trump)
+
+[https://apnews.com/article/iran-us-israel-war-oil-july-8-2026-fee04dcea661c08de12c04914ff2751b](https://apnews.com/article/iran-us-israel-war-oil-july-8-2026-fee04dcea661c08de12c04914ff2751b)
+
+[https://www.bbc.com/news/live/c17y1vnn2qxt](https://www.bbc.com/news/live/c17y1vnn2qxt)

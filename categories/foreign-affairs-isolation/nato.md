@@ -132,3 +132,13 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 2026-06-25 Trump aired grievances over NATO not supporting the war in Iran. 
 
 [https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support](https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support)
+
+### 2026 July
+
+2026-07-08 Trump chastised NATO for not supporting Israel and the US in their war against Iran.
+
+[https://www.foxnews.com/video/6400562306112](https://www.foxnews.com/video/6400562306112)
+
+[https://www.aljazeera.com/video/newsfeed/2026/7/7/trump-criticises-nato-allies-over-iran-conflict-support](https://www.aljazeera.com/video/newsfeed/2026/7/7/trump-criticises-nato-allies-over-iran-conflict-support)
+
+[https://www.youtube.com/shorts/PtWTU4fMLPc](https://www.youtube.com/shorts/PtWTU4fMLPc)

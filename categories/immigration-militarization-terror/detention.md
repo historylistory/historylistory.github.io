@@ -477,3 +477,10 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 [https://www.texastribune.org/2026/06/30/texas-mcallen-nun-ice-detention-sister-letty/](https://www.texastribune.org/2026/06/30/texas-mcallen-nun-ice-detention-sister-letty/)
 
+2026-07-07 The for-profit prison company GEO Group settled a case of willfully abusing and exploiting detainees.  They were only fined $100,000. 
+
+[https://calmatters.org/justice/2026/07/geo-groupcal-osha-settlement/](https://calmatters.org/justice/2026/07/geo-groupcal-osha-settlement/)
+
+[https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay](https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay)
+
+[https://www.ccijustice.org/post/nlrb-complaint-against-geo](https://www.ccijustice.org/post/nlrb-complaint-against-geo)

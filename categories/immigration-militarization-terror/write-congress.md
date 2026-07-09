@@ -714,3 +714,7 @@ Next
 2026-06-30 US Immigration sent detainees to Venezuela in the aftermath of the earthquake. 
 
 2026-07-01 Sister Leticia Ugboaja was detained by ICE while walking to mass. 
+
+2026-07-07 ICE agents in Houston fatally shot Lorenzo Salgado Araujo while he was driving to work. 
+
+2026-07-07 The for-profit prison company GEO Group settled a case of willfully abusing and exploiting detainees.  They were only fined $100,000. 

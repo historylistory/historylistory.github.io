@@ -244,3 +244,14 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8. 
 
 [https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7](https://www.youtube.com/watch?v=SAMr8BNJSTU&list=WL&index=7)
+
+### 2026 July
+
+
+2026-07-08 The Pentagon considered abandoning military bases in Bahrain, Kuwait and Saudi, and moving them to Israel. 
+
+[https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel](https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel)
+
+[https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says](https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says)
+
+[https://www.jpost.com/middle-east/article-901210](https://www.jpost.com/middle-east/article-901210)

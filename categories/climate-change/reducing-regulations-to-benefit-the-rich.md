@@ -427,3 +427,13 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524](https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524)
 
 [https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans](https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans)
+
+2026-07-08 ExxonMobil’s top attorney Robert Levy retired and joined Trump’s newly renamed Energy and Natural Resources Division, previously the Environment and Natural Resources Division. Co-president of Public Citizen’s Robert Weissman wrote, “Big Oil’s capture of the U.S. government is now complete. The Justice Department that should be fighting to protect clean air and water and avert catastrophic climate change will now work on behalf of polluters to advance the poisoning of people and the planet”. 
+
+[https://www.democracynow.org/2026/7/8/headlines/senior_exxonmobil_lawyer_retires_joins_trump_administration](https://www.democracynow.org/2026/7/8/headlines/senior_exxonmobil_lawyer_retires_joins_trump_administration)
+
+[https://www.citizen.org/news/exxon-lawyers-appoint-at-doj-shows-big-oils-capture-of-government-now-complete/](https://www.citizen.org/news/exxon-lawyers-appoint-at-doj-shows-big-oils-capture-of-government-now-complete/)
+
+[https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj](https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj)
+
+[https://www.whitehouse.gov/administration/cabinet/](https://www.whitehouse.gov/administration/cabinet/)

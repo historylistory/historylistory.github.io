@@ -36,6 +36,15 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 
 [https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests](https://www.cnn.com/2026/05/25/us/new-jersey-ice-facility-protests)
 
+2026-07-07 The for-profit prison company GEO Group settled a case of willfully abusing and exploiting detainees.  They were only fined $100,000. 
+
+[https://calmatters.org/justice/2026/07/geo-groupcal-osha-settlement/](https://calmatters.org/justice/2026/07/geo-groupcal-osha-settlement/)
+
+[https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay](https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay)
+
+[https://www.ccijustice.org/post/nlrb-complaint-against-geo](https://www.ccijustice.org/post/nlrb-complaint-against-geo)
+
+
 ### CoreCivic
 
 2026-06-19 Sixty-three-year-old Felix Alcordo Rodriguez died in ICE custody at a Laredo Texas detention center operated by the for-profit company CoreCivic.

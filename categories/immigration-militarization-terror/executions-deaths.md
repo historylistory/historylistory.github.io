@@ -261,3 +261,17 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law](https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law)
 
 [https://news.un.org/en/story/2026/06/1167816](https://news.un.org/en/story/2026/06/1167816)
+
+### 2026 July
+
+2026-07-07 ICE agents in Houston fatally shot Lorenzo Salgado Araujo while he was driving to work. 
+
+[https://www.theguardian.com/us-news/2026/jul/07/ice-agents-shoot-motorist-texas-houston](https://www.theguardian.com/us-news/2026/jul/07/ice-agents-shoot-motorist-texas-houston)
+
+[https://www.khou.com/article/news/local/lorenzo-salgado-araujo-killed-ice-houston-shooting/285-bcde49aa-0a4d-46b4-a387-1396b11355a4](https://www.khou.com/article/news/local/lorenzo-salgado-araujo-killed-ice-houston-shooting/285-bcde49aa-0a4d-46b4-a387-1396b11355a4)
+
+[https://www.aljazeera.com/news/2026/7/8/family-demands-investigation-after-us-man-killed-by-ice-agent-in-texas](https://www.aljazeera.com/news/2026/7/8/family-demands-investigation-after-us-man-killed-by-ice-agent-in-texas)
+
+[https://www.nbcnews.com/news/us-news/son-man-fatally-shot-ice-officer-traffic-stop-says-want-answers-rcna353490](https://www.nbcnews.com/news/us-news/son-man-fatally-shot-ice-officer-traffic-stop-says-want-answers-rcna353490)
+
+[https://apnews.com/article/ice-houston-shooting-lorenzo-salgado-araujo-2d01ba69caf2445f05005096891ba5b2](https://apnews.com/article/ice-houston-shooting-lorenzo-salgado-araujo-2d01ba69caf2445f05005096891ba5b2)

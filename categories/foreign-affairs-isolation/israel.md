@@ -339,3 +339,12 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.cnn.com/2026/07/07/politics/video/22785186-netanyahu-trump-erdogan-digvid](https://www.cnn.com/2026/07/07/politics/video/22785186-netanyahu-trump-erdogan-digvid)
 
 [https://www.aljazeera.com/news/2026/7/6/netanyahu-says-his-ties-with-trump-are-fine-takes-aim-at-turkiye](https://www.aljazeera.com/news/2026/7/6/netanyahu-says-his-ties-with-trump-are-fine-takes-aim-at-turkiye)
+
+
+2026-07-08 The Pentagon considered abandoning military bases in Bahrain, Kuwait and Saudi, and moving them to Israel. 
+
+[https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel](https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel)
+
+[https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says](https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says)
+
+[https://www.jpost.com/middle-east/article-901210](https://www.jpost.com/middle-east/article-901210)

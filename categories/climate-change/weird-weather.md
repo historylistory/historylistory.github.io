@@ -234,3 +234,17 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.nbcnews.com/world/europe/wildfires-rage-portugal-greece-spain-greek-authorities-warn-toxic-smok-rcna353030](https://www.nbcnews.com/world/europe/wildfires-rage-portugal-greece-spain-greek-authorities-warn-toxic-smok-rcna353030)
 
 [https://www.cbc.ca/news/world/hundreds-firefighters-wildfires-in-portugal-and-greece-9.7259083](https://www.cbc.ca/news/world/hundreds-firefighters-wildfires-in-portugal-and-greece-9.7259083)
+
+2026-07-07 Utah’s Babylon Fire surpassed 100,000 acres, making it one of the largest wildfires in the nation. 
+
+[https://www.fox13now.com/news/utah-wildfires/babylon-fire-tops-100-000-acres-as-monticello-residents-remain-on-alert](https://www.fox13now.com/news/utah-wildfires/babylon-fire-tops-100-000-acres-as-monticello-residents-remain-on-alert)
+
+[https://kutv.com/news/wildfire/firefighters-from-across-utah-deploy-to-fight-massive-babylon-cottonwood-wildfires](https://kutv.com/news/wildfire/firefighters-from-across-utah-deploy-to-fight-massive-babylon-cottonwood-wildfires)
+
+[https://www.abc4.com/utah-weather/wildfire/babylon-fire-grows-over-100000-acres/](https://www.abc4.com/utah-weather/wildfire/babylon-fire-grows-over-100000-acres/)
+
+2026-07-07 Typhoon Maysak battered China with heavy rain, rare category-5 winds, mudslides, and several deaths. 
+
+[https://asianews.network/heavy-rain-and-winds-batter-china-as-super-typhoon-bavi-approaches/](https://asianews.network/heavy-rain-and-winds-batter-china-as-super-typhoon-bavi-approaches/)
+
+[https://www.nbcnews.com/world/asia/southern-chinese-region-reels-floods-destruction-tropical-storm-rcna353443](https://www.nbcnews.com/world/asia/southern-chinese-region-reels-floods-destruction-tropical-storm-rcna353443)

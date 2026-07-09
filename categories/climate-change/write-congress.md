@@ -282,3 +282,9 @@ The following examples highlight these concerns, while some are included for his
 2026-07-05 A super typhoon in Guam hit 180mph winds. 
 
 2026-07-05 Fires ravaged Portugal, Spain, Greece and the Balkans. 
+
+2026-07-07 Utah’s Babylon Fire surpassed 100,000 acres, making it one of the largest wildfires in the nation. 
+
+2026-07-07 Typhoon Maysak battered China with heavy rain, rare category-5 winds, mudslides, and several deaths. 
+
+2026-07-08 ExxonMobil’s top attorney Robert Levy retired and joined Trump’s newly renamed Energy and Natural Resources Division, previously the Environment and Natural Resources Division. Co-president of Public Citizen’s Robert Weissman wrote, “Big Oil’s capture of the U.S. government is now complete. The Justice Department that should be fighting to protect clean air and water and avert catastrophic climate change will now work on behalf of polluters to advance the poisoning of people and the planet”. 

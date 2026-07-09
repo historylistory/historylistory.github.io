@@ -171,3 +171,13 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.youtube.com/watch?v=fhRkdoEW1iw&list=WL&index=5](https://www.youtube.com/watch?v=fhRkdoEW1iw&list=WL&index=5)
 
+### 2026 July
+
+
+2026-07-08 The Pentagon considered abandoning military bases in Bahrain, Kuwait and Saudi, and moving them to Israel. 
+
+[https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel](https://www.democracynow.org/2026/7/8/headlines/pentagon_considers_relocating_gulf_bases_to_israel)
+
+[https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says](https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says)
+
+[https://www.jpost.com/middle-east/article-901210](https://www.jpost.com/middle-east/article-901210)
