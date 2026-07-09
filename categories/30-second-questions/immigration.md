@@ -20,6 +20,8 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) ICE agents used to focus on child trafficking, but now they're rerouted...
 
+(QUESTION IN PROGRESS, NOT READY) why do you think DHS targeted hiring a specific type of people (look this up they reached out to specific demo)
+
 ### Crime 
 
 (QUESTION IN PROGRESS, NOT READY) If Trump is worried about drugs on the border or crime, why did he pardon Honduras president narco trafficker, or that guy who founded Silk Road... or re-release repeat offenders from J6 including those guilty of violent crimes like murder plots and child sexual assault...Why is it ok to give pardons to those people, but assume hostile intent for anyone else based on so-called "reasonable suspicion"? 
@@ -32,6 +34,11 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) ICE keeps claiming people they kill were trying to ram them with their vehicle, but every time body cam footage or bystander video surfaces, it proves the agents are lying. ------ this is a statement what is the question
 
+(QUESTION IN PROGRESS, NOT READY) if DHS didn't do something wrong when they shot alex pretti or renee nicole good or several others, then why do you believe they denied minnesota law enforcemnt access to the crime scene and investigations and in many cases have refused to unmaks or wear body cameras? As you may recall, Good's vehicle was inreverse when they shot her, and Pretti was shot several time in the back execution style while he was face-down away from the agents. 
+
+(QUESTION IN PROGRESS, NOT READY) Blind Nurul Amim Shah Alam was detained then released miles from home. ICE didn’t notify his family. He was found dead in the snow. February 26, 2026. What would you say to his family right now if they wanted answers about ICE's lack of training in dealing with vulnerable adults? 
+
+(QUESTION IN PROGRESS, NOT READY) Daffy Michelle’s body was found in a Pittsburg bus stop where ICE left her. Coroners say she was a vulnerable adult with severe medical issues and deemed the death a homicide. What would you say to his family right now if they wanted answers about ICE's lack of training in dealing with vulnerable adults? 
 
 ### Gestapo
 
