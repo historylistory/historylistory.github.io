@@ -25,6 +25,9 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) Top 100 oil and gas companies made bank in the first few weeks of iran war, do you think maybe the war is lucrative for the richest of the rich? ExxonMobile is now part of the DOJ and Chevron is taking over venezuelan oil... 
 
+### Food Insecurity
+
+(QUESTION IN PROGRESS, NOT READY) Now that Trump has ordered the USDA to stop tracking food insecurity, what is the Trump administration's new plan to track that, and what are the newest stats on food insecurity now that lifelines like SNAP, energy assistance, or social security disability have been dismantled? 
 
 
 

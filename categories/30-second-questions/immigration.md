@@ -26,7 +26,7 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) If Trump is worried about drugs on the border or crime, why did he pardon Honduras president narco trafficker, or that guy who founded Silk Road... or re-release repeat offenders from J6 including those guilty of violent crimes like murder plots and child sexual assault...Why is it ok to give pardons to those people, but assume hostile intent for anyone else based on so-called "reasonable suspicion"? 
 
-### Blame
+### Villainizing
 
 (QUESTION IN PROGRESS, NOT READY) JD vance said immigrants are to blame for cost of living, but even after ICE pushed out so many so far, the crisis is worse. If you could sum it up into a ration between immigrants and American corporations monopolizing, fixing prices, price couging, and pushing thier bottom lines, who do you think would be more likely to blame for cost of living...
 

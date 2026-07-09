@@ -16,7 +16,7 @@ Questions will be added over time, with the goal of including reliable sources a
 
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
-### Soulless
+### Gaza
 
 (QUESTION IN PROGRESS, NOT READY) Israel’s finance minister called Gaza a “real-estate bonanza”, said the “demolition phase” was complete, and that a business plan was on Trump’s desk what do you think about this statement from the finance minister, and the fact that trump posted ai generated video of gaza as a waterfront resort with gift shops lined with little gold trump statues? 
 

@@ -25,7 +25,6 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 (QUESTION IN PROGRESS, NOT READY) whitehouse ballroom from private donors...
 
 
-
 ### Unconventional
 
 (QUESTION IN PROGRESS, NOT READY) You say trump is unconventional and laugh at that but what if a democratic president acted like this. MAGA might snicker and giggle like schoolgirls about his quips and antics, but it's shameful and embarassing, the entire world is watching. His antics are pointedly racist, or derrogatory, or divisve, or even incite violence and bad choices. He is not a leader, he is an excaped mental patient. ---- insert a question here 
