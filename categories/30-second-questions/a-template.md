@@ -8,17 +8,17 @@ permalink: /categories/30-second-questions/a-template/
 
 ### Notice to Reader
 
-This section is new as of July 8, 2026.
+New as of July 8, 2026
 
-This will be a collection of sample questions to aks at your next TOWN HALL, designed to help those who aren't sure exactly WHAT to say or HOW to say it, or how to keep it under 30 seconds. 
+This section is a growing collection of sample questions for your next Town Hall, designed to help you ask clear, effective questions in 30 seconds or less—even if you're not sure what to say or how to say it.
 
-It's a huge endeavour, but I will be working on it as soon as I can. 
+Questions will be added over time, with the goal of including reliable sources and dates whenever possible. As this project grows, existing questions may be updated or expanded.
 
-Ideally the questions will be robust and include sources and dates, but the questions are being added little at a time so they might change or develop as I progress. 
+Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
-If you have any questions you want added, feel free to [email me/](https://historylistory.com/contact/)
+### TITLE
 
-I don't often check my email, and I am not full-time dedicated to this file, so it may take a bit to respond. I will do my best. 
+(QUESTION IN PROGRESS, NOT READY) QUESTION
 
 
 
