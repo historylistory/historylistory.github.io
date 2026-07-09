@@ -523,7 +523,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after Trump fired her in 2025. She was the lead prosecutor in the Epstein Case and secured a conviction against Gislaine Maxwell.
 
-2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
+2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 
@@ -544,8 +544,6 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-05-07 A federal judge unsealed an alleged Epstein suicide note.
 
 2026-05-07 Israel continued to kill Palestinians, block aid, and prevent reconstruction. Meanwhile, Gaza faced more health crises of sewage contamination, using trash to cook, no water or shelter, and rat infestation.
-
-2026-05-12 The Pentagon renamed Operation Epic Fury as Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
 
 2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 

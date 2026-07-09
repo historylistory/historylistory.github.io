@@ -148,7 +148,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 ### 2025 November
 
-2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
+2025-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 
 [https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
 

@@ -332,7 +332,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 
-2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful protest at the Cannon House Office Building in Washington D.C. The protest was organized by About Face and against the war in Iran.
+2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful anti-war protest at the Cannon House Office Building in Washington D.C. organized by About Face . 
 
 2026-04-23 A Paramount-Warner Brothers Discovery merger for $111B was approved.
 

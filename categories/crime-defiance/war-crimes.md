@@ -340,7 +340,7 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 ### 2026 May
 
 
-2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
+2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -351,6 +351,12 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+
+[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
+
+[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
+
+[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
 2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 

@@ -146,7 +146,17 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 ### 2026 May
 
-2026-05-12 The Pentagon renamed Operation Epic Fury as Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
+2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
+
+[https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
+
+[https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015](https://www.nbcnews.com/politics/trump-administration/live-blog/iran-war-60-day-authorization-threshold-trump-hegseth-congress-rcna343015)
+
+[https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/](https://www.forbes.com/sites/saradorn/2026/05/01/trump-tells-congress-iran-war-is-terminated-arguing-he-doesnt-need-approval-to-continue/)
+
+[https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
+
+[https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
 
 [https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
 

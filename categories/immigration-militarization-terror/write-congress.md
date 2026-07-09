@@ -614,7 +614,7 @@ protocol.
 
 2026-04-21 The U.N. Permanent Forum presented a topic on the AI boom driving extraction and scraping of indigenous medicinal knowledge, traditional stories and genetic data, and massive data centers threatening tribal lands and water resources. The Trump administration allegedly tried to deny visas for indigenous people to attend the forum.
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from.
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
 
 2026-04-21 As of April, the death count of people in ICE custody for the first 4 months of 2026 reached at least 17.
 

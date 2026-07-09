@@ -318,7 +318,7 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 
 [https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)
 
-2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful protest at the Cannon House Office Building in Washington D.C. The protest was organized by About Face and against the war in Iran.
+2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful anti-war protest at the Cannon House Office Building in Washington D.C. organized by About Face . 
 
 [https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war](https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war)
 

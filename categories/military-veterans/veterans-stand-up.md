@@ -22,7 +22,7 @@ permalink: /categories/military-veterans/veterans-stand-up/
 
 ### 2025 November
 
-2026-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
+2025-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 
 [https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/](https://thehill.com/homenews/senate/5628706-sen-mark-kelly-threats-increase/)
 
@@ -92,7 +92,7 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 ### 2026 April
 
-2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful protest at the Cannon House Office Building in Washington D.C. The protest was organized by About Face and against the war in Iran.
+2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful anti-war protest at the Cannon House Office Building in Washington D.C. organized by About Face . 
 
 [https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war](https://www.democracynow.org/2026/4/21/headlines/military_veterans_and_family_members_arrested_in_capitol_hill_protest_against_iran_war)
 

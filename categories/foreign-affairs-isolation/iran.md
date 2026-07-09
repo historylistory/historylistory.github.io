@@ -1603,7 +1603,7 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 ### 2026 May
 
 
-2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
+2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -1614,6 +1614,12 @@ PAY WALL [https://www.bbc.com/news/articles/c4gxgv8j7zlo](https://www.bbc.com/ne
 [https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+
+[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
+
+[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
+
+[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
 2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
 
@@ -1674,15 +1680,6 @@ PROJECT FREEDOM [https://www.cnbc.com/2026/05/03/trump-iran-strait-of-hormuz-tra
 [https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison](https://www.pbs.org/newshour/world/iranian-nobel-peace-prize-laureate-narges-mohammadi-hospitalized-after-health-crisis-in-prison)
 
 [https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters](https://www.france24.com/en/middle-east/20260505-iran-nobel-winner-mohammadi-between-life-and-death-after-hospitalisation-say-supporters)
-
-
-2026-05-12 The Pentagon renamed Operation Epic Fury as Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
-
-[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
-
-[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
-
-[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
 2026-05-07 Gas prices rose more than 50% under Trump. 
 

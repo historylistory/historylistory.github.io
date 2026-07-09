@@ -247,7 +247,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
-2026-04-28 Senator Merkley pressed DOE Linda McMahon on why she gutted the TRIO program designed to encourage professional nursing careers. McMahon claimed that somehow removing nursing jobs from a professional category would make tuition more affordable. So now students who can’t get a sufficient federal loan on a low interest rate will have to seek out a privatized loan company with higher interest rates. Remember: The DOE declassified nursing careers as “professional” in November.
+2026-04-28 After the DOE declassified nursing careers as “professional”, Senator Merkley pressed Linda McMahon on why she gutted TRIO, a program designed to encourage nursing careers. McMahon said declassifying nursing jobs would make tuition more affordable. What really has happened is students who can’t get a sufficient federal loan with low interest now will have to seek out a privatized loan with higher interest rates. 
 
 2026-04-28 Trump fired all 22 members of the National Science Board.
 

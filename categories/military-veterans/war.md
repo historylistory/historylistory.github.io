@@ -300,7 +300,7 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 [https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
 
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans who helped US forces during the U.S. invasion of Afghanistan to the Democratic Republic of Congo or other countries they are not from. 
+2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
 
@@ -330,7 +330,7 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 ### 2026 May
 
 
-2026-05-01 On the 60th day of the Iran conflict, Trump falsely claimed that he did not need congressional authorization under the War Powers Act to continue military operations. The administration would later change the name of the Operation to circumvent this rule. 
+2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 [https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094](https://www.nbcnews.com/politics/white-house/trump-congressional-authorization-iran-military-operation-war-powers-rcna343094)
 
@@ -341,6 +341,12 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 [https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated](https://www.pbs.org/newshour/politics/trump-says-deadline-for-congress-to-approve-iran-war-doesnt-apply-claiming-hostilities-have-terminated)
 
 [https://www.instagram.com/reels/DXzkCYERom0/](https://www.instagram.com/reels/DXzkCYERom0/)
+
+[https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html](https://nymag.com/intelligencer/article/trumps-project-freedom-has-become-project-confusion.html)
+
+[https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html](https://www.independent.co.uk/news/world/middle-east/donald-trump-us-epic-fury-project-freedom-hormuz-b2971279.html)
+
+[https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/](https://thehill.com/newsletters/defense-national-security/5865009-rubio-says-operation-epic-fury-is-over/)
 
 2026-05-15 Senator Kirsten Gillibrand questioned US Central Command head Admiral Brad Cooper during a hearing for the Senate Arms Committee about why the US had bombed 22 schools and hospitals in Iran. Cooper denied any such bombings except indicating an investigation on the first school bombing when a US Tomahawk missile struck an all-girls school on day 1 of the war. 
 
