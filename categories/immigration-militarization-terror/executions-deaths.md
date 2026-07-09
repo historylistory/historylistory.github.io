@@ -247,6 +247,15 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026](https://www.democracynow.org/2026/6/29/headlines/mexican_immigrant_dies_at_for_profit_ice_jail_in_texas_the_20th_such_death_in_2026)
 
+2026-06-24 ICE detained 85-year-old Adrian Andreas Florian and kept him for 10 months. Florian had no criminal history, but he did suffer from dementia. He died at Valley Baptist Medical Center, counting as the 21st death in ICE custody in 2026. 
+
+[https://www.ice.gov/news/releases/alien-ice-custody-passes-away-texas-after-long-term-hospitalization](https://www.ice.gov/news/releases/alien-ice-custody-passes-away-texas-after-long-term-hospitalization)
+
+[https://www.democracynow.org/2026/7/8/headlines/85_year_old_german_national_becomes_21st_to_die_in_ice_custody_this_year](https://www.democracynow.org/2026/7/8/headlines/85_year_old_german_national_becomes_21st_to_die_in_ice_custody_this_year)
+
+[https://www.americansagainstice.org/p/ice-held-an-85-year-old-man-until](https://www.americansagainstice.org/p/ice-held-an-85-year-old-man-until)
+
+
 2026-06-26 The UN called for prompt and independent investigations into ICE detention centers due to skyrocketing deaths. 
 
 [https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law](https://www.theguardian.com/us-news/2026/jun/26/un-deaths-immigration-custody-human-rights-law)

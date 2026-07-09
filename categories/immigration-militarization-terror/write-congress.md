@@ -695,6 +695,8 @@ Next
 
 2026-06-19 Sixty-three-year-old Felix Alcordo Rodriguez died in ICE custody at a Laredo Texas detention center operated by the for-profit company CoreCivic.
 
+2026-06-24 ICE detained 85-year-old Adrian Andreas Florian and kept him for 10 months. Florian had no criminal history, but he did suffer from dementia. He died at Valley Baptist Medical Center, counting as the 21st death in ICE custody in 2026. 
+
 2026-06-25 During a Faith & Freedom conference Congressman Tom Ember said Somali immigrants who fail to assimilate into American culture should “go the hell back to where they came from”.
 
 2026-06-25 The Daily Wire released an Islamophobic movie “Infidels”. 

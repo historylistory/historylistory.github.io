@@ -69,6 +69,11 @@ permalink: /categories/foreign-affairs-isolation/nato/
 
 ### 2026 April
 
+2026-04-08 The Trump administration considered administering punishment to NATO for not supporting the war in Iran. 
+
+[https://www.wsj.com/world/europe/trump-weighs-punishing-certain-nato-countries-over-lack-of-iran-war-support-a2361995](https://www.wsj.com/world/europe/trump-weighs-punishing-certain-nato-countries-over-lack-of-iran-war-support-a2361995)
+
+
 2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
 
 [https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1](https://www.youtube.com/watch?v=taNi3btpaLs&list=WL&index=1)
@@ -121,3 +126,9 @@ PAY WALL [https://www.bbc.com/news/articles/cz78x703lrvo](https://www.bbc.com/ne
 [https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079](https://www.newsweek.com/video-of-awkward-silence-during-trump-artemis-2-calls-goes-viral-11791079)
 
 SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened](https://www.space.com/space-exploration/artemis/trump-invited-the-artemis-2-moon-astronauts-to-the-oval-office-heres-what-happened)
+
+### 2026 June
+
+2026-06-25 Trump aired grievances over NATO not supporting the war in Iran. 
+
+[https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support](https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support)

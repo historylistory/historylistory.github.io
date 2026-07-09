@@ -281,3 +281,4 @@ The following examples highlight these concerns, while some are included for his
 
 2026-07-05 A super typhoon in Guam hit 180mph winds. 
 
+2026-07-05 Fires ravaged Portugal, Spain, Greece and the Balkans. 

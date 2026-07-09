@@ -227,3 +227,10 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.npr.org/2026/07/05/g-s1-132052/guam-pacific-islands-brace-super-typhoon-bavi](https://www.npr.org/2026/07/05/g-s1-132052/guam-pacific-islands-brace-super-typhoon-bavi)
 
+2026-07-05 Fires ravaged Portugal, Spain, Greece and the Balkans. 
+
+[https://www.dw.com/en/wildfires-rage-in-portugal-greece-france-and-spain/a-77839526](https://www.dw.com/en/wildfires-rage-in-portugal-greece-france-and-spain/a-77839526)
+
+[https://www.nbcnews.com/world/europe/wildfires-rage-portugal-greece-spain-greek-authorities-warn-toxic-smok-rcna353030](https://www.nbcnews.com/world/europe/wildfires-rage-portugal-greece-spain-greek-authorities-warn-toxic-smok-rcna353030)
+
+[https://www.cbc.ca/news/world/hundreds-firefighters-wildfires-in-portugal-and-greece-9.7259083](https://www.cbc.ca/news/world/hundreds-firefighters-wildfires-in-portugal-and-greece-9.7259083)

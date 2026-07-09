@@ -332,3 +332,10 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
 
+2026-07-06 Netanyahu warned Trump not to sell weapons to Turkey.
+
+[https://www.axios.com/2026/07/06/trump-nato-netanyahu-erdogan-israel](https://www.axios.com/2026/07/06/trump-nato-netanyahu-erdogan-israel)
+
+[https://www.cnn.com/2026/07/07/politics/video/22785186-netanyahu-trump-erdogan-digvid](https://www.cnn.com/2026/07/07/politics/video/22785186-netanyahu-trump-erdogan-digvid)
+
+[https://www.aljazeera.com/news/2026/7/6/netanyahu-says-his-ties-with-trump-are-fine-takes-aim-at-turkiye](https://www.aljazeera.com/news/2026/7/6/netanyahu-says-his-ties-with-trump-are-fine-takes-aim-at-turkiye)
