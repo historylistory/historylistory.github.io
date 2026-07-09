@@ -6,6 +6,7 @@ subcategory_slug: read-me
 permalink: /categories/30-second-questions/read-me/
 ---
 
+### Click Here
 
 This section is new as of July 8, 2026.
 
