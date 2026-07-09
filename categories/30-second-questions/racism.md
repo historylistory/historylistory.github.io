@@ -20,8 +20,6 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) QUESTION
 
-Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
-
 
 ### White Nationalists
 
