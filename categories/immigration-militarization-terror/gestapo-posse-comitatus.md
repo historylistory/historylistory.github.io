@@ -238,13 +238,14 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/](https://www.cbsnews.com/news/charlotte-new-orleans-border-patrol-immigration-trump/)
 
-{% include youtubePlayer.html id="my2T8H20N-I" %}
-
 [https://www.wwltv.com/article/news/politics/immigration-news/immigration-enforcement/new-orleans-immigrant-community-braces-for-operation-swamp-sweep/289-23c4be83-eb8d-4b05-a3cc-beed5db5aaaf](https://www.wwltv.com/article/news/politics/immigration-news/immigration-enforcement/new-orleans-immigrant-community-braces-for-operation-swamp-sweep/289-23c4be83-eb8d-4b05-a3cc-beed5db5aaaf)
 
 [https://lailluminator.com/2025/12/03/immigration-new-orleans/](https://lailluminator.com/2025/12/03/immigration-new-orleans/)
 
 [https://www.dhs.gov/news/2025/12/03/dhs-launches-operation-catahoula-crunch-new-orleans-targeting-criminal-illegal](https://www.dhs.gov/news/2025/12/03/dhs-launches-operation-catahoula-crunch-new-orleans-targeting-criminal-illegal)
+
+{% include youtubePlayer.html id="my2T8H20N-I" %}
+
 
 2025-11-14 Local departments in Charlotte, North Carolina said they were not made aware that ICE would be arriving in their hometown. 
 
