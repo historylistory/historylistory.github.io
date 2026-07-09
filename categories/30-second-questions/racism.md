@@ -16,6 +16,7 @@ Questions will be added over time, with the goal of including reliable sources a
 
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
+
 ### White Victimhood
 
 (QUESTION IN PROGRESS, NOT READY) QUESTION
@@ -27,4 +28,8 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) There is a pattern of trump defending white nationalists. He called unite the right very fine people, pardoned several oath keepers and proud boys, dined with nick fuentes, 
 
+(QUESTION IN PROGRESS, NOT READY) Back in 2016 David Duke and KKK members expressed their support for trump. Later in 2017 one of the white supremacists drove their bvehicle into a counter protestor in Charloteville duringa  Unite the Right rally. The protestor died. three days later trump called the Unite the Right activists "very fine people" and David Duke submitted a social media post thanking Trump for his kind words. What do you think this sort of reaction to what happened in charloteville conveys about the person leading our country right now? 
 
+### Eugenics
+
+(QUESTION IN PROGRESS, NOT READY) From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”. Do you think there is an underlying motivation to promote eugenics in this country right now? 

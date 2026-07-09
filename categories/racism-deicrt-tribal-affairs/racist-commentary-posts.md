@@ -74,7 +74,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2018
 
-2018-01-11 Trump denounced countries like Haiti, El Salvador, and certain African nations as “shithole” countries during a meeting and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting. 
+2018-01-11 Trump called Haiti, El Salvador, and certain African nations “shithole” countries and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting.
 
 [https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946](https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946)
 
@@ -108,9 +108,9 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2020
 
-2020-01-01 The book “Hatemonger” by Jean Guerrero interviewed Stephen Miller’s childhood friends, family members, classmates and teachers. They all shared their insight about his racism, hatred, and several accounts of him bullying Hispanic students. The book outlined an ominous statement he made, “**It doesn’t matter what the truth is, but how it makes people feel**”.
+2020-01-01 In the book “Hatemonger” by Jean Guerrero interviewees accounted Stephen Miller bullying Hispanic students, and saying, “it doesn’t matter what the truth is, but how it makes people feel”. 
 
-2020-01-17 Marjorie Taylor Greene went on a racist rant about Muslims and Blacks in a video.
+2020-01-17 Politico released hours of Facebook videos in which Marjorie Taylor Greene publicly ranted about Muslims, Black people, George Soros, Jews, and other stuff.
 
 [https://www.politico.com/news/2020/06/17/house-republicans-condemn-gop-candidate-racist-videos-325579](https://www.politico.com/news/2020/06/17/house-republicans-condemn-gop-candidate-racist-videos-325579)
 

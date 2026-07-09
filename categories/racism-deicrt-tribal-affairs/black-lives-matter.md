@@ -32,7 +32,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 [https://www.npr.org/2022/02/03/1077574977/jason-van-dyke-chicago-police-released-laquan-mcdonald](https://www.npr.org/2022/02/03/1077574977/jason-van-dyke-chicago-police-released-laquan-mcdonald)
 
 
-2019-05-10 Ronald Hardin Greene was arrested by Louisiana State Police, repeatedly beaten, shackled, and tazed and refused aid. He died before reaching the hospital.
+2019-05-10 Ronald Hardin Greene was arrested by Louisiana State Police, repeatedly beaten, shackled, tazed, and denied medical care. He died before reaching the hospital.
 
 [https://en.wikipedia.org/wiki/Killing_of_Ronald_Greene](https://en.wikipedia.org/wiki/Killing_of_Ronald_Greene)
 
@@ -41,7 +41,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 
 
-2020-02-23 Three white men chased down and killed 25-year-old Ahmaud Arbery who was jogging.
+2020-02-23 Three white men chased down and killed 25-year-old Ahmaud Arbery while he was out jogging.
 
 [https://www.acluga.org/timeline-events-wrongful-killing-mr-ahmaud-arbery/](https://www.acluga.org/timeline-events-wrongful-killing-mr-ahmaud-arbery/)
 

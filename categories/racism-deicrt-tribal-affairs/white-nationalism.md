@@ -34,7 +34,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.abc.net.au/news/2018-10-30/pittsburgh-massacre-whats-behind-us-alt-right-platform-gab/10444202](https://www.abc.net.au/news/2018-10-30/pittsburgh-massacre-whats-behind-us-alt-right-platform-gab/10444202)
 
-2017-08-11 The Unite the Right rally took place in Charlottesville. A white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer. 
+2017-08-11 During a Unite the Right rally in Charlottesville a white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer.
 
 [https://www.npr.org/2022/08/12/1116942725/the-charlottesville-rally-5-years-later-its-what-youre-still-trying-to-forget#:~:text=On%20the%20night%20of%20Aug,to%20take%20our%20country%20back.%22](https://www.npr.org/2022/08/12/1116942725/the-charlottesville-rally-5-years-later-its-what-youre-still-trying-to-forget)
 

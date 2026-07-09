@@ -63,7 +63,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2018-01-01 Trump instituted a multitude of bans, including for asylum, transit, safe third-country arrangements, and return to Mexico - blocking all migrants from US protection.
 
-2018-01-11 Trump denounced countries like Haiti, El Salvador, and certain African nations as “shithole” countries during a meeting and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting. 
+2018-01-11 Trump called Haiti, El Salvador, and certain African nations “shithole” countries and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting.
 
 2018-01-25 Texas smugglers reviewed Trump’s wall project and claimed it wouldn’t stop immigration or drug trafficking. 
 

@@ -33,7 +33,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 ### 2019
 
-2019-06-17 Courts ruled that federal courts couldn’t stop states from drawling lines on a partisan basis (see Rucho v. Common Cause). 
+2019-06-17 SCOTUS ruled that federal courts couldn’t stop states from drawing lines on a partisan basis and had no authority to resolve partisan gerrymandering claims (see Rucho v. Common Cause).
 
 [https://www.supremecourt.gov/opinions/18pdf/18-422_9ol1.pdf](https://www.supremecourt.gov/opinions/18pdf/18-422_9ol1.pdf)
 

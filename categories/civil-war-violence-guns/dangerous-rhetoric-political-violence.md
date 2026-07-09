@@ -44,7 +44,7 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 [https://intelligence.house.gov/uploadedfiles/majority_report_of_baseball_shooting.pdf](https://intelligence.house.gov/uploadedfiles/majority_report_of_baseball_shooting.pdf)
 
-2017-08-11 The Unite the Right rally took place in Charlottesville. A white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer. 
+2017-08-11 During a Unite the Right rally in Charlottesville a white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer.
 
 [https://en.wikipedia.org/wiki/Charlottesville_car_attack](https://en.wikipedia.org/wiki/Charlottesville_car_attack)
 

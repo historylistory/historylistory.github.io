@@ -51,7 +51,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2017-06-14 A gunman opened fire at a congressional baseball practice in Virginia, targeting Republican lawmakers. 
 
-2017-08-11 The Unite the Right rally took place in Charlottesville. A white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer. 
+2017-08-11 During a Unite the Right rally in Charlottesville a white supremacist drove into counterprotesters, killing 32-year-old Heather Heyer.
 
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 

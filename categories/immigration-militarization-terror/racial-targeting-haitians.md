@@ -8,7 +8,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 ### 2018
 
-2018-01-11 Trump denounced countries like Haiti, El Salvador, and certain African nations as “shithole” countries during a meeting and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting. 
+2018-01-11 Trump called Haiti, El Salvador, and certain African nations “shithole” countries and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting.
 
 [https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946](https://www.nbcnews.com/politics/white-house/trump-referred-haiti-african-countries-shithole-nations-n836946)
 
