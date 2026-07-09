@@ -44,4 +44,6 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) Bongino was caught cosplaying in a Nazi overcoat, DHS destroy the flood meme, reasonable suspicion seems to mean anyone with an accent or dark skin, immigration going door to door asking people to rat out neighbors, and DHS campaigning to Proud boys and oath keepers with itchy trigger fingers, we've had several publicly executed victims over this, and peole are being rounded up into camps and disappearing without a trace and their family can't find them. What part about this doesn't scream gestapo to you? 
 
+### Excessive Force
 
+(QUESTION IN PROGRESS, NOT READY) ICE opened fire on Marimar Martinez, shouting “do something bitch” and texting “I fired 5 rounds and she had 7 holes”. chicago apartment raid. pointing guns at drivers. give multiple examples. Why do you think we supposed to feel safe with ICE? You do realize you're the bad guy, right? 

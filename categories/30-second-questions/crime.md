@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Civil
+title: Crime
 category_slug: 30-second-questions
-subcategory_slug: civil
-permalink: /categories/30-second-questions/civil/
+subcategory_slug: crime
+permalink: /categories/30-second-questions/crime/
 ---
 
 ### Notice to Reader
@@ -16,12 +16,12 @@ Questions will be added over time, with the goal of including reliable sources a
 
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
-### Divisive
+Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
 
-(QUESTION IN PROGRESS, NOT READY) Trump has said many derogatory things about opponents. Language like libtard. TDS. 
 
-(QUESTION IN PROGRESS, NOT READY) MAGA likes to have their own events so they can be separate from everyone else. Example Freedom 250 versus America 250, TPUSA All American Halftime Show vs. Superbowl....what would you say to the Trump supporters who keep drawing a line between Americans?
+### TITLE
 
+(QUESTION IN PROGRESS, NOT READY) White Afrikaners invited by Trump went back to South Africa, saying, “American citizens are being shot and killed. I don’t want to live in a place like this”. That is under the trump administration....
 
 
 

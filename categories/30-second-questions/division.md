@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: A TEMPLATE
+title: Division
 category_slug: 30-second-questions
-subcategory_slug: a-template
-permalink: /categories/30-second-questions/a-template/
+subcategory_slug: division
+permalink: /categories/30-second-questions/division/
 ---
 
 ### Notice to Reader
@@ -16,14 +16,13 @@ Questions will be added over time, with the goal of including reliable sources a
 
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
-Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
+### Divisive
+
+(QUESTION IN PROGRESS, NOT READY) Trump has said many derogatory things about opponents. Language like libtard. TDS. 
+
+(QUESTION IN PROGRESS, NOT READY) MAGA likes to have their own events so they can be separate from everyone else. Example Freedom 250 versus America 250, TPUSA All American Halftime Show vs. Superbowl....what would you say to the Trump supporters who keep drawing a line between Americans?
 
 
-### TITLE
-
-(QUESTION IN PROGRESS, NOT READY) QUESTION
-
-Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
 
 
 
