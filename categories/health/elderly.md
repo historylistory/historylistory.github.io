@@ -72,3 +72,13 @@ permalink: /categories/health/elderly/
 [https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48](https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48)
 
 [https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/](https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/)
+
+### 2026 July
+
+2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
+
+[https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s](https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s)
+
+[https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html](https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html)
+
+[https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)

@@ -23,6 +23,16 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 
 ### 2024
 
+2024-01-10 The top 10% of Americans own 93% of US equities. 
+
+[https://finance.yahoo.com/news/wealthiest-10-americans-own-93-033623827.html](https://finance.yahoo.com/news/wealthiest-10-americans-own-93-033623827.html)
+
+[https://markets.businessinsider.com/news/stocks/stock-market-ownership-wealthiest-americans-one-percent-record-high-economy-2024-1](https://markets.businessinsider.com/news/stocks/stock-market-ownership-wealthiest-americans-one-percent-record-high-economy-2024-1)
+
+[https://www.axios.com/2024/01/10/wealthy-own-record-share-stock-market](https://www.axios.com/2024/01/10/wealthy-own-record-share-stock-market)
+
+[https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/](https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/)
+
 2024-07-10 Vance said during a National Conservatism convention, “Look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 [https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve)

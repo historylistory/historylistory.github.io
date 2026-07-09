@@ -392,3 +392,12 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
 
 [https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)
+
+### 2026 July
+
+2026-07-09 Trump had the Palm Beach Airport renamed the Donald J. Trump International Airport. 
+
+[https://www.youtube.com/watch?v=ASaqsMs8SXo&list=WL&index=2&t=17s](https://www.youtube.com/watch?v=ASaqsMs8SXo&list=WL&index=2&t=17s)
+
+[https://www.jacksonville.com/story/news/trump/2026/07/09/donald-trump-airport-name-change-florida-updates--live/90837522007/](https://www.jacksonville.com/story/news/trump/2026/07/09/donald-trump-airport-name-change-florida-updates--live/90837522007/)
+

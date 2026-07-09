@@ -191,3 +191,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 [https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s](https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s)
 
 [https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1](https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1)
+
+### 2026 July
+
+2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”. 
+
+[https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations](https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations)
+
+[https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853](https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853)
+
+[https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)

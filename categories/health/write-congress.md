@@ -481,3 +481,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
 
 2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
+
+2026-07-08 Due to cost-of-living retirees are returning to the workforce. 

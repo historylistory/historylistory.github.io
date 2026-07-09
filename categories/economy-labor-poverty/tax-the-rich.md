@@ -33,6 +33,19 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 **Offshore Accounts:** Deferral of earnings, bypassing the Foreign Account Tax Compliance Act, transferring patents or trademarks to offshore subsidiaries at low costs then licensing them back to the US parent at a high cost (this generates large tax-deductible expenses), using IRS Form 8832 to make the entity “disappear” for tax purposes. This is legal except if it’s used to hide income (which is tax evasion). 
 
+### 2024 January
+
+2024-01-10 The top 10% of Americans own 93% of US equities. 
+
+[https://finance.yahoo.com/news/wealthiest-10-americans-own-93-033623827.html](https://finance.yahoo.com/news/wealthiest-10-americans-own-93-033623827.html)
+
+[https://markets.businessinsider.com/news/stocks/stock-market-ownership-wealthiest-americans-one-percent-record-high-economy-2024-1](https://markets.businessinsider.com/news/stocks/stock-market-ownership-wealthiest-americans-one-percent-record-high-economy-2024-1)
+
+[https://www.axios.com/2024/01/10/wealthy-own-record-share-stock-market](https://www.axios.com/2024/01/10/wealthy-own-record-share-stock-market)
+
+[https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/](https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/)
+
+
 ### 2026 April
 
 2026-04-13 Texas Democrat Representative James Talarico announced he will introduce a bill to close billionaire loopholes by targeting luxury deductions, restricting offshore accounts, and ending buy-borrow-die practices. 

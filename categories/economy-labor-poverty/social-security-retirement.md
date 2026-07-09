@@ -125,3 +125,11 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 [https://www.foxbusiness.com/politics/trump-looking-very-strongly-australia-style-retirement-system-taking-that-making-sharper](https://www.foxbusiness.com/politics/trump-looking-very-strongly-australia-style-retirement-system-taking-that-making-sharper)
 
 [https://thehill.com/homenews/administration/5955060-trump-australia-retirement-plan/](https://thehill.com/homenews/administration/5955060-trump-australia-retirement-plan/)
+
+2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
+
+[https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s](https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s)
+
+[https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html](https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html)
+
+[https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)

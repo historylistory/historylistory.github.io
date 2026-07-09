@@ -556,3 +556,12 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 [https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html](https://www.aol.com/articles/great-american-state-fair-visitors-050220000.html)
 
+### 2026 July
+
+2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”. 
+
+[https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations](https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations)
+
+[https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853](https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853)
+
+[https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)

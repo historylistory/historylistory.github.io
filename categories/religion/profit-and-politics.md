@@ -340,3 +340,10 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.cnn.com/2026/06/09/business/video/christian-energy-drinks-ldn-digvid-vrtc](https://www.cnn.com/2026/06/09/business/video/christian-energy-drinks-ldn-digvid-vrtc)
 
 
+### 2026 July
+
+2026-07-08 Member of the White House Faith Office Dave Donaldson asserted that taxpayer money is “God’s money”. 
+
+[https://www.youtube.com/watch?v=kyF41zyQWeM&list=WL&index=3](https://www.youtube.com/watch?v=kyF41zyQWeM&list=WL&index=3)
+
+THE WHOLE WEBINAR [https://www.youtube.com/watch?v=pF4zUTsIdyI](https://www.youtube.com/watch?v=pF4zUTsIdyI)

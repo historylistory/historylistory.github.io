@@ -114,6 +114,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2023-11-01 After the Hamas attacks on Israel, lawmakers pushed for a TikTok ban over alleged anti-Israel bias; venture capitalist Jeff Morris described a “TikTok War.”
 
+2024-01-10 The top 10% of Americans own 93% of US equities. 
+
 2024-01-01 Companies filled job sites with “ghost jobs” designed merely to gauge the labor market rather than fill actual positions. As a result, unemployed Americans are forced to spend countless hours applying for jobs that may not even exist.
 
 2024-03-21 The DOJ sued Apple for monopolizing the smartphone market. 
@@ -871,3 +873,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-06 Trump said the administration is developing an Australian-style retirement savings plan. 
 
 2026-07-08 ExxonMobil’s top attorney Robert Levy retired and joined Trump’s newly renamed Energy and Natural Resources Division, previously the Environment and Natural Resources Division. Co-president of Public Citizen’s Robert Weissman wrote, “Big Oil’s capture of the U.S. government is now complete. The Justice Department that should be fighting to protect clean air and water and avert catastrophic climate change will now work on behalf of polluters to advance the poisoning of people and the planet”. 
+
+2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
