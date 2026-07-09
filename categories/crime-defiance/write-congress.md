@@ -35,7 +35,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
 
-1989-01-01 Following a case involving the wrongful conviction of five Black and Latino men, Trump tried to push his agenda to reinstate the death penalty. 
+1989-01-01 Trump pushed for the death penalty of five wrongfully convicted Black and Latino men. The men later sued Trump. 
 
 1996-01-01 Jeffrey Epstein faced sexual assault allegations dating back to 1996. 
 

@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 
 ### 1995
 
-1995-01-01 Peter Thiel (co-founder of Palantir) published a book called "The Myth About Diversity".
+1995-01-01 Peter Thiel published “The Myth About Diversity”.
 
 [https://www.google.com/books/edition/The_Diversity_Myth/sS_dEAAAQBAJ?hl=en&gbpv=1](https://www.google.com/books/edition/The_Diversity_Myth/sS_dEAAAQBAJ?hl=en&gbpv=1)
 

@@ -38,7 +38,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 1982-01-01 Financier of Project 2025 Leonard Leo also helped found the Federalist Society to select and groom law students.  
 
-1989-01-01 Following a case involving the wrongful conviction of five Black and Latino men, Trump tried to push his agenda to reinstate the death penalty. 
+1989-01-01 Trump pushed for the death penalty of five wrongfully convicted Black and Latino men. The men later sued Trump. 
 
 1989-06-12 Megachurch founder and televangelist Jerry Falwell campaigned for a so-called “moral majority”, calling Regan “God’s instrument”, labeling Democrats as radicals, and weaponizing religion for political power. He stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. 
 

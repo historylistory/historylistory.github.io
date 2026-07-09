@@ -18,7 +18,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 1992
 
-1992-08-17 During an interview on Face the Nation, Pat Buchanan was asked about a racist memo against Jewish, Black, and Gay Americans. He replied he wrote “tough” memos and would not “apologize for any of them.
+1992-08-17 During an interview on Face the Nation, Pat Buchanan was asked about a racist memo against Jewish, Black, and Gay Americans. He said he wrote “tough” memos and would not “apologize for any of them.
 
 {% include youtubePlayer.html id="y1rQKnTWEDQ" %}
 

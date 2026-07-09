@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 1989
 
-1989-01-01 Following a case involving the wrongful conviction of five Black and Latino men, Trump tried to push his agenda to reinstate the death penalty. 
+1989-01-01 Trump pushed for the death penalty of five wrongfully convicted Black and Latino men. The men later sued Trump. 
 
 [https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york](https://www.theguardian.com/us-news/2016/feb/17/central-park-five-donald-trump-jogger-rape-case-new-york)
 

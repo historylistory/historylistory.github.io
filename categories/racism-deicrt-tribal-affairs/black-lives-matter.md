@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/black-lives-matter/
 
 ### Victims
 
-1991-03-03 Rodney King. The four officers who beat him to death were acquitted, even though their brutal killing was captured on amateur video by a bystander.
+1991-03-03 Four officers brutally beat Rodney King, but two of the officers were later acquitted despite the incident being captured on video by a bystander. This ignited the L.A. riots.
 
 [https://en.wikipedia.org/wiki/Rodney_King](https://en.wikipedia.org/wiki/Rodney_King)
 
