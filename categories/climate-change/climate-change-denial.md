@@ -60,7 +60,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
-2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
+2025-07-23 Trump forced Muir Woods National Monument to remove displays about Native American history, women, and climate change. 
 
 [https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
 

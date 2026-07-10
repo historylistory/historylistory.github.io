@@ -129,7 +129,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-07-21 A Nebraska attorney publicly opposed wind and solar energy development in Nebraska.
 
-2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
+2025-07-23 Trump forced Muir Woods National Monument to remove displays about Native American history, women, and climate change. 
 
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 

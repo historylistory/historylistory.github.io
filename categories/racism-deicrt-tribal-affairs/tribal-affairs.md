@@ -67,7 +67,7 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 [https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post](https://www.facebook.com/photo.php?fbid=1273507801440992&set=a.349594800498968&type=3&ref=embed_post)
 
-2025-07-23 Trump forced Muir Woods National Monument to remove exhibits discussing redwoods and climate change, Indigenous history, and women’s contributions.
+2025-07-23 Trump forced Muir Woods National Monument to remove displays about Native American history, women, and climate change. 
 
 [https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/](https://www.cbsnews.com/news/signs-of-the-times-removing-stories-of-americas-past-from-our-national-parks/)
 
