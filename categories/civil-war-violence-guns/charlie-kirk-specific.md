@@ -40,6 +40,18 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
 
+2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-we-need-have-nuremberg-style-trial-every-gender-affirming-clinic-doctor](https://www.mediamatters.org/charlie-kirk/charlie-kirk-we-need-have-nuremberg-style-trial-every-gender-affirming-clinic-doctor)
+
+
+2024-09-08 Charlie Kirk answered a question if his ten-year-old daughter were pregnant from a rape if he would force pregnancy, “The answer is yes, the baby would be delivered.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.youtube.com/watch?v=WV29R1M25n8](https://www.youtube.com/watch?v=WV29R1M25n8)
 
 2025-04-30 Charlie Kirk said, “America has freedom of religion, of course, but we should be frank: large dedicated Islamic areas are a threat to America.”
 
@@ -54,6 +66,11 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.mediamatters.org/media/4032192](https://www.mediamatters.org/media/4032192)
 
+2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-tells-taylor-swift-submit-your-husband-and-have-ton-children](https://www.mediamatters.org/charlie-kirk/charlie-kirk-tells-taylor-swift-submit-your-husband-and-have-ton-children)
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
 
 2025-09-08 Charlie Kirk posted, “Islam is the sword the left is using to slit the throat of America.”
 

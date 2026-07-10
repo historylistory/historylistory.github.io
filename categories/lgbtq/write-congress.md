@@ -73,6 +73,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2024-02-29 Missouri passed HB 2885 to classify teachers as sex offenders for supporting social transition or using preferred pronouns.
 
+2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
+
 2024-07-01 According to a BBC investigation, a social media post made false claims that a trade pact between the EU and Nigeria contained a clause forcing Nigeria to legalize same-sex relationships. A 2024 investigation by Deutsche Welle showed that American far-right Christian groups have been influencing and fueling anti-LGBTQ sentiment in Africa, including Nigeria, for decades - pushing homophobic misinformation and lobbying for anti-gay legislation. 
 
 2024-07-15 The Grindr dating app crashed during the Republican National Convention.

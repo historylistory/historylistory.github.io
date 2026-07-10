@@ -95,6 +95,13 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 ### 2024
 
+2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-we-need-have-nuremberg-style-trial-every-gender-affirming-clinic-doctor](https://www.mediamatters.org/charlie-kirk/charlie-kirk-we-need-have-nuremberg-style-trial-every-gender-affirming-clinic-doctor)
+
+
 2024-07-01 According to a BBC investigation, a social media post made false claims that a trade pact between the EU and Nigeria contained a clause forcing Nigeria to legalize same-sex relationships. A 2024 investigation by Deutsche Welle showed that American far-right Christian groups have been influencing and fueling anti-LGBTQ sentiment in Africa, including Nigeria, for decades - pushing homophobic misinformation and lobbying for anti-gay legislation. 
 
 [https://www.dw.com/en/lgbtq-in-africa-how-the-us-far-right-whips-up-homophobia/a-68562333](https://www.dw.com/en/lgbtq-in-africa-how-the-us-far-right-whips-up-homophobia/a-68562333)

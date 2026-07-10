@@ -301,6 +301,13 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2024 September
 
+2024-09-08 Charlie Kirk answered a question if his ten-year-old daughter were pregnant from a rape if he would force pregnancy, “The answer is yes, the baby would be delivered.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.youtube.com/watch?v=WV29R1M25n8](https://www.youtube.com/watch?v=WV29R1M25n8)
+
+
 2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
 [https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865](https://www.msnbc.com/the-reidout/watch/trump-baselessly-claims-debate-with-vp-harris-was-rigged-219169349865)

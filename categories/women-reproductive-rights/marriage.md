@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Divorce
+title: Marriage
 category_slug: women-reproductive-rights
-subcategory_slug: divorce
-permalink: /categories/women-reproductive-rights/divorce/
+subcategory_slug: marriage
+permalink: /categories/women-reproductive-rights/marriage/
 ---
 
 ### 2021
@@ -23,6 +23,15 @@ permalink: /categories/women-reproductive-rights/divorce/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
+
+### 2025 August
+
+2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-tells-taylor-swift-submit-your-husband-and-have-ton-children](https://www.mediamatters.org/charlie-kirk/charlie-kirk-tells-taylor-swift-submit-your-husband-and-have-ton-children)
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
 
 ### 2025 December
 

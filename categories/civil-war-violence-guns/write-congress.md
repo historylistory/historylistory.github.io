@@ -127,6 +127,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 
+2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
+
 2024-07-13 This was the first assassination attempt on Trump in Butler PA. Ryan Routh, the convicted assailant who attempted to assassinate Trump, later attempted to stab himself in the neck after being found guilty September 23, 2025. One of the MAGA followers constructed a statue of Trump out of nails. 
 
 2024-07-15 AR-15s were allowed at the Milwaukee RNC. Water bottles were not.
@@ -138,6 +140,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2024-08-03 Jack Posobiec's book “Unhumans” argued that left-wing movements undermine civilization and promoted themes associated with anti-communist political activism. This person also promoted the Pizzagate. 
 
 2024-08-07 During a Shelby Police Department memorial service JD Vance politicized an officer’s death and blamed Kamala Harris policies for it.
+
+2024-09-08 Charlie Kirk answered a question if his ten-year-old daughter were pregnant from a rape if he would force pregnancy, “The answer is yes, the baby would be delivered.”
 
 2024-10-07 Pro Israel groups including Canary Mission peddled conspiracies on social media that Columbia University student and pro-Palestinian activist Mahmoud Khalil helped plan Hamas attacks. White House press secretary Karoline Leavitt also alleged Khalil distributed fliers with a Hamas logo. On March 8 2025 the Trump administration arrested him and shipped him to Louisiana.
 
@@ -194,6 +198,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2025-08-22 After the killing of Iryna Zarutska, several right-wing commentators used the case to argue for National Guard deployment in Charlotte
 
 2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group.
+
+2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”
 
 2025-08-27 After a Catholic-school shooting in Minneapolis Jen Psaki cited that addressing school shootings required action – not just prayer.  Karoline Leavitt and Fox commentators characterized Psaki's remarks as an attack on prayer\
 
