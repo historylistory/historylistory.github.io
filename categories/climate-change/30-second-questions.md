@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: 30-SECOND QUESTIONS
-category_slug: agriculture
+category_slug: climate-change
 subcategory_slug: 30-second-questions
-permalink: /categories/agriculture/30-second-questions/
+permalink: /categories/climate-change/30-second-questions/
 ---
 
 ### Notice to Reader

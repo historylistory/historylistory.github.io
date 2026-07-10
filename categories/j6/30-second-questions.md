@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: 30-SECOND QUESTIONS
-category_slug: agriculture
+category_slug: j6
 subcategory_slug: 30-second-questions
-permalink: /categories/agriculture/30-second-questions/
+permalink: /categories/j6/30-second-questions/
 ---
 
 ### Notice to Reader
