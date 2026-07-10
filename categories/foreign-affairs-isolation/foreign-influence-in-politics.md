@@ -20,6 +20,10 @@ permalink: /categories/foreign-affairs-isolation/foreign-influence-in-politics/
 
 [https://www.nbcnews.com/politics/national-security/bondi-ends-fbi-effort-combat-foreign-influence-us-politics-rcna191012](https://www.nbcnews.com/politics/national-security/bondi-ends-fbi-effort-combat-foreign-influence-us-politics-rcna191012)
 
+2025-06-11 A Pew Research study found that globally other countries have less confidence in the United States. 
+
+[https://www.pewresearch.org/global/2025/06/11/us-image-declines-in-many-nations-amid-low-confidence-in-trump/](https://www.pewresearch.org/global/2025/06/11/us-image-declines-in-many-nations-amid-low-confidence-in-trump/)
+
 ### 2026 
 
 2026-05-05 Leaked audio recordings revealed that the U.S., Israel and Honduras were all involved in a scheme together to target leftist governments in Latin America. Context, Trump pardoned Juan Orlando Hernandez in December after he was convicted of drug trafficking.

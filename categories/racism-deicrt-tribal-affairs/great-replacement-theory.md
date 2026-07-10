@@ -150,6 +150,10 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 2026-02-12 Trump nominated Jeremy Carl who faces scrutiny for his views on the Great Replacement theory and comments made about Jewish people.
 
+JEREMY CARL GREAT REPLACEMENT TWEET [https://web.archive.org/web/20210918220057/https://twitter.com/jeremycarl4/status/1438943009937240078](https://web.archive.org/web/20210918220057/https://twitter.com/jeremycarl4/status/1438943009937240078)
+
+JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/trump-nominee-jeremy-carl-deletes-racist-posts-liberal-execution](https://newrepublic.com/post/200965/trump-nominee-jeremy-carl-deletes-racist-posts-liberal-execution)
+
 [https://www.theguardian.com/us-news/2026/feb/12/trump-nominee-jeremy-carl-racist-views](https://www.theguardian.com/us-news/2026/feb/12/trump-nominee-jeremy-carl-racist-views)
 
 [https://www.reuters.com/world/us/trump-nomination-senior-diplomatic-post-doubt-over-insensitive-remarks-2026-02-12/](https://www.reuters.com/world/us/trump-nomination-senior-diplomatic-post-doubt-over-insensitive-remarks-2026-02-12/)
