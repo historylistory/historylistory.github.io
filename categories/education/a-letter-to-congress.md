@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: education
-subcategory_slug: write-congress
-permalink: /categories/education/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/education/a-letter-to-congress/
 ---
 ### IF THIS TOPIC MATTERS TO YOU
 

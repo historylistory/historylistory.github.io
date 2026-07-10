@@ -1,10 +1,11 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
-category_slug: voting-census
-subcategory_slug: write-congress
-permalink: /categories/voting-census/write-congress/
+title: A LETTER TO CONGRESS
+category_slug: transportation
+subcategory_slug: a-letter-to-congress
+permalink: /categories/transportation/a-letter-to-congress/
 ---
+
 
 ### IF THIS TOPIC MATTERS TO YOU
 

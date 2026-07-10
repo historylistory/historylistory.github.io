@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: children
-subcategory_slug: write-congress
-permalink: /categories/children/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/children/a-letter-to-congress/
 ---
 
 

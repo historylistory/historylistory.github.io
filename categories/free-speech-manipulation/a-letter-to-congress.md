@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: free-speech-manipulation
-subcategory_slug: write-congress
-permalink: /categories/free-speech-manipulation/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/free-speech-manipulation/a-letter-to-congress/
 ---
 
 

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: racism-deicrt-tribal-affairs
-subcategory_slug: write-congress
-permalink: /categories/racism-deicrt-tribal-affairs/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/racism-deicrt-tribal-affairs/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

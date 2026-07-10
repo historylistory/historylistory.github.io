@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: economy-labor-poverty
-subcategory_slug: write-congress
-permalink: /categories/economy-labor-poverty/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/economy-labor-poverty/a-letter-to-congress/
 ---
 ### IF THIS TOPIC MATTERS TO YOU
 

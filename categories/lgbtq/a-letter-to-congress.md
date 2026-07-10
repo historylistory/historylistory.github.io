@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: lgbtq
-subcategory_slug: write-congress
-permalink: /categories/lgbtq/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/lgbtq/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

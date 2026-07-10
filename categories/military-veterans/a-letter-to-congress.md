@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: military-veterans
-subcategory_slug: write-congress
-permalink: /categories/military-veterans/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/military-veterans/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

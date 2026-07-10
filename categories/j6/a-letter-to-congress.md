@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: j6
-subcategory_slug: write-congress
-permalink: /categories/j6/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/j6/a-letter-to-congress/
 ---
 ### IF THIS TOPIC MATTERS TO YOU
 

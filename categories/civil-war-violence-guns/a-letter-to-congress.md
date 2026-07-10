@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: civil-war-violence-guns
-subcategory_slug: write-congress
-permalink: /categories/civil-war-violence-guns/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/civil-war-violence-guns/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: immigration-militarization-terror
-subcategory_slug: write-congress
-permalink: /categories/immigration-militarization-terror/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/immigration-militarization-terror/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

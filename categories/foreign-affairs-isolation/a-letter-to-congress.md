@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
-category_slug: religion
-subcategory_slug: write-congress
-permalink: /categories/religion/write-congress/
+title: A LETTER TO CONGRESS
+category_slug: foreign-affairs-isolation
+subcategory_slug: a-letter-to-congress
+permalink: /categories/foreign-affairs-isolation/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

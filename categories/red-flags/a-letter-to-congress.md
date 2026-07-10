@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: red-flags
-subcategory_slug: write-congress
-permalink: /categories/red-flags/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/red-flags/a-letter-to-congress/
 ---
 
 

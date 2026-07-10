@@ -1,11 +1,10 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
-category_slug: transportation
-subcategory_slug: write-congress
-permalink: /categories/transportation/write-congress/
+title: A LETTER TO CONGRESS
+category_slug: women-reproductive-rights
+subcategory_slug: a-letter-to-congress
+permalink: /categories/women-reproductive-rights/a-letter-to-congress/
 ---
-
 
 ### IF THIS TOPIC MATTERS TO YOU
 
@@ -23,3 +22,4 @@ pending text
 ### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
 pending text
+

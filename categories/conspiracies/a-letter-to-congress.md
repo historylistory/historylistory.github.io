@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: conspiracies
-subcategory_slug: write-congress
-permalink: /categories/conspiracies/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/conspiracies/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

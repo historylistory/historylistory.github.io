@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: behavioral-issues
-subcategory_slug: write-congress
-permalink: /categories/behavioral-issues/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/behavioral-issues/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

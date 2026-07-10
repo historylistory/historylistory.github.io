@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
-category_slug: foreign-affairs-isolation
-subcategory_slug: write-congress
-permalink: /categories/foreign-affairs-isolation/write-congress/
+title: A LETTER TO CONGRESS
+category_slug: voting-census
+subcategory_slug: a-letter-to-congress
+permalink: /categories/voting-census/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

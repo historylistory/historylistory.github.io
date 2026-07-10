@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: health
-subcategory_slug: write-congress
-permalink: /categories/health/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/health/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU

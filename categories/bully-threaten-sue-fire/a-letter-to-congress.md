@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: bully-threaten-sue-fire
-subcategory_slug: write-congress
-permalink: /categories/bully-threaten-sue-fire/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/bully-threaten-sue-fire/a-letter-to-congress/
 ---
 
 

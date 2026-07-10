@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: greed-corruption
-subcategory_slug: write-congress
-permalink: /categories/greed-corruption/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/greed-corruption/a-letter-to-congress/
 ---
 
 

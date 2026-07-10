@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: WRITE CONGRESS
+title: A LETTER TO CONGRESS
 category_slug: crime-defiance
-subcategory_slug: write-congress
-permalink: /categories/crime-defiance/write-congress/
+subcategory_slug: a-letter-to-congress
+permalink: /categories/crime-defiance/a-letter-to-congress/
 ---
 
 ### IF THIS TOPIC MATTERS TO YOU
