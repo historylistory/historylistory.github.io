@@ -7,7 +7,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/worldwide/
 ---
 ### 2024
 
-2024-03-01 Reform UK councillor Glen Gibbins posted, “Carnt believe amount of Nigerians in town…should melt them all down and fill in the pot holes!!!”. He was suspended, then won a key seat in Parliament in 2026. He also wrote in other posts (according to articles), “…an army of Muslims who will in time turn on us…” and, “OUR TOLERANCE IS The MUSLIMS GREATEST WEAPON”. 
+2024-03-01 Reform UK councilor Glen Gibbins posted, “Carnt believe amount of Nigerians in town…should melt them all down and fill in the pot holes!!!”. He was suspended, then won a key seat in Parliament in 2026. He also allegedly wrote, “…an army of Muslims who will in time turn on us…” and, “OUR TOLERANCE IS The MUSLIMS GREATEST WEAPON”.
 
 [https://www.bbc.com/news/articles/ckgp420e5z0o](https://www.bbc.com/news/articles/ckgp420e5z0o)
 

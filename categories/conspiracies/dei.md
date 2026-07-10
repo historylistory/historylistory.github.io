@@ -18,7 +18,7 @@ permalink: /categories/conspiracies/dei/
 
 [https://www.axios.com/2024/03/26/francis-scott-key-bridge-collapse-reasons-conspiracy](https://www.axios.com/2024/03/26/francis-scott-key-bridge-collapse-reasons-conspiracy)
 
-2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and shared a post targeting Karenthia A. Barber. He posted, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. He also reposted a dossier of Karenthia A. Barber from the Young Conservative Federation.
+2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and targeted Karenthia A. Barber in a repost from the Young Conservatives Federation, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. 
 
 [https://x.com/phil_lyman/status/1772647920124211378](https://x.com/phil_lyman/status/1772647920124211378)
 

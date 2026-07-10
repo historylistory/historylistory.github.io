@@ -66,7 +66,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 ### 2023 October
 
-2023-10-06 NBC reported that Mike Benz – far right podcaster and later a close ally of Elon Musk who celebrated closure of USAID – pushed the Great Replacement Theory on his podcasts.
+2023-10-06 NBC reported that Elon Musk ally Mike Benz pushed the Great Replacement Theory on his podcasts.
 
 [https://www.nbcnews.com/tech/internet/michael-benz-rising-voice-conservative-criticism-online-censorship-rcna119213](https://www.nbcnews.com/tech/internet/michael-benz-rising-voice-conservative-criticism-online-censorship-rcna119213)
 

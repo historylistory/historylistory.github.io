@@ -147,13 +147,13 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 {% include youtubePlayer.html id="KFPzD50ErFU" %}
 
-2023-12-23 Charlie Kirk **called Martin Luther King "awful"**and**"not a good person”**and stated, "**We made a huge mistake when we passed the Civil Rights Act in the 1960s**".
+2023-12-23 Charlie Kirk said Martin Luther King was “awful” and “not a good person”, claiming, “We made a huge mistake when we passed the Civil Rights Act in the 1960s”.
 
 [https://www.cbc.ca/news/world/charlie-kirk-controversies-1.7630859](https://www.cbc.ca/news/world/charlie-kirk-controversies-1.7630859)
 
 ### 2024 April
 
-2024-04-12 Right wing podcaster and Christian Nationalist Pastor Shane Vaughn said that Justice Jackson "**talks monkey talk**" and "**belongs in the jungle**".
+2024-04-12 Christian Nationalist Pastor Shane Vaughn said Justice Jackson “talks monkey talk” and “belongs in the jungle”.
 
 {% include youtubePlayer.html id="uRIAvADv2AM" %}
 
@@ -167,13 +167,13 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2024 July
 
-2024-07-31 During a National Association of Black Journalists interview, Trump was asked about his racist commentary and attacks on minorities. News outlets also reported that The National Association of Black Journalists interview was delayed because Trump had concerns about fact-checking, which he later tweeted out blaming the delay on equipment.
-
-{% include youtubePlayer.html id="KLtq9PFem94" %}
+2024-07-31 The National Association of Black Journalists interviewed Trump about his racist commentary and attacks on minorities, but it was delayed after Trump allegedly squabbled over their fact-checking process ahead of the interview. 
 
 [https://www.msnbc.com/top-stories/latest/trump-nabj-interview-fact-check-delay-rcna164845](https://www.msnbc.com/top-stories/latest/trump-nabj-interview-fact-check-delay-rcna164845)
 
 [https://truthsocial.com/@realDonaldTrump/posts/112882439005330892](https://truthsocial.com/@realDonaldTrump/posts/112882439005330892)
+
+{% include youtubePlayer.html id="KLtq9PFem94" %}
 
 ### 2024 September
 

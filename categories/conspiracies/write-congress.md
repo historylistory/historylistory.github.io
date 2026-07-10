@@ -100,7 +100,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2024-03-27 After the Francis Scott Key Bridge collapse, fake videos and conspiracies spread online, blaming explosives, DEI, or Israel. According to some reports, the posts allegedly came from verified right-wing accounts on X. 
 
-2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and shared a post targeting Karenthia A. Barber. He posted, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. He also reposted a dossier of Karenthia A. Barber from the Young Conservative Federation.
+2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and targeted Karenthia A. Barber in a repost from the Young Conservatives Federation, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. 
 
 2024-03-28 Michigan State Representative Matt Maddock posted on social media during March Madness, “Happening right now. Three buses just loaded up with illegal invaders at Detroit Metro. Anyone have any idea where they’re headed with their police escort? @petehoekstra”.
 
