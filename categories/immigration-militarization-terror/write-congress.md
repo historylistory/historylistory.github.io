@@ -564,7 +564,7 @@ protocol.
 
 2026-02-19 Pete Hegseth sent out a memo, pressuring DoD employees to volunteer for immigration enforcement with DHS on up to 180-day rotations.
 
-2026-02-24 During the State of the Union, Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime.” Representative Ilhan Omar looked on in horror, while JD Vance and Mike Johnson laughed and applauded.
+2026-02-24 Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime” while JD Vance and Mike Johnson laughed and applauded.
 
 2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
@@ -586,7 +586,7 @@ protocol.
 
 2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”. 
 
-2026-03-12 Congressman Randy fine posted on social media, “We need more Islamophobia, not less. Fear of Islam is rational”.
+2026-03-12 Congressman Randy Fine posted, “We need more Islamophobia, not less. Fear of Islam is rational”.
 
 2026-03-18 Ms. Rachel and other public figures launched a petition calling for closure of the Dilley, Texas ICE detention center after hearing accounts from detained children. Check out her petition on Change.org.
 

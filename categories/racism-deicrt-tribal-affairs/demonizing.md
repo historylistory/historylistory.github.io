@@ -186,7 +186,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2026 February
 
-2026-02-24 During the State of the Union, Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime.” Representative Ilhan Omar looked on in horror, while JD Vance and Mike Johnson laughed and applauded.
+2026-02-24 Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime” while JD Vance and Mike Johnson laughed and applauded.
 
 [https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100](https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100)
 
@@ -194,7 +194,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2026 March
 
-2026-03-12 Congressman Randy fine posted on social media, “We need more Islamophobia, not less. Fear of Islam is rational”.
+2026-03-12 Congressman Randy Fine posted, “We need more Islamophobia, not less. Fear of Islam is rational”.
 
 [https://www.nbcnews.com/politics/congress/multiple-house-republicans-post-openly-anti-muslim-statements-rcna263377](https://www.nbcnews.com/politics/congress/multiple-house-republicans-post-openly-anti-muslim-statements-rcna263377)
 

@@ -168,18 +168,6 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 [https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914](https://www.politico.com/news/2026/03/19/congress-braces-for-200b-iran-war-request-00835914)
 
 
-2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
-
-[https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
-
-[https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8](https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8)
-
-[https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/](https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/)
-
-[https://www.cbsnews.com/news/airport-delays-dhs-funding/](https://www.cbsnews.com/news/airport-delays-dhs-funding/)
-
-[https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
-
 2026-03-26 After slamming down Democrat attempts to pass a bill asking to fund TSA, Trump said he would issue an emergency order to ensure TSA employees were paid during the government shutdown
 
 [https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10](https://www.youtube.com/watch?v=ETT5qkzk9Lo&list=WL&index=10)

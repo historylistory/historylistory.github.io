@@ -89,7 +89,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://spectrumlocalnews.com/us/snplus/news/2026/02/21/jesse-jackson-request-lie-in-capitol-denied-precedent](https://spectrumlocalnews.com/us/snplus/news/2026/02/21/jesse-jackson-request-lie-in-capitol-denied-precedent)
 
-2026-02-24 During the State of the Union address, Representative Al Green was kicked out for holding up a sign “Black people are not apes” in response to Trump’s racist AI video depicting the Obamas as apes.
+2026-02-24 Representative Al Green was kicked out of the State of the Union address for holding up a sign, “Black people are not apes”. 
 
 [https://www.cnn.com/2026/02/24/politics/al-green-escorted-out-trump-state-of-the-union-protest](https://www.cnn.com/2026/02/24/politics/al-green-escorted-out-trump-state-of-the-union-protest)
 

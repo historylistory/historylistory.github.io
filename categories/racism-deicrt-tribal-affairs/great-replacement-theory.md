@@ -164,7 +164,7 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 
 [https://apnews.com/article/biden-juneteenth-federal-holiday-9bb62a3448376e05d87ac79cf27970d2](https://apnews.com/article/biden-juneteenth-federal-holiday-9bb62a3448376e05d87ac79cf27970d2)
 
-2026-02-16 Donald Trump endorsed Texas GOP candidate and MAGA donor Jace Yarbrough, who buys into the great replacement theory and some outlets have reported on having extremist views.
+2026-02-16 Donald Trump endorsed MAGA donor and great replacement theorist Jace Yarbrough for Texas’ 32nd Congressional District. 
 
 [https://ballotpedia.org/Endorsements_by_Donald_Trump](https://ballotpedia.org/Endorsements_by_Donald_Trump)
 

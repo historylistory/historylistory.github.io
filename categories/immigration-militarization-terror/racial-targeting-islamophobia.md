@@ -18,7 +18,7 @@ I realize I am missing a lot here. I just created this section April 30, 2026.
 
 ### 2026 March
 
-2026-03-12 Congressman Randy fine posted on social media, “We need more Islamophobia, not less. Fear of Islam is rational”.
+2026-03-12 Congressman Randy Fine posted, “We need more Islamophobia, not less. Fear of Islam is rational”.
 
 [https://www.nbcnews.com/politics/congress/multiple-house-republicans-post-openly-anti-muslim-statements-rcna263377](https://www.nbcnews.com/politics/congress/multiple-house-republicans-post-openly-anti-muslim-statements-rcna263377)
 

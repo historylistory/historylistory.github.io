@@ -78,16 +78,6 @@ For a specific group being targeted, reference these sections under Immigration:
 
 {% include youtubePlayer.html id="SQD7-foTVEw" %}
 
-2026-03-21 Trump threatened to deploy ICE agents to airports unless Democrats approved additional DHS funding
 
-[https://truthsocial.com/@realDonaldTrump/posts/116267892671497457](https://truthsocial.com/@realDonaldTrump/posts/116267892671497457)
-
-[https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8](https://www.youtube.com/watch?v=ObltrGAQQS8&list=WL&index=8)
-
-[https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/](https://www.washingtonpost.com/politics/2026/03/21/trump-threatens-deploy-ice-airports-tsa-shortages-drive-delays/)
-
-[https://www.cbsnews.com/news/airport-delays-dhs-funding/](https://www.cbsnews.com/news/airport-delays-dhs-funding/)
-
-[https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/](https://www.motherjones.com/politics/2026/03/what-exactly-will-ice-do-at-airports-no-one-seems-to-know/)
 
 
