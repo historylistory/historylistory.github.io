@@ -6,6 +6,17 @@ subcategory_slug: health
 permalink: /categories/racism-deicrt-tribal-affairs/health/
 ---
 
+### 2021
+
+2021-04-15 Sixty-three Republicans voted against the COVID 19 Hate Crimes Act, also called the Anti-Asian Hate Crime Bill. 
+
+[https://www.goerie.com/story/news/2021/05/20/gop-house-rep-scott-perry-votes-against-covid-19-hate-crimes-act/5184912001/](https://www.goerie.com/story/news/2021/05/20/gop-house-rep-scott-perry-votes-against-covid-19-hate-crimes-act/5184912001/)
+
+[https://www.cnn.com/2021/05/20/politics/republicans-voted-no-asian-hate-crime-bill](https://www.cnn.com/2021/05/20/politics/republicans-voted-no-asian-hate-crime-bill)
+
+[https://www.newsweek.com/these-six-senator-voted-against-covid-hate-crime-bill-1583770](https://www.newsweek.com/these-six-senator-voted-against-covid-hate-crime-bill-1583770)
+
+
 ### 2025 January
 
 2025-01-30 During a confirmation hearing, Senator Alsobrooks asked RFK to explain why he claimed that Black people have a different immune system than white people and why he recommends they should get a different vaccine schedule. He cited an article about pollen but did not outline his scientific basis to back up his claim.

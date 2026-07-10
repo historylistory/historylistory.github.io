@@ -68,6 +68,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
+2021-04-15 Sixty-three Republicans voted against the COVID 19 Hate Crimes Act, also called the Anti-Asian Hate Crime Bill. 
+
 2021-05-20 A civil rights group sued Trump for referring to COVID as “Chinese Virus”, “China Virus”, “Wuhan Virus”, and “Kung Flu Virus”. Former White House Press Secretary Ari Fleischer posted,  “Wait a minute… After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it.”
 
 2021-06-01 Some vaccine skeptics promoted ivermectin (horse dewormer) as a COVID treatment, later citing Merck’s Pentagon oral-treatment deal as supposed proof.
@@ -83,6 +85,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
 
 2022-06-24 After the Trump administration overturned Roe v. Wade, the ability to ban contraception was returned to the States. This left several health organizations afraid to offer contraception for fear of breaking the law. One Attorney General nominee even compared birth control to fentanyl. 
+
+2022-07-21 Scott Perry and other GOP members voted against the Right to Contraception Act.
 
 2022-07-28 Matt Gaetz mocked abortion-rights supporters at Turning Point Action, saying, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
 

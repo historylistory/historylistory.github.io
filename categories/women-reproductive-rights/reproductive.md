@@ -167,6 +167,15 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2021
 
+2022-07-21 Scott Perry and other GOP members voted against the Right to Contraception Act.
+
+[https://emilyslist.org/on-notice/scott-perry/](https://emilyslist.org/on-notice/scott-perry/)
+
+[https://clerk.house.gov/Votes/2022385](https://clerk.house.gov/Votes/2022385)
+
+[https://www.congress.gov/bill/118th-congress/senate-bill/4381/text](https://www.congress.gov/bill/118th-congress/senate-bill/4381/text)
+
+
 2021-07-24 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote.
 
 [https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html](https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html)
@@ -265,6 +274,11 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 2024-06-05 Republicans blocked a bill designed to protect contraception access.
 
 [https://apnews.com/article/contraception-senate-abortion-biden-trump-reproductive-rights-3f9e8546624a3acf8e64d1138fcb84b1](https://apnews.com/article/contraception-senate-abortion-biden-trump-reproductive-rights-3f9e8546624a3acf8e64d1138fcb84b1)
+
+[https://www.businessinsider.com/republican-senators-vote-against-right-contraception-act-2024-6](https://www.businessinsider.com/republican-senators-vote-against-right-contraception-act-2024-6)
+
+[https://www.markey.senate.gov/news/press-releases/senators-markey-schumer-hirono-duckworth-and-colleagues-blast-republicans-for-blocking-passage-of-right-to-contraception-act](https://www.markey.senate.gov/news/press-releases/senators-markey-schumer-hirono-duckworth-and-colleagues-blast-republicans-for-blocking-passage-of-right-to-contraception-act)
+
 
 2024-06-11 A national poll showed that 4-out-of-5 Americans support protection to contraception access.
 

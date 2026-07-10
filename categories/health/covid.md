@@ -64,6 +64,15 @@ permalink: /categories/health/covid/
 
 ### 2021
 
+2021-04-15 Sixty-three Republicans voted against the COVID 19 Hate Crimes Act, also called the Anti-Asian Hate Crime Bill. 
+
+[https://www.goerie.com/story/news/2021/05/20/gop-house-rep-scott-perry-votes-against-covid-19-hate-crimes-act/5184912001/](https://www.goerie.com/story/news/2021/05/20/gop-house-rep-scott-perry-votes-against-covid-19-hate-crimes-act/5184912001/)
+
+[https://www.cnn.com/2021/05/20/politics/republicans-voted-no-asian-hate-crime-bill](https://www.cnn.com/2021/05/20/politics/republicans-voted-no-asian-hate-crime-bill)
+
+[https://www.newsweek.com/these-six-senator-voted-against-covid-hate-crime-bill-1583770](https://www.newsweek.com/these-six-senator-voted-against-covid-hate-crime-bill-1583770)
+
+
 2021-05-20 A civil rights group sued Trump for referring to COVID as “Chinese Virus”, “China Virus”, “Wuhan Virus”, and “Kung Flu Virus”. Former White House Press Secretary Ari Fleischer posted,  “Wait a minute… After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it.”
 
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)

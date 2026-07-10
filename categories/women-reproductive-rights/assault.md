@@ -34,6 +34,24 @@ permalink: /categories/women-reproductive-rights/assault/
 
 [https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg](https://www.theguardian.com/technology/2016/oct/19/peter-thiel-support-donald-trump-mark-zuckerberg)
 
+### 2013
+
+2013-02-28 Multiple GOP members voted against the Violence Against Women Act which was established in 1994. 
+
+[https://www.congress.gov/bill/118th-congress/house-bill/7909](https://www.congress.gov/bill/118th-congress/house-bill/7909)
+
+[https://pennsylvaniaindependent.com/politics/2024-house-elections-congress-scott-perry-janelle-stelson-conspiracy-theories-antisemitism/](https://pennsylvaniaindependent.com/politics/2024-house-elections-congress-scott-perry-janelle-stelson-conspiracy-theories-antisemitism/)
+
+[https://www.npr.org/2013/02/28/173181449/house-passes-expansion-of-violence-against-women-act](https://www.npr.org/2013/02/28/173181449/house-passes-expansion-of-violence-against-women-act)
+
+[https://emilyslist.org/on-notice/scott-perry/](https://emilyslist.org/on-notice/scott-perry/)
+
+[https://www.newsweek.com/full-list-172-republicans-opposed-violence-against-women-act-1577029](https://www.newsweek.com/full-list-172-republicans-opposed-violence-against-women-act-1577029)
+
+[https://en.wikipedia.org/wiki/Violence_Against_Women_Act](https://en.wikipedia.org/wiki/Violence_Against_Women_Act)
+
+[https://www.theatlantic.com/politics/2013/02/heres-who-voted-against-violence-against-women-act/317872/](https://www.theatlantic.com/politics/2013/02/heres-who-voted-against-violence-against-women-act/317872/)
+
 ### 2016
 
 2016-10-19 Most people remember Trump's "grab them by the pussy" comment. **Full transcript** loaded with derogatory commentary can be found here:
