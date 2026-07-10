@@ -37,7 +37,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/great-replacement-theory/
 THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/](https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/)
 
 
-2021-04-15 Senator Ron Johnson of Wisconsin on Fox News said, “Is it really they want to remake the demographics of America…to ensure that they stay in power forever?”
+2021-04-15 Senator Ron Johnson pushed the Great Replacement Theory on Fox, “Is it really they want to remake the demographics of America? To ensure that they stay in power forever?”
 
 [https://www.msnbc.com/rachel-maddow-show/maddowblog/why-ron-johnson-s-ugly-rhetoric-about-us-demographics-matters-n1264318](https://www.msnbc.com/rachel-maddow-show/maddowblog/why-ron-johnson-s-ugly-rhetoric-about-us-demographics-matters-n1264318)
 

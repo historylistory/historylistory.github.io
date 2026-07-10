@@ -96,7 +96,7 @@ MERCK DEAL [https://www.merck.com/news/merck-announces-supply-agreement-with-u-s
 
 [https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html](https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html)
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery, attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed that COVID masking traumatized children, chastised teachers for teaching about slavery, attacked CRT, claimed “wokeism” assimilation, and praised Curtis Yarvin.
 
 {% include youtubePlayer.html id="PMq1ZEcyztY" %}
 

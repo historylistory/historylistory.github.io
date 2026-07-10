@@ -40,13 +40,13 @@ permalink: /categories/education/erase-reframe-whitewash/
 
 ### 2021 July
 
-2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory, so Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division in January 2025.
+2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory. Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division.
 
 [https://www.facebook.com/watch/?v=3857230367939923](https://www.facebook.com/watch/?v=3857230367939923)
 
 ### 2021 September
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery, attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed that COVID masking traumatized children, chastised teachers for teaching about slavery, attacked CRT, claimed “wokeism” assimilation, and praised Curtis Yarvin.
 
 {% include youtubePlayer.html id="PMq1ZEcyztY" %}
 

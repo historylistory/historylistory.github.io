@@ -26,7 +26,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 
 ### 2021
 
-2021-08-27 Larry Elder reported that he did not believe in systemic racism and called it a lie.
+2021-08-27 Larry Elder claimed systemic racism is a lie.
 
 [https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html](https://www.sacbee.com/news/politics-government/capitol-alert/article253718008.html)
 

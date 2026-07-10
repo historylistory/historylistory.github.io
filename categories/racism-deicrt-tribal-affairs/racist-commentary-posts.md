@@ -122,7 +122,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2021
 
-2021-05-20 On multiple occasions Trump referred to the COVID virus as "Chinese virus", "China virus", "Wuhan virus" and "Kung Flu". Former White House Press Secretary Ari Fleischer tweeted out in frustration "Wait a minute…After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it."
+2021-05-20 A civil rights group sued Trump for referring to COVID as “Chinese Virus”, “China Virus”, “Wuhan Virus”, and “Kung Flu Virus”. Former White House Press Secretary Ari Fleischer posted,  “Wait a minute… After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it.”
 
 {% include youtubePlayer.html id="dl78PQGJpiI" %}
 

@@ -78,7 +78,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2021-08-22 Larry Elder told the crowd at a campaign stop in Fresno he would repeal COVID-19 vaccines and mask mandates.
 
-2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed COVID masking traumatized children, bashed teachers for educating about slavery,attacked CRT, claimed some sort of “wokeism” assimilation was in progress, and praised extremist views of Curtis Yarvin. 
+2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed that COVID masking traumatized children, chastised teachers for teaching about slavery, attacked CRT, claimed “wokeism” assimilation, and praised Curtis Yarvin.
 
 2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He gave a long-winded “yes”.
 

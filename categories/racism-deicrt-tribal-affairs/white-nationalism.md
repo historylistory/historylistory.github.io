@@ -59,7 +59,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2022
 
-2022-01-01 Stephen Wolfe (who has ties to Doug Wilson) wrote a book called “The Case of Christian Nationalism”. I watched and read some reviews across the internet. In those reviews, some readers cited that the message suggested ethnicities should not mix, empathy was a sin, women were a threat to the movement, and violence was justified. One article cited that the book was less Christian Nationalism, and more White Nationalism. 
+2022-01-01 Stephen Wolfe (who has ties to Doug Wilson) wrote “The Case of Christian Nationalism”. Readers cited messages that ethnicities should not mix, empathy was a sin, women were a threat to the movement, and violence was justified.  
 
 [https://www.9marks.org/article/a-baptist-engagement-with-the-case-for-christian-nationalism/](https://www.9marks.org/article/a-baptist-engagement-with-the-case-for-christian-nationalism/)
 
@@ -67,9 +67,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://puritanboard.com/threads/the-case-for-christian-nationalism-a-review.112609/](https://puritanboard.com/threads/the-case-for-christian-nationalism-a-review.112609/)
 
-2022-02-01 Nick Fuentes held his first annual America First Political Action Conference. Both news outlets and Wikipedia show that Marjorie Taylor Greene attended.
+2022-02-01 Nick Fuentes held his first annual America First Political Action Conference which he founded in 2020 as white nationalist alternative to the CPAC. 
 
 [https://www.adl.org/resources/article/afpac-iii-elected-officials-support-white-supremacist-event](https://www.adl.org/resources/article/afpac-iii-elected-officials-support-white-supremacist-event)
+
+[https://www.opensecrets.org/political-action-committees-pacs/C00637512/donors/2020](https://www.opensecrets.org/political-action-committees-pacs/C00637512/donors/2020)
+
+[https://en.wikipedia.org/wiki/America_First_Political_Action_Conference](https://en.wikipedia.org/wiki/America_First_Political_Action_Conference)
+
 
 2022-11-25 Trump dined with Nick Fuentes.
 
