@@ -6,9 +6,20 @@ subcategory_slug: idolatry
 permalink: /categories/religion/idolatry/
 ---
 
-### Comment
+### COMMENT
 
 Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & Coddling"
+
+### 2018 
+
+2018-10-02 The Christian drama film The Trump Prophecy was released. Funded by Liberty University for $2M, it is a drama based on the book The Trump Prophecies which pushes the narrative that Trump was ordained by God to save America. 
+
+[https://en.wikipedia.org/wiki/The_Trump_Prophecy](https://en.wikipedia.org/wiki/The_Trump_Prophecy)
+
+[https://www.imdb.com/title/tt8235296/](https://www.imdb.com/title/tt8235296/)
+
+[https://www.rottentomatoes.com/m/the_trump_prophecy](https://www.rottentomatoes.com/m/the_trump_prophecy)
+
 
 ### 2019 "The Chosen One"
 

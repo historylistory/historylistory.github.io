@@ -14,6 +14,18 @@ permalink: /categories/religion/other/
 
 [https://history.state.gov/historicaldocuments/frus1977-80v24/d127](https://history.state.gov/historicaldocuments/frus1977-80v24/d127)
 
+### 2003
+
+2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”. 
+
+[https://en.wikipedia.org/wiki/Janet_Porter](https://en.wikipedia.org/wiki/Janet_Porter)
+
+[https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/](https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/)
+
+[https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade](https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade)
+
+[https://time.com/4671800/hate-groups-on-the-rise/](https://time.com/4671800/hate-groups-on-the-rise/)
+
 ### 2021 
 
 2021-11-01 Doug Wilson flamethrower videos.

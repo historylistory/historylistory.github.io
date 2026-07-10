@@ -6,6 +6,15 @@ subcategory_slug: performative-behavior
 permalink: /categories/religion/performative-behavior/
 ---
 
+### 2015 
+
+2015-08-27 Trump said the Bible was his favorite book but couldn’t recite or share one passage. 
+
+[https://www.cnn.com/2015/08/27/politics/donald-trump-favorite-bible-verses](https://www.cnn.com/2015/08/27/politics/donald-trump-favorite-bible-verses)
+
+[https://www.newsweek.com/trump-refusing-name-favorite-bible-verse-resurfaces-jesus-backlash-11825800](https://www.newsweek.com/trump-refusing-name-favorite-bible-verse-resurfaces-jesus-backlash-11825800)
+
+
 ### 2020
 
 2020-01-03 Religious leaders held a prayer circle during a rally in 2020.

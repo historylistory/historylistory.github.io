@@ -24,6 +24,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary](https://www.npr.org/2022/05/09/1097517470/trump-esper-book-defense-secretary)
 
+### 2021 
+
+2021-07-17 Liberty University’s diversity retention officer sued Liberty for discrimination of his race and sexual orientation.  Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
+[https://wset.com/news/local/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin](https://wset.com/news/local/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin)
+
+[https://foxsanantonio.com/news/nation-world/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin](https://foxsanantonio.com/news/nation-world/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin)
+
 ### 2024
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.

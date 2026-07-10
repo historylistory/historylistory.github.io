@@ -405,3 +405,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
+
+2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 

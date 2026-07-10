@@ -92,6 +92,19 @@ DECEMBER 2004 REPORT [https://spot.colorado.edu/~tooley/HenryWaxman.pdf](https:/
 
 [https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/](https://pmc.ncbi.nlm.nih.gov/articles/PMC558192/)
 
+### 2003
+
+2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”. 
+
+[https://en.wikipedia.org/wiki/Janet_Porter](https://en.wikipedia.org/wiki/Janet_Porter)
+
+[https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/](https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/)
+
+[https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade](https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade)
+
+[https://time.com/4671800/hate-groups-on-the-rise/](https://time.com/4671800/hate-groups-on-the-rise/)
+
+
 ### 2012
 
 2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.

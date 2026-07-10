@@ -215,3 +215,15 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts](https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts)
 
 [https://www.veteransfightingfascism.org/](https://www.veteransfightingfascism.org/)
+
+### 2026 July
+
+2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
+
+[https://www.imdb.com/title/tt42950619/](https://www.imdb.com/title/tt42950619/)
+
+[https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/](https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/)
+
+[https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
+
+[https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)

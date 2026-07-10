@@ -90,6 +90,15 @@ UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com
 
 THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/](https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/)
 
+2021-07-21 Liberty University was sued by 12 women claiming school policies made sexual assault and rape more likely. Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
+[https://www.cnn.com/2021/07/21/us/liberty-university-sexual-assault-lawsuit](https://www.cnn.com/2021/07/21/us/liberty-university-sexual-assault-lawsuit)
+
+[https://www.npr.org/2021/10/16/1046686032/liberty-university-students-file-suit-claiming-school-culture-fostered-sexual-](https://www.npr.org/2021/10/16/1046686032/liberty-university-students-file-suit-claiming-school-culture-fostered-sexual-)
+
+[https://www.nbcwashington.com/news/local/lawsuit-against-liberty-alleges-mishandling-of-sex-assaults/2736296/](https://www.nbcwashington.com/news/local/lawsuit-against-liberty-alleges-mishandling-of-sex-assaults/2736296/)
+
+
 ### 2022
 
 2022-11-21 Elon Musk reinstated Andrew and Tristan Tate social media accounts from which they were previously banned for hate speech. One article explains how the Tate  brothers face charges of rape, human trafficking, trafficking of minors, and sex with a minor. Another article cites comments made by Andrew Tate where he said women should “bear responsibility” for being sexually assaulted.
@@ -99,6 +108,15 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 [https://19thnews.org/2025/02/andrew-tate-brothers-toxic-masculinity-trump/](https://19thnews.org/2025/02/andrew-tate-brothers-toxic-masculinity-trump/)
 
 [https://www.cnn.com/2025/03/09/us/andrew-tristan-tate-florida-case-wwk#:~:text=Andrew%20Tate's%20vitriolic%20content%20got,responsibility%E2%80%9D%20for%20being%20sexually%20assaulted](https://www.cnn.com/2025/03/09/us/andrew-tristan-tate-florida-case-wwk).
+
+### 2024 May
+
+2024-05-05 Liberty University was fined $14M for Clery Act violations. Under the Jeanne Clery Act, colleges and universities must report specific crimes occurring on or near campus. Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
+[https://apnews.com/article/liberty-university-clery-act-fine-ac7f365762fb8ac8a4abb86cf4613d33](https://apnews.com/article/liberty-university-clery-act-fine-ac7f365762fb8ac8a4abb86cf4613d33)
+
+[https://www.nbcnews.com/news/us-news/liberty-university-hit-record-14-million-fine-flouting-federal-crime-r-rcna141900](https://www.nbcnews.com/news/us-news/liberty-university-hit-record-14-million-fine-flouting-federal-crime-r-rcna141900)
+
 
 ### 2024 July
 

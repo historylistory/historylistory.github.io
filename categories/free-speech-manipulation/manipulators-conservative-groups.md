@@ -90,3 +90,15 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 [https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604](https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604)
 
 [https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)
+
+### 2026 July
+
+2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
+
+[https://www.imdb.com/title/tt42950619/](https://www.imdb.com/title/tt42950619/)
+
+[https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/](https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/)
+
+[https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
+
+[https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)

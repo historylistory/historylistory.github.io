@@ -133,6 +133,24 @@ permalink: /categories/economy-labor-poverty/labor/
 
 ### 2025 May
 
+2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
+
+[https://levin.house.gov/media/op-eds/militarycom-the-new-va-budget-pushes-to-privatize-care-risking-the-veterans-health-system](https://levin.house.gov/media/op-eds/militarycom-the-new-va-budget-pushes-to-privatize-care-risking-the-veterans-health-system)
+
+[https://www.rollingstone.com/politics/political-commentary/trump-veterans-affairs-privatize-health-care-1235398423/](https://www.rollingstone.com/politics/political-commentary/trump-veterans-affairs-privatize-health-care-1235398423/)
+
+[https://apwu.org/news/dangerous-new-trump-bill-threatens-veterans-health-care/](https://apwu.org/news/dangerous-new-trump-bill-threatens-veterans-health-care/)
+
+[https://prospect.org/2026/06/04/trump-kicks-dismantling-of-veterans-health-care-into-high-gear/](https://prospect.org/2026/06/04/trump-kicks-dismantling-of-veterans-health-care-into-high-gear/)
+
+[https://nmvetscaucus.org/articles/trump-is-dismantling-the-va-to-privatize-veterans-health-care/](https://nmvetscaucus.org/articles/trump-is-dismantling-the-va-to-privatize-veterans-health-care/)
+
+VETS LOSING PROVIDERS [https://www.washingtonexaminer.com/news/campaigns/congressional/4432026/va-workforce-losses-veteran-healthcare/](https://www.washingtonexaminer.com/news/campaigns/congressional/4432026/va-workforce-losses-veteran-healthcare/)
+
+VETS LOSING JOBS [https://www.cbpp.org/blog/veterans-have-borne-trump-administrations-deep-cuts-to-federal-personnel](https://www.cbpp.org/blog/veterans-have-borne-trump-administrations-deep-cuts-to-federal-personnel)
+
+VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-policies-are-harming-veterans-va-workers/](https://www.afge.org/article/new-report-details-how-trumps-policies-are-harming-veterans-va-workers/)
+
 2025-05-20 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded  payroll and state taxes. 
 
 [https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/](https://www.epi.org/publication/everything-you-need-to-know-about-no-tax-on-tips/)

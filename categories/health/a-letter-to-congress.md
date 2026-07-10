@@ -243,6 +243,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-05-12 Trump signed an executive order saying he will reduce drug prices.
 
+2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
+
 2025-05-29 Casey Means, Trump’s nominee for US Surgeon General in 2026, claimed Advil is toxic. 
 
 2025-05-30 James Comer sent RFK a letter saying MAHA cited several nonexistent and misinterpreted studies to support their claims. In the letter Comer demanded information about the process MAHA was using to draft their reports.

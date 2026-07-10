@@ -36,6 +36,13 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 [https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c](https://www.npr.org/2021/06/17/996670391/supreme-court-rules-for-a-catholic-group-in-a-case-involving-gay-rights-foster-c)
 
+2021-07-17 Liberty University’s diversity retention officer sued Liberty for discrimination of his race and sexual orientation.  Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
+[https://wset.com/news/local/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin](https://wset.com/news/local/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin)
+
+[https://foxsanantonio.com/news/nation-world/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin](https://foxsanantonio.com/news/nation-world/liberty-university-faces-lawsuit-by-former-employee-lynchburg-virginia-leequan-mclaurin)
+
+
 2021-09-02 China banned “sissy idols” and effeminate men on TV.
 
 [https://www.npr.org/2021/09/02/1033687586/china-ban-effeminate-men-tv-official-morality](https://www.npr.org/2021/09/02/1033687586/china-ban-effeminate-men-tv-official-morality)
@@ -68,6 +75,15 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 2024-10-03 A Pennsylvania middle school installed surveillance windows in gender-inclusive bathrooms.
 
 [https://www.nbcnews.com/nbc-out/out-news/gender-inclusive-bathroom-window-pennsylvania-middle-school-rcna173917](https://www.nbcnews.com/nbc-out/out-news/gender-inclusive-bathroom-window-pennsylvania-middle-school-rcna173917)
+
+2024-10-31 An employee sued Liberty University for wrongful termination after she was fired for disclosing she was transgender. Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
+[https://www.nbcnews.com/nbc-out/out-news/liberty-university-sued-former-staffer-fired-disclosing-s-trans-woman-rcna178227](https://www.nbcnews.com/nbc-out/out-news/liberty-university-sued-former-staffer-fired-disclosing-s-trans-woman-rcna178227)
+
+[https://www.youtube.com/watch?v=sAjtaQVzPRo](https://www.youtube.com/watch?v=sAjtaQVzPRo)
+
+[https://www.wvtf.org/news/2026-03-17/federal-appeals-court-hears-case-after-liberty-university-fired-trans-employee](https://www.wvtf.org/news/2026-03-17/federal-appeals-court-hears-case-after-liberty-university-fired-trans-employee)
+
 
 2024-11-18 Nancy Mace pushed to ban transgender bathrooms.
 

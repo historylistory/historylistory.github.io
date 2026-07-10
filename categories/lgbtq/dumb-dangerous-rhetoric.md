@@ -12,6 +12,18 @@ permalink: /categories/lgbtq/dumb-dangerous-rhetoric/
 
 [https://mubi.com/en/us/films/the-gay-agenda](https://mubi.com/en/us/films/the-gay-agenda)
 
+### 2003
+
+2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”. 
+
+[https://en.wikipedia.org/wiki/Janet_Porter](https://en.wikipedia.org/wiki/Janet_Porter)
+
+[https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/](https://www.splcenter.org/resources/hatewatch/religious-right-hurls-false-accusations-splc/)
+
+[https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade](https://www.theguardian.com/world/2019/apr/25/the-anti-abortion-crusader-hopes-her-heartbeat-law-will-test-roe-v-wade)
+
+[https://time.com/4671800/hate-groups-on-the-rise/](https://time.com/4671800/hate-groups-on-the-rise/)
+
 ### 2012
 
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America. 

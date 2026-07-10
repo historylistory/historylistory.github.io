@@ -171,6 +171,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2021-06-01 Texas House Bill 3979 restricts race, slavery and current event curriculum in public schools by removing material pertaining to Native American history, Cesar Chavez, Susan B. Anthony, Frederick Douglas and Martin Luther King Jr.
 
+2021-07-17 Liberty University’s diversity retention officer sued Liberty for discrimination of his race and sexual orientation.  Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
+
 2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory. Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division.
 
 2021-07-26 JD Vance said, ”You can’t have so many people coming to the country at a time when our own families aren’t replicating themselves”.

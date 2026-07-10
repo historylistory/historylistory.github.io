@@ -517,3 +517,12 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)
 
+2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
+
+[https://www.imdb.com/title/tt42950619/](https://www.imdb.com/title/tt42950619/)
+
+[https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/](https://baptistnews.com/article/taxpayer-funded-by-dawns-early-light-woos-trumps-evangelical-base/)
+
+[https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
+
+[https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)

@@ -49,6 +49,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 1992-01-01 The anti-gay propaganda film “The Gay Agenda” was produced by Christian right-wing fundamentalist group Springs of Life Ministries.
 
+2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”. 
+
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America. 
 
 2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools”. He repeated what he wrote in 2020 in an address to the Federalist Society. (law.cornell.edu)
@@ -72,6 +74,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 2021-01-25 Biden revoked Trump’s transgender military ban. 
 
 2021-06-17 The Supreme Court ruled in favor of a Catholic charity that wanted to exclude gay couples from the placement of foster children in Fulton v. City of Philadelphia. Justice Samuel Alito felt the ruling did not go far enough, writing, “This decision might as well be written on dissolving paper sold in magic shops”.
+
+2021-07-17 Liberty University’s diversity retention officer sued Liberty for discrimination of his race and sexual orientation.  Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
 
 2021-09-02 China banned “sissy idols” and effeminate men on TV.
 
@@ -102,6 +106,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 2024-09-20 Trump launched an anti-gay ad campaign “Kamala is for they/them - Trump is for you”.
 
 2024-10-03 A Pennsylvania middle school installed surveillance windows in gender-inclusive bathrooms.
+
+2024-10-31 An employee sued Liberty University for wrongful termination after she was fired for disclosing she was transgender. Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
 
 2024-11-18 Nancy Mace pushed to ban transgender bathrooms.
 

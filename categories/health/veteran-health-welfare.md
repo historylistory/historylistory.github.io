@@ -28,6 +28,26 @@ permalink: /categories/health/veteran-health-welfare/
 
 [https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html](https://www.military.com/daily-news/2025/03/25/veterans-fear-trump-administration-plans-privatize-va-health-care.html)
 
+### 2025 May 
+
+2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
+
+[https://levin.house.gov/media/op-eds/militarycom-the-new-va-budget-pushes-to-privatize-care-risking-the-veterans-health-system](https://levin.house.gov/media/op-eds/militarycom-the-new-va-budget-pushes-to-privatize-care-risking-the-veterans-health-system)
+
+[https://www.rollingstone.com/politics/political-commentary/trump-veterans-affairs-privatize-health-care-1235398423/](https://www.rollingstone.com/politics/political-commentary/trump-veterans-affairs-privatize-health-care-1235398423/)
+
+[https://apwu.org/news/dangerous-new-trump-bill-threatens-veterans-health-care/](https://apwu.org/news/dangerous-new-trump-bill-threatens-veterans-health-care/)
+
+[https://prospect.org/2026/06/04/trump-kicks-dismantling-of-veterans-health-care-into-high-gear/](https://prospect.org/2026/06/04/trump-kicks-dismantling-of-veterans-health-care-into-high-gear/)
+
+[https://nmvetscaucus.org/articles/trump-is-dismantling-the-va-to-privatize-veterans-health-care/](https://nmvetscaucus.org/articles/trump-is-dismantling-the-va-to-privatize-veterans-health-care/)
+
+VETS LOSING PROVIDERS [https://www.washingtonexaminer.com/news/campaigns/congressional/4432026/va-workforce-losses-veteran-healthcare/](https://www.washingtonexaminer.com/news/campaigns/congressional/4432026/va-workforce-losses-veteran-healthcare/)
+
+VETS LOSING JOBS [https://www.cbpp.org/blog/veterans-have-borne-trump-administrations-deep-cuts-to-federal-personnel](https://www.cbpp.org/blog/veterans-have-borne-trump-administrations-deep-cuts-to-federal-personnel)
+
+VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-policies-are-harming-veterans-va-workers/](https://www.afge.org/article/new-report-details-how-trumps-policies-are-harming-veterans-va-workers/)
+
 ### 2025 June
 
 2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
