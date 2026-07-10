@@ -47,7 +47,7 @@ permalink: /categories/voting-census/voter-suppression-black-americans/
 
 ### 2020
 
-2020-08-01 Right wing operatives Jacob Wohl and Jack Burkhman continued their robocall campaign, this time in Detroit. Both plead no contest to voter intimidation in August 2025.
+2020-08-01 Jacob Wohl and Jack Burkhman continued their robocall campaign in Detroit to suppress Black voters. Both plead no contest to voter intimidation August 2025.
 
 [https://www.michigan.gov/ag/news/press-releases/2025/08/01/burkman-and-wohl-plead-to-intimidating-voters-in-robocall-case](https://www.michigan.gov/ag/news/press-releases/2025/08/01/burkman-and-wohl-plead-to-intimidating-voters-in-robocall-case)
 

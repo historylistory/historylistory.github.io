@@ -58,6 +58,19 @@ UNAVAILABLE [https://www.youtube.com/shorts/J2cOq55iFZ4](https://www.youtube.com
 
 UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com/shorts/wGdp8n246f8)
 
+### 2021
+
+2021-04-14 During a hearing Representative Scott Perry pushed a Great Replacement theory that nonwhite immigrants were intentionally brought to the US to dilute voting power.  Perry also allegedly voted against the Violence Against Women Act, claimed ISIS was behind a mass shooting in Las Vegas, and tried to repeal the ACA without any way to replace it. 
+
+[https://www.cnn.com/2021/04/15/politics/scott-perry-white-replacement-theory-tucker-carlson-fox-news](https://www.cnn.com/2021/04/15/politics/scott-perry-white-replacement-theory-tucker-carlson-fox-news)
+
+[https://pennsylvaniaindependent.com/politics/2024-house-elections-congress-scott-perry-janelle-stelson-conspiracy-theories-antisemitism/](https://pennsylvaniaindependent.com/politics/2024-house-elections-congress-scott-perry-janelle-stelson-conspiracy-theories-antisemitism/)
+
+[https://www.splcenter.org/resources/hatewatch/racist-great-replacement-conspiracy-theory-explained/](https://www.splcenter.org/resources/hatewatch/racist-great-replacement-conspiracy-theory-explained/)
+
+[https://www.rawstory.com/scott-perry-2668133539/](https://www.rawstory.com/scott-perry-2668133539/)
+
+THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/](https://foreignaffairs.house.gov/hearing/renewing-the-united-states-commitment-to-addressing-the-root-causes-of-migration-from-central-america/)
 
 ### 2022
 

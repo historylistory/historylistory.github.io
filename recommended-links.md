@@ -164,6 +164,8 @@ permalink: /recommended-links/
 
 [Vatican News: Pope Francis - First Sunday of Lent](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
 
+[Women: Emily's List](https://emilyslist.org/)
+
 [WOMEN VETERANS: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
 
 [WHAT IS THIS?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)

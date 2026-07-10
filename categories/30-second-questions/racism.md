@@ -33,3 +33,7 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 ### Eugenics
 
 (QUESTION IN PROGRESS, NOT READY) From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”. Do you think there is an underlying motivation to promote eugenics in this country right now? 
+
+### Rhetoric
+
+(QUESTION IN PROGRESS, NOT READY) Trump made several derogatory comments about COVID-19 and China. He called it the wu-han flu...etcet. It wasn't long before lawmakers had to pass a COVID 19 Hate Crimes Act (also known as the Anti-Asian Hate Crime Bill). Do you think a sitting president should be dismissed or waived off when he speaks rhetoric that incites racial violence and injustice to the extend we need to pass legislation to protect people? 
