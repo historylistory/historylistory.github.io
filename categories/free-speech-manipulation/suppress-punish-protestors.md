@@ -242,9 +242,13 @@ permalink: /categories/free-speech-manipulation/suppress-punish-protestors/
 
 [https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html](https://www.nytimes.com/2026/01/28/us/stephen-miller-alex-pretti-shooting.html)
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
+
+ABOUT FISHBACK [https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope](https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope)
+
+FISHBACK PODCAST [https://www.youtube.com/watch?v=VOVEIliJ3dM](https://www.youtube.com/watch?v=VOVEIliJ3dM)
 
 ### 2026 February
 

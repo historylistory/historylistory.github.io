@@ -110,7 +110,7 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2025-11-12 Eight senators added provisions to the budget bill allowing them to sue the federal government if they were ever investigated for January 6th at 500K per infraction.
 
-2026-01-17 Far right activist and pardoned J6er Jake Lang was chased off by protestors when he tried to hold an anti-Islam protest in Minneapolis.
+2026-01-17 After he was pardoned by Trump, far right activist and J6er Jake Lang tried to hold an anti-Islam protest in Minneapolis.
 
 2026-01-20 Trump pardoned Andrew Paul Johnson, a Capitol-riot defendant who was later accused of sexually abusing a child and attempting to buy the child's silence with a promised $10 million payment.
 

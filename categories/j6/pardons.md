@@ -98,7 +98,7 @@ DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.you
 
 ### 2026 January
 
-2026-01-17 Far right activist and pardoned J6er Jake Lang was chased off by protestors when he tried to hold an anti-Islam protest in Minneapolis.
+2026-01-17 After he was pardoned by Trump, far right activist and J6er Jake Lang tried to hold an anti-Islam protest in Minneapolis.
 
 [https://www.theguardian.com/us-news/2026/jan/18/minneapolis-counterprotesters-chase-far-right-activist](https://www.theguardian.com/us-news/2026/jan/18/minneapolis-counterprotesters-chase-far-right-activist)
 

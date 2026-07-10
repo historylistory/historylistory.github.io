@@ -280,7 +280,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses.
 

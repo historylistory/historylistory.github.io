@@ -172,7 +172,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 ### 2026 February
 
-2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. 
+2026-02-08 Multiple far-right commentators complained that the Superbowl halftime show was divisive, sexualized, and too Spanish. 
 
 [https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw](https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw)
 

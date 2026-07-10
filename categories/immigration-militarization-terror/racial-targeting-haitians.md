@@ -71,7 +71,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 ### 2026 February
 
-2026-02-09 The headline from the Springfield News-Sun says it all: "Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning."
+2026-02-09 Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices after Vance, Trump and Cruz perpetuated claims of migrants eating pets. 
 
 [https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
 

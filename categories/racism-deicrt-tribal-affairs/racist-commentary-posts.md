@@ -475,13 +475,18 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 [https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html](https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html)
 
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
 
+ABOUT FISHBACK [https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope](https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope)
+
+FISHBACK PODCAST [https://www.youtube.com/watch?v=VOVEIliJ3dM](https://www.youtube.com/watch?v=VOVEIliJ3dM)
+
+
 ### 2026 February
 
-2026-02-06 Trump posted a racist AI video of Barack and Michelle Obama depicted as apes. Trump first told media he didn’t see the video, then said he didn’t make a mistake. Karoline Leavitt defended the post, trying to reframe it as a “Lion King” theme, and told media this was “fake outrage” from the Left. The White House even tried to blame the post on a White House staffer. After backlash from both sides of the aisle, the post was taken down, 12 hours later.
+2026-02-06 Trump posted a racist AI video of Barack and Michelle Obama depicted as apes. Trump first told media he didn’t see the video, then said he didn’t make a mistake. Karoline Leavitt defended the post, trying to reframe it as a “Lion King” theme, and told media this was “fake outrage” from the Left. The White House even tried to blame the post on a White House staffer. After backlash from both sides of the aisle, the post was taken down 12 hours later.
 
 [https://www.aljazeera.com/news/2026/2/6/republicans-condemn-racist-trump-video-post-depicting-obamas-as-apes](https://www.aljazeera.com/news/2026/2/6/republicans-condemn-racist-trump-video-post-depicting-obamas-as-apes)
 
@@ -491,7 +496,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.stuff.co.nz/world-news/360935198/trump-shares-racist-video-depicts-obamas-primates-jungle](https://www.stuff.co.nz/world-news/360935198/trump-shares-racist-video-depicts-obamas-primates-jungle)
 
-2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish. 
+2026-02-08 Multiple far-right commentators complained that the Superbowl halftime show was divisive, sexualized, and too Spanish. 
 
 [https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw](https://x.com/lauraloomer/status/2020670509613015491?s=46&t=ur2P5MSMSrGDxyzhmgAjQw)
 
@@ -501,11 +506,11 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://truthsocial.com/@realDonaldTrump/posts/116038200403048483](https://truthsocial.com/@realDonaldTrump/posts/116038200403048483)
 
-2026-02-09 The headline from the Springfield News-Sun says it all: "Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning."
+2026-02-09 Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices after Vance, Trump and Cruz perpetuated claims of migrants eating pets. 
 
 [https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
 
-2026-02-10 On Piers Morgan, Megyn Kelly was outraged about Bad Bunny performing at the Superbowl in Spanish, stating “who gives a damn that we have 40 million Spanish speakers in the United States?” and, “this is supposed to be a unifying event for the country, not for the Latinos, not for a small group, but for the country. We don’t need a black national anthem”. She went on to say multiple racist things, then attacked Piers Morgan’s home country by stating “This is why you in Great Britain have lost your culture. You seeded your culture to a bunch of radical Muslims….”. So she basically attacked any non-white group in under 3 minutes over a Superbowl halftime show being performed in Spanish. Very telling.
+2026-02-10 Megyn Kelly said on Piers Morgan, “who gives a damn that we have 40 million Spanish speakers in the United States”, “this is supposed to be a unifying event for the country, not for the Latinos, not for a small group, but for the country. We don’t need a black national anthem”, “This is why you in Great Britain have lost your culture. You seeded your culture to a bunch of radical Muslims”. 
 
 {% include youtubePlayer.html id="ZPZoVwgfK84" %}
 

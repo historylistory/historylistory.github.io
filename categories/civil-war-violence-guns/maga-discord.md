@@ -200,11 +200,15 @@ PAY WALL [https://www.forbes.com/sites/zacharyfolk/2026/02/09/musk-calls-bannon-
 [https://www.agriculture.com/partners-u-s-house-in-bipartisan-vote-defies-trump-agrees-to-end-his-tariffs-on-canada-11905232](https://www.agriculture.com/partners-u-s-house-in-bipartisan-vote-defies-trump-agrees-to-end-his-tariffs-on-canada-11905232)
 
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
 [https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/](https://floridaphoenix.com/2026/03/18/fishback-stands-out-among-fl-gop-candidates-for-governor-in-dissenting-against-u-s-war-in-iran/)
 
 [https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square](https://www.peoplefor.org/rightwingwatch/james-fishback-says-don-lemon-lucky-hes-not-getting-executed-public-square)
+
+ABOUT FISHBACK [https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope](https://www.mediamatters.org/tucker-carlson/james-fishback-radical-rights-great-white-hope)
+
+FISHBACK PODCAST [https://www.youtube.com/watch?v=VOVEIliJ3dM](https://www.youtube.com/watch?v=VOVEIliJ3dM)
 
 ### 2026 March
 

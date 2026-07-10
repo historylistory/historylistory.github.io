@@ -544,7 +544,7 @@ protocol.
 
 2026-02-03 After multiple killings by ICE agents, the White House sent Tom Homan to Minneapolis and withdrew 700 of the 3000 agents from the city.
 
-2026-02-09 The headline from the Springfield News-Sun says it all: “Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning.”
+2026-02-09 Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices after Vance, Trump and Cruz perpetuated claims of migrants eating pets. 
 
 2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 

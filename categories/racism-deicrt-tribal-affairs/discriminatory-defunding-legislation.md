@@ -196,7 +196,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.bbc.com/news/articles/cz0p9ld5egjo](https://www.bbc.com/news/articles/cz0p9ld5egjo)
 
-2026-01-23 The Trump administration ordered the National Park Service staff to remove a slavery exhibit from a park in Philadelphia in alignment with Trump’s Executive order to “restore truth and sanity to American history”.
+2026-01-23 The Trump administration ordered the National Park Service to remove a slavery exhibit from a park in Philadelphia. 
 
 [https://apnews.com/article/slavery-exhibit-removed-philadelphia-trump-executive-order-dd764277133f47ec1173e8dc16703958](https://apnews.com/article/slavery-exhibit-removed-philadelphia-trump-executive-order-dd764277133f47ec1173e8dc16703958)
 

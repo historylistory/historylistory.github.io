@@ -71,13 +71,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 ### 2026 January
 
-2026-01-17 Far right activist and pardoned J6er Jake Lang was chased off by protestors when he tried to hold an anti-Islam protest in Minneapolis.
+2026-01-17 After he was pardoned by Trump, far right activist and J6er Jake Lang tried to hold an anti-Islam protest in Minneapolis.
 
 [https://www.theguardian.com/us-news/2026/jan/18/minneapolis-counterprotesters-chase-far-right-activist](https://www.theguardian.com/us-news/2026/jan/18/minneapolis-counterprotesters-chase-far-right-activist)
 
 ### 2026 February
 
-2026-02-09 The headline from the Springfield News-Sun says it all: "Bomb threats, suspicious packages in Springfield prompt evacuations - Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices Monday morning."
+2026-02-09 Bomb threats that said Haitian immigrants should be gone from Springfield were sent to several Clark County offices after Vance, Trump and Cruz perpetuated claims of migrants eating pets. 
 
 [https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/](https://www.springfieldnewssun.com/news/bomb-threats-suspicious-packages-in-springfield-prompt-evacuations/USM6T4IWIRCT3MG6JRGZETETDA/)
 

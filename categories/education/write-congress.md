@@ -223,7 +223,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-01-08 The Smithsonian was told to remove the word “unjust” from a display about Japanese internment camps because it made the display look “too partisan”.
 
-2026-01-23 The Trump administration ordered the National Park Service staff to remove a slavery exhibit from a park in Philadelphia in alignment with Trump’s Executive order to “restore truth and sanity to American history”.
+2026-01-23 The Trump administration ordered the National Park Service to remove a slavery exhibit from a park in Philadelphia. 
 
 2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program. 
 

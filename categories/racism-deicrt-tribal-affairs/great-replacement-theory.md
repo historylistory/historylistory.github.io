@@ -144,7 +144,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 ### 2026 February
 
-2026-02-04 Elon Musk reposted about the Great Replacement, and news articles reported on his repeated racist posts.
+2026-02-04 Elon Musk reposted about the Great Replacement theory.
 
 [https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists](https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists)
 

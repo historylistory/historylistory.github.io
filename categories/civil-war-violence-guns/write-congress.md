@@ -416,11 +416,11 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-01-28 After ICE agents killed Alex Pretti, Trump drew criticism from the NRA and Gun Owners of America when he doubled down on Pretti’s murder, saying he should not have carried a firearm at the protest. 
 
-2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he’s not getting executed in the public square”.
+2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses.
 
-2026-02-08 Multiple far-right commentators complained that the halftime show wasn’t unifying enough, claimed it was sexualized, and whined about the performance being in Spanish.
+2026-02-08 Multiple far-right commentators complained that the Superbowl halftime show was divisive, sexualized, and too Spanish. 
 
 2026-03-03 Nick Fuentes criticized Trump's pro-Israel and anti-Iran policies as inconsistent with nationalist principles.
 
