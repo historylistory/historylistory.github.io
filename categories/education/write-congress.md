@@ -189,7 +189,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
-2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. In his post, Trump instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. 
+2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
 2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 

@@ -318,7 +318,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-08-18 Executive Order 14321 directs federal agencies to prioritize funding to cities that enforce anti-camping ordinances and forced relocations.
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s.
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project aims to develop copper mining upon sacred and protected Native American holy sites.
 
 2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
 

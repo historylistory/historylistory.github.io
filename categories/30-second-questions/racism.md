@@ -34,6 +34,10 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) America First comes up alot. The America First Politcal Action Conference was started by white natinoalist nick fuenetes in 2020 as an alternative to teh CPAC. They talk about the great replacement theory at those conferences. JD Vance campaigned in 2022 as an "America First" conservative. One of his campagin ads started "Are you a racist - do you hate mexicans". Is our country being ran by a group of conspiracists who are pushing the great replacement theory? 
 
+### Whitewashing
+
+(QUESTION IN PROGRESS, NOT READY) Trump has instructed national parks to remove displays about native americans and/or slavery. ON August 19 2025 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. Do you support this administration when they decide to  whitewash educational curriculum too?  
+
 ### Eugenics
 
 (QUESTION IN PROGRESS, NOT READY) From 2020 to current Trump has made several comments about the genetics of migrants. In 2020 the Trump administration required Homeland Security to collect DNA from immigration detainees. In October 2024, Trump blamed migrants for having “bad genes”, adding there are “a lot of bad genes in our country right now” and immigrants entering the US illegally are “poisoning the blood of our country”. In 2026 Trump was interviewed on Fox by Brian Kilmeade. Allegedly he stated, “They shouldn’t have been let in. They’re just bad. Their genetics – They are not exactly your genetics”. Do you think there is an underlying motivation to promote eugenics in this country right now? 

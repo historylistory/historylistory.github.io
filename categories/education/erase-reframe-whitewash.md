@@ -113,7 +113,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 August
 
-2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. In his post, Trump instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”. 
+2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/115056914674717313](https://truthsocial.com/@realDonaldTrump/posts/115056914674717313)
 

@@ -143,7 +143,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-08-12 The Union of Concerned Scientists filed a lawsuit against Trump, alleging that Energy Secretary Chris Wright “quietly arranged for five hand-picked skeptics of the effects of climate change” to compile the government’s climate report and violated the law by creating the report with “only one point of view”.
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. 
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project aims to develop copper mining upon sacred and protected Native American holy sites.
 
 2025-08-26 Trump cancelled a nearly complete offshore wind project (Revolution Wind in RI and CT) and announced his plans to “drill-baby-drill” stating, “We don’t call it coal, we call it clean coal, and even very very clean coal”.
 

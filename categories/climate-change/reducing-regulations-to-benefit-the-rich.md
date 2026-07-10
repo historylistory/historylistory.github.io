@@ -152,7 +152,7 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 ### 2025 August
 
-2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project is a widely controversial project which aims to develop copper mining upon sacred and protected Native American holy sites protected by treaties since the 1800’s. 
+2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project aims to develop copper mining upon sacred and protected Native American holy sites.
 
 [https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go](https://www.kjzz.org/tribal-natural-resources/2025-10-20/from-utah-to-china-where-in-the-world-could-arizona-copper-sitting-under-an-apache-holy-site-go)
 
