@@ -139,6 +139,62 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
+### 2022 to 2025 Charlie Kirk Said...
+
+2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-if-youre-wnba-pot-smoking-black-lesbian-do-you-get-treated-better-united](https://www.mediamatters.org/charlie-kirk/charlie-kirk-if-youre-wnba-pot-smoking-black-lesbian-do-you-get-treated-better-united)
+
+
+2023-05-19 Charlie Kirk said, “Happening all the time in urban America, prowling Blacks go around for fun to go target white people, that’s a fact. It’s happening more and more.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-goes-unhinged-racist-rant-prowling-blacks-go-around-fun-go-target-white](https://www.mediamatters.org/charlie-kirk/charlie-kirk-goes-unhinged-racist-rant-prowling-blacks-go-around-fun-go-target-white)
+
+
+2023-07-13 Charlie Kirk said, “If we would have said that Joy Reid and Michelle Obama and Sheila Jackson Lee and Ketanji Brown Jackson were affirmative action picks, we would have been called racists. Now they’re coming out and they’re saying it for us … You do not have the brain processing power to otherwise be taken really seriously. You had to go steal a white person’s slot to go be taken somewhat seriously.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://x.com/patriottakes/status/1679829904026730496?s=20](https://x.com/patriottakes/status/1679829904026730496?s=20)
+
+
+2024-01-23 Charlie Kirk said, “If I’m dealing with somebody in customer service who’s a moronic Black woman, I wonder is she there because of her excellence, or is she there because of affirmative action?”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/heather-mac-donald-charlie-kirk-white-civilization-has-decided-engage-great](https://www.mediamatters.org/charlie-kirk/heather-mac-donald-charlie-kirk-white-civilization-has-decided-engage-great)
+
+
+2024-01-23 Charlie Kirk said, “If I see a Black pilot, I’m going to be like, boy, I hope he’s qualified”. 
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+
+2025-04-30 Charlie Kirk said, “America has freedom of religion, of course, but we should be frank: large dedicated Islamic areas are a threat to America.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-large-dedicated-islamic-areas-are-threat-america](https://www.mediamatters.org/charlie-kirk/charlie-kirk-large-dedicated-islamic-areas-are-threat-america)
+
+
+2025-06-24 Charlie Kirk said, “We’ve been warning about the rise of Islam on the show, to great amount of backlash. We don’t care, that’s what we do here. And we said that Islam is not compatible with western civilization.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/media/4032192](https://www.mediamatters.org/media/4032192)
+
+
+2025-09-08 Charlie Kirk posted, “Islam is the sword the left is using to slit the throat of America.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://x.com/charliekirk11/status/1965281328108343507](https://x.com/charliekirk11/status/1965281328108343507)
+
+
 ### 2023
 
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.

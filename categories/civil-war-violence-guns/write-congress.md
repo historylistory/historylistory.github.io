@@ -99,9 +99,15 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2022-10-28 Paul Pelosi was attacked with a hammer in his home. Charlie Kirk responded to the Pelosi attack on his podcast, “…why is the Conservative movement to blame for gay schizophrenic nudists that are hemp jewelry makers breaking into somebody’s home…” and then urged a “brave patriot” to post bail for the suspect.
 
+2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
+
 2023-02-08 Arkansas Governor Sarah Huckabee Sanders framed politics as a choice between "normal or crazy", accused Democrats of promoting "woke fantasies." and asserted that Republicans “are under attack in a left-wing culture war”.
 
 2023-04-05 At the Salt Lake City campus of Awaken Church, Charlie Kirk said having a few gun deaths is a prudent price to pay for the Second Amendment.
+
+2023-05-19 Charlie Kirk said, “Happening all the time in urban America, prowling Blacks go around for fun to go target white people, that’s a fact. It’s happening more and more.”
+
+2023-07-13 Charlie Kirk said, “If we would have said that Joy Reid and Michelle Obama and Sheila Jackson Lee and Ketanji Brown Jackson were affirmative action picks, we would have been called racists. Now they’re coming out and they’re saying it for us … You do not have the brain processing power to otherwise be taken really seriously. You had to go steal a white person’s slot to go be taken somewhat seriously.”
 
 2023-09-29 Trump mocked the attack on Paul Pelosi during a California GOP event.
 
@@ -110,6 +116,10 @@ Below are examples of which events highlight these concerns. Some of the points 
 2023-11-02 Ken Buck broke with Trump-aligned Republicans on fiscal conservatism and rule-of-law issues.
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it."
+
+2024-01-23 Charlie Kirk said, “If I’m dealing with somebody in customer service who’s a moronic Black woman, I wonder is she there because of her excellence, or is she there because of affirmative action?”
+
+2024-01-23 Charlie Kirk said, “If I see a Black pilot, I’m going to be like, boy, I hope he’s qualified”. 
 
 2024-02-23 At CPAC, Kash Patel called for building an "army" to help Trump fight the media, the deep state, education systems, and border policies 
 
@@ -155,6 +165,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-04-13 Arsons set fire to Pennsylvania Democratic Governor Josh Shapiro’s home.
 
+2025-04-30 Charlie Kirk said, “America has freedom of religion, of course, but we should be frank: large dedicated Islamic areas are a threat to America.”
+
 2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
 
 2025-06-08 Stephen Miller claimed protests in Los Angeles were  “an insurrection against the laws and sovereignty of the United States”. 
@@ -170,6 +182,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2025-06-17 Thomas Massie opposed military escalation and emergency powers and introduced a bipartisan War Powers Resolution to prohibit “United States Armed Forces from unauthorized hostilities in the Islamic Republic of Iran”.
 
 2025-06-18 Steve Bannon warned against regime change in Iran, opposing Trump’s more aggressive posture.
+
+2025-06-24 Charlie Kirk said, “We’ve been warning about the rise of Islam on the show, to great amount of backlash. We don’t care, that’s what we do here. And we said that Islam is not compatible with western civilization.”
 
 2025-06-28 Trump posted on social media, “Republicans must remember that they are fighting against a very evil, corrupt and, in many ways, incompetent (Policywise!) group of people, who would rather see our Country “go down in flames” than do the right thing”. 
 
@@ -192,6 +206,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2025-09-03 Trump supporters ousted Representative Thomas Massie after he pushed for release of the Epstein files.
 
 2025-09-05 The DOJ considered banning guns specifically from anyone transgender.
+
+2025-09-08 Charlie Kirk posted, “Islam is the sword the left is using to slit the throat of America.”
 
 2025-09-09 Newsmax host Rob Schmidt villainized, “For the last several years the Democrats have destabilized this country by installing agents of chaos…” and suggested Democrats are trying to “intentionally sabotage the country” and “shred faith in the system”.
 
