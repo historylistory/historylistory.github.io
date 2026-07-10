@@ -49,7 +49,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2022
 
-2022-04-05 In a JD Vance campaign commercial as an ‘America First Conservative’, he said, *“Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.”* [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
+2022-04-05 Vance campaigned as an America First Conservative. He said in his ad, “Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.” [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
 
 [https://www.wyso.org/local-and-statewide-news/2022-04-15/j-d-vance-asks-voters-are-you-a-racist-do-you-hate-mexicans](https://www.wyso.org/local-and-statewide-news/2022-04-15/j-d-vance-asks-voters-are-you-a-racist-do-you-hate-mexicans)
 

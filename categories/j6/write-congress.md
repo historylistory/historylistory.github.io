@@ -48,6 +48,8 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2021-01-06 Jared Wise was caught on camera saying “kill ‘em all”. Trump later hired him on as a senior advisor to the DOJ.
 
+2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
+
 2021-01-11 The House introduced Resolution 24 to impeach Trump for incitement of insurrection; it failed to secure a majority vote in February 2021.
 
 2021-03-18 Trump was recorded saying the J6 rioters went because they thought the election was rigged.

@@ -14,6 +14,18 @@ permalink: /categories/j6/other/
 
 [https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his](https://www.theguardian.com/us-news/2024/apr/07/christian-nationalists-embrace-trump-as-their-savior-will-they-be-his)
 
+2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
+
+[https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message](https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message)
+
+[https://x.com/JGreenblattADL/status/1653582329233670147](https://x.com/JGreenblattADL/status/1653582329233670147)
+
+[https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html](https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html)
+
+PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html](https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html)
+
+
+
 ### 2023 
 
 2023-12-06 In an interview with Hannity, Trump repeated his “dictator on day one” remark and referred to January 6 prisoners as “hostages.”

@@ -28,7 +28,9 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) There is a pattern of trump defending white nationalists. He called unite the right very fine people, pardoned several oath keepers and proud boys, dined with nick fuentes, 
 
-(QUESTION IN PROGRESS, NOT READY) Back in 2016 David Duke and KKK members expressed their support for trump. Later in 2017 one of the white supremacists drove their bvehicle into a counter protestor in Charloteville duringa  Unite the Right rally. The protestor died. three days later trump called the Unite the Right activists "very fine people" and David Duke submitted a social media post thanking Trump for his kind words. What do you think this sort of reaction to what happened in charloteville conveys about the person leading our country right now? 
+(QUESTION IN PROGRESS, NOT READY) Back in 2016 David Duke and KKK members expressed their support for trump. Later in 2017 one of the white supremacists drove their bvehicle into a counter protestor in Charloteville duringa  Unite the Right rally. The protestor died. three days later trump called the Unite the Right activists "very fine people" and David Duke submitted a social media post thanking Trump for his kind words. What do you think this sort of reaction to what happened in charloteville conveys about the person leading our country right now?
+
+(QUESTION IN PROGRESS, NOT READY) America First comes up alot. The America First Politcal Action Conference was started by white natinoalist nick fuenetes in 2020 as an alternative to teh CPAC. They talk about the great replacement theory at those conferences. JD Vance campaigned in 2022 as an "America First" conservative. One of his campagin ads started "Are you a racist - do you hate mexicans". Is our country being ran by a group of conspiracists who are pushing the great replacement theory? 
 
 ### Eugenics
 
@@ -37,3 +39,4 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 ### Rhetoric
 
 (QUESTION IN PROGRESS, NOT READY) Trump made several derogatory comments about COVID-19 and China. He called it the wu-han flu...chinese virus, kung flu. It wasn't long before lawmakers had to pass a COVID 19 Hate Crimes Act (also known as the Anti-Asian Hate Crime Bill). Do you think a sitting president should be dismissed or waived off when he speaks rhetoric that incites racial violence and injustice to the extend we need to pass legislation to protect people? 
+

@@ -54,7 +54,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 ### 2022
 
-2022-03-17 JD Vance claimed immigration was an invasion, saying on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
+2022-03-17 JD Vance claimed immigration was an invasion on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
 
 [https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/](https://www.mediaite.com/media/tv/democrats-want-to-replace-voters-that-are-already-here-j-d-vance-gives-nod-to-replacement-theory-during-interview-with-tucker-carlson/)
 

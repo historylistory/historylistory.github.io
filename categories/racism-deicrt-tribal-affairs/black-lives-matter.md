@@ -57,7 +57,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 [https://kstp.com/kstp-news/local-news/charlie-kirk-exploits-racial-divide-to-reach-gen-z-in-mankato-speech/](https://kstp.com/kstp-news/local-news/charlie-kirk-exploits-racial-divide-to-reach-gen-z-in-mankato-speech/)
 
-2022-05-14 A white supremacist walked into a Buffalo NY supermarket and killed 10 Black people and wounded 3 others in a racially motivated massacre. Investigators later found out his motives had a lot to do with him buying into the "Great Replacement Theory" conspiracy.
+2022-05-14 A white supremacist walked into a Buffalo NY supermarket, killed 10 Black people and wounded 3 others. Investigators discovered his motives were tied in with the “Great Replacement Theory” conspiracy.
 
 [https://www.ebsco.com/research-starters/military-history-and-science/2022-buffalo-shooting](https://www.ebsco.com/research-starters/military-history-and-science/2022-buffalo-shooting)
 
@@ -73,7 +73,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 ### 2022
 
-2022-05-25 During an interview on Tucker Carlson Heather MacDonald said the Black Lives Matter had a problematic narrative. She claimed we don't have a police brutality problem in the United States.
+2022-05-25 During an interview on Tucker Carlson Heather MacDonald claimed the Black Lives Matter had a problematic narrative and we don’t have a police brutality problem in the United States.
 
 [https://www.foxnews.com/video/6306818731112](https://www.foxnews.com/video/6306818731112)
 

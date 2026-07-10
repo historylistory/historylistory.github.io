@@ -126,6 +126,17 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 A private account on X has posted the video, but due to the account being private their link will not be shared here.
 
+2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
+
+[https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message](https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message)
+
+[https://x.com/JGreenblattADL/status/1653582329233670147](https://x.com/JGreenblattADL/status/1653582329233670147)
+
+[https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html](https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html)
+
+PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html](https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html)
+
+
 2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
 
 [https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit#:~:text=One%20America%20News'%20Pearson%20Sharp,6%20violence%20at%20the%20Capitol](https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit).

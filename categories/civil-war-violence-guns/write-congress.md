@@ -77,6 +77,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
 
+2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
+
 2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
 
 2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 

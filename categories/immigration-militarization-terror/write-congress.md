@@ -83,9 +83,9 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2021-07-26 JD Vance said, ”You can’t have so many people coming to the country at a time when our own families aren’t replicating themselves”.
 
-2022-03-17 JD Vance claimed immigration was an invasion, saying on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
+2022-03-17 JD Vance claimed immigration was an invasion on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
 
-2022-04-05 In a JD Vance campaign commercial as an ‘America First Conservative’, he said, “Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.” [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
+2022-04-05 Vance campaigned as an America First Conservative. He said in his ad, “Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.” [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
 
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 

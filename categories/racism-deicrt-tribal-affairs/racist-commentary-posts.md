@@ -122,6 +122,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2021
 
+2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
+
+[https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message](https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message)
+
+[https://x.com/JGreenblattADL/status/1653582329233670147](https://x.com/JGreenblattADL/status/1653582329233670147)
+
+[https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html](https://www.cnn.com/2021/04/12/media/murdoch-response-adl-tucker-carlson/index.html)
+
+PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html](https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html)
+
+
 2021-05-20 A civil rights group sued Trump for referring to COVID as “Chinese Virus”, “China Virus”, “Wuhan Virus”, and “Kung Flu Virus”. Former White House Press Secretary Ari Fleischer posted,  “Wait a minute… After months of being told it was racist to refer to COVID as a ‘Chinese virus’ the WP refers to its new strains as ‘British and South African variants.’ So you can use the name of the nation where it comes from, so long as that nation is not China. Got it.”
 
 {% include youtubePlayer.html id="dl78PQGJpiI" %}
@@ -129,10 +140,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 [https://www.bbc.com/news/av/world-us-canada-53173436](https://www.bbc.com/news/av/world-us-canada-53173436)
 
 ### 2023
-
-2023-05-03 HEADLINE/CNN: Tucker Carlson sent a racist text to a producer “It’s not how white men fight”.
-
-[https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message](https://www.cnn.com/2023/05/03/media/tucker-carlson-text-message)
 
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 
