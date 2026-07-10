@@ -113,6 +113,17 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 [https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag](https://www.cnn.com/2025/11/19/politics/veteran-fbi-employee-sues-fired-pride-flag)
 
+### 2025 December
+
+
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
+
+[https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
+
+[https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/](https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/)
+
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
+
 ### 2026 January
 
 2026-01-16 The Justice Department accused Governor Tim Walz and Mayor Jacob Frey of fraud and conspiracy related to immigration enforcement

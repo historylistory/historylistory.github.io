@@ -260,6 +260,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2025-11-19 Sixteen-year veteran of the FBI David Maltinsky was fired for displaying a Pride flag.
 
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
+
 2025-12-21 Bari Weiss pulled an airing of a 60 Minutes episode covering an investigation into the CECOT detention center in El Salvador.
 
 2025-12-25 Trump made more than 100 Christmas Day posts, including calls to revoke broadcast licenses from critical news outlets.

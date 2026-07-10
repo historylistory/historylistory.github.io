@@ -132,7 +132,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 October
 
-2025-10-14 Residents of Mechanicsburg PA were finding KKK recruitment handouts in their children’s Halloween candy after they held an annual Halloween parade. Following the discovery, residents held a Note hate in Our State town hall on October 29th to protest.
+2025-10-14 Residents of Mechanicsburg PA were finding KKK recruitment fliers in their children’s Halloween candy after the annual Halloween parade. 
 
 [https://www.pa.gov/agencies/phrc/phrc-news---information/newsroom/phrc-hosts--no-hate-in-our-state--town-hall-in-mechanicsburg](https://www.pa.gov/agencies/phrc/phrc-news---information/newsroom/phrc-hosts--no-hate-in-our-state--town-hall-in-mechanicsburg)
 
@@ -168,7 +168,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe](https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe)
 
 
-2025-10-20 News outlets reported on a leaked Nazi post from Trump-nominee Paul Ingrassia “**I do have a Nazi streak in me from time to time**”. According to articles, this came from a text chain obtained by Politico and included context that the Martin Luther King holiday should be “tossed into the seventh circle of hell”. Ingrassia withdrew his nomination the very next day.
+2025-10-20 A leaked social media post from Trump-backed Special Counsel nominee Paul Ingrassia reads, “I do have a Nazi streak in me from time to time”. Ingrassia withdrew his nomination the next day.
 
 [https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak](https://www.pbs.org/newshour/show/trump-faces-calls-to-withdraw-nominee-who-reportedly-said-he-has-a-nazi-streak)
 
@@ -194,7 +194,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.ncronline.org/opinion/guest-voices/antisemitism-accusations-plagued-kevin-roberts-political-heroes-too](https://www.ncronline.org/opinion/guest-voices/antisemitism-accusations-plagued-kevin-roberts-political-heroes-too)
 
-2025-11-10 News outlets reported on Oath Keeper leader Stewart Rhodes and his announcement to relaunch the group under the Trump administration. For context, this is a far-right supremacist militia group that not only participated in J6 riots but testified in October 2022 for having a stash of weapons ready for J6 violence.
+2025-11-10 Stewart Rhodes announced he would be relaunching the white supremacist Oath Keepers as a militia for Trump
 
 [https://newrepublic.com/post/202967/oath-keepers-stewart-rhodes-relaunching-donald-trump-pardon](https://newrepublic.com/post/202967/oath-keepers-stewart-rhodes-relaunching-donald-trump-pardon)
 
@@ -206,7 +206,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.instagram.com/p/DRAcXO_jFCb/](https://www.instagram.com/p/DRAcXO_jFCb/)
 
-2025-11-21 Under direction of the Trump administration, the US Coast Guard stopped classifying nooses and swastikas as hate symbols in its new harassment manual.
+2025-11-21 The US Coast Guard was ordered to stop classifying nooses and swastikas as hate symbols in its new harassment manual.
 
 [https://www.cnn.com/2025/11/21/politics/coast-guard-hate-symbols-policy-reversal](https://www.cnn.com/2025/11/21/politics/coast-guard-hate-symbols-policy-reversal)
 

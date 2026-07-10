@@ -123,7 +123,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe](https://www.theguardian.com/us-news/2024/apr/08/trump-immigration-north-europe)
 
-2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
+2025-10-29 JD Vance said, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
 
 [https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
 

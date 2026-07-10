@@ -131,7 +131,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 December
 
-2025-12-03 A Colorado Springs teacher was indefinitely suspended after publicly disclosing curriculum revisions that would remove or limit instruction on certain scientific concepts and anti-slavery activism, including the contributions of Frederick Douglass.
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
 
 [https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
 

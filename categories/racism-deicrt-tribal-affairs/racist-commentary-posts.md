@@ -355,7 +355,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 {% include youtubePlayer.html id="aSxCTa1Hfec" %}
 
-2025-10-22 News outlets reported racist social media posts made towards Republican members of Indian descent. Some comments included “Go back home and worship your sand demons” during a Diwali celebration or telling Vivek Ramaswami to “self deport”.
+2025-10-22 Anti-Indian posts were leaked during a Diwali celebration, including statements, “Go back home and worship your sand demons” or telling Vivek Ramaswami to “self deport”.
 
 [https://www.financialexpress.com/world-news/us-news/worship-of-false-gods-maga-spreads-hate-on-diwali-as-trump-lights-diyas-at-white-house/4017705/](https://www.financialexpress.com/world-news/us-news/worship-of-false-gods-maga-spreads-hate-on-diwali-as-trump-lights-diyas-at-white-house/4017705/)
 
@@ -365,7 +365,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms](https://timesofindia.indiatimes.com/world/us/vivek-ramaswamy-stirs-row-after-sharing-old-charlie-kirk-clip-social-media-tells-him-self-deport/articleshow/125023800.cms)
 
-2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
+2025-10-29 JD Vance said, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
 
 [https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html](https://www.yahoo.com/news/articles/jd-vance-totally-acceptable-want-211843082.html)
 
@@ -386,7 +386,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2025 November
 
-2025-11-10 Laura Loomer posted “We love Trump. But we can all agree we need less Chinese and less Muslims in America. Most of those Chinese students are spies. And I’ve never met a Muslim who has been a net positive for America. I’ll let you know when I find one”. For context,
+2025-11-10 Laura Loomer posted “We love Trump. But we can all agree we need less Chinese and less Muslims in America. Most of those Chinese students are spies. And I’ve never met a Muslim who has been a net positive for America. I’ll let you know when I find one”. 
 
 [https://x.com/LauraLoomer/status/1988100437913071858](https://x.com/LauraLoomer/status/1988100437913071858)
 
@@ -402,7 +402,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299](https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299)
 
-2025-11-27 Trump claimed that Congresswoman Ilhan Omar of Minnesota should be “thrown the hell out of our country” in a social media post, claimed the Congresswoman “probably came to the US illegally” and mocked her hijab. In a side-rant, Trump also managed to call Governor Tim Walz “seriously retarded”. Trump suggested Ilhan Omar For context, this came immediately after Trump ranted on social media that Minnesota was overrun by Somali gangs.
+2025-11-27 Trump claimed Congresswoman Ilhan Omar should be “thrown the hell out of our country”, “probably came to the US illegally” and mocked her hijab. 
 
 [https://thenationaldesk.com/news/nation-world/trump-claims-ilhan-omar-should-get-thrown-the-hell-out-of-our-country](https://thenationaldesk.com/news/nation-world/trump-claims-ilhan-omar-should-get-thrown-the-hell-out-of-our-country)
 

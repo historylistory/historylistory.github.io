@@ -35,6 +35,14 @@ permalink: /categories/education/teachers/
 [https://www.media.mit.edu/publications/your-brain-on-chatgpt/](https://www.media.mit.edu/publications/your-brain-on-chatgpt/)
 
 
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
+
+[https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
+
+[https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/](https://www.fox21news.com/news/d11-fifth-grade-teacher-could-lose-her-job/)
+
+{% include youtubePlayer.html id="DA8QoAJhOdM" %}
+
 ### 2026 March
 
 2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.

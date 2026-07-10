@@ -63,7 +63,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 ### 2025 November
 
-2025-11-26 The Trump Administration announced it would be ending deportation protections for more than 350,000 Haitian immigrants who fell under the Temporary Protected Status. A judge temporarily blocked the order February 2, 2026.
+2025-11-26 The Trump Administration ended Temporary Protected Status for more than 350,000 Haitian immigrants
 
 [https://www.bbc.com/news/articles/c5yxn7kqww8o](https://www.bbc.com/news/articles/c5yxn7kqww8o)
 

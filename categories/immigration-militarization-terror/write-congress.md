@@ -395,7 +395,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-10-27 DHS posted “DESTROY THE FLOOD” recruitment messaging on X.
 
-2025-10-29 During an interview on Pod Force One with Miranda Devine JD Vance stated, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
+2025-10-29 JD Vance said, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
 
 2025-10-30 Federal ICE agents shot Carlos Jimenez after he asked federal agents to move away from an area where schoolchildren were gathering. The victim, a father of three, called 911, was transported to the hospital, and then was arrested and detained by federal officers at the hospital.
 
@@ -429,7 +429,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-11-26 The mother of Karoline Leavitt’s nephew was taken into ICE custody and was detained for a month. She was interviewed by CNN’s Erin Burnett December 2025.
 
-2025-11-26 The Trump Administration announced it would be ending deportation protections for more than 350,000 Haitian immigrants who fell under the Temporary Protected Status. A judge temporarily blocked the order February 2, 2026.
+2025-11-26 The Trump Administration ended Temporary Protected Status for more than 350,000 Haitian immigrants
 
 2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 

@@ -215,7 +215,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-11-20 The Department of Education declassified nursing careers as professional, thereby restricting their student loan limits.
 
-2025-12-03 A Colorado Springs teacher was indefinitely suspended after publicly disclosing curriculum revisions that would remove or limit instruction on certain scientific concepts and anti-slavery activism, including the contributions of Frederick Douglass.
+2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
 
 2026-01-01 Trump’s IRS is going to consider student loans as income and start taxing them.
 
