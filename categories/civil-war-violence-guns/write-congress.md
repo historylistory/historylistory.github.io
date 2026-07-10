@@ -496,6 +496,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
 
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
 2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
 
 2026-06-26 Former national security advisor John Bolton plead guilty in a classified documents case for sharing sensitive information with two relatives for possible use in a memoir. 
@@ -505,5 +507,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
+
+2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 
 
 2026-07-06 The DOJ rolled back more regulations on gun restrictions including a rule intended to close a gun-show loop hole, reducing regulations on short barrel and bump stocks (used in a mass shooting in 2017), and allowing some with mental illness to purchase firearms. 

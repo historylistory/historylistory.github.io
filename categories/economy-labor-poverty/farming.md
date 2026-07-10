@@ -279,3 +279,12 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 [https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997](https://www.newsweek.com/donald-trump-deals-new-blow-to-us-farmers-on-china-trip-11957997)
 
 [https://time.com/article/2026/05/17/Chinese-farmland-trump-students/](https://time.com/article/2026/05/17/Chinese-farmland-trump-students/)
+
+### 2026 July
+
+
+2026-07-09 The Trump administration is changing the rules on applying and receiving grants for farmers that will make the process more burdensome and less reliable. 
+
+[https://farmcommons.org/resources/video/federal-funding-rules-are-changing-what-you-need-to-know/](https://farmcommons.org/resources/video/federal-funding-rules-are-changing-what-you-need-to-know/)
+
+[https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s](https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s)

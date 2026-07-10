@@ -215,3 +215,14 @@ PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-na
 PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
 
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
+
+### 2026 July
+
+2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 
+
+[https://www.youtube.com/watch?v=JnulXt18jxw](https://www.youtube.com/watch?v=JnulXt18jxw)
+
+[https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk](https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk)
+
+[https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/](https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/)
+

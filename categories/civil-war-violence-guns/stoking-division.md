@@ -203,3 +203,15 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
 
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
+
+### 2026 June
+
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
+[https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#](https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#)
+
+[https://onoffense.substack.com/p/mike-bost-vfw-political-violence](https://onoffense.substack.com/p/mike-bost-vfw-political-violence)
+
+[https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts](https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts)
+
+[https://www.veteransfightingfascism.org/](https://www.veteransfightingfascism.org/)

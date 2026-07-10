@@ -232,6 +232,16 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 
 [https://haitiantimes.com/2026/06/13/haiti-world-cup-official-jersey-2/](https://haitiantimes.com/2026/06/13/haiti-world-cup-official-jersey-2/)
 
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
+[https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#](https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#)
+
+[https://onoffense.substack.com/p/mike-bost-vfw-political-violence](https://onoffense.substack.com/p/mike-bost-vfw-political-violence)
+
+[https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts](https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts)
+
+[https://www.veteransfightingfascism.org/](https://www.veteransfightingfascism.org/)
+
 2026-06-26 Two federal officers showed up at a polling office in Syracuse New York to threaten a woman for posting on social media criticizing ICE officers. 
 
 [https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3](https://www.youtube.com/watch?v=MuN7H9Kl-cM&list=WL&index=3)

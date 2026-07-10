@@ -33,3 +33,4 @@ permalink: /categories/civil-war-violence-guns/politicizing-to-meet-agendas/
 [https://www.politico.com/news/2025/11/30/walz-klobuchar-trump-attack-minnesota-00671132](https://www.politico.com/news/2025/11/30/walz-klobuchar-trump-attack-minnesota-00671132)
 
 [https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299](https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299)
+

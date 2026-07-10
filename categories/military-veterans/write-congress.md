@@ -293,6 +293,10 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies.
 
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
 2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8.
 
 2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump.
+
+2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 

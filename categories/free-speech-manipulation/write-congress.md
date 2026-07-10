@@ -372,6 +372,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-06-11 FIFA forced Haiti to change the design of their jersey because it was “too political”.
 
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
 2026-06-15 In Britain four Palestine activists were sentenced as terrorists without conviction for protesting in 2024.
 
 2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”

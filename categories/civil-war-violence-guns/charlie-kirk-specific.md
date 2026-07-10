@@ -388,3 +388,13 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 [https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604](https://www.newsweek.com/charlie-kirk-act-tennessee-free-speech-11837604)
 
 [https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114](https://wapp.capitol.tn.gov/apps/BillInfo/Default?BillNumber=HB1476&GA=114)
+
+### 2026 July
+
+2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 
+
+[https://www.youtube.com/watch?v=JnulXt18jxw](https://www.youtube.com/watch?v=JnulXt18jxw)
+
+[https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk](https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk)
+
+[https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/](https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/)

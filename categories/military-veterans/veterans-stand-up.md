@@ -104,6 +104,19 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 [https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest](https://crow.house.gov/media/press-releases/crow-presses-secretary-pete-hegseth-over-defense-department-corruption-conflicts-of-interest)
 
+### 2026 June
+
+2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
+
+[https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#](https://veterans.house.gov/news/documentsingle.aspx?DocumentID=7938#)
+
+[https://onoffense.substack.com/p/mike-bost-vfw-political-violence](https://onoffense.substack.com/p/mike-bost-vfw-political-violence)
+
+[https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts](https://www.vfw.org/media-and-events/latest-releases/archives/2026/6/vfw-action-alert-tell-congress-to-oppose-veterans-benefit-cuts)
+
+[https://www.veteransfightingfascism.org/](https://www.veteransfightingfascism.org/)
+
+
 ### 2026 July
 
 2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
