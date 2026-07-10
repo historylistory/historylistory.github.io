@@ -152,7 +152,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 September
 
-2025-09-08 Charlie Kirk told Laura Ingraham "**Young women, they don't value having children**," and "**Young women who voted for Kamala Harris, they want careerism, consumerism, and loneliness**".
+2025-09-08 Charlie Kirk told Laura Ingraham, “Young women, they don't value having children”, “Young women who voted for Kamala Harris, they want careerism, consumerism, and loneliness”.
 
 [https://www.facebook.com/watch/?v=1446543773245841](https://www.facebook.com/watch/?v=1446543773245841)
 

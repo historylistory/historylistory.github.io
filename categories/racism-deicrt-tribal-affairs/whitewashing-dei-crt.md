@@ -56,7 +56,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2024-03-01 MAGA reframed the acronym DEI as Didn’t Earn It, implying that people of color and marginalized groups only secure jobs or promotions due to mandates rather than merit. 
 
-2024-03-01The US Department of Education updated their FAFSA form to include more racial subcategories for whites.
+2024-03-01 The US Department of Education updated their FAFSA form to include more racial subcategories for whites.
 
 [https://www.binnews.com/content/2026-01-06-fafsa-applicant-asked-to-classify-what-type-of-white-she-is-on-form/](https://www.binnews.com/content/2026-01-06-fafsa-applicant-asked-to-classify-what-type-of-white-she-is-on-form/)
 

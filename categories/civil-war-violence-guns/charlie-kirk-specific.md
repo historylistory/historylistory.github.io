@@ -104,6 +104,10 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
 
+2025-09-08 Charlie Kirk told Laura Ingraham, “Young women, they don't value having children”, “Young women who voted for Kamala Harris, they want careerism, consumerism, and loneliness”.
+
+[https://www.facebook.com/watch/?v=1446543773245841](https://www.facebook.com/watch/?v=1446543773245841)
+
 2025-09-08 Charlie Kirk posted, “Islam is the sword the left is using to slit the throat of America.”
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
