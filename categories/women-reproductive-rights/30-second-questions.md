@@ -17,7 +17,8 @@ Questions will be added over time, with the goal of including reliable sources a
 Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
 
 
-### TITLE
 
-(QUESTION IN PROGRESS, NOT READY) QUESTION
+### Military
+
+(QUESTION IN PROGRESS, NOT READY) Hegseth has renamed ships that were named after Women because it doesn't fit his warrior ethos. flat out said he does not want women in combat roles, has eliminated the womens advisory council in the military. None of the trump administratin has admonished hegseth or stopped him from his anti-woman campaign. How do you explain that to female servicemembers who fight and die for our democracy? 
 
