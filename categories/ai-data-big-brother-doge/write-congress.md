@@ -95,7 +95,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2025-05-14 The Trump administration removed a CFPB rule designed to shield Americans from data brokers and limit the sale of personal information such as credit history, financial data and social security number. 
 
-2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and “white genocide” claims.
+2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and white genocide claims.
 
 2025-06-02 Leaked emails exposed DHS use of the face-scanning app Mobile Fortify to add protestors to ICE databases.
 

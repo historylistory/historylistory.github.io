@@ -80,7 +80,7 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website.
 
-2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women, civil rights leaders, or any other American character he feels does not meet criteria for his “warrior ethos”
+2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
 2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
 

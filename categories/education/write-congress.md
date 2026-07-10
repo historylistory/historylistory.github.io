@@ -155,7 +155,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-05-28 In a White House press conference Trump stated that Harvard “has to behave themselves” and demanded a list of foreign students from the school, stating Harvard should cap foreign attendees to 15%.
 
-2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women, civil rights leaders, or any other American character he feels does not meet criteria for his “warrior ethos”
+2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
 2025-06-01 During an interview with Face the Nation, Wesleyan president Michael Roth said, “…this is really an act of intimidation to scare schools into towing the line of the current administration. It really has nothing to do with national security or with antisemitism. This heightened scrutiny is meant to instill fear on college campuses, and I am afraid it is working”.
 

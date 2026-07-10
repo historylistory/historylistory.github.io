@@ -97,7 +97,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 June
 
-2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women, civil rights leaders, or any other American character he feels does not meet criteria for his "warrior ethos"
+2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
 [https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/](https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/)
 

@@ -27,11 +27,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 ### 2025 May
 
-2025-05-12 Trump allowed immigration for white Afrikaners, claiming South Africa was amid white genocide.
+2025-05-12 Trump allowed immigration for white Afrikaners, claiming South Africa was amidst white genocide.
 
 {% include youtubePlayer.html id="6__bY1JtzU4" %}
 
-2025-05-21 Trump met with South African president Ramaphosa and made baseless claims of a white genocide.
+2025-05-21 Trump made baseless accusations of white genocide while meeting with South African president Ramaphosa.
 
 {% include youtubePlayer.html id="16yLb_rAQkk" %}
 
