@@ -24,6 +24,8 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 ### White Nationalists
 
+(QUESTION IN PROGRESS, NOT READY) the FBI released a press release jan 13 2025 raising alarm about the rise of white supremacy in the us, but the trump administration archived it. This is a fairly recent press release - why did they archive this? 
+
 (QUESTION IN PROGRESS, NOT READY) Young republican website leak. JD vance defended it saying they're all just kids. The group ranges in ages from 18 to 35. Messages included _______. Is it appropriate for a sitting vice president to defend and overlook dangerous rhetoric like this?
 
 (QUESTION IN PROGRESS, NOT READY) There is a pattern of trump defending white nationalists. He called unite the right very fine people, pardoned several oath keepers and proud boys, dined with nick fuentes, 

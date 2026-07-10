@@ -182,7 +182,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: “Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
-2025-01-30 During a confirmation hearing, Senator Alsobrooks asked RFK to explain why he claimed that Black people have a different immune system than white people and why he recommends they should get a different vaccine schedule. He cited an article about pollen but did not outline his scientific basis to back up his claim.
+2025-01-30 Senator Alsobrooks asked RFK why he claimed Black people have a different immune system than white people and should get a different vaccine schedule. 
 
 2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs.
 
