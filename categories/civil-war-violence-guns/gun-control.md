@@ -83,7 +83,11 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 ### 2023
 
-2023-04-05 At the Salt Lake City campus of Awaken Church, Charlie Kirk said having a few gun deaths is a prudent price to pay for the Second Amendment.
+2023-04-05 Charlie Kirk said, “I think it’s worth it to have a cost of, unfortunately, some gun deaths every single year so that we can have the second amendment to protect our other God-given rights. That is a prudent deal. It is rational.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-its-worth-have-cost-unfortunately-some-gun-deaths-every-single-year-so-we](https://www.mediamatters.org/charlie-kirk/charlie-kirk-its-worth-have-cost-unfortunately-some-gun-deaths-every-single-year-so-we)
 
 {% include youtubePlayer.html id="rMzr5cDKza0" %}
 

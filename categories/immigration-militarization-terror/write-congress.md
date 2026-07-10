@@ -89,6 +89,10 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 
+2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
+
+2024-03-20 Charlie Kirk said, “The American Democrat party hates this country. They wanna see it collapse. They love it when America becomes less white.”
+
 2024-03-28 Michigan State Representative Matt Maddock posted on social media during March Madness, “Happening right now. Three buses just loaded up with illegal invaders at Detroit Metro. Anyone have any idea where they’re headed with their police escort? @petehoekstra”.
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.
@@ -246,6 +250,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-08-14 DeSantis announced Deportation Depot; a second ICE detention facility in Florida.
 
 2025-08-19 DHS announced the opening of Cornhusker Clink. 
+
+2025-08-22 Charlie Kirk said, “America was at its peak when we halted immigration for 40 years and we dropped our foreign-born percentage to its lowest level ever. We should be unafraid to do that.”
 
 2025-08-24 Trump threatened to send troops to Baltimore after a verbal dispute with the Maryland Governor. Following Governor Wes Moore ‘s invitation to show Trump Baltimore’s low crime rates, Trump sent out a message on social media, accusing Moore of fudging his figures.
 

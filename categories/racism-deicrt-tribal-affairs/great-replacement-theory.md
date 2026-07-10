@@ -72,6 +72,23 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://www.ms.now/top-stories/latest/marco-rubio-antisemitism-michael-benz-rcna201770](https://www.ms.now/top-stories/latest/marco-rubio-antisemitism-michael-benz-rcna201770)
 
+### 2024 March
+
+2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your](https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your)
+
+
+### 2025 August
+
+2025-08-22 Charlie Kirk said, “America was at its peak when we halted immigration for 40 years and we dropped our foreign-born percentage to its lowest level ever. We should be unafraid to do that.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak](https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak)
+
 ### 2025 September
 
 2025-09-02 Eric Schmitt told a crowd at a National Conservatism meeting the left was “deracinating American tradition into an ideological creed”.

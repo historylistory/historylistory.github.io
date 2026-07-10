@@ -103,7 +103,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2023-02-08 Arkansas Governor Sarah Huckabee Sanders framed politics as a choice between "normal or crazy", accused Democrats of promoting "woke fantasies." and asserted that Republicans “are under attack in a left-wing culture war”.
 
-2023-04-05 At the Salt Lake City campus of Awaken Church, Charlie Kirk said having a few gun deaths is a prudent price to pay for the Second Amendment.
+2023-04-05 Charlie Kirk said, “I think it’s worth it to have a cost of, unfortunately, some gun deaths every single year so that we can have the second amendment to protect our other God-given rights. That is a prudent deal. It is rational.”
 
 2023-05-19 Charlie Kirk said, “Happening all the time in urban America, prowling Blacks go around for fun to go target white people, that’s a fact. It’s happening more and more.”
 

@@ -50,6 +50,20 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2024
 
+2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your](https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your)
+
+
+2024-03-20 Charlie Kirk said, “The American Democrat party hates this country. They wanna see it collapse. They love it when America becomes less white.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-american-democrat-party-hates-country-they-wanna-see-it-collapse-they](https://www.mediamatters.org/charlie-kirk/charlie-kirk-american-democrat-party-hates-country-they-wanna-see-it-collapse-they)
+
+
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.
 
 {% include youtubePlayer.html id="bZvTStL5GB8" %}
@@ -132,6 +146,13 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 [https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848](https://www.ndtv.com/world-news/cannibal-migrant-on-deportation-flight-literally-ate-his-own-arms-8816848)
 
 ### 2025 August
+
+2025-08-22 Charlie Kirk said, “America was at its peak when we halted immigration for 40 years and we dropped our foreign-born percentage to its lowest level ever. We should be unafraid to do that.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak](https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak)
+
 
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 

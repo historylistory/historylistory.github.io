@@ -14,6 +14,11 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.mediamatters.org/charlie-kirk/charlie-kirk-if-youre-wnba-pot-smoking-black-lesbian-do-you-get-treated-better-united](https://www.mediamatters.org/charlie-kirk/charlie-kirk-if-youre-wnba-pot-smoking-black-lesbian-do-you-get-treated-better-united)
 
+2023-04-05 Charlie Kirk said, “I think it’s worth it to have a cost of, unfortunately, some gun deaths every single year so that we can have the second amendment to protect our other God-given rights. That is a prudent deal. It is rational.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-its-worth-have-cost-unfortunately-some-gun-deaths-every-single-year-so-we](https://www.mediamatters.org/charlie-kirk/charlie-kirk-its-worth-have-cost-unfortunately-some-gun-deaths-every-single-year-so-we)
 
 2023-05-19 Charlie Kirk said, “Happening all the time in urban America, prowling Blacks go around for fun to go target white people, that’s a fact. It’s happening more and more.”
 
@@ -40,6 +45,20 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
 
+2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your](https://www.mediamatters.org/charlie-kirk/charlie-kirk-pushes-great-replacement-conspiracy-they-wont-stop-until-you-and-your)
+
+
+2024-03-20 Charlie Kirk said, “The American Democrat party hates this country. They wanna see it collapse. They love it when America becomes less white.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-american-democrat-party-hates-country-they-wanna-see-it-collapse-they](https://www.mediamatters.org/charlie-kirk/charlie-kirk-american-democrat-party-hates-country-they-wanna-see-it-collapse-they)
+
+
 2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
@@ -65,6 +84,13 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
 
 [https://www.mediamatters.org/media/4032192](https://www.mediamatters.org/media/4032192)
+
+2025-08-22 Charlie Kirk said, “America was at its peak when we halted immigration for 40 years and we dropped our foreign-born percentage to its lowest level ever. We should be unafraid to do that.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak](https://www.mediamatters.org/charlie-kirk/charlie-kirk-says-he-cant-find-christ-compassion-long-term-immigrants-who-dont-speak)
+
 
 2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”
 

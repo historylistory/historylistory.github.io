@@ -63,6 +63,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2024
 
+2024-03-20 Charlie Kirk said, “The American Democrat party hates this country. They wanna see it collapse. They love it when America becomes less white.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-american-democrat-party-hates-country-they-wanna-see-it-collapse-they](v)
+
+
 2024-07-10 Vance said during a National Conservatism convention, “Look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 [https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve](https://www.cbsnews.com/news/jd-vance-debate-immigration-housing-prices-real-estate-federal-reserve)
