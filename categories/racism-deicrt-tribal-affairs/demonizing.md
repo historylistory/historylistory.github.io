@@ -139,7 +139,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/demonizing/
 
 ### 2025 September
 
-2025-09-09 During an interview on Right Wing Watch, Pastor Joel Webbon said Christian parents need to have "**the talk**" with their children about the dangers of Black people.
+2025-09-09 Pastor Joel Webbon said Christian parents need to have “the talk” with their children about the dangers of Black people.
 
 [https://x.com/rightwingwatch/status/1965441200627782132?s=46](https://x.com/rightwingwatch/status/1965441200627782132?s=46)
 

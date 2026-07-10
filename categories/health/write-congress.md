@@ -306,7 +306,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-09-09 RFK unveiled his “Make Our Children Healthy Again” initiative, with a sweeping overhaul to policies based on his version of “gold-standard” pseudoscience.
 
-2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
+2025-09-10 Emma Waters of the Heritage Foundation addressed pro-life views, saying outsourcing IVF could invite birthright citizenship.
 
 2025-09-10 In an effort to ensure safety for both patients and providers, California considered a law to omit names from abortion pill bottles.
 

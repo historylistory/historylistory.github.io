@@ -46,3 +46,6 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 (QUESTION IN PROGRESS, NOT READY) Trump made several derogatory comments about COVID-19 and China. He called it the wu-han flu...chinese virus, kung flu. It wasn't long before lawmakers had to pass a COVID 19 Hate Crimes Act (also known as the Anti-Asian Hate Crime Bill). Do you think a sitting president should be dismissed or waived off when he speaks rhetoric that incites racial violence and injustice to the extend we need to pass legislation to protect people? 
 
+### Legislation
+
+(QUESTION IN PROGRESS, NOT READY) This administration defunded Minority Business Development Agency, farm programs to help Black farmers, Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans. Why the massive attack on minorities? 

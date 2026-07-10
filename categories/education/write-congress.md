@@ -201,7 +201,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-09-08 Trump paused funding for special-education programs and teacher-training initiatives, giving affected organizations one week to appeal. The U.S. Department of Education said, quote, that this department is “inconsistent with, and no longer effectuates, the best interests of the federal government”.
 
-2025-09-10 The Department of Education defunded minority-serving institutions such as Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
+2025-09-10 The DOE defunded Strengthening Alaska Native and Native Hawaiian-Serving Institutions, Strengthening Predominantly Black Institutions, Strengthening Asian American and Native American Pacific Islander Serving Institutions, Strengthening Native American Serving Nontribal Institutions, Minority Science and Engineering Improvement, Developing Hispanic Service Institutions, and Promoting Postbaccalaureate Opportunities for Hispanic Americans.
 
 2025-09-14 During a prayer vigil for Kirk, Kari Lake claimed the suspect was “brainwashed” by woke and then warned not to send their children to universities, which she labeled “indoctrination camps”. Kari Lake also stirred controversy in 2022 when she demanded ballots be counted by hand.
 

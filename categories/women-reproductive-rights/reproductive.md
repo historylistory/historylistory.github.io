@@ -406,7 +406,7 @@ The ban was supported by **ADF International legal communications director Elyss
 
 ### 2025 September
 
-2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
+2025-09-10 Emma Waters of the Heritage Foundation addressed pro-life views, saying outsourcing IVF could invite birthright citizenship.
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 

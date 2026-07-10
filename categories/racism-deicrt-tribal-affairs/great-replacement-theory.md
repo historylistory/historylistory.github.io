@@ -74,7 +74,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 ### 2025 September
 
-2025-09-02 During a National Conservatism meeting, Eric Schmitt said the left was "**deracinating American tradition into an ideological creed**" and 37 minutes into his speech he called for the right to revolt.
+2025-09-02 Eric Schmitt told a crowd at a National Conservatism meeting the left was “deracinating American tradition into an ideological creed”.
 
 [https://www.c-span.org/program/public-affairs-event/national-conservatism-conference-senator-eric-schmitt-and-others/665005](https://www.c-span.org/program/public-affairs-event/national-conservatism-conference-senator-eric-schmitt-and-others/665005)
 
@@ -86,7 +86,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://newrepublic.com/post/199933/republican-senator-schmitt-speech-america-belongs-to-us](https://newrepublic.com/post/199933/republican-senator-schmitt-speech-america-belongs-to-us)
 
-2025-09-10 During an interview Emma Waters of the Heritage Foundation addressed her pro-life views and made a correlation between IVF and birthright citizenship, saying outsourcing IVF could invite birthright citizenship. 
+2025-09-10 Emma Waters of the Heritage Foundation addressed pro-life views, saying outsourcing IVF could invite birthright citizenship.
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
