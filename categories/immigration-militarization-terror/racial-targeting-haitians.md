@@ -30,7 +30,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-haitia
 
 [https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html](https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html)
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
 [https://x.com/tedcruz/status/1833174142591365185](https://x.com/tedcruz/status/1833174142591365185)
 

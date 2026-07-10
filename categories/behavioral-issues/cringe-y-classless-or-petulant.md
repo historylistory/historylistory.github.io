@@ -111,7 +111,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.advocate.com/politics/marjorie-taylor-green-laura-loomer#:~:text=Loomer's%20extremist%20views%20have%20been,similar%20forms%20of%20hate%20speech](https://www.advocate.com/politics/marjorie-taylor-green-laura-loomer).
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
 [https://x.com/tedcruz/status/1833174142591365185](https://x.com/tedcruz/status/1833174142591365185)
 

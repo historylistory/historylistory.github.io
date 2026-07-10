@@ -92,6 +92,12 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://x.com/realDonaldTrump/status/1827784751312142496](https://x.com/realDonaldTrump/status/1827784751312142496)
 
+### 2024 September 
+
+2024-09-08 Laura Loomer posted if Kamala Harris became president “the White House will smell like curry”. JD Vance refused to condemn the comment and replied, “I make a mean chicken curry”.
+
+[https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139](https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139)
+
 ### 2025 February
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 

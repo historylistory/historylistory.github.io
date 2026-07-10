@@ -87,7 +87,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
-2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
+2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.
 
 [https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/](https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/)
 
@@ -139,7 +139,7 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2025 September
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 

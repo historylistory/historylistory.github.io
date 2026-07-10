@@ -134,11 +134,11 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2024-07-24 The federal minimum wage of 7.25 had been stuck at that rate for 15 years.
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 2024-09-18 JD Vance funded AcreTrader, which led to consolidation of farmland and reduced competition. Allegedly, JD Vance’s firm bought up American farmland and resold it to foreign investors.
 
-2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
+2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.
 
 2024-10-24 Yale reported on the ease of manipulating prediction markets.  
 

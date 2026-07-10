@@ -114,7 +114,7 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, ”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”. 
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
 2024-09-10 Arizona Republicans promoted “Eat Less Kittens – Vote Republican” billboards.
 

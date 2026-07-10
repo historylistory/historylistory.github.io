@@ -88,7 +88,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 January
 
-2025-01-13 (Context) The FBI sent out a press release noting deep concern about violent white supremacism.
+2025-01-13 An FBI press release raised alarm about increasing white supremacism. 
 
 [https://2021-2025.state.gov/office-of-the-spokesperson/releases/2025/01/terrorist-designations-of-the-terrorgram-collective-and-three-leaders/](https://2021-2025.state.gov/office-of-the-spokesperson/releases/2025/01/terrorist-designations-of-the-terrorgram-collective-and-three-leaders/)
 

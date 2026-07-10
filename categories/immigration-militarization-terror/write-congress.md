@@ -97,13 +97,13 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2024-07-18 During the RNC, Trump once again used the language “invasion” when referring to immigration.
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 2024-09-09 Trump reposted a tweet from JD Vance, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump added “Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did”.
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
-2024-09-10 JD Vance posted on Truth Social “In the last several weeks, my office has received many inquiries from actual residents of Springfield who’ve said their neighbors’ pets or local wildlife were abducted by Haitian migrants. It’s possible, of course, that all of these rumors will turn out to be false”.
+2024-09-10 JD Vance posted “In the last several weeks, my office has received many inquiries from actual residents of Springfield who’ve said their neighbors’ pets or local wildlife were abducted by Haitian migrants. It’s possible, of course, that all of these rumors will turn out to be false”.
 
 2024-09-10 Trump falsely accused Haitian immigrants of eating pets during a debate and denied involvement with Project 2025.
 
@@ -115,7 +115,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2024-09-29 During a campaign rally in Eerie Pennsylvania, Trump suggested unlimited police brutality with no consequences,  “One rough hour – and I mean real rough – the word will get out and it will end immediately, you know?”.
 
-2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
+2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.
 
 2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later.
 

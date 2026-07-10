@@ -22,7 +22,7 @@ permalink: /categories/economy-labor-poverty/housing/
 
 ### 2024
 
-2024-10-02 During a debate with Tim Walz, Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”. 
+2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.
 
 [https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/](https://www.cbsnews.com/news/full-vp-debate-transcript-walz-vance-2024/)
 

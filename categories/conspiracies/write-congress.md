@@ -116,11 +116,11 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2024-09-09 Trump reposted a tweet from JD Vance, “Months ago, I raised the issue of Haitian illegal immigrants draining social services and generally causing chaos all over Springfield, Ohio. Reports now show that people have had their pets abducted and eaten by people who shouldn’t be in this country. Where is our border czar?”. Trump added “Border Czar Kamala Harris invited thousands of Haitian Migrants to flood into America and now a small town in Ohio is being torn apart because of what Kamala did”.
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
 2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
-2024-09-10 JD Vance posted on Truth Social “In the last several weeks, my office has received many inquiries from actual residents of Springfield who’ve said their neighbors’ pets or local wildlife were abducted by Haitian migrants. It’s possible, of course, that all of these rumors will turn out to be false”.
+2024-09-10 JD Vance posted “In the last several weeks, my office has received many inquiries from actual residents of Springfield who’ve said their neighbors’ pets or local wildlife were abducted by Haitian migrants. It’s possible, of course, that all of these rumors will turn out to be false”.
 
 2024-09-10 Laura Loomer spread the rumor that Kamala Harris wore a Bluetooth earring during the presidential debate; the post reached at least 6.6 million views. 
 

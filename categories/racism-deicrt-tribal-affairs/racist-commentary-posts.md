@@ -177,7 +177,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2024 September
 
-2024-09-08 Laura Loomer posted her "**the White House will smell like curry**" comment. During an interview, JD Vance refused to condemn the comment and misdirected the discussion away to unrelated topics.
+2024-09-08 Laura Loomer posted if Kamala Harris became president “the White House will smell like curry”. JD Vance refused to condemn the comment and replied, “I make a mean chicken curry”.
 
 [https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139](https://www.nbcnews.com/politics/2024-election/vance-laura-loomer-comments-kamala-curry-haitian-migrants-pets-rcna171139)
 
@@ -185,7 +185,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html](https://www.cnbc.com/2024/09/10/jd-vance-false-conspiracy-haitian-immigrants-john-kirby.html)
 
-2024-09-09 Ted Cruz posted a meme on social media of two cats hugging each other, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
+2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
 [https://x.com/tedcruz/status/1833174142591365185](https://x.com/tedcruz/status/1833174142591365185)
 
@@ -218,7 +218,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2024 October
 
-2024-10-28 During the Madison Square Garden Trump rally, Kill-Tony called Puerto Rico a **floating pile of garbage**.
+2024-10-28 During the Madison Square Garden Trump rally, Kill-Tony called Puerto Rico a floating pile of garbage.
 
 [https://www.bbc.com/news/articles/cy9jj2g75q4o](https://www.bbc.com/news/articles/cy9jj2g75q4o)
 

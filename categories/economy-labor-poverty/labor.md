@@ -40,7 +40,7 @@ permalink: /categories/economy-labor-poverty/labor/
 [https://www.upjohn.org/research-highlights/does-increasing-minimum-wage-lead-higher-prices](https://www.upjohn.org/research-highlights/does-increasing-minimum-wage-lead-higher-prices)
 
 
-2024-09-05 During a campaign rally in Phoenix Arizona, JD Vance said, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
