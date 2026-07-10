@@ -158,15 +158,15 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 [https://truthsocial.com/@realDonaldTrump/posts/114745592965123786](https://truthsocial.com/@realDonaldTrump/posts/114745592965123786)
 
-2025-06-25 Nancy Mace linked Zohran Mamdani to September 11 in a social media post, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
+2025-06-25 After Mamdani won, Nancy Mace posted, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
 
 [https://x.com/NancyMace/status/1937864426410869062](https://x.com/NancyMace/status/1937864426410869062)
 
-2025-06-25 Andy Ogles posted on social media, "Zohran 'little muhammad' Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York" and called for him to be deported
+2025-06-25 Andy Ogles posted, “Zohran little muhammad Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York”. 
 
 [https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2](https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2)
 
-2025-06-25 After Mamdani's win for Democratic primary in New York, Marjorie Taylor Greene posted a picture of the Statue of Liberty covered in a burqa with the caption "This Hits Hard".
+2025-06-25 In response to Mamdani’s win, MJT posted a picture of the Statue of Liberty covered in a burqa captioned, “This Hits Hard”.
 
 [https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/](https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/)
 

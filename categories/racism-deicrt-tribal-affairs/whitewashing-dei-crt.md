@@ -150,8 +150,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/](https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/)
 
-2025-06-10 National parks were instructed to post QR codes allowing visitors to report exhibits deemed “too woke,” including content about climate change, pollution, slavery, or Native American history.
-
+2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 [https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs](https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs)
 
 [https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/](https://www.motherjones.com/politics/2025/08/trump-executive-order-national-park-signs-sanitize-history-backlash/)

@@ -161,7 +161,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-06-10 An MIT essay study suggested students using ChatGPT experienced “cognitive debt.”
 
-2025-06-10 National parks were instructed to post QR codes allowing visitors to report exhibits deemed “too woke,” including content about climate change, pollution, slavery, or Native American history.
+2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 
 2025-06-18 The Trump administration froze Columbia University funds again.
 

@@ -49,7 +49,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 ### 2025
 
-2025-07-01 The American Eagle “good jeans” commercial drew intense criticism about white supremacy and eugenics. The commercial featured Sydney Sweeney stating, “Genes are passed down from parents to offspring, often determining traits like hair color, personality, and even eye color. My jeans are blue”, followed by a voiceover “Sydney Sweeney has great jeans”.
+2025-07-01 The American Eagle “good jeans” commercial drew mixed criticism, “Genes are passed down from parents to offspring, often determining traits like hair color, personality, and even eye color. My jeans are blue – Sydney Sweeney has great jeans”.
 
 [https://theconversation.com/why-sydney-sweeneys-american-eagle-campaign-is-part-of-a-wider-cultural-backlash-262417](https://theconversation.com/why-sydney-sweeneys-american-eagle-campaign-is-part-of-a-wider-cultural-backlash-262417)
 

@@ -31,7 +31,7 @@ permalink: /categories/climate-change/climate-change-denial/
 
 ### 2025 June
 
-2025-06-10 National parks were instructed to post QR codes allowing visitors to report exhibits deemed “too woke,” including content about climate change, pollution, slavery, or Native American history.
+2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 
 [https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs](https://www.npr.org/2025/06/10/nx-s1-5429773/national-park-service-signs)
 

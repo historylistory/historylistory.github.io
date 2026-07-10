@@ -205,7 +205,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-06-14 By this date, award-winning Spanish journalist Mario Guevara who has lived in the United States for 20 years had been in ICE custody for over 100 days even after an immigration judge granted him bond. ACLU said he was not allowed to say goodbye to his wife and three children. He was arrested in June while livestreaming a No Kings demonstration. He was charged with unlawful assembly, obstruction, and being a pedestrian on a roadway.
 
-2025-06-14 ICE detained people solely based on their skin color and language. This is racial profiling 
+2025-06-14 ICE detain people based solely on skin color and accents, which is racial profiling no matter which way you dice it.
 
 2025-06-17 Brad Landers was detained by federal agents while he tried to peacefully escort a man out of immigration court in Manhattan.
 

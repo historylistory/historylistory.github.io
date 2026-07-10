@@ -17,7 +17,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/worldwide/
 
 ### 2025
 
-2025-06-10 UK leadership pushed an anti-Muslim campaign to ban burquas and hijabs.
+2025-06-10 UK leadership pushed an anti-Muslim ban on burqas and hijabs.
 
 [https://www.theguardian.com/commentisfree/2025/jun/10/britain-politicians-ban-burqa-muslims](https://www.theguardian.com/commentisfree/2025/jun/10/britain-politicians-ban-burqa-muslims)
 

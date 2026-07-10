@@ -107,7 +107,7 @@ The following examples highlight these concerns, while some are included for his
 
 2025-05-08 Trump fired FEMA Acting Administrator Cameron Hamilton one day after he testified against dismantling the agency.
 
-2025-06-10 National parks were instructed to post QR codes allowing visitors to report exhibits deemed “too woke,” including content about climate change, pollution, slavery, or Native American history.
+2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 
 2025-06-21 Trump posted on social media, “I HATE ‘GREEN TAX CREDITS’ IN THE GREAT, BIG, BEAUTIFUL BILL. They are largely a giant SCAM….Windmills, and the rest of this is ‘JUNK’”. 
 

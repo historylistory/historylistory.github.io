@@ -23,7 +23,7 @@ permalink: /categories/immigration-militarization-terror/reasonable-suspicion/
 
 ### 2025 June
 
-2025-06-14 ICE detained people solely based on their skin color and language. This is racial profiling
+2025-06-14 ICE detain people based solely on skin color and accents, which is racial profiling no matter which way you dice it.
 
 {% include youtubePlayer.html id="m0uynHtk7zU" %}
 

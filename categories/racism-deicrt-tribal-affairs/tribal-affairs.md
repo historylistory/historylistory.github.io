@@ -57,7 +57,7 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 ### 2025 July
 
-2025-07-06 Ann Coulter posted “We didn’t kill enough Indians” in response to a Navajo woman professor dictation.
+2025-07-06 Ann Coulter posted, “We didn’t kill enough Indians”.
 
 [https://www.ncai.org/news/ncai-condemns-ann-coulter-s-we-didn-t-kill-enough-indians-violent-and-shameful-hate-speech-targeting-tribal-nations](https://www.ncai.org/news/ncai-condemns-ann-coulter-s-we-didn-t-kill-enough-indians-violent-and-shameful-hate-speech-targeting-tribal-nations)
 

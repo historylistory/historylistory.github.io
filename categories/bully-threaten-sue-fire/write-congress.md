@@ -200,11 +200,11 @@ Manhattan grand jury in the hush-money case.
 
 2025-06-25 Trump posted multiple attacks on media outlets and Democrats on social media to reinforce his MAGA base and keep them riled.
 
-2025-06-25 Nancy Mace linked Zohran Mamdani to September 11 in a social media post, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
+2025-06-25 After Mamdani won, Nancy Mace posted, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
 
-2025-06-25 Andy Ogles posted on social media, “Zohran ‘little muhammad’ Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York” and called for him to be deported
+2025-06-25 Andy Ogles posted, “Zohran little muhammad Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York”. 
 
-2025-06-25 After Mamdani’s win for Democratic primary in New York, Marjorie Taylor Greene posted a picture of the Statue of Liberty covered in a burqa with the caption “This Hits Hard”.
+2025-06-25 In response to Mamdani’s win, MJT posted a picture of the Statue of Liberty covered in a burqa captioned, “This Hits Hard”.
 
 2025-07-01 Trump dismissed the entire Commission of Fine Arts and appointed replacements aligned with his priorities. 
 

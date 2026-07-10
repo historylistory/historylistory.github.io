@@ -37,7 +37,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 ### 2025 July
 
-2025-07-19 A news outlet reported on a letter from America First Legal Foundation requesting the Department of Justice Civil Rights Division investigate Johns Hopkins University for anti-white discrimination. The article stated America First Legal waged a lawsuit against Johns Hopkins accusing them of leveraging disparities on the U.S. census to help Black and Hispanic households.
+2025-07-19 America First Legal sued Johns Hopkins, accusing them of leveraging disparities from the US Census to help Black and Hispanic households. 
 
 [https://www.msnbc.com/opinion/msnbc-opinion/johns-hopkins-stephen-miller-america-first-legal-dei-affirmative-actio-rcna219607](https://www.msnbc.com/opinion/msnbc-opinion/johns-hopkins-stephen-miller-america-first-legal-dei-affirmative-actio-rcna219607)
 

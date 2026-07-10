@@ -224,7 +224,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2025 June
 
-2025-06-02 A news article quoted Curtis Yarvin as saying we should *“put the church Blacks in charge of the ghetto Blacks”.* 
+2025-06-02 A news article quoted Curtis Yarvin saying we should “put the church Blacks in charge of the ghetto Blacks”.
 
 [https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile](https://www.newyorker.com/magazine/2025/06/09/curtis-yarvin-profile)
 
@@ -232,17 +232,17 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
-2025-06-25 After Mamdani's win for Democratic primary in New York, Marjorie Taylor Greene posted a picture of the Statue of Liberty covered in a burqa with the caption "This Hits Hard".
+2025-06-25 In response to Mamdani’s win, MJT posted a picture of the Statue of Liberty covered in a burqa captioned, “This Hits Hard”.
 
 [https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/](https://www.mediaite.com/media/tv/host-confronts-marjorie-taylor-greene-for-posting-image-of-statue-of-liberty-in-a-burqa-what-did-you-mean-by-that/)
 
 [https://x.com/mtgreenee/status/1937851484567195954](https://x.com/mtgreenee/status/1937851484567195954)
 
-2025-06-25 Nancy Mace posted on X insinuating that Mamdani was somehow tied to September 11th. She wrote, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
+2025-06-25 After Mamdani won, Nancy Mace posted, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
 
 [https://x.com/NancyMace/status/1937864426410869062](https://x.com/NancyMace/status/1937864426410869062)
 
-2025-06-25 Andy Ogles posted on social media "Zohran 'little muhammad' Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York" and calls for him to be deported
+2025-06-25 Andy Ogles posted, “Zohran little muhammad Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York”. 
 
 [https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2](https://www.instagram.com/p/DLYzVItOW72/?hl=en&img_index=2)
 
@@ -252,7 +252,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.bbc.com/news/articles/c80p3v0xx53o](https://www.bbc.com/news/articles/c80p3v0xx53o)
 
-2025-07-06 Ann Coulter posted “We didn’t kill enough Indians” in response to a Navajo woman professor dictation.
+2025-07-06 Ann Coulter posted, “We didn’t kill enough Indians”.
 
 [https://www.ncai.org/news/ncai-condemns-ann-coulter-s-we-didn-t-kill-enough-indians-violent-and-shameful-hate-speech-targeting-tribal-nations](https://www.ncai.org/news/ncai-condemns-ann-coulter-s-we-didn-t-kill-enough-indians-violent-and-shameful-hate-speech-targeting-tribal-nations)
 
