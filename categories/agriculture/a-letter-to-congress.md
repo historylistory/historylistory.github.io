@@ -19,20 +19,14 @@ From there you can email, call or physically mail a letter to your Representativ
 Here’s how you address that letter (if mailing) 
 
 For U.S. Representatives
-
-The Honorable [Full Name]
-
-U.S. House of Representatives[Building Name and Room Number]
-
-Washington, DC 20515 
+* The Honorable [Full Name]
+* U.S. House of Representatives[Building Name and Room Number]
+* Washington, DC 20515 
 
 For U.S. Senators
-
-The Honorable [Full Name]
-
-United States Senate[Building Name and Room Number]
-
-Washington, DC 20510 
+* The Honorable [Full Name]
+* United States Senate[Building Name and Room Number]
+* Washington, DC 20510 
 
 
 ### SAMPLE LETTER
