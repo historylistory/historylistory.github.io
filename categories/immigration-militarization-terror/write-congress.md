@@ -499,7 +499,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2026-01-14 In Santa Ana ICE shot a 21-year-old man in the face and blinded him. The man underwent 6 hours of surgery to remove plastic, metal and glass. The surgeon stated the shrapnel narrowly missed a carotid artery.
 
-2026-01-14 Trump’s ICE goons began going door to door asking residents to point out their immigrant neighbors.
+2026-01-14 Trump’s ICE goons went door to door asking residents to point out their immigrant neighbors.
 
 2026-01-15 ICE profiled and detained members of the Oglala Sioux tribe.
 

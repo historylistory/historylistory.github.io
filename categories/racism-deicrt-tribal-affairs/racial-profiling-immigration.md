@@ -53,7 +53,7 @@ For a specific group being targeted, reference these sections under Immigration:
 
 ### 2026 January
 
-2026-01-14 Trump’s ICE goons began going door to door asking residents to point out their immigrant neighbors.
+2026-01-14 Trump’s ICE goons went door to door asking residents to point out their immigrant neighbors.
 
 [https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says](https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says)
 

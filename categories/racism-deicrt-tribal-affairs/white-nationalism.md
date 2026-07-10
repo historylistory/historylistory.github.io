@@ -238,7 +238,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.newsnationnow.com/politics/elon-musk-repost-white-diatribe/](https://www.newsnationnow.com/politics/elon-musk-repost-white-diatribe/)
 
-2026-01-09 The White House shared posts with the neo-nazi anthem “We’ll have our home again”.
+2026-01-09 The White House posted the neo-Nazi anthem, “We’ll have our home again”.
 
 [https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html](https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html)
 
@@ -254,15 +254,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.splcenter.org/resources/extremist-files/national-alliance/](https://www.splcenter.org/resources/extremist-files/national-alliance/)
 
-2026-01-10 The US Department of Labor echoed a Nazi slogan on social media “One Homeland. One People. One Heritage.”
+2026-01-10 The US Department of Labor echoed a Nazi slogan on social media, “One Homeland. One People. One Heritage.”
 
 [https://x.com/USDOL/status/2010141673389769214](https://x.com/USDOL/status/2010141673389769214)
 
 [https://truthout.org/articles/why-is-the-department-of-labor-posting-white-nationalist-propaganda/](https://truthout.org/articles/why-is-the-department-of-labor-posting-white-nationalist-propaganda/)
-
-2026-01-16 Larry Ellison had to rename one of his superyachts after news outlets reported the irony of reading the name IZANAMI backwards.
-
-[https://www.timesofisrael.com/larry-ellison-renamed-superyacht-whose-name-backwards-was-im-a-nazi/](https://www.timesofisrael.com/larry-ellison-renamed-superyacht-whose-name-backwards-was-im-a-nazi/)
 
 2026-01-17 Border Patrol Chief Bovino was caught on video cosplaying in a Nazi overcoat.
 

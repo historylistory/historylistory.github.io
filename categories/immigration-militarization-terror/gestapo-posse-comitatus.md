@@ -276,7 +276,7 @@ A military state to suppress people and prevent an uprising. ICE is here to norm
 
 [https://truthsocial.com/@realDonaldTrump/posts/115888070937502023](https://truthsocial.com/@realDonaldTrump/posts/115888070937502023)
 
-2026-01-14 Trump’s ICE goons began going door to door asking residents to point out their immigrant neighbors.
+2026-01-14 Trump’s ICE goons went door to door asking residents to point out their immigrant neighbors.
 
 [https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says](https://www.pbs.org/newshour/politics/2000-federal-agents-sent-to-minneapolis-area-to-carry-out-largest-immigration-operation-ever-ice-says)
 
