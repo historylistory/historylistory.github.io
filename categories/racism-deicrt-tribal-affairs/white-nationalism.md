@@ -340,7 +340,7 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 ### 2026 June
 
-2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center of using funds to pay KKK members as informants.
 
 [https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
 

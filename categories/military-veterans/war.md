@@ -300,7 +300,7 @@ FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail
 [https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
 
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
+2026-04-21 The Trump administration said it would be sending Afghan refugees who helped US forces during Afghanistan to the Democratic Republic of Congo. 
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
 

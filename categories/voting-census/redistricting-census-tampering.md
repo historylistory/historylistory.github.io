@@ -251,7 +251,7 @@ EDUCATIONAL [https://www.youtube.com/watch?v=ibb0Bg-RB8M&list=WL&index=2](https:
 
 ### 2026 May
 
-2026-05-03 Alabama Governor kay Ivey called a special session to redraw the states congressional map and revert back to one that would eliminate a Democrat-held seat, creating a 7-0 Republican delegation.
+2026-05-03 Alabama Governor Kay Ivey called a special session to redraw the state’s congressional map and revert back to one that would eliminate a Democrat-held seat, creating a 7-0 Republican delegation.
 
 [https://www.democracydocket.com/news-alerts/chaos-alabama-prepares-to-eliminate-majority-black-districts-while-moving-forward-with-elections-it-may-annul/](https://www.democracydocket.com/news-alerts/chaos-alabama-prepares-to-eliminate-majority-black-districts-while-moving-forward-with-elections-it-may-annul/)
 

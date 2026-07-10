@@ -210,7 +210,7 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 [https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues](https://www.democracynow.org/2026/4/21/headlines/delegates_arrive_in_nyc_for_united_nations_permanent_forum_on_indigenous_issues)
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
+2026-04-21 The Trump administration said it would be sending Afghan refugees who helped US forces during Afghanistan to the Democratic Republic of Congo. 
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
 

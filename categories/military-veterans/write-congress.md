@@ -259,7 +259,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful anti-war protest at the Cannon House Office Building in Washington D.C. organized by About Face . 
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
+2026-04-21 The Trump administration said it would be sending Afghan refugees who helped US forces during Afghanistan to the Democratic Republic of Congo. 
 
 2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
 

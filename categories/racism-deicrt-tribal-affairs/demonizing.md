@@ -214,7 +214,7 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 ### 2026 June
 
-2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center of using funds to pay KKK members as informants.
 
 [https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
 

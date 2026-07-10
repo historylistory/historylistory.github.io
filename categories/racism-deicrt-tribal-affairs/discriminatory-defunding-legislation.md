@@ -230,11 +230,6 @@ TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&i
 
 [https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/](https://www.protectourcare.org/video-receipts-rfk-jr-falsely-denies-saying-black-children-on-adhd-medication-should-be-re-parented-the-tape-says-otherwise/)
 
-2026-04-27 The Trump administration instructed DHS and immigration officers to deny green cards to anyone who protested views that didn’t align with Trump, including criticizing Israel or supporting Palestine. 
-
-[https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002](https://people.com/trump-administration-immigrants-can-be-denied-green-cards-expressing-political-opinions-11959002)
-
-[https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel](https://www.democracynow.org/2026/4/27/headlines/nyt_dhs_seeks_to_deny_green_cards_to_immigrants_whove_criticized_israel)
 
 
 ### 2026 May
@@ -262,7 +257,7 @@ PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-
 
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
 
-2026-06-09 GOP lawmakers accused the Southern Poverty Law Center for using funds to pay KKK members as informants. 
+2026-06-09 GOP lawmakers accused the Southern Poverty Law Center of using funds to pay KKK members as informants.
 
 [https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6](https://www.youtube.com/watch?v=ENqrqf4719g&list=WL&index=6)
 

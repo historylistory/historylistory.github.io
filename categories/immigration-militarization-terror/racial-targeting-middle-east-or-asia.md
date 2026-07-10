@@ -14,7 +14,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-middle
 
 [https://www.reuters.com/world/middle-east/trump-administration-attempts-deport-iranian-media-commentator-yousof-azizi-2026-04-16/](https://www.reuters.com/world/middle-east/trump-administration-attempts-deport-iranian-media-commentator-yousof-azizi-2026-04-16/)
 
-2026-04-21 The Trump administration said it would be sending up to 1100 Afghans to the Democratic Republic of Congo or other countries they are not from. The Afghan refugees they were referring to were those who helped US forces during the U.S. invasion of Afghanistan.
+2026-04-21 The Trump administration said it would be sending Afghan refugees who helped US forces during Afghanistan to the Democratic Republic of Congo. 
 
 [https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo](https://www.theguardian.com/us-news/2026/apr/21/afghan-refugees-us-congo)
 
