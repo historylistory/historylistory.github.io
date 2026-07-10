@@ -61,7 +61,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2019-09-10 Trump publicly criticized former National Security Advisor John Bolton. 
 
-2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
+2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
 2020-06-28 Mark and Patricia McCloskey pointed firearms at protesters outside their Missouri home. 
 

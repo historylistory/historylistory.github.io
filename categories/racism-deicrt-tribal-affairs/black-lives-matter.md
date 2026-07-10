@@ -47,7 +47,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 [https://abcnews.go.com/US/men-convicted-ahmaud-arberys-murder-new-trial/story?id=115101537](https://abcnews.go.com/US/men-convicted-ahmaud-arberys-murder-new-trial/story?id=115101537)
 
-2020-05-25 George Floyd was murdered when a police officer pressed his knee into the back of Floyd's neck for more than 9 minutes.
+2020-05-25 George Floyd died after a police officer pressed his knee into the back of Floyd’s neck for more than 9 minutes.
 
 [https://www.mprnews.org/crime-law-and-justice/killing-of-george-floyd](https://www.mprnews.org/crime-law-and-justice/killing-of-george-floyd)
 

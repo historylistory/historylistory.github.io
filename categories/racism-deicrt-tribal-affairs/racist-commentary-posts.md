@@ -114,7 +114,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.politico.com/news/2020/06/17/house-republicans-condemn-gop-candidate-racist-videos-325579](https://www.politico.com/news/2020/06/17/house-republicans-condemn-gop-candidate-racist-videos-325579)
 
-2020-03-18 When asked during a press conference why he keeps calling COVID the "China virus" Trump blankly stated "Because it comes from China".
+2020-03-18 Trump received media attention for referring to COVID as the “China virus” which he said was “because it comes from China”.
 
 [https://www.bbc.com/news/world-asia-china-57268111](https://www.bbc.com/news/world-asia-china-57268111)
 

@@ -8,7 +8,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 ### 2020
 
-2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
+2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
 [https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement](https://democrats-naturalresources.house.gov/media/press-releases/on-anniversary-of-june-1-crackdown-on-peaceful-protesters-in-lafayette-square-ranking-member-grijalva-releases-report-with-new-evidence-on-the-trump-administrations-involvement)
 

@@ -65,7 +65,7 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2020-05-27 Trump wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
 
-2020-06-01 During racial-justice protests near the White House, law enforcement cleared Lafayette Square with force. The DOJ later settled excessive-force claims. Reports also stated Trump asked whether he was allowed to order law enforcement to “just shoot” the protestors
+2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
 2021-09-01 JD Vance praised Alex Jones and Peter Thiel as unconventional truth-tellers during a Teneo Retreat event presented by the Venverloh Family Foundation.
 
