@@ -31,5 +31,5 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 (QUESTION IN PROGRESS, NOT READY) Trump incites violence all the time. He incited J6, and I am not afraid to say that. Trump was featuerd on the debut album for the J6 Choir, he called it a beautiful day. He tried to create a slush fund for insurrectionists. He pardoned white supremacists who injured law enforcement officers, many with criminal records who once pardoned re-offended. How can you support someone who would rip his country apart, stoke chaos and violence, cause injury and death, show allegiance to white supremacist leaders, and release violent predators in our streets just to stroke his ego?
 
 
-
+(QUESTION IN PROGRESS, NOT READY) 2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. ------- whats the question
 

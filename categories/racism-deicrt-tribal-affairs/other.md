@@ -111,7 +111,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
 
-2026-04-20 Four GOP leaders refused to call Proud Boys or neo-Nazis white supremacists when asked by Representative Jasmine Crockett.
+2026-04-20 When asked by Representative Jasmine Crockett four GOP leaders refused to agree that Proud Boys or neo-Nazis are classified as white supremacists 
 
 [https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2](https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2)
 

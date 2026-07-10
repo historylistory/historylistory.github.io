@@ -430,7 +430,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-04-10 Acting CDC director Jay Bhattacharya blocked COVID vaccination reports showing their benefits. Jay Bhattacharya was one of the authors of the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed.
 
-2026-04-17 During a committee hearing Congresswoman Terri Sewell asked RFK “You said ‘every Black kid is now just standardly put on Adderall, SSRI, Benzos, which are known to induce violence’ and that ‘those children’ are going to have to go somewhere to get ‘re-parented’. Have you ever re-parented – or parented, I should say – a Black child?” During the hearing RFK denied ever saying that. However, the recording and video of him saying it can be found in the links below. He said it on a “High LVL Conversations” podcast in July 2024.
+2026-04-17 Congresswoman Terri Sewell asked RFK, “You said ‘every Black kid is now just standardly put on Adderall, SSRI, Benzos, which are known to induce violence’ and that ‘those children’ are going to have to go somewhere to get ‘re-parented’. Have you ever re-parented – or parented, I should say – a Black child?” RFK denied ever saying that. A recorded video of RFK saying that can be found on the High LVL Conversations podcast July 2024. 
 
 2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine.
 

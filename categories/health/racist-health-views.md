@@ -14,7 +14,7 @@ permalink: /categories/health/racist-health-views/
 
 ### 2026 April
 
-2026-04-17 During a committee hearing Congresswoman Terri Sewell asked RFK “You said ‘every Black kid is now just standardly put on Adderall, SSRI, Benzos, which are known to induce violence’ and that ‘those children’ are going to have to go somewhere to get ‘re-parented’. Have you ever re-parented – or parented, I should say – a Black child?” During the hearing RFK denied ever saying that. However, the recording and video of him saying it can be found in the links below. He said it on a “High LVL Conversations” podcast in July 2024. 
+2026-04-17 Congresswoman Terri Sewell asked RFK, “You said ‘every Black kid is now just standardly put on Adderall, SSRI, Benzos, which are known to induce violence’ and that ‘those children’ are going to have to go somewhere to get ‘re-parented’. Have you ever re-parented – or parented, I should say – a Black child?” RFK denied ever saying that. A recorded video of RFK saying that can be found on the High LVL Conversations podcast July 2024. 
 
 TIMESTAMP 10:15 AND 11:05 [https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&index=1&t=639s](https://www.youtube.com/watch?v=fG50Bq54IDU&list=WL&index=1&t=639s)
 

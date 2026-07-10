@@ -600,7 +600,7 @@ protocol.
 
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions.
 
-2026-03-27 Jay Mitchell campaign ad “Zero Tolerance for Radical Islam” when he said, “…and you can Allah Akhbar your butt all the way back to the Middle East…”.
+2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 
 2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
 
@@ -612,7 +612,7 @@ protocol.
 
 2026-04-15 Maryland managed to temporarily block an ICE detention center from being built near Hagerstown.
 
-2026-04-16 ICE targeted and detained PhD student Yousof Azizi while he was dropping his children off at daycare because he reported on the war in Iran, and have since transferred him from facility to facility, refusing to release him.
+2026-04-16 ICE targeted and detained PhD student Yousof Azizi while he was dropping his children off at daycare. They arrested him because he reported on the war in Iran. Since the arrest, ICE has transferred him from facility to facility and refuses to release him.
 
 2026-04-16 ICE agent Gregory Morgan was charged with two counts of second-degree assault for pointing his weapon at people in Minnesota. The officer was in a rented, unmarked SUV when he pulled up to other drivers and pointed his handgun at them.
 

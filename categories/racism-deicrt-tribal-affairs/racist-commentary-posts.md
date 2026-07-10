@@ -552,7 +552,7 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://thehill.com/homenews/house/5783650-ogles-anti-muslim-posts-censure/](https://thehill.com/homenews/house/5783650-ogles-anti-muslim-posts-censure/)
 
-2026-03-27 Jay Mitchell campaign ad “Zero Tolerance for Radical Islam” when he said, “…and you can Allah Akhbar your butt all the way back to the Middle East…”.
+2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 
 [https://www.al.com/politics/2026/03/you-can-allahu-akbar-back-to-the-middle-east-alabama-republican-slams-radical-islam-in-new-ad.html](https://www.al.com/politics/2026/03/you-can-allahu-akbar-back-to-the-middle-east-alabama-republican-slams-radical-islam-in-new-ad.html)
 
