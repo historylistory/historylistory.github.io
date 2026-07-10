@@ -107,7 +107,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-02-19 Republican lawmakers in both Indiana and Washington removed state funding for Dolly Parton’s Imagination Library, a program which provided free books to schoolchildren.
 
-2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities. That included photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it.
+2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-07 Trump revised student loan forgiveness to exclude anyone they (the Trump administration) deem “anti-American” or “activists”. 
 
@@ -123,13 +123,13 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-03-21 Columbia University agreed to administration demands in exchange for restoring funding, but funding was later frozen again. Three months later Andrew Nixon stated, “There is no federal funding for unvetted woke research at Columbia. Any minimal disbursements that presently exist are for specific measures, including to wind down the grant entirely”.
 
-2025-03-27 Trump signed executive order Restoring Truth and Sanity to American History to whitewash and sanitize historical facts. The EO specifically targets the “Shape of Power” exhibit, “The Shape of Power: Stories of Race and American Sculpture,” an exhibit representing that “[s]ocieties including the United States have used race to establish and maintain systems of power, privilege, and disenfranchisement.” The exhibit further claims that “sculpture has been a powerful tool in promoting scientific racism” and promotes the view that race is not a biological reality but a social construct, stating “Race is a human invention.”
+2025-03-27 Trump signed EO Restoring Truth and Sanity to American History which is designed to whitewash and sanitize history. 
 
 2025-04-08 The Trump administration froze $1B in funding to Cornell University and $790M to Northwestern, accusing both schools of antisemitism and discrimination. According to online sources, the funding freeze impacted contracts for the Department of Agriculture, defense, education, Health & Human Services, and cybersecurity.
 
 2025-04-09 Princeton lost federal funding for climate research because the Trump administration accused them of promoting “exaggerated and implausible climate threats.”
 
-2025-04-11 The Trump administration sent a letter to Harvard demanding they conduct a federal government-approved audit of its student and faculty to determine “viewpoint diversity” among other requests. Harvard refused, calling the demands unconstitutional.
+2025-04-11 The Trump administration demanded that Harvard conduct a federal government-approved audit of its student and faculty to determine “viewpoint diversity”. When Harvard refused, the DEO launched an investigation and accused them of discrimination against white males. 
 
 2025-04-14 Trump created a “Task Force to Combat Antisemitism” as part of his pressure campaign on universities and protests. The task force is backed by Stephen Miller and Leo Terrell. 
 

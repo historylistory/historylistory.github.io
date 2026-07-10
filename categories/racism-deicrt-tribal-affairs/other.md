@@ -32,7 +32,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 ### 2025 February
 
-2025-02-07 MAGA supporters objected to playing "Lift Every Voice and Sing" at the Superbowl, calling it "divisive".
+2025-02-07 MAGA supporters protested the song “Lift Every Voice and Sing” at the Superbowl, claiming it was divisive.
 
 [https://atlantablackstar.com/2025/02/07/no-such-thing-as-a-black-national-anthem-maga-melts-down-over-super-bowl-performance-as-stephen-a-smith-slams-donald-trumps-base-for-fake-outrage-amid-calls-for-boycott/](https://atlantablackstar.com/2025/02/07/no-such-thing-as-a-black-national-anthem-maga-melts-down-over-super-bowl-performance-as-stephen-a-smith-slams-donald-trumps-base-for-fake-outrage-amid-calls-for-boycott/)
 

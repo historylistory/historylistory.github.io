@@ -60,9 +60,9 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-01-27 Trump signed another executive order banning transgender from serving in the US military. A federal judge blocked the order, but SCOTUS inevitably allowed it to proceed.
 
-2025-02-10 Pete Hegseth signed a memorandum to rename Fort Liberty back to Fort Bragg. The original naming of the military installation was for a Confederate general and slave owner. Hegseth claimed this time it was after a PFC Purple Heart recipient from WWII. The base had originally been named to Fort Liberty in 2023 to remove Confederate ties. 
+2025-02-10 Pete Hegseth changed the name of Fort Liberty back to Fort Bragg, claiming this time it was after a PFC from WWII and had no Confederate ties. 
 
-2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
+2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
 2025-02-24 The Trump administration integrated AI to automate both general population healthcare and VA health care claims.
 
@@ -74,7 +74,7 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels.
 
-2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities. That included photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it.
+2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 

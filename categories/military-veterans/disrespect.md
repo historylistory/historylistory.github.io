@@ -45,7 +45,7 @@ permalink: /categories/military-veterans/disrespect/
 
 ### 2025 February
 
-2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
+2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
 [https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon](https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon)
 

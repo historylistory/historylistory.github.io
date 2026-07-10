@@ -146,7 +146,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-02-14 New York US Attorney Danielle Sassoon resigned after refusing to drop corruption charges against Mayor Eric Adams per order of Pam Bondi who wanted Sassoon to quash the federal indictment as a favor to Trump.
 
-2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
+2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 

@@ -92,7 +92,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 [https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/](https://www.whitehouse.gov/presidential-actions/2025/01/ending-radical-indoctrination-in-k-12-schooling/)
 
-2025-01-30 During a press conference, **Trump blamed DEI, Biden and Pete Buttigieg for the Potomac place crash**. During that same press conference Trump listed off disabilities, claiming those disabilities were threatening safe air operations as though the FAA did not properly vet its employee pool. After his address he signed an executive order **demanding an end to DEI hiring practices**.
+2025-01-30 Trump blamed DEI, Biden, disabilities and Pete Buttigieg for the Potomac place crash, and accused the FAA of not properly vetting its employee pool. 
 
 {% include youtubePlayer.html id="yHcezmGzi_o" %}
 
@@ -103,19 +103,19 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 [https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/](https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/)
 
 
-2025-02-21 General Charles Q. Brown was dismissed as Chairman of the Joint Chiefs of Staff as part of the Trump DEI initiative. 
+2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
 [https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon](https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon)
 
 ### 2025 March
 
-2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities. That included photos of the Enola Gay Boeing B-29 because it had the word ‘gay’ in it.
+2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 [https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074](https://apnews.com/article/dei-purge-images-pentagon-diversity-women-black-8efcfaec909954f4a24bad0d49c78074)
 
 [https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344](https://www.nbcnews.com/nbc-out/out-politics-and-policy/war-heroes-gay-plane-images-flagged-removal-pentagons-dei-purge-rcna195344)
 
-2025-03-27 Trump signed executive order Restoring Truth and Sanity to American History to whitewash and sanitize historical facts. The EO specifically targets the “Shape of Power” exhibit, “The Shape of Power: Stories of Race and American Sculpture,” an exhibit representing that “[s]ocieties including the United States have used race to establish and maintain systems of power, privilege, and disenfranchisement.” The exhibit further claims that “sculpture has been a powerful tool in promoting scientific racism” and promotes the view that race is not a biological reality but a social construct, stating “Race is a human invention.”
+2025-03-27 Trump signed EO Restoring Truth and Sanity to American History which is designed to whitewash and sanitize history. 
 
 [https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/](https://www.nbcwashington.com/news/local/white-house-releases-list-of-smithsonian-exhibits-it-objects-to/3981186/)
 
@@ -128,13 +128,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 ### 2025 April
 
-2025-04-11 The Trump administration sent a letter to Harvard demanding they conduct a federal government-approved audit of its student and faculty to determine "viewpoint diversity" among other requests. Harvard refused, calling the demands unconstitutional.
+2025-04-11 The Trump administration demanded that Harvard conduct a federal government-approved audit of its student and faculty to determine “viewpoint diversity”. When Harvard refused, the DEO launched an investigation and accused them of discrimination against white males. 
 
 [https://news.harvard.edu/gazette/story/2025/04/harvard-wont-comply-with-demands-from-trump-administration/](https://news.harvard.edu/gazette/story/2025/04/harvard-wont-comply-with-demands-from-trump-administration/)
 
 [https://www.nytimes.com/2025/05/22/us/politics/harvard-university-trump.html](https://www.nytimes.com/2025/05/22/us/politics/harvard-university-trump.html)
-
-2025-04-29 After Harvard refused to let the federal government do their unconstitutional audit of “viewpoint diversity”, The Department of Education launched an investigation into the Harvard Law Review and accused them of discrimination against white males.
 
 [https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection](https://www.abajournal.com/news/article/harvard-law-review-investigated-for-alleged-spoils-system-that-uses-race-in-article-selection)
 
@@ -227,7 +225,7 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 [https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html](https://www.yahoo.com/news/articles/northern-cheyenne-push-back-against-175232834.html)
 
-2025-02-10 Pete Hegseth signed a memorandum to rename Fort Liberty back to Fort Bragg. The original naming of the military installation was for a Confederate general and slave owner. Hegseth claimed this time it was after a PFC Purple Heart recipient from WWII. The base had originally been named to Fort Liberty in 2023 to remove Confederate ties. 
+2025-02-10 Pete Hegseth changed the name of Fort Liberty back to Fort Bragg, claiming this time it was after a PFC from WWII and had no Confederate ties. 
 
 [https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg](https://www.army.mil/article/282972/secretary_of_defense_pete_hegseth_renames_fort_liberty_to_fort_roland_l_bragg)
 

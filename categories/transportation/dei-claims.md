@@ -8,7 +8,7 @@ permalink: /categories/transportation/dei-claims/
 
 ### 2025 January
 
-2025-01-30 During a press conference, **Trump blamed DEI, Biden and Pete Buttigieg for the Potomac place crash**. During that same press conference Trump listed off disabilities, claiming those disabilities were threatening safe air operations as though the FAA did not properly vet its employee pool. After his address he signed an executive order **demanding an end to DEI hiring practices**.
+2025-01-30 Trump blamed DEI, Biden, disabilities and Pete Buttigieg for the Potomac place crash, and accused the FAA of not properly vetting its employee pool. 
 
 {% include youtubePlayer.html id="yHcezmGzi_o" %}
 

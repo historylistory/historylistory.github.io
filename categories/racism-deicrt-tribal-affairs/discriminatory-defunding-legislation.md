@@ -78,7 +78,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.epi.org/policywatch/targeting-economic-development-agencies-for-elimination/](https://www.epi.org/policywatch/targeting-economic-development-agencies-for-elimination/)
 
-2025-03-14 Trump signed an executive order “Continuing the Reduction of the Federal Bureaucracy targeting the Minority Business Development Agency and other agencies to reduce their functions to the "minimum presence and function required by law". After this, the administration dismantled staff, canceled grants, and removed signage.
+2025-03-14 Trump signed EO Continuing the Reduction of the Federal Bureaucracy to dismantle the Minority Business Development Agency. 
 
 [https://www.whitehouse.gov/presidential-actions/2025/03/continuing-the-reduction-of-the-federal-bureaucracy/](https://www.whitehouse.gov/presidential-actions/2025/03/continuing-the-reduction-of-the-federal-bureaucracy/)
 
