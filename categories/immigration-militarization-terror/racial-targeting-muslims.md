@@ -20,11 +20,18 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-muslim
 
 ### 2026 January
 
-2026-01-03 Both House.Gov and Congress.gov features documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
+2026-01-03 Lobbyist David Hoch allegedly posted, “Even the Blacks have had enough of the demon Muslims”. 
 
 [https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
 
 [https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
+
+[https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD091.pdf](https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.meforum.org/fwi/fwi-research/islamophobiacs-help-incite-leftist-protestors-in-minnesota](https://www.meforum.org/fwi/fwi-research/islamophobiacs-help-incite-leftist-protestors-in-minnesota)
+
+[https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html](https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html)
+
 
 ### 2026 May
 

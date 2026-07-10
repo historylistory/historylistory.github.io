@@ -42,7 +42,7 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 
 [https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
 
-2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare?
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
 
 [https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
 
@@ -51,6 +51,12 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 [https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud](https://www.mprnews.org/story/2025/12/29/youtuber-nick-shirley-accuses-somaliowned-day-care-centers-of-fraud)
 
 [https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
+
+[https://x.com/AGPamBondi/status/2005764911427731459?s=20](https://x.com/AGPamBondi/status/2005764911427731459?s=20)
+
+[https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
 
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 

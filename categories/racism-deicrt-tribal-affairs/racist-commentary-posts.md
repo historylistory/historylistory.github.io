@@ -434,7 +434,7 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://x.com/atrupar/status/1996231534542512489](https://x.com/atrupar/status/1996231534542512489)
 
-2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare?
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
 
 [https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
 
@@ -446,6 +446,14 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
 
+[https://x.com/AGPamBondi/status/2005764911427731459?s=20](https://x.com/AGPamBondi/status/2005764911427731459?s=20)
+
+[https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
+
+
+
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 
 2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.”
@@ -454,11 +462,17 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 ### 2026 January
 
-2026-01-03 Both House.Gov and Congress.gov features documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
+2026-01-03 Lobbyist David Hoch allegedly posted, “Even the Blacks have had enough of the demon Muslims”. 
 
 [https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
 
 [https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
+
+[https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD091.pdf](https://www.congress.gov/119/meeting/house/118796/documents/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.meforum.org/fwi/fwi-research/islamophobiacs-help-incite-leftist-protestors-in-minnesota](https://www.meforum.org/fwi/fwi-research/islamophobiacs-help-incite-leftist-protestors-in-minnesota)
+
+[https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html](https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html)
 
 
 2026-01-30 Florida Republican James Fishback commented during a morning show that Don Lemon was “…lucky that he's not getting executed in the public square”.

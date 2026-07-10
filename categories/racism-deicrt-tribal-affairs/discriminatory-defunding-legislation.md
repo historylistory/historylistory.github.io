@@ -147,7 +147,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 
 
-2025-12-06 The Trump administration had the US park service remove free entrance for Martin Luther King Jr. day and Juneteenth and moved the date for free admission to June 14th, which is both Flag Day and Trump’s birthday. The administration also forced an additional $100 fee for international visitors.
+2025-12-06 The Trump administration had the US park service move free admission for Martin Luther King and Juneteenth to Flag Day and Trump’s birthday, and now charges an additional $100 for international visitors. 
 
 [https://www.npr.org/2025/12/06/g-s1-101090/national-parks-fee-free-calendar-mlk-juneteenth](https://www.npr.org/2025/12/06/g-s1-101090/national-parks-fee-free-calendar-mlk-juneteenth)
 
@@ -159,7 +159,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 
 [https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/](https://www.whitehouse.gov/fact-sheets/2025/12/fact-sheet-president-donald-j-trump-further-restricts-and-limits-the-entry-of-foreign-nationals-to-protect-the-security-of-the-united-states/)
 
-2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare?
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
 
 [https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/](https://www.cbsnews.com/news/minnesota-fraud-nick-shirley-video-day-care-investigation/)
 
@@ -170,6 +170,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/discriminatory-defunding-leg
 [https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota](https://www.pbs.org/newshour/show/federal-agents-probe-fraud-allegations-targeting-somali-child-care-providers-in-minnesota)
 
 [https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
+
+[https://x.com/AGPamBondi/status/2005764911427731459?s=20](https://x.com/AGPamBondi/status/2005764911427731459?s=20)
+
+[https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf](https://docs.house.gov/meetings/GO/GO00/20260107/118796/HHRG-119-GO00-20260107-SD091.pdf)
+
+[https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
 
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 

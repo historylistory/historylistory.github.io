@@ -451,7 +451,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-12-21 Bari Weiss pulled an airing of a 60 Minutes episode covering an investigation into the CECOT detention center in El Salvador.
 
-2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare?
+2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
 
 2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter prizes.”
 
@@ -459,7 +459,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-12-31 ICE used online influencer and geo-targeting to recruit a specific type of ICE candidate; anyone who followed UFC fights or NASCAR, lived near military bases, or exhibit conservative values.
 
-2026-01-03 Both House.Gov and Congress.gov features documentation showing how Minnesota lobbyist David Hoch would publicly make derogatory, anti-Muslim and racist remarks on Instagram (now deleted) including calling them “demons”.
+2026-01-03 Lobbyist David Hoch allegedly posted, “Even the Blacks have had enough of the demon Muslims”. 
 
 2026-01-04 By this date 32 people had died in ICE custody and there had been 9 officer-involved shootings that have been made public.
 

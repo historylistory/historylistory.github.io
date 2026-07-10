@@ -101,7 +101,7 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 
 ### 2025 December
 
-2025-12-10 Nancy Mace proposed a bill to have the Black Lives Matter Plaza renamed to the “Charlie Kirk Freedom of Speech Plaza”.
+2025-12-10 Nancy Mace proposed a bill to rename the Black Lives Matter Plaza to the “Charlie Kirk Freedom of Speech Plaza”.
 
 [https://mace.house.gov/media/press-releases/rep-nancy-mace-introduces-charlie-kirk-freedom-speech-plaza-act-three-month](https://mace.house.gov/media/press-releases/rep-nancy-mace-introduces-charlie-kirk-freedom-speech-plaza-act-three-month)
 
