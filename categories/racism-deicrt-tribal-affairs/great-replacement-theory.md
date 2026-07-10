@@ -109,10 +109,6 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 {% include youtubePlayer.html id="BMTSGFzr4OE" %}
 
-2025-09-11 After the Charlie Kirk murder, news outlets begin to uncover some of his racist comments such as “**prowling Blacks**” and “**the great replacement strategy**”.
-
-[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
-
 ### 2025 October
 
 2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.

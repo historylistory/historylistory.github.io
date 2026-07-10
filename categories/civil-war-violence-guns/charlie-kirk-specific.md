@@ -8,6 +8,12 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### Charlie Kirk Said...
 
+2022-07-06 Charlie Kirk said, “There is no separation of church and state. It’s a fabrication, it’s a fiction, it’s not in the constitution. It’s made up by secular humanists.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)
+
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)

@@ -20,6 +20,14 @@ permalink: /categories/religion/other/
 
 [https://canonplus.com/tabs/nqn/video-series/35107](https://canonplus.com/tabs/nqn/video-series/35107)
 
+### 2022 
+
+2022-07-06 Charlie Kirk said, “There is no separation of church and state. It’s a fabrication, it’s a fiction, it’s not in the constitution. It’s made up by secular humanists.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)
+
 ### 2025 April
 
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.

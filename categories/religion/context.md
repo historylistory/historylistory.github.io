@@ -39,3 +39,11 @@ ITS THE FIRST AMENDMENT ESTABLISHMENT CLAUSE [https://firstamendment.mtsu.edu/ar
 [https://en.wikipedia.org/wiki/New_Apostolic_Reformation](https://en.wikipedia.org/wiki/New_Apostolic_Reformation)
 
 [https://revival-library.org/histories/1998-new-apostolic-reformation-intro/](https://revival-library.org/histories/1998-new-apostolic-reformation-intro/)
+
+### 2022
+
+2022-07-06 Charlie Kirk said, “There is no separation of church and state. It’s a fabrication, it’s a fiction, it’s not in the constitution. It’s made up by secular humanists.”
+
+[https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
+
+[https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)

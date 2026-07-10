@@ -344,19 +344,16 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://x.com/AFpost/status/1978305706018144460](https://x.com/AFpost/status/1978305706018144460)
 
-2025-10-14 Politico uncovered 2,900 pages of racist comments leaked from the Young Republicans website. According to the article, comments repeatedly used slurs for gays, Black, Latino and Asian people, jokingly celebrated Hitler, and called Black people monkeys and watermelon people. That is only a small portion of the horrendous racial statements made in the posts.
+2025-10-14 Politico uncovered 2,900 pages of racist comments leaked from the Young Republicans website, which is made up of adults age 18 to 44. Comments repeatedly used slurs for gays, Black, Latino and Asian people, celebrated Hitler, and called Black people monkeys and watermelon people, and other things. JD Vance downplayed the incident saying, “kids do stupid things”. 
+[https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645](https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645)
+
+[https://www.pbs.org/newshour/politics/jd-vance-dismisses-bipartisan-outrage-over-racist-and-offensive-young-republican-group-chat](https://www.pbs.org/newshour/politics/jd-vance-dismisses-bipartisan-outrage-over-racist-and-offensive-young-republican-group-chat)
 
 [https://www.politico.com/news/2025/10/14/its-revolting-more-young-republican-chat-members-out-of-jobs-as-condemnation-intensifies-00608791](https://www.politico.com/news/2025/10/14/its-revolting-more-young-republican-chat-members-out-of-jobs-as-condemnation-intensifies-00608791)
-
-2025-10-15 After 2000+ pages of antisemitic and racist slurs were discovered from the Young Republican website, JD Vance downplayed it by stating, “kids do stupid things”. For context, the Young Republicans is primarily made up of adults ages 18 to 44.
 
 {% include youtubePlayer.html id="s0tiFfkp1q8" %}
 
 {% include youtubePlayer.html id="aSxCTa1Hfec" %}
-
-[https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645](https://www.politico.com/news/2025/10/15/vance-group-chat-young-boys-stupid-things-00609645)
-
-[https://www.pbs.org/newshour/politics/jd-vance-dismisses-bipartisan-outrage-over-racist-and-offensive-young-republican-group-chat](https://www.pbs.org/newshour/politics/jd-vance-dismisses-bipartisan-outrage-over-racist-and-offensive-young-republican-group-chat)
 
 2025-10-22 News outlets reported racist social media posts made towards Republican members of Indian descent. Some comments included “Go back home and worship your sand demons” during a Diwali celebration or telling Vivek Ramaswami to “self deport”.
 

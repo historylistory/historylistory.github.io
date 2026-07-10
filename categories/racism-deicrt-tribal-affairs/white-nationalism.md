@@ -126,7 +126,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://uncf.org/news/uncf-condemns-threats-against-hbcus-renews-call-for-congressional-funding-to-secure-campuses](https://uncf.org/news/uncf-condemns-threats-against-hbcus-renews-call-for-congressional-funding-to-secure-campuses)
 
-2025-09-25 Alex Jones sported a "**Hitler-style**" **moustache**, calling it a "**social experiment**" and weirdly suggesting it "had a wild effect on women".
+2025-09-25 Alex Jones sported a Hitler-style moustache for what he called a social experiment. 
 
 [https://www.the-independent.com/news/world/americas/us-politics/alex-jones-mustache-conspiracy-infowars-b2834442.html](https://www.the-independent.com/news/world/americas/us-politics/alex-jones-mustache-conspiracy-infowars-b2834442.html)
 
