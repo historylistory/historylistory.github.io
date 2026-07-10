@@ -300,6 +300,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-06-30 SCOTUS ruled that geofence warrants are subject to Fourth Amendment protections. Justice Elena Kagan wrote, “An individual has a reasonable expectation of privacy in records about his cell phone’s location, and police intrude on that constitutionally protected interest when they demand the information”. 
 
+2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
 
 
 

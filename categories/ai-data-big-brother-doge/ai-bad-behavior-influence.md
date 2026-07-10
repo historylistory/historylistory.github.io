@@ -232,3 +232,13 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 [https://www.pbs.org/newshour/nation/florida-sues-openai-and-ceo-sam-altman-claiming-company-hid-chatgpt-risks-from-users](https://www.pbs.org/newshour/nation/florida-sues-openai-and-ceo-sam-altman-claiming-company-hid-chatgpt-risks-from-users)
 
 [https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602](https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602)
+
+### 2026 July
+
+2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
+
+[https://www.bbc.com/news/articles/cp9lee19y1yo](https://www.bbc.com/news/articles/cp9lee19y1yo)
+
+[https://www.malwarebytes.com/blog/ai/2026/07/turn-off-this-meta-setting-before-someone-generates-ai-images-of-you](https://www.malwarebytes.com/blog/ai/2026/07/turn-off-this-meta-setting-before-someone-generates-ai-images-of-you)
+
+[https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/](https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/)

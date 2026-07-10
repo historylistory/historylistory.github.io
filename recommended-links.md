@@ -22,6 +22,8 @@ permalink: /recommended-links/
 
 [Agriculture: Back Forty Action](https://www.backfortyaction.org/)
 
+[Agriculture: Farm Commons](https://farmcommons.org/)
+
 [Campaign: FEC Data](https://www.fec.gov/data/)
 
 [Campaign: Endorsements by Donald Trump](https://ballotpedia.org/Endorsements_by_Donald_Trump)
@@ -36,7 +38,7 @@ permalink: /recommended-links/
 
 [Climate Change: National Drought Mitigation Center](https://drought.unl.edu/Publications/AnnualReports.aspx)
 
-[NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers) *NOTICE*: It appears the DOJ rerouted this link so the study doesn't appear. However, if you hit the little [archive] link next to it, it will take you to the so-called "Way Back Machine" so you can obtain the study. 
+[NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers) *NOTICE*: It appears the DOJ rerouted this link so the study doesn't appear. However, if you hit the little [archive] link next to it, it will take you to the so-called "Way Back Machine" where you should still be able to see the study in part. 
 
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
 
@@ -47,6 +49,8 @@ permalink: /recommended-links/
 [Economy: Patriotic Millionaires](https://patrioticmillionaires.org/)
 
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
+
+[Economy: GasBuddy](https://www.gasbuddy.com/)
 
 [Energy: CleanView.Co](https://cleanview.co)
 
@@ -108,6 +112,8 @@ permalink: /recommended-links/
 
 [GET INVOLVED/VOTE: US Vote Foundation](https://www.usvotefoundation.org)
 
+[GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
+
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
@@ -119,6 +125,8 @@ permalink: /recommended-links/
 [LGBTQ: Gender Affirming Care Tracker](https://www.hrc.org/resources/attacks-on-gender-affirming-care-by-state-map)
 
 [LGBTQ: TransLegislation Tracker](https://translegislation.com/)
+
+[MAGA: LeavingMAGA.org](https://leavingmaga.org/)
 
 [Media: AllSides.com](https://www.allsides.com/news-source/elle-magazine-media-bias)
 
