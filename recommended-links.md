@@ -154,6 +154,14 @@ permalink: /recommended-links/
 
 [Religion: Word and Way](https://wordandway.org/)
 
+[Religion CRINGE: Doug Wilson, loves fire](https://canonplus.com/tabs/nqn/video-series/35107)
+
+[Religion CRINGE: Kenneth Copeland, maniacal laugh](https://www.facebook.com/watch/?v=1578939962293228)
+
+[Religion CRINGE: Kenneth Copeland, on demons](https://www.youtube.com/watch?v=9LtF34MrsfI)
+
+[Religion CRINGE: Paula White, needs your money](https://www.youtube.com/watch?v=Fdzsq0jaimg)
+
 [Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
