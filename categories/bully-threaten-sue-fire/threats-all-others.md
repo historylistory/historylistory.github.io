@@ -176,3 +176,14 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
 
 PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)
+
+2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
+
+[https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433](https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433)
+
+[https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote](https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote)
+
+[https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown](https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown)
+
+[https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/](https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/)
+

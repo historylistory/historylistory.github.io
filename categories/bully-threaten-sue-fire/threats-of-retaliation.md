@@ -116,6 +116,19 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
 
+### 2025 May
+
+2025-05-13 Trump ordered FEMA to withhold relief funds until states complied with ICE immigration. 
+
+[https://www.courthousenews.com/trump-breaches-court-order-by-tying-states-fema-relief-to-immigration-compliance/](https://www.courthousenews.com/trump-breaches-court-order-by-tying-states-fema-relief-to-immigration-compliance/)
+
+[https://www.cnn.com/2025/10/02/politics/fema-halts-preparedness-grant-money-migrants](https://www.cnn.com/2025/10/02/politics/fema-halts-preparedness-grant-money-migrants)
+
+JUDGE BLOCKS ORDER [https://www.courthousenews.com/states-accuse-trump-administration-of-holding-emergency-relief-hostage-over-immigration-policy/](https://www.courthousenews.com/states-accuse-trump-administration-of-holding-emergency-relief-hostage-over-immigration-policy/)
+
+NOEM MEMO [https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf](https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf)
+
+
 ### 2025 June
 
 2025-06-08 Trump decried that protestors in Los Angeles should be arrested for wearing masks. 
@@ -792,3 +805,11 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act](https://www.pbs.org/newshour/politics/trump-says-he-wont-sign-major-housing-bill-until-congress-passes-save-act)
 
 [https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
+
+### 2026 July
+
+2026-07-07 FEMA announced it would be withholding Homeland Security funding to any states that didn’t comply with Trump’s upcoming election requirements. 
+
+[https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/](https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/)
+
+[https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security](https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security)

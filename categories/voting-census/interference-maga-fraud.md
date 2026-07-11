@@ -301,6 +301,7 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 
 [https://www.ms.now/the-briefing-with-jen-psaki/watch/texas-gop-senate-candidate-paxton-has-been-voting-illegally-report-suggests-2505898051965](https://www.ms.now/the-briefing-with-jen-psaki/watch/texas-gop-senate-candidate-paxton-has-been-voting-illegally-report-suggests-2505898051965)
 
+
 2026-07-09 Trump fired members of the Federal Election Agency ahead of midterms. 
 
 [https://www.youtube.com/watch?v=X2tMLU7GIQE](https://www.youtube.com/watch?v=X2tMLU7GIQE)

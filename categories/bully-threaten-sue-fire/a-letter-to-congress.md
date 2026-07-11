@@ -191,6 +191,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-05-10 Trump terminated Register of Copyrights Shira Perlmutter after she refused to rubber-stamp Elon Musk’s efforts to mine troves of copyrighted works to train AI models. Trump replaced her with his personal lawyer Todd Blanche.
 
+2025-05-13 Trump ordered FEMA to withhold relief funds until states complied with ICE immigration. 
+
 2025-05-16 Trump bullied Taylor Swift on social media for endorsing Kamala Harris.
 
 2025-05-16 Trump attacked Bruce Springsteen via Truth Social for speaking out against tyranny. 
@@ -585,3 +587,9 @@ Manhattan grand jury in the hush-money case.
 
 
 2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
+
+
+2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
+
+2026-07-07 FEMA announced it would be withholding Homeland Security funding to any states that didn’t comply with Trump’s upcoming election requirements. 

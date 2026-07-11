@@ -12,6 +12,16 @@ permalink: /categories/immigration-militarization-terror/other/
 
 [https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)
 
+2025-05-13 Trump ordered FEMA to withhold relief funds until states complied with ICE immigration. 
+
+[https://www.courthousenews.com/trump-breaches-court-order-by-tying-states-fema-relief-to-immigration-compliance/](https://www.courthousenews.com/trump-breaches-court-order-by-tying-states-fema-relief-to-immigration-compliance/)
+
+[https://www.cnn.com/2025/10/02/politics/fema-halts-preparedness-grant-money-migrants](https://www.cnn.com/2025/10/02/politics/fema-halts-preparedness-grant-money-migrants)
+
+JUDGE BLOCKS ORDER [https://www.courthousenews.com/states-accuse-trump-administration-of-holding-emergency-relief-hostage-over-immigration-policy/](https://www.courthousenews.com/states-accuse-trump-administration-of-holding-emergency-relief-hostage-over-immigration-policy/)
+
+NOEM MEMO [https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf](https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf)
+
 2025-09-14 Trump’s government spending on immigration reached $75 billion.
 
 [https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/](https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/)

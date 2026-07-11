@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Federalization & Voter Information"
+title: "Federalization & Intimidation"
 category_slug: voting-census
-subcategory_slug: federalization-voter-information
-permalink: /categories/voting-census/federalization-voter-information/
+subcategory_slug: federalization-intimidation
+permalink: /categories/voting-census/federalization-intimidation/
 ---
 
 ### 2025 September
@@ -64,3 +64,15 @@ permalink: /categories/voting-census/federalization-voter-information/
 [https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935](https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935)
 
 [https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/](https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/)
+
+### 2026 July
+
+2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
+
+[https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433](https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433)
+
+[https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote](https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote)
+
+[https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown](https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown)
+
+[https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/](https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/)

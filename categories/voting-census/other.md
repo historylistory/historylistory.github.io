@@ -157,3 +157,12 @@ OTHER SHADY BUSINESS
 [https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/](https://www.cbsnews.com/detroit/news/protect-our-polls-act-armed-military-polling-places/)
 
 [https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693](https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693)
+
+### 2026 July
+
+2026-07-07 FEMA announced it would be withholding Homeland Security funding to any states that didn’t comply with Trump’s upcoming election requirements. 
+
+[https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/](https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/)
+
+[https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security](https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security)
+

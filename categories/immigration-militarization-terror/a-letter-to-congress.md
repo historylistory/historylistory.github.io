@@ -200,6 +200,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-05-06 During a confirmation hearing, Lauren Underwood asked Kristi Noem if she believed the Constitution guaranteed due process to everyone in America, to which Kristi Noem refused to answer.
 
+2025-05-13 Trump ordered FEMA to withhold relief funds until states complied with ICE immigration. 
+
 2025-05-16 The Supreme Court blocked deportations under the Alien Enemies Act, but Samuel Alito and Clarence Thomas claimed the court didn’t have the jurisdiction to stop deportations.
 
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
