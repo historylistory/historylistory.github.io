@@ -633,4 +633,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-06-26 Visitors at Trump’s Great American State Fair were surprised with a confederate flag hanging by an entrance display.
 
+2026-07-04 White supremacist group Patriot Front boarded a metro and protested the streets over the weekend. 
+
 2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”.

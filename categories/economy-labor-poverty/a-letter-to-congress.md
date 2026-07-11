@@ -898,3 +898,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-09 Trump launched Freedom Fuel gas stations. 
 
 2026-07-09 The Trump administration is changing the rules on applying and receiving grants for farmers that will make the process more burdensome and less reliable. 
+
+2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 

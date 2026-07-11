@@ -370,6 +370,16 @@ CLIP [https://www.youtube.com/watch?v=3CwbYwvJ4ds](https://www.youtube.com/watch
 SUB WALL [https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html](https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-nixon.html)
 
 
+### 2026 July
+
+2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
+
+[https://www.youtube.com/watch?v=9z3eKsygyrc&list=WL&index=3&t=51s](https://www.youtube.com/watch?v=9z3eKsygyrc&list=WL&index=3&t=51s)
+
+[https://www.youtube.com/watch?v=9z3eKsygyrc](https://www.youtube.com/watch?v=9z3eKsygyrc)
+
+[https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/](https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/)
+
 
 
 

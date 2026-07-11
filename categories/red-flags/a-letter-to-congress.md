@@ -276,4 +276,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
 
+2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
 

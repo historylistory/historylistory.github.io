@@ -60,6 +60,21 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit](https://www.cnn.com/2018/06/21/politics/melania-trump-jacket-border-visit)
 
+### 2020
+
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
+[https://www.vcf.gov/about](https://www.vcf.gov/about)
+
+[https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny](https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny)
+
+[https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html](https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html)
+
+[https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s](https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s)
+
+PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/](https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/)
+
+
 ### 2022
 
 2022-08-19 Amber Thurman died after delayed abortion-related care under restrictive state laws. Trump later dismissed questions about the case during a Fox forum. Amber passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment because her State had made performing the procedure a felony. Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”*

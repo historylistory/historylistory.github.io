@@ -620,3 +620,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
 
 2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
+
+2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 

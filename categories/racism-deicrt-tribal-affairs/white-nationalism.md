@@ -368,6 +368,17 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 ### 2026 July
 
+2026-07-04 White supremacist group Patriot Front boarded a metro and protested the streets over the weekend. 
+
+[https://www.npr.org/2026/07/11/nx-s1-5888571/patriot-front-washington-dc](https://www.npr.org/2026/07/11/nx-s1-5888571/patriot-front-washington-dc)
+
+[https://www.theatlantic.com/national-security/2026/07/what-point-patriot-front/687838/](https://www.theatlantic.com/national-security/2026/07/what-point-patriot-front/687838/)
+
+[https://www.pbs.org/newshour/show/metro-rider-recounts-encounter-with-patriot-front-members-in-d-c](https://www.pbs.org/newshour/show/metro-rider-recounts-encounter-with-patriot-front-members-in-d-c)
+
+[https://www.youtube.com/watch?v=gv4y_hgmeaw&list=WL&index=4&t=260s](https://www.youtube.com/watch?v=gv4y_hgmeaw&list=WL&index=4&t=260s)
+
+
 2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”. 
 
 [https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations](https://www.peoplefor.org/rightwingwatch/dale-partridge-calls-return-european-christian-colonization-african-nations)

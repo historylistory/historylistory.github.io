@@ -39,6 +39,19 @@ permalink: /categories/military-veterans/disrespect/
 
 [https://lieu.house.gov/media-center/in-the-news/congressional-veterans-slam-trump-reported-comments-military](https://lieu.house.gov/media-center/in-the-news/congressional-veterans-slam-trump-reported-comments-military)
 
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
+[https://www.vcf.gov/about](https://www.vcf.gov/about)
+
+[https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny](https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny)
+
+[https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html](https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html)
+
+[https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s](https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s)
+
+PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/](https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/)
+
+
 2020-10-13 After Trump boosted a QAnon-linked Bin Laden conspiracy, a Navy SEAL from the raid publicly refuted the claim. 
 
 [https://www.politico.com/news/2020/10/14/famed-navy-seal-pushes-back-after-trump-amplifies-baseless-bin-laden-conspiracy-theory-429428](https://www.politico.com/news/2020/10/14/famed-navy-seal-pushes-back-after-trump-amplifies-baseless-bin-laden-conspiracy-theory-429428)

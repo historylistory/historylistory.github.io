@@ -77,6 +77,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2020-04-23 During a COVID press conference, Trump mused over injecting disinfectant as treatment. When a reporter told Trump to stop spreading dangerous misinformation Trump lashed out.
 
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
 2020-11-20 Jay Bhattacharya authored the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed. In 2026 he was the acting CDC director who blocked COVID vaccination reports.
 
 2020-11-24 During an interview on The Chris Buskirk Show, JD Vance said, ”…There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people – especially in America’s leadership class – just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable…”.

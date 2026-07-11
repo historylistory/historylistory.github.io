@@ -61,6 +61,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2020-09-04 Trump called fallen soldiers, “suckers” and “losers”.
 
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
 2020-10-13 After Trump boosted a QAnon-linked Bin Laden conspiracy, a Navy SEAL from the raid publicly refuted the claim.
 
 2021-01-22 SCOTUS allowed the Trump administration’s ban on transgender in the military to take effect.

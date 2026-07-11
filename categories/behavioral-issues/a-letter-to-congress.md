@@ -77,6 +77,8 @@ These concerns represent only a few examples of the issues that have led me to t
 
 2020-04-01 Karoline Leavitt leveraged “blue-collar roots,” though reports said her family business received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
 
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
 2020-11-07 Trump repeatedly pushed baseless election-fraud claims after losing the election.
 
 2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”

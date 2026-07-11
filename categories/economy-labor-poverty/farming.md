@@ -288,3 +288,11 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 [https://farmcommons.org/resources/video/federal-funding-rules-are-changing-what-you-need-to-know/](https://farmcommons.org/resources/video/federal-funding-rules-are-changing-what-you-need-to-know/)
 
 [https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s](https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s)
+
+2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
+
+[https://www.youtube.com/watch?v=PBrCeWQRPrI&list=WL&index=2&t=125s](https://www.youtube.com/watch?v=PBrCeWQRPrI&list=WL&index=2&t=125s)
+
+[https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824](https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824)
+
+[https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef](https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef)

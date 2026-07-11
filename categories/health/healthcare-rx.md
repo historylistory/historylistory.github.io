@@ -16,6 +16,20 @@ permalink: /categories/health/healthcare-rx/
 
 {% include youtubePlayer.html id="xj7_wMIxHjo" %}
 
+### 2020
+
+2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
+
+[https://www.vcf.gov/about](https://www.vcf.gov/about)
+
+[https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny](https://www.cnn.com/2020/10/26/politics/treasury-releases-september-11-funds-fdny)
+
+[https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html](https://www.inquirer.com/politics/nation/trump-administration-fdny-september-11-health-program-20200911.html)
+
+[https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s](https://www.youtube.com/watch?v=KN1PZHT0h0o&list=WL&index=1&t=538s)
+
+PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/](https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report-on-trump-administration-draining-fund-for-fdnys-911-responders-draws-outrage/)
+
 ### 2023
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.

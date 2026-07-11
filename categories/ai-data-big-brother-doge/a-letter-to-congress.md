@@ -316,6 +316,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
 
+2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
 
 
 

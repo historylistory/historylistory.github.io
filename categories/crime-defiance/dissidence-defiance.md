@@ -493,3 +493,13 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/](https://www.usatoday.com/story/news/politics/2026/06/29/trump-veto-housing-bill-mike-johnson/90746658007/)
 
 [https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509](https://www.politico.com/news/2026/06/24/donald-trump-housing-bill-canceled-00973509)
+
+### 2026 July
+
+2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
+
+[https://www.youtube.com/watch?v=9z3eKsygyrc&list=WL&index=3&t=51s](https://www.youtube.com/watch?v=9z3eKsygyrc&list=WL&index=3&t=51s)
+
+[https://www.youtube.com/watch?v=9z3eKsygyrc](https://www.youtube.com/watch?v=9z3eKsygyrc)
+
+[https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/](https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/)

@@ -87,3 +87,13 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 [https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai](https://naacp.org/articles/trump-administration-attempts-massive-power-grab-defense-musks-xai)
 
 THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant](https://naacp.org/articles/naacp-sues-xai-illegal-pollution-data-center-power-plant)
+
+### 2026 July
+
+2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
+
+[https://www.youtube.com/watch?v=PBrCeWQRPrI&list=WL&index=2&t=125s](https://www.youtube.com/watch?v=PBrCeWQRPrI&list=WL&index=2&t=125s)
+
+[https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824](https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824)
+
+[https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef](https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef)
