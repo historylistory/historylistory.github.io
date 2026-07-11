@@ -272,7 +272,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-04-16 Troops posted photos of terrible food offered aboard warships.
 
-2026-04-18 In Palantir’s 22-point manifesto they called on Trump to reinstate the draft, saying that free and democratic societies need “hard power to prevail”.
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 2026-04-20 At least 62 elderly and disabled Veterans were arrested for conducting a peaceful anti-war protest at the Cannon House Office Building in Washington D.C. organized by About Face . 
 

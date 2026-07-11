@@ -8,7 +8,7 @@ permalink: /categories/red-flags/warning-signs/
 
 ### 2014
 
-2014-07-23 In 2014 JD Vance wrote, “But I’m not surprised by Trump’s rise, and I think the entire party has only itself to blame. We are, whether we like it or not, the party of lower-income, lower-education white people, and I have been saying for a long time that we need to offer those people SOMETHING (and hell, maybe even expand our appeal to working class black people in the process) or a demagogue would. We are now at that point. Trump is the fruit of the party’s collective neglect. 3) I go back and forth between thinking Trump is a cynical asshole like Nixon who wouldn’t be that bad (and might even prove useful) or that he’s America’s Hitler. How’s that for discouraging?”.
+2014-07-23 In 2014 JD Vance wrote, “But I’m not surprised by Trump’s rise, and I think the entire party has only itself to blame. We are, whether we like it or not, the party of lower-income, lower-education white people, and I have been saying for a long time that we need to offer those people SOMETHING (and hell, maybe even expand our appeal to working class black people in the process) or a demagogue would. We are now at that point. Trump is the fruit of the party’s collective neglect. I go back and forth between thinking Trump is a cynical asshole like Nixon who wouldn’t be that bad (and might even prove useful) or that he’s America’s Hitler. How’s that for discouraging?”.
 
 [https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/](https://www.reuters.com/world/us/jd-vance-once-compared-trump-hitler-now-they-are-running-mates-2024-07-15/)
 
@@ -300,7 +300,7 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
-2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 
@@ -313,6 +313,16 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
 
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
+
+[https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html](https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html)
+
+[https://www.theguardian.com/technology/2026/apr/21/palantir-manifesto-uk-contract-fears-mps](https://www.theguardian.com/technology/2026/apr/21/palantir-manifesto-uk-contract-fears-mps)
+
+[https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics](https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics)
+
+[https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html](https://www.yahoo.com/news/articles/big-tech-firm-wants-reinstate-160059711.html)
+
+[https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/](https://www.motherjones.com/politics/2026/04/palantir-wants-to-bring-back-the-draft/)
 
 2026-04-29 Trump added his image to U.S. passports.
 

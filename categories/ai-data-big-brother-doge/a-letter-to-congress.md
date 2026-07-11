@@ -265,7 +265,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2026-04-17 Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
 
-2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 2026-04-27 Elon Musk sued Sam Altman over OpenAI.
 

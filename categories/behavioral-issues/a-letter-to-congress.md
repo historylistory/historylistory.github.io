@@ -575,7 +575,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-18 Courts allowed Trump’s $400M White House ballroom construction to continue.
 
-2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 

@@ -20,7 +20,7 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 
 ### 2026
 
-2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed.
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 [https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
 
@@ -33,8 +33,6 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
 
 [https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
-
-2026-04-18 In Palantir’s 22-point manifesto they called on Trump to reinstate the draft, saying that free and democratic societies need “hard power to prevail”. 
 
 [https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html](https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html)
 

@@ -508,7 +508,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 
-2026-04-19 Trump wrote on Truth Social, “…the United States is going to knock out every single Power Plant, and every single Bridge, in Iran. NO MORE MR. NICE GUY! They’ll come down fast, they’ll come down easy and, if they don’t take the DEAL, it will be my Honor to do what has to be done…”.
+2026-04-19 Trump wrote, “the United States is going to knock out every single Power Plant, and every single Bridge, in Iran. NO MORE MR. NICE GUY! They’ll come down fast, they’ll come down easy and, if they don’t take the DEAL, it will be my Honor to do what has to be done”.
 
 2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
@@ -582,7 +582,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-05-21 Applications opened for a $1.8 billion compensation fund benefiting January 6 defendants and other Trump allies, including Enrique Tarrio, Mike Lindell, George Santos, Rod Blagojevich, and Adam Johnson.
 
-2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “…these chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
+2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “These chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
 2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996.
 

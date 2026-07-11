@@ -287,7 +287,19 @@ FROM 2021 [https://www.navytimes.com/news/your-navy/2021/03/08/the-militarys-wor
 
 FROM 2026 [https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007](https://www.usatoday.com/story/news/politics/2026/04/16/iran-war-mail-packages-middle-east/89609308007)
 
-2026-04-18 In Palantir’s 22-point manifesto they called on Trump to reinstate the draft, saying that free and democratic societies need “hard power to prevail”. 
+2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
+
+[https://x.com/palantirtech/status/2045574398573453312?s=46](https://x.com/palantirtech/status/2045574398573453312?s=46)
+
+[https://www.youtube.com/shorts/GK1Zx4wz4ZU](https://www.youtube.com/shorts/GK1Zx4wz4ZU)
+
+[https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics](https://www.democracynow.org/2026/4/24/headlines/palantir_calls_on_us_to_reinstate_draft_in_22_point_supervillain_manifesto_slammed_by_critics)
+
+[https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480](https://www.dw.com/en/palantir-why-its-political-manifesto-is-causing-a-stir/a-76895480)
+
+[https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority](https://www.euronews.com/next/2026/04/22/ramblings-of-a-supervillain-palantir-manifesto-claims-ai-weapons-and-cultural-inferiority)
+
+[https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4](https://www.businessinsider.com/palantir-manifesto-alex-karp-technological-republic-summary-2026-4)
 
 [https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html](https://finance.yahoo.com/economy/policy/articles/palantir-wants-bring-back-draft-195853909.html)
 
