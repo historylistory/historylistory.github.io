@@ -148,6 +148,12 @@ permalink: /recommended-links/
 
 [Religion: Interfaithalliance.org](https://www.interfaithalliance.org/)
 
+[Religion: NCCC against BBB](https://nationalcouncilofchurches.us/ncc-condemns-big-brutal-bill/)
+
+[Religion: MAZON.org](https://mazon.org/)
+
+[Religion: Word and Way](https://wordandway.org/)
+
 [Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
 [Trump: Trump's Truth](https://trumpstruth.org/)

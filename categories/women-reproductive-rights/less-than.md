@@ -114,15 +114,15 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2025 August
 
-2025-08-07 CNN Pamela Brown interviewed Doug Wilson with Christ Church. The interview is very enlightening because he made several misogynist remarks about women including but not limited to “**women are people other people come out of**” and that having babies doesn’t take skill.  Summed up, **he claimed that women should not vote, and they should not hold leadership positions** because the bible says they shouldn’t. The interview featured two other church leaders with the same set of beliefs. For context, Doug Wilson erected a church in Washington D.C., helped co-author Project 2025, and is followed by Pete Hegseth.
-
-{% include youtubePlayer.html id="u29UJtpA3x0" %}
+2025-08-07 CNN Pamela Brown interviewed Project 2025 co-author and Christ Church leader Doug Wilson where he commented, “women are people other people come out of”, having babies doesn’t take skill, women should not vote, women should not hold leadership positions.  Reposted by Pete Hegseth on X, “All of Christ for All of Life”. 
 
 [https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho](https://www.cnn.com/2025/08/18/Tv/video/cnn-sitroom-extended-cut-doug-wilson-christian-dominiation-moscow-idaho)
 
 [https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid](https://www.cnn.com/2025/08/08/politics/video/christian-nationalist-doug-wilson-pam-brown-digvid)
 
-{% include youtubePlayer.html id="u29UJtpA3x0" %}
+[https://x.com/PeteHegseth/status/1953626931234054558](https://x.com/PeteHegseth/status/1953626931234054558)
+
+[https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/](https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/)
 
 [https://en.wikipedia.org/wiki/Project_2025](https://en.wikipedia.org/wiki/Project_2025)
 
@@ -130,11 +130,10 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 [https://kettering.org](https://kettering.org/)
 
-2025-08-07 Pete Hegseth posted on X "All of Christ for All of Life" and included a link to Doug Wilson's interview on his Christian Nationalist crusade.
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
-[https://x.com/PeteHegseth/status/1953626931234054558](https://x.com/PeteHegseth/status/1953626931234054558)
+{% include youtubePlayer.html id="u29UJtpA3x0" %}
 
-[https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/](https://19thnews.org/2025/08/pete-hegseth-doug-wilson-women-voting/)
 
 2025-08-08 WNBA sex toy incident, courtesy of prediction market manipulation.
 

@@ -110,7 +110,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 
 ### 2025 June
 
-2025-06-01 Religious leaders vehemently condemned the Big Beautiful Bill, and GOP leaders using prayer to ask for the passage of bills that would hurt the most vulnerable. All to benefit the rich.
+2025-06-01 Religious leaders vehemently condemned GOP members and the Big Beautiful Bill for hurting the most vulnerable.
 
 [https://nationalcouncilofchurches.us/ncc-condemns-big-brutal-bill](https://nationalcouncilofchurches.us/ncc-condemns-big-brutal-bill)
 
