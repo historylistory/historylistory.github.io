@@ -8,7 +8,7 @@ permalink: /categories/religion/manifest-destiny/
 
 ### 2025 September
 
-2025-09-02 A National Conservatism meeting was held in DC and attended by **several US senators and senior Trump administrators** such as Tulsi Gabbard, Pete Hegseth, and Doug Wilson. Tulsi Gabbard was listed as a keynote speaker at this event. During the conference, Eric Schmitt talked about **manifest destiny** at a National Conservatism meeting and how he believes foreign nationals are diluting what is rightfully "ours".
+2025-09-02 Several senators and Trump administrators such as Tulsi Gabbard, Pete Hegseth, and Doug Wilson attended one of the National Conservatism meetings in DC as keynote speakers. During the event Eric Schmitt promoted ideals of manifest destiny, claiming foreigners are “diluting” what he claims is “rightfully ours”. 
 
 [https://nationalconservatism.org/natcon-5-2025/presenters/tulsi-gabbard/](https://nationalconservatism.org/natcon-5-2025/presenters/tulsi-gabbard/)
 

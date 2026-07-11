@@ -187,6 +187,12 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 [https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/](https://www.cbsnews.com/losangeles/news/essayli-newsom-federal-agent-mask-ban/)
 
+2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
+
+[https://www.youtube.com/watch?v=EZHGkBxvVnk](https://www.youtube.com/watch?v=EZHGkBxvVnk)
+
+{% include youtubePlayer.html id="EZHGkBxvVnk" %}
+
 ### 2025 October
 
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.

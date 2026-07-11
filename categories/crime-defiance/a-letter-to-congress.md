@@ -328,6 +328,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-09-22 The Trump administration moved forward with $6B in arms sales to Israel including 30 Apache helicopters.
 
+2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
+
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 2025-10-12 Asked about allegations that Tom Homan accepted a $50,000 bribe, JD Vance denied the claim in an ABC interview, “George, you’ve covered the story ad nauseum. Tom Homan did not take a bribe. It’s a ridiculous smear…”.

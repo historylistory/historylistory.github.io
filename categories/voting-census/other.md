@@ -109,6 +109,12 @@ OTHER SHADY BUSINESS
 
 {% include youtubePlayer.html id="hTKr6MN1bIE" %}
 
+2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
+
+[https://www.youtube.com/watch?v=EZHGkBxvVnk](https://www.youtube.com/watch?v=EZHGkBxvVnk)
+
+{% include youtubePlayer.html id="EZHGkBxvVnk" %}
+
 2025-12-19 Before the 2026 midterms even started, Erika Trump started endorsing JD Vance for 2028.
 
 [https://www.bbc.com/news/articles/cp84p722m3do](https://www.bbc.com/news/articles/cp84p722m3do)

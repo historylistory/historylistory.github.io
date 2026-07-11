@@ -116,6 +116,12 @@ permalink: /categories/children/indoctrination/
 
 [https://nebraskapublicmedia.org/en/news/news-articles/pillen-announces-partnership-to-help-bring-turning-point-usa-clubs-to-nebraska-high-schools/](https://nebraskapublicmedia.org/en/news/news-articles/pillen-announces-partnership-to-help-bring-turning-point-usa-clubs-to-nebraska-high-schools/)
 
+2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
+
+[https://www.youtube.com/watch?v=EZHGkBxvVnk](https://www.youtube.com/watch?v=EZHGkBxvVnk)
+
+{% include youtubePlayer.html id="EZHGkBxvVnk" %}
+
 ### 2026 March
 
 2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas's Ten Commandments classroom law violated the Constitution's Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
