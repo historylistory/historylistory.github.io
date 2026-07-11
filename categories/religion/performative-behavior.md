@@ -33,7 +33,7 @@ permalink: /categories/religion/performative-behavior/
 
 ### 2025
 
-2025-02-10 Trump held a prayer circle in the White House after he reestablished an Executive Order to create a White House Faith Office.
+2025-02-10 Trump held multiple prayer circles in the White House after he reestablished a White House Faith Office.
 
 [https://wordandway.org/2025/02/10/trump-reestablishes-white-house-faith-office-places-paula-white-cain-in-charge/](https://wordandway.org/2025/02/10/trump-reestablishes-white-house-faith-office-places-paula-white-cain-in-charge/)
 

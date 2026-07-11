@@ -138,11 +138,15 @@ permalink: /recommended-links/
 
 [Polls: Pew Research](https://www.pewresearch.org/)
 
+[Polls: AP NORC](https://apnorc.org/)
+
 [Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
 
 [Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
 
 [Religion: Skeptics Annotated Bible](https://www.skepticsannotatedbible.com/)
+
+[Religion: Interfaithalliance.org](https://www.interfaithalliance.org/)
 
 [Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 

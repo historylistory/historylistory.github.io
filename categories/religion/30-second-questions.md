@@ -23,7 +23,9 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 (QUESTION IN PROGRESS, NOT READY)  THIS ONE IS DEFINITELY TOO LONG AND OVER 30 SECONDS NEED TO REWORK: The administration is forcing a fringe Christian nationalist movement that is not actually Christian, putting 10 commandments in schools, requiring bible studies starting in Texas. Any history teacher will tell you the constitution is godless by design to stop relig8ion from controlling politics and politics to control religion. Since we are adding Christianity into school curriculum, when can we expect to also see Jewish studies, buddhist studies, a copy of the Quran, Hindu studies, Taoism, and others, as well as at least 2-to-5 breaks per day so school children can practice their devotionals based on the religion they practice? I assume if you want to integrate God into school, you woulndt dare discredit the faith of billions of others, would you?  
 
 
+### Idolatry
 
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Bias
 
