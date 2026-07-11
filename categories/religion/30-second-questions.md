@@ -39,3 +39,7 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 
 (QUESTION IN PROGRESS, NOT READY) Schools have debate teams. The government has no business incorporating right-wing TPUSA propaganda into their schools. This can be an outside-school thing, but taxpayers don’t need to be paying for the government to indoctrinate their kids against the will of the people. Especially just to enrich another 501c3 status organization that leverages faith to enrich themselves and probably makes way more many than they’d ever dare report. We’ve seen how well people like Erika Kirk lives as they peddle Tshirts and ask for donations, why are we promoting this?  
+
+### Superiority
+
+(QUESTION IN PROGRESS, NOT READY)  In June 2026 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic. Can you cite where in the constitution or anywhere in historical documentaiton is it written that this nation has an established religion, or gives any authority to our government to exclude or downgrade other faiths?
