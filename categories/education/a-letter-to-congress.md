@@ -94,7 +94,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2023-10-23 Republicans increasingly ban books. 
 
-2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, produced them China for $3, sold them for a 2000% and up profit, and forced a mandate requiring public schools to carry only those versions of the bible. 
 
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
 

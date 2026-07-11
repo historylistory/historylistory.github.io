@@ -83,7 +83,7 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2023-01-16 Conservatives claimed the green M&M is gay.
 
-2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people, but praised the Proud Boys. 
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
 2023-04-01 MAGA boycotted Bud Light for featuring transgender influencer Dylan Mulvaney in one of their commercials.
 

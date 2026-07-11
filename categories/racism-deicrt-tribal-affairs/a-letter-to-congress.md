@@ -201,6 +201,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
 
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
+
 2023-04-09 Marjorie Taylor Greene openly embraced the Great Replacement Theory during a rally.
 
 2023-05-19 Charlie Kirk said, “Happening all the time in urban America, prowling Blacks go around for fun to go target white people, that’s a fact. It’s happening more and more.”

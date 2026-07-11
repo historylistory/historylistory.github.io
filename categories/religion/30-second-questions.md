@@ -25,3 +25,6 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 
 
 
+### Bias
+
+(QUESTION IN PROGRESS, NOT READY) The trump administration claims there is an anti-christian bias in the united staets, so much so he created a task force to eradicate it in 2025. What is the big persecution trumps administration is talking about, when in fact it is the largest group in the united states, holds moer political power than anybody else, indoctrinates schoolchildren, dips into taxpayer money to fund private schools, and can hide behind it's 501-3c status as it doles out billions to political Pacs?

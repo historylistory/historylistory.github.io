@@ -138,6 +138,10 @@ OTHER SHADY BUSINESS
 
 [https://www.msn.com/en-us/money/markets/elon-musks-pac-in-hot-water-for-pre-filled-2024-absentee-ballot-applications-in-georgia/ar-AA1WOR2m](https://www.msn.com/en-us/money/markets/elon-musks-pac-in-hot-water-for-pre-filled-2024-absentee-ballot-applications-in-georgia/ar-AA1WOR2m)
 
+2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
+
+[https://americastands.govictory.com/](https://americastands.govictory.com/)
+
 2024-11-15 Republicans rejected a ballot measure to strip lawmakers from being able to manipulate electoral districts with partisan gerrymandering tactics.
 
 [https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures](https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures)

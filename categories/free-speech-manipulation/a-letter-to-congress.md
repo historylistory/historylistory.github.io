@@ -134,6 +134,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2024-11-03 During a rally, Trump encouraged deadly violence, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
+2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
+
 2024-12-12 Trump named Kari Lake director of Voice of America.
 
 2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor. 

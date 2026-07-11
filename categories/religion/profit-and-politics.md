@@ -111,7 +111,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 2023
 
-2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people, but praised the Proud Boys. 
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 
@@ -133,7 +133,7 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 2024 March
 
-2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, produced them China for $3, sold them for a 2000% and up profit, and forced a mandate requiring public schools to carry only those versions of the bible. 
 
 [https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY](https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY)
 
@@ -152,13 +152,13 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 ### 2024 November
 
 
-2024-11-05 Kenneth Copeland organized election coverage with America Stands, an organization which offers education on **how to vote** according to their biblical values.
+2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
 
 [https://americastands.govictory.com/](https://americastands.govictory.com/)
 
 ### 2025 February
 
-2025-02-07 Trump signed an executive order to create a task force to eradicate anti-Christian bias.
+2025-02-07 Trump signed an executive order creating a task force to eradicate so-called anti-Christian bias.
 
 [https://www.whitehouse.gov/fact-sheets/2025/02/fact-sheet-president-donald-j-trump-establishes-white-house-faith-office/](https://www.whitehouse.gov/fact-sheets/2025/02/fact-sheet-president-donald-j-trump-establishes-white-house-faith-office/)
 

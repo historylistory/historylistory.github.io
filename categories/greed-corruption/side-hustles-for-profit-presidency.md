@@ -40,7 +40,7 @@ permalink: /categories/greed-corruption/side-hustles-for-profit-presidency/
 
 [https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html](https://www.cnbc.com/2024/03/26/trump-media-stock-ticker-djt-debuts-after-dwac-merger.html)
 
-2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, produced them China for $3, sold them for a 2000% and up profit, and forced a mandate requiring public schools to carry only those versions of the bible. 
 
 [https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY](https://godblesstheusabible.com/?srsltid=AfmBOoo2dBPos02UA83oeq1_LR-ZyXLEnyXFNEErRaffpa73DkOB-whY)
 

@@ -77,6 +77,12 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-groups
 
 [https://www.heritage.org/progressivism/report/project-esther-national-strategy-combat-antisemitism](https://www.heritage.org/progressivism/report/project-esther-national-strategy-combat-antisemitism)
 
+### 2024 November
+
+2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
+
+[https://americastands.govictory.com/](https://americastands.govictory.com/)
+
 ### 2026 April
 
 2026-04-16 Tennessee enacted House Bill 1476 "Charlie Kirk Act," restricting campus walkouts and certain protest activities. 

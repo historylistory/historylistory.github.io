@@ -86,6 +86,13 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.axios.com/2022/11/25/trump-nick-fuentes-ye-kanye](https://www.axios.com/2022/11/25/trump-nick-fuentes-ye-kanye)
 
+### 2023
+
+2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
+
+[https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
+
+
 ### 2025 January
 
 2025-01-13 An FBI press release raised alarm about increasing white supremacism. 

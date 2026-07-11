@@ -110,7 +110,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2024-03-06 RFK Jr. allegedly boasted about friendships with multiple sex offenders.
 
-2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, had them made in China for $3 per book, then sold them for a profit at $59.99 and up and placed restrictions on schools which carry the bible to ensure that only Trump’s version was purchased.  
+2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, produced them China for $3, sold them for a 2000% and up profit, and forced a mandate requiring public schools to carry only those versions of the bible. 
 
 2024-03-26 Trump Media and Technology Group TMTG started trading publicly on NASDAQ.
 
