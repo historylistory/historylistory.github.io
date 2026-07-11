@@ -49,7 +49,7 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 ### 2025 October
 
-2025-10-20 During a press conference about the government shutdown, Republican Representative Chip Roy of Texas made a theocratic and **exclusive** assertion that Jesus is King in the United States.
+2025-10-20 Republican Representative Chip Roy of Texas made the exclusive assertion that Jesus is King in the United States.
 
 [https://ffrfaction.org/theocratic-rep-chip-roy-claims-jesus-is-king-in-the-united-states/](https://ffrfaction.org/theocratic-rep-chip-roy-claims-jesus-is-king-in-the-united-states/)
 
@@ -74,7 +74,7 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 [https://cbsaustin.com/news/local/texas-senate-democrats-denounce-discriminatory-school-choice-practices](https://cbsaustin.com/news/local/texas-senate-democrats-denounce-discriminatory-school-choice-practices)
 
-2026-01-28 The Christian Nationalist movement doesn’t want room for other religions or other faiths. Case in point when someone painted over a billboard in Los Angeles originally put up by a group called World’s Last Chance, an organization made up of non-denominational volunteers. 
+2026-01-28 A Christian Nationalist painted over a World’s Last Chance billboard in Los Angeles to read Jesus is God. 
 
 [https://www.themonastery.org/blog/billboard-reading-jesus-is-not-god-vandalized-in-la?srsltid=AfmBOorLycKlYINfOj5qSHGIWkVaP9mcvvX8ks2jqXCg4v09VcTvHPpx](https://www.themonastery.org/blog/billboard-reading-jesus-is-not-god-vandalized-in-la?srsltid=AfmBOorLycKlYINfOj5qSHGIWkVaP9mcvvX8ks2jqXCg4v09VcTvHPpx)
 

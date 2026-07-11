@@ -328,13 +328,16 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
+
 
 2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 

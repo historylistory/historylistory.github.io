@@ -259,7 +259,7 @@ PAYWALL [https://www.thedailybeast.com/doordash-meltdown-after-donald-trump-oval
 
 SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/](https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-media-new-objection-platform/)
 
-2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”.  This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including "Satan had raised up Barack Hussein Gay Raised By Transgenders Obama": "Any time the devil makes a move, Yahweh, God makes an even bigger move”. 
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”. In April 2024 he said Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including “Satan had raised up Barack Hussein Gay Raised By Transgenders Obama” and, “Any time the devil makes a move, Yahweh, God makes an even bigger move”.
 
 [https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3](https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3)
 

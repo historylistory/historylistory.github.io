@@ -565,9 +565,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
-2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”. This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including “Satan had raised up Barack Hussein Gay Raised By Transgenders Obama” and “Any time the devil makes a move, Yahweh, God makes an even bigger move”.
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”. In April 2024 he said Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including “Satan had raised up Barack Hussein Gay Raised By Transgenders Obama” and, “Any time the devil makes a move, Yahweh, God makes an even bigger move”.
 
 2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
@@ -635,7 +635,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-09 MAGA supporters filed complaints against Bad Bunny’s halftime show.
 
-2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote on social media, “….Let me be clear: this is not a golden calf…”.
+2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote, “Let me be clear: this is not a golden calf.”
 
 2026-05-11 Trump’s reflection pool project was estimated to cost $13.1M. 
 

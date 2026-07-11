@@ -156,13 +156,16 @@ SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal
 
 PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/](https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-jd-vance-after-he-says-pope-should-be-careful-talking-about-theology/)
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
+
 
 2026-04-16 Pete Hegseth quoted a fake bible verse from the movie Pulp Fiction during a prayer, then compared Trump to Jesus.
 
@@ -179,10 +182,6 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/](https://www.snopes.com/fact-check/hegseth-bible-pulp-fiction/)
 
 PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/](https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quotes-violent-prayer-from-pulp-fiction-references-bible/)
-
-2026-04-16 Headline “Pete Hegseth attacks ‘unpatriotic’ media and compares reporters to Jewish biblical group” (NBC News). He compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
-
-[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
 2026-04-19 The Trump administration announced an 84-hour public Bible reading from Genesis to Revelation.
 

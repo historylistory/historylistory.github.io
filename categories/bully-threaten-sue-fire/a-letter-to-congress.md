@@ -503,7 +503,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-04-15 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.”
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 2026-04-16 ICE agent Gregory Morgan was charged with assault after allegedly pointing a firearm at motorists in Minnesota. According to articles, the officer was in a rented, unmarked SUV when he pulled up to other drivers and pointed his handgun at them.
 

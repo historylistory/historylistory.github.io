@@ -166,7 +166,7 @@ permalink: /categories/education/indoctrination/
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
 
-2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas's Ten Commandments classroom law violated the Constitution's Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
+2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas’s Ten Commandments classroom law violated the Constitution’s Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public-school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
 
 https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-injunction-prohibiting-ten-commandments-display-in-arkansas-schools
 

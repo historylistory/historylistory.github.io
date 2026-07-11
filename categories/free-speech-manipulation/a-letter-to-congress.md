@@ -349,7 +349,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump.
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 

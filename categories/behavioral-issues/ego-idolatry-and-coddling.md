@@ -327,7 +327,7 @@ SUB WALL [https://www.nytimes.com/2026/04/13/us/politics/trump-jesus-pope-leo-tr
 
 SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/](https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religious-conservatives/)
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
@@ -335,7 +335,11 @@ SUB WALL [https://www.washingtonpost.com/politics/2026/04/13/trump-jesus-religio
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
 
-2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”.  This is the guy who in April 2024 said that Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including "Satan had raised up Barack Hussein Gay Raised By Transgenders Obama": "Any time the devil makes a move, Yahweh, God makes an even bigger move”. 
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
+
+
+
+2026-04-16 Right-wing podcaster Pastor Shane Vaugh said, “You can’t believe God raised up Pharaoh and not believe he raised up Trump”. In April 2024 he said Justice Jackson “talks monkey talk” and “belongs in the jungle”. He has said a lot, including “Satan had raised up Barack Hussein Gay Raised By Transgenders Obama” and, “Any time the devil makes a move, Yahweh, God makes an even bigger move”.
 
 [https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3](https://www.youtube.com/watch?v=eLxczPMXIHQ&list=WL&index=3)
 
@@ -375,7 +379,7 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 
 ### 2026 May
 
-2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote on social media, “….Let me be clear: this is not a golden calf…”.
+2026-05-10 A 22-foot golden Trump statue was erected at Trump National Doral Miami. Pastor Mark Burns defensively wrote, “Let me be clear: this is not a golden calf.”
 
 [https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2](https://www.youtube.com/watch?v=gsNowrK16J0&list=WL&index=2)
 

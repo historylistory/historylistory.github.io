@@ -331,13 +331,16 @@ PAY WALL [https://www.thedailybeast.com/trump-official-gives-vatican-bitter-lect
 
 PAY WALL [https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/](https://www.washingtonpost.com/world/2026/04/13/pope-leo-president-trump-feud/)
 
-2026-04-16 Pete Hegseth compared portions of the press to biblical Pharisees and accused reporters of unfairly targeting Trump. 
+2026-04-16 Hegseth compared reporters covering the Iran war to the Pharisees, the biblical Jewish group that opposed Jesus.
 
 [https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
 
 [https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161](https://www.nbcnews.com/politics/national-security/hegseth-says-iran-digging-missile-launchers-rcna332161)
 
 [https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw](https://x.com/gretchencarlson/status/2044752887029358926?s=46&t=qjA9BAv6BhOCNlxoiZWFbw)
+
+[https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227](https://www.nbcnews.com/politics/trump-administration/hegseth-attacks-unpatriotic-media-compares-reporters-jewish-biblical-g-rcna332227)
+
 
 2026-04-26 Trump childishly lashed out at news anchor Norah O’Donnell (60 Minutes) for reading portions of the gunman’s manifesto from the Correspondence Dinner shooting.
 

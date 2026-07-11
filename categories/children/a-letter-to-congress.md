@@ -240,7 +240,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-03-04 Media outlets published the names of the children killed by the U.S. TOMAHAWK MISSILE in Minab, Iran. When questioned, Trump claimed Iran had hit itself with its own missile, while other administration officials said the incident remained under investigation. 
 
-2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas's Ten Commandments classroom law violated the Constitution's Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
+2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas’s Ten Commandments classroom law violated the Constitution’s Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public-school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
 
 2026-03-17 A US-Israeli bombing killed a 3-day-old infant, his 2-year-old sister, and their mother and grandmother.
 
