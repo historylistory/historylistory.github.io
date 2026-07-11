@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Hegemony
-category_slug: foreign-affairs-isolation
+category_slug: red-flags
 subcategory_slug: hegemony
-permalink: /categories/foreign-affairs-isolation/hegemony/
+permalink: /categories/foreign-affairs-isolation/red-flags/
 ---
 
 ### Define Hegemony

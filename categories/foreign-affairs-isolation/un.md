@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: The UN
+title: UN
 category_slug: foreign-affairs-isolation
-subcategory_slug: the-un
-permalink: /categories/foreign-affairs-isolation/the-un/
+subcategory_slug: un
+permalink: /categories/foreign-affairs-isolation/un/
 ---
 
 ### 2018
