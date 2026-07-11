@@ -92,6 +92,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2022-05-25 Beto O’Rourke was physically removed from Governor Greg Abbott’s Uvalde shooting press conference after criticizing state gun policies.
 
+2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump. 
+
 2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways.
 
 2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign.

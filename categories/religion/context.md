@@ -32,7 +32,7 @@ ITS THE FIRST AMENDMENT ESTABLISHMENT CLAUSE [https://firstamendment.mtsu.edu/ar
 
 ### 1996
 
-1996 Peter Wagner started the New Apostolic Reformation. Context: They follow the Seven Mountain Mandate, dominion theology, and they make up approximately 41% of America.
+1996-01-01 Peter Wagner started the New Apostolic Reformation. Context: They follow the Seven Mountain Mandate, dominion theology, and they make up approximately 41% of America.
 
 [https://www.gotquestions.org/New-Apostolic-Reformation.html](https://www.gotquestions.org/New-Apostolic-Reformation.html)
 

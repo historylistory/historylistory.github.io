@@ -21,7 +21,7 @@ permalink: /categories/religion/performative-behavior/
 
 [https://www.nbcnews.com/video/christian-leaders-pray-over-trump-during-launch-of-evangelicals-for-trump-coalition-76030021611](https://www.nbcnews.com/video/christian-leaders-pray-over-trump-during-launch-of-evangelicals-for-trump-coalition-76030021611)
 
-2020-11-06 Trump supporters outside Clark County Election Department in Nevada
+2020-11-06 Trump supporters made a spectacle of themselves outside Clark County Election Department in Nevada.
 
 [https://www.newsweek.com/trump-supporters-pray-clark-county-election-office-doors-red-nevada-win-1545617](https://www.newsweek.com/trump-supporters-pray-clark-county-election-office-doors-red-nevada-win-1545617)
 

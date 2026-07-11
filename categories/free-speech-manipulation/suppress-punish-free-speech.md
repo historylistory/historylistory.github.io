@@ -12,6 +12,11 @@ permalink: /categories/free-speech-manipulation/suppress-punish-free-speech/
 
 {% include youtubePlayer.html id="eEIVS7TPZzA" %}
 
+2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump. 
+
+[https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7](https://www.youtube.com/watch?v=h098Z6g6pCE&list=WL&index=7)
+
+
 ### 2025 June
 
 2025-06-11 Karoline Leavitt claimed that Trump was a champion for the First Amendment at the same time Trump threatened to sue or revoke licenses of networks that didn’t agree with him. She herself revoked press credentials for anyone in the press pool that didn’t refer to the Gulf of Mexico as “Gulf of America”. 

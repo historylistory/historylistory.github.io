@@ -81,11 +81,12 @@ INFORMATIVE [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9&t=519s]
 
 ### 2020
 
-2020-11-09 Here is the viral video of Kenneth Copeland’s maniacal laughter during a politically laden sermon. For context, Copeland is a Trump megadonor.
+2020-11-09 Trump megadonor Kenneth Copeland performed an unsettling fit of maniacal laughter during a political sermon about the elections. 
+
+[https://www.facebook.com/watch/?v=1578939962293228](https://www.facebook.com/watch/?v=1578939962293228)
 
 {% include youtubePlayer.html id="VBkegy4aDvk" %}
 
-[https://www.facebook.com/watch/?v=1578939962293228](https://www.facebook.com/watch/?v=1578939962293228)
 
 ### 2021
 
