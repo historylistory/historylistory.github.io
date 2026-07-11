@@ -6,7 +6,7 @@ subcategory_slug: 30-second-questions
 permalink: /categories/immigration-militarization-terror/30-second-questions/
 ---
 
-### Notice to Reader
+### WHAT AM I
 
 New as of July 8, 2026
 

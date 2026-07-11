@@ -6,7 +6,7 @@ subcategory_slug: 30-second-questions
 permalink: /categories/ai-data-big-brother-doge/30-second-questions/
 ---
 
-### Notice to Reader
+### WHAT AM I
 
 New as of July 8, 2026
 
