@@ -34,3 +34,8 @@ Have a question you'd like to see included? Feel free to [email me/](https://his
 ### Weaponizing God
 
 (QUESTION IN PROGRESS, NOT READY) IN 2025 a teacher in Oklahoma discovered the trump bible excludes amendments 11-thru-27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more. Do you think this administration is using tools of religion to slide in propaganda or political agendas? 
+
+### Indoctrination 
+
+
+(QUESTION IN PROGRESS, NOT READY) Schools have debate teams. The government has no business incorporating right-wing TPUSA propaganda into their schools. This can be an outside-school thing, but taxpayers don’t need to be paying for the government to indoctrinate their kids against the will of the people. Especially just to enrich another 501c3 status organization that leverages faith to enrich themselves and probably makes way more many than they’d ever dare report. We’ve seen how well people like Erika Kirk lives as they peddle Tshirts and ask for donations, why are we promoting this?  

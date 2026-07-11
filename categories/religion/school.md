@@ -152,7 +152,7 @@ https://www.interfaithalliance.org/post/interfaith-alliance-welcomes-permanent-i
 
 [https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s](https://www.youtube.com/watch?v=bpCBpSzdTb4&list=WL&index=3&t=210s)
 
-2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
+2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
 

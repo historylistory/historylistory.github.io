@@ -123,7 +123,7 @@ permalink: /categories/education/indoctrination/
 
 [https://x.com/benshapiro/status/695638866993115136](https://x.com/benshapiro/status/695638866993115136)
 
-2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
+2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
 

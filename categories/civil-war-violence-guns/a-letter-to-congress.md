@@ -379,7 +379,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-09-27 Trump alleged Portland ICE facilities were under siege by Antifa, posting on social media that Portland was “war ravaged” and that he planned to authorize “full force”. 
 
-2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY.
+2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
 2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 

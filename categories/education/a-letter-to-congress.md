@@ -228,7 +228,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-09-17 The Trump administration ordered the National Park Service to remove or censor exhibits at Harpers Ferry West Virginia, including the Civil War Museum and John Brown’s Fort (a key site in an 1859 abolitionist raid).
 
-2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY.
+2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
 2025-11-20 The Department of Education declassified nursing careers as professional, thereby restricting their student loan limits.
 

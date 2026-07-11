@@ -469,7 +469,7 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 ### 2025 September 28 TPUSA INDOC
 
-2025-09-28 Social-media posts promoted incorporating Turning Point USA content into school curricula. Trump reposted one such video from @TRUMP ARMY. 
+2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
 [https://x.com/TRUMP_ARMY_/status/1972282140667904372](https://x.com/TRUMP_ARMY_/status/1972282140667904372)
 
