@@ -278,3 +278,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
 
+2026-07-09 A new poll from AP NORC showed that some Jewish Americans are tired of Netanyahu and perhaps don't feel like they are supported by any political party. 
+

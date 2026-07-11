@@ -741,3 +741,5 @@ Next
 2026-07-07 ICE agents in Houston fatally shot Lorenzo Salgado Araujo while he was driving to work. 
 
 2026-07-07 The for-profit prison company GEO Group settled a case of willfully abusing and exploiting detainees.  They were only fined $100,000. 
+
+2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 

@@ -310,3 +310,12 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 
 [https://www.votebeat.org/national/2026/07/09/trump-fires-election-assistance-commission-members-hicks-hovland-mccormick/](https://www.votebeat.org/national/2026/07/09/trump-fires-election-assistance-commission-members-hicks-hovland-mccormick/)
 
+2026-07-10 Trump fired the last of the Election Assistance Commission members Hicks and Hoveland. McCormick resigned and Palmer stepped down back in April to join Heritage Foundation. 
+
+[https://www.reuters.com/legal/government/trump-terminates-election-assistance-commission-members-2026-07-10/](https://www.reuters.com/legal/government/trump-terminates-election-assistance-commission-members-2026-07-10/)
+
+[https://www.nbcnews.com/politics/2026-election/trump-fires-election-assistance-commission-members-ahead-midterms-rcna353781](https://www.nbcnews.com/politics/2026-election/trump-fires-election-assistance-commission-members-ahead-midterms-rcna353781)
+
+[https://thehill.com/homenews/campaign/5963244-trump-fires-election-commissioners-interference-fears/](https://thehill.com/homenews/campaign/5963244-trump-fires-election-commissioners-interference-fears/)
+
+[https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process](https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process)

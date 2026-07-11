@@ -437,3 +437,21 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj](https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj)
 
 [https://www.whitehouse.gov/administration/cabinet/](https://www.whitehouse.gov/administration/cabinet/)
+
+2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
+
+[https://www.cbsnews.com/news/trump-wont-sign-housing-bill-will-become-law-soon-without-veto/](https://www.cbsnews.com/news/trump-wont-sign-housing-bill-will-become-law-soon-without-veto/)
+
+[https://www.cnbc.com/2026/07/10/trump-housing-bill-save-act-law.html](https://www.cnbc.com/2026/07/10/trump-housing-bill-save-act-law.html)
+
+[https://www.nbcnews.com/politics/congress/landmark-housing-bill-trump-trashed-will-become-law-unless-vetoes-toni-rcna353187](https://www.nbcnews.com/politics/congress/landmark-housing-bill-trump-trashed-will-become-law-unless-vetoes-toni-rcna353187)
+
+[https://www.theguardian.com/us-news/2026/jul/10/housing-bill-becomes-law-without-trump-veto](https://www.theguardian.com/us-news/2026/jul/10/housing-bill-becomes-law-without-trump-veto)
+
+[https://rooseveltinstitute.org/blog/the-easy-to-miss-reform-in-the-road-to-housing-act-worth-preserving](https://rooseveltinstitute.org/blog/the-easy-to-miss-reform-in-the-road-to-housing-act-worth-preserving)
+
+[https://www.pbs.org/newshour/show/a-look-at-the-new-regulations-and-incentives-in-the-housing-bill-set-to-become-law](https://www.pbs.org/newshour/show/a-look-at-the-new-regulations-and-incentives-in-the-housing-bill-set-to-become-law)
+
+[https://www.axios.com/2026/07/10/trump-housing-bill-affordability](https://www.axios.com/2026/07/10/trump-housing-bill-affordability)
+
+[https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act](https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act)

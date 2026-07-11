@@ -348,3 +348,16 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says](https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says)
 
 [https://www.jpost.com/middle-east/article-901210](https://www.jpost.com/middle-east/article-901210)
+
+2026-07-09 A new poll from AP NORC showed that some Jewish Americans are tired of Netanyahu and perhaps don't feel like they are supported by any political party. 
+
+[https://apnews.com/article/poll-jewish-adults-democrat-republican-trump-netanyahu-9114d71c93fad1997ae224e8992b7988](https://apnews.com/article/poll-jewish-adults-democrat-republican-trump-netanyahu-9114d71c93fad1997ae224e8992b7988)
+
+[https://apnews.com/article/american-jews-poll-divisions-israel-gaza-netanyahu-b41aa19f3d4ce8e60ce34b605f11f863](https://apnews.com/article/american-jews-poll-divisions-israel-gaza-netanyahu-b41aa19f3d4ce8e60ce34b605f11f863)
+
+[https://www.youtube.com/watch?v=MgueCcPCPUo](https://www.youtube.com/watch?v=MgueCcPCPUo)
+
+[https://apnorc.org/projects/most-jewish-americans-think-antisemitism-is-a-serious-problem-that-has-escalated-in-recent-years/](https://apnorc.org/projects/most-jewish-americans-think-antisemitism-is-a-serious-problem-that-has-escalated-in-recent-years/)
+
+[https://apnorc.org/projects/few-jewish-adults-feel-supported-by-the-major-political-parties-or-the-president/](https://apnorc.org/projects/few-jewish-adults-feel-supported-by-the-major-political-parties-or-the-president/)
+

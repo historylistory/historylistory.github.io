@@ -692,3 +692,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
 
 2026-07-09 Trump had the Palm Beach Airport renamed the Donald J. Trump International Airport. 
+
+2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 

@@ -863,3 +863,13 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5](https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5)
 
 [https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)
+
+### 2026 July
+
+2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 
+
+[https://www.youtube.com/watch?v=fOq5gcDBBeo](https://www.youtube.com/watch?v=fOq5gcDBBeo)
+
+[https://www.facebook.com/reel/1409347791026818](https://www.facebook.com/reel/1409347791026818)
+
+[https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting](https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting)

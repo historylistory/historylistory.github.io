@@ -303,3 +303,5 @@ The following examples highlight these concerns, while some are included for his
 2026-07-07 Typhoon Maysak battered China with heavy rain, rare category-5 winds, mudslides, and several deaths. 
 
 2026-07-08 ExxonMobil’s top attorney Robert Levy retired and joined Trump’s newly renamed Energy and Natural Resources Division, previously the Environment and Natural Resources Division. Co-president of Public Citizen’s Robert Weissman wrote, “Big Oil’s capture of the U.S. government is now complete. The Justice Department that should be fighting to protect clean air and water and avert catastrophic climate change will now work on behalf of polluters to advance the poisoning of people and the planet”. 
+
+2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
