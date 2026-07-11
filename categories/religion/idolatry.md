@@ -8,7 +8,7 @@ permalink: /categories/religion/idolatry/
 
 ### COMMENT
 
-Most of this is found in the "Behavioral Issues" section under "Ego, Idolatry & Coddling"
+Most of this is found in the "Behavioral Issues" section under [Ego, Idolatry & Coddling](https://historylistory.com/categories/behavioral-issues/ego-idolatry-and-coddling)
 
 ### 2018 
 
@@ -206,8 +206,6 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/](https://www.salon.com/2026/05/20/white-house-ballroom-is-turning-into-a-symbol-of-trumps-failures/)
 
 [https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5](https://www.youtube.com/watch?v=6yBckt4T7xM&list=WL&index=5)
-
-### 2026 June
 
 2026-05-19 Mark Meckler claimed Trump was touched or ordained by God.
 
