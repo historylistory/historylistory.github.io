@@ -8,7 +8,7 @@ permalink: /categories/voting-census/suppress-women-voters/
 
 ### 2000
 
-2000-01-01 In 2000 Larry Elder wrote an article for Capitalism Magazine in which he said, “**Women know less than men about political issues, economics, and current events**”. The article was titled “Democrats and the ‘SHE’ Vote”.
+2000-01-01 Larry Elder wrote, “Women know less than men about political issues, economics, and current events”. 
 
 [https://www.newsweek.com/larry-elder-under-fire-resurfaced-comments-2000-about-women-voters-1620817](https://www.newsweek.com/larry-elder-under-fire-resurfaced-comments-2000-about-women-voters-1620817)
 
