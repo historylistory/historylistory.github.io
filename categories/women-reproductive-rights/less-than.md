@@ -217,9 +217,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 [https://www.wonkette.com/p/elon-musk-agrees-saving-the-country](https://www.wonkette.com/p/elon-musk-agrees-saving-the-country)
 
-2026-02-22 In the wake of the men’s hockey team victory, conservative commentators on Fox referred to the Canadian team as “communists”, with one saying, “Gotta go all the way back to 1980 when we defeated the Soviets. This felt just as sweet because I guess since we don’t have Russia to kick around anymore, Canada will do” and another saying, “They’re practically communists, and they’re cozying up to the Chinese.
-
-Also out of left field, one conservative commentator praised the win as a show of masculinity. Benny Johnson stated, quote, “Masculinity and celebration – these are things that, like, have been completely and totally sanitized from our **arch-feminist** culture, our **estrogen-etic** culture”. Neither are words.
+2026-02-22 In the wake of the men’s hockey team victory, conservative commentators on Fox referred to the Canadian team as “communists”, with one saying, “Gotta go all the way back to 1980 when we defeated the Soviets. This felt just as sweet because I guess since we don’t have Russia to kick around anymore, Canada will do” and another saying, “They’re practically communists, and they’re cozying up to the Chinese. Benny Johnson said, “Masculinity and celebration – these are things that, like, have been completely and totally sanitized from our arch-feminist culture, our estrogen-etic culture”.
 
 [https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026#:~:text=Jack%20Hughes%20is%20the%20poster,at%20Santaguilia%20Arena%20on%20Sunday](https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026).
 

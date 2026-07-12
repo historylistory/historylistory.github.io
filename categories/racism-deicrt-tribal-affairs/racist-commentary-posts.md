@@ -583,7 +583,7 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 
 
-2026-05-15 Jesse Watters said on “The Five”, “I did some research on the Blacks – as Judge Janine so eloquently would say – um. The solution to Hakeem’s problem, the (ske?) Obama, is baby making. Blacks for 150 years have only represented 10 to 15% of the American population. Okay? That’s not that much. So, if they wanna have more seats, they gotta get in between the sheets. Spanish – they’re comin’ North, they’re havin’ tons of kids, and at this point they have the same – almost – the same amount of house seats as Blacks! The Hispanic caucus is almost as big as the – the Black caucus. So, if you guys need to solve that problem you know what you need to do”. 
+2026-05-15 Jesse Watters said on The Five, “I did some research on the Blacks – as Judge Janine so eloquently would say – um. The solution to Hakeem’s problem, the (ske?) Obama, is baby making. Blacks for 150 years have only represented 10 to 15% of the American population. Okay? That’s not that much. So, if they wanna have more seats, they gotta get in between the sheets. Spanish – they’re comin’ North, they’re havin’ tons of kids, and at this point they have the same – almost – the same amount of house seats as Blacks! The Hispanic caucus is almost as big as the – the Black caucus. So, if you guys need to solve that problem you know what you need to do”.
 
 [https://ca.news.yahoo.com/jesse-watters-says-blacks-more-150113637.html](https://ca.news.yahoo.com/jesse-watters-says-blacks-more-150113637.html)
 
