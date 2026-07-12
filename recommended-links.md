@@ -24,13 +24,22 @@ permalink: /recommended-links/
 
 [Agriculture: Farm Commons](https://farmcommons.org/)
 
+---
+
+
 [Campaign: FEC Data](https://www.fec.gov/data/)
 
 [Campaign: Endorsements by Donald Trump](https://ballotpedia.org/Endorsements_by_Donald_Trump)
 
 [Campaign: Donor Lookup on OpenSecrets](https://www.opensecrets.org/donor-lookup)
 
+---
+
+
 [CAIR: Council on American-Islamic Relations](https://www.cair.com/)
+
+---
+
 
 [Climate Change: Petition to stop Lee Zeldin from deregulating greenhouse gasses](https://www.change.org/p/petition-to-ask-epa-administrator-lee-zeldin-to-regulate-chemicals)
 
@@ -38,9 +47,17 @@ permalink: /recommended-links/
 
 [Climate Change: National Drought Mitigation Center](https://drought.unl.edu/Publications/AnnualReports.aspx)
 
+---
+
 [NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers) *NOTICE*: It appears the DOJ rerouted this link so the study doesn't appear. However, if you hit the little [archive] link next to it, it will take you to the so-called "Way Back Machine" where you should still be able to see the study in part. 
 
+---
+
+
 [DOGE: Interactive Map of Cuts on American Progress](https://www.americanprogress.org/article/doge-cuts-by-city-state-and-congressional-district/)
+
+---
+
 
 [Economy: Federal Spending Tracker](https://fiscaldata.treasury.gov/americas-finance-guide/federal-spending/)
 
@@ -51,6 +68,9 @@ permalink: /recommended-links/
 [Economy: Tariff Tracker](https://www.tradecomplianceresourcehub.com/2025/10/30/trump-2-0-tariff-tracker/)
 
 [Economy: GasBuddy](https://www.gasbuddy.com/)
+
+---
+
 
 [Energy: CleanView.Co](https://cleanview.co)
 
@@ -68,9 +88,17 @@ permalink: /recommended-links/
 
 [Energy: DataCenterMap.Com](https://www.datacentermap.com)
 
+---
+
 [Free Speech: Reporters Without Borders](https://rsf.org)
 
+---
+
+
 [Gaza - Gym Rat In Gaza on Instagram](https://www.instagram.com/gym_rat_in_gaza/?hl=en)
+
+---
+
 
 [GET INVOLVED: Change.org](https://www.change.org/)
 
@@ -94,11 +122,18 @@ permalink: /recommended-links/
 
 [GET INVOLVED: Center for American Progress.org](https://www.americanprogress.org/)
 
+[GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
+
+---
+
 [GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
 
 [GET INVOLEVD/IMMIGRATION: FIEL Houston](https://fielhouston.org/)
 
 [GET INVOLVED/IMMIGRATION: HavenWatch](https://havenwatch.org/)
+
+---
+
 
 [GET INVOLVED/PETITION: Change.org](https://www.change.org/)
 
@@ -108,6 +143,9 @@ permalink: /recommended-links/
 
 [GET INVOLVED/PETITION: Ms. Rachel YouTube](https://www.youtube.com/@msrachel)
 
+---
+
+
 [GET INVOLVED/VOTE: Ballotpedia](https://www.ballotpedia.org)
 
 [GET INVOLVED/VOTE: USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
@@ -116,13 +154,39 @@ permalink: /recommended-links/
 
 [GET INVOLVED/VOTE: Vote Riders.org](https://voteriders.org/)
 
-[GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
+[GET INVOLVED/VOTE: Vote.org Polling Place Locator](https://www.vote.org/polling-place-locator/)
+
+[GET INVOVED/VOTE: Vote411.org](https://www.vote411.org/)
+
+---
+
+
+[GET A RIDE TO POLLS, MAYBE? Check with Federal Transit](https://www.transit.dot.gov/funding/grants/transit-programs-increase-access-voting)
+
+[GET A RIDE TO POLLS, MAYBE? Check with ElderCare.ACL.Gov](https://eldercare.acl.gov/)
+
+[GET A RIDE TO POLLS, MAYBE? Check with Lyft](https://www.lyft.com/lyftup/programs)
+
+[GET A RIDE TO POLLS, MAYBE? Check with Uber](https://www.uber.com/us/en/newsroom/)
+
+[GET A RIDE TO POLLS, MAYBE? Check with the ACL](https://acl.gov/TransportationCenter/FindServices)
+
+[GET A RIDE TO POLLS, MAYBE? Check with 211.org](https://www.211.org/)
+
+---
+
 
 [Guns: School Shooting Database](https://k12ssdb.org/all-shootings)
+
+---
+
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
 
 [History: The U.S. Constitution](https://constitution.congress.gov/constitution/)
+
+---
+
 
 [LGBTQ: ACLU Legislation Tracker](https://www.aclu.org/legislative-attacks-on-lgbtq-rights-2026)
 
@@ -130,11 +194,23 @@ permalink: /recommended-links/
 
 [LGBTQ: TransLegislation Tracker](https://translegislation.com/)
 
-[MAGA: LeavingMAGA.org](https://leavingmaga.org/)
+---
+
+
+[MAGA CULT SUPPORT: LeavingMAGA.org](https://leavingmaga.org/)
+
+---
 
 [Media: AllSides.com](https://www.allsides.com/news-source/elle-magazine-media-bias)
 
+
+---
+
+
 [NON PROFITS](https://greatnonprofits.org/org/foundation-for-women-warriors)
+
+
+---
 
 [Polls: YouGov.com](https://yougov.com/)
 
@@ -144,9 +220,13 @@ permalink: /recommended-links/
 
 [Polls: AP NORC](https://apnorc.org/)
 
+---
+
 [Poverty: Housing Not Handcuffs](https://housingnothandcuffs.org/)
 
 [Poverty: Homes for Good](https://homesforgood.org/about/about-us/who-we-are)
+
+---
 
 [Religion: Skeptics Annotated Bible](https://www.skepticsannotatedbible.com/)
 
@@ -165,6 +245,8 @@ permalink: /recommended-links/
 [Religion CRINGE: Kenneth Copeland, on demons](https://www.youtube.com/watch?v=9LtF34MrsfI)
 
 [Religion CRINGE: Paula White, needs your money](https://www.youtube.com/watch?v=Fdzsq0jaimg)
+
+---
 
 [Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
@@ -194,15 +276,26 @@ permalink: /recommended-links/
 
 [Trump Legal: Trump Lawsuits - USA Today](https://www.usatoday.com/pages/interactives/trump-lawsuits/)
 
+---
+
+
 [Vatican News: Pope Francis on the Devil](https://www.vaticannews.va/en/pope-francis/mass-casa-santa-marta/2018-05/pope-francis-santa-marta-devil.html)
 
 [Vatican News: Pope Francis - First Sunday of Lent](https://www.vaticannews.va/en/pope/news/2020-03/pope-francis-angelus-first-sunday-lent.html)
 
+---
+
+
 [Women: Emily's List](https://emilyslist.org/)
+
+[Women: League of Women Voters](https://www.lwv.org/)
 
 [WOMEN VETERANS: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
 
+---
+
 [WHAT IS THIS?: Congressional Pig Book](https://www.cagw.org/2024-congressional-pig-book/)
+
 
 
 ### THE SNAKE POEM TRANSCRIPT
