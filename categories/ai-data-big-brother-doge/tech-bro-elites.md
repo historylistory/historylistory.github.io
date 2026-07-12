@@ -14,6 +14,13 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
+### 2010
+
+2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 
+
+[https://www.youtube.com/shorts/s-BQhXdCs8Y](https://www.youtube.com/shorts/s-BQhXdCs8Y)
+
+{% include youtubePlayer.html id="KgH7Lv2gQdk" %}
 
 ### 2023
 

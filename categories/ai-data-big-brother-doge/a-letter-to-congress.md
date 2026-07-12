@@ -44,6 +44,7 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2009-04-13 Peter Thiel wrote in The Education of a Libertarian that expanded welfare and women’s suffrage made “capitalist democracy” an oxymoron, adding that he no longer believed “freedom and democracy are compatible.”
 
+2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 
 
 2014-02-19 Google launched smart glasses.
 

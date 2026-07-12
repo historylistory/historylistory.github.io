@@ -8,7 +8,7 @@ permalink: /categories/voting-census/interference/
 
 ### 2010
 
-2010-01-01 During a Libertopia conference, Palantir co-founder and Trump mega-donor Peter Thiel explained **how big tech companies have a hand in taking over the vote**.
+2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 
 
 [https://www.youtube.com/shorts/s-BQhXdCs8Y](https://www.youtube.com/shorts/s-BQhXdCs8Y)
 
