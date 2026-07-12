@@ -33,7 +33,21 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
-pending text 
+Dear Member of Congress,
+
+I am writing out of deep concern about the sustained erosion of women’s rights, safety, healthcare access, and equal participation in American life.
+
+The reversal of Roe v. Wade has allowed increasingly severe restrictions on reproductive healthcare. Women experiencing miscarriages, pregnancy complications, and incomplete medication abortions have reportedly faced dangerous delays or denials of care because doctors fear prosecution. Some patients have died after being unable to receive timely procedures. At the same time, lawmakers have repeatedly opposed protections for contraception and IVF, while proposals in several states have sought to criminalize abortion, restrict the sharing of medical information, investigate pregnancy loss, and threaten access to birth control.
+
+These policies are developing alongside rhetoric that portrays women primarily as wives, mothers, or instruments for increasing birth rates. Influential political figures, commentators, religious leaders, and organizations have argued that women should not vote, lead, serve in combat, study certain fields, or leave unwanted marriages. Women without children have been described as selfish, unstable, or less deserving of political influence. Public statements trivializing sexual assault, domestic abuse, and women’s professional accomplishments further normalize discrimination and hostility.
+
+There are also troubling institutional consequences. Women’s history and gender-related educational programs have been removed or restricted. Female military officers have reportedly been excluded from advancement, advisory bodies have been dissolved, and protections against sex and gender discrimination have been rescinded. Colleges and other institutions have faced serious allegations concerning failures to protect women from sexual violence.
+
+This is not simply a disagreement over culture or family values. It concerns whether women are entitled to bodily autonomy, lifesaving medical treatment, equal protection, education, professional advancement, political participation, and freedom from coercion.
+
+I urge Congress to protect nationwide access to contraception, IVF, abortion and miscarriage care; strengthen protections for patients and healthcare providers; preserve the Violence Against Women Act and the FACE Act; defend voting access; enforce anti-discrimination laws; and investigate policies that disproportionately endanger or exclude women.
+
+Women are full and equal citizens. Their health, freedom, safety, and constitutional rights should not depend on their state, marital status, pregnancy status, religion, or willingness to conform to a prescribed social role.
 
 ### Chronology.
 
