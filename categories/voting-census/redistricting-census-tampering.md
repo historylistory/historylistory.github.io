@@ -199,7 +199,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 ### 2026 April
 
-2026-04-21 Democrats in Virginia won additional seats after Republicans started a gerrymandering war in 2025. Even though Republicans had unfairly tried to gerrymander in every state, capitulating Fox network called Virginia’s win a “gerrymander scheme”. 
+2026-04-21 Democrats in Virginia won additional seats and the Fox network claimed the win was a “gerrymander scheme”.
 
 [https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917](https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917)
 
@@ -312,8 +312,6 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 
 [https://www.youtube.com/watch?v=HisWQVg5WC4&list=WL&index=2](https://www.youtube.com/watch?v=HisWQVg5WC4&list=WL&index=2)
 
-2026-05-15 The Supreme Court turned down efforts by Democrats to gain additional seats in Virginia.
-
 [https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats](https://www.pbs.org/newshour/politics/supreme-court-rejects-bid-to-restore-virginia-congressional-map-favoring-democrats)
 
 2026-05-26 A federal court blocked the Alabama House map calling it unfair to Black voters. 
@@ -337,7 +335,7 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 
 [https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)
 
-2026-05-29 Louisiana lawmakers approve a map to eliminate a majority Black district.
+2026-05-29 Louisiana lawmakers approved a map to eliminate a majority Black district.
 
 [https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5](https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5)
 

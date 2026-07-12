@@ -607,7 +607,7 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-05-27 South Carolina Senate rejected the GOP attempt to eliminate the last-standing Democratic district after 12 Republicans joined Democrats to vote against it. Representative Jim Clyburn stated, “The people who drew that map – some of them may not have ever set foot in South Carolina – this White House says to hell with the process – to hell with the Constitution”.
 
-2026-05-29 Louisiana lawmakers approve a map to eliminate a majority Black district.
+2026-05-29 Louisiana lawmakers approved a map to eliminate a majority Black district.
 
 2026-05-31 Bovino delivered a speech at the neo-fascist Remigration Summit in Portugal (RESUM26).
 

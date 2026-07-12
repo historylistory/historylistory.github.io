@@ -136,7 +136,7 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 ### 2026 January
 
-2026-01-15 News outlets reported that during an interview with Reuters, Trump commented “we shouldn’t even have an election” on account of how much the Trump administration had accomplished. In a press briefing, Karoline Leavitt brushed the comment off, stating Trump was “just joking”.
+2026-01-15 Trump said, “We shouldn’t even have an election”. Karoline Leavitt claimed Trump was “just joking”.
 
 [https://time.com/7346834/trump-canceling-midterm-elections-joking-white-house/](https://time.com/7346834/trump-canceling-midterm-elections-joking-white-house/)
 

@@ -180,7 +180,7 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 
 [https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting](https://www.theguardian.com/us-news/2026/may/26/south-carolina-republicans-redistricting)
 
-2026-05-29 Louisiana lawmakers approve a map to eliminate a majority Black district.
+2026-05-29 Louisiana lawmakers approved a map to eliminate a majority Black district.
 
 [https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5](https://www.youtube.com/watch?v=doWnEQ1pIZw&list=WL&index=5)
 

@@ -179,9 +179,7 @@ PAY WALL [https://www.startribune.com/mike-lindell-election-machine-defamation-s
 
 [https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
 
-2025-12-30 Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
-
-{% include youtubePlayer.html id="-JtgxH6hpuU" %}
+2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
 
 [https://en.wikipedia.org/wiki/Tina_Peters_(politician)](https://en.wikipedia.org/wiki/Tina_Peters_(politician))
 
@@ -192,6 +190,9 @@ PAY WALL [https://www.startribune.com/mike-lindell-election-machine-defamation-s
 [https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html](https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html)
 
 [https://truthsocial.com/@realDonaldTrump/posts/115815355325954705](https://truthsocial.com/@realDonaldTrump/posts/115815355325954705)
+
+{% include youtubePlayer.html id="-JtgxH6hpuU" %}
+
 
 ### 2026 January
 
@@ -260,7 +261,7 @@ PAY WALL [https://www.startribune.com/mike-lindell-election-machine-defamation-s
 
 ### 2026 April
 
-2026-04-01 American Action Network (a dark money PAC?) mailed out misleading fliers in Nebraska saying Democrat Cavanaugh supports the Trump agenda. 
+2026-04-01 American Action Network mailed out misleading fliers in Nebraska saying Democrat Cavanaugh supports the Trump agenda.
 
 [https://nebraskapublicmedia.org/es/news/news-articles/senator-wants-nebraska-to-exempt-overtime-tips-from-state-taxes/](https://nebraskapublicmedia.org/es/news/news-articles/senator-wants-nebraska-to-exempt-overtime-tips-from-state-taxes/)
 
@@ -285,7 +286,7 @@ PAY WALL [https://www.startribune.com/mike-lindell-election-machine-defamation-s
 [https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
 
 
-2026-04-21 Democrats in Virginia won additional seats after Republicans started a gerrymandering war in 2025. Even though Republicans had unfairly tried to gerrymander in every state, capitulating Fox network called Virginia’s win a “gerrymander scheme”. 
+2026-04-21 Democrats in Virginia won additional seats and the Fox network claimed the win was a “gerrymander scheme”.
 
 [https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917](https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917)
 
