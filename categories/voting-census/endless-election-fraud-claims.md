@@ -154,7 +154,7 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 ### 2021 March
 
-2021-03-01 Dominion Voting Systems filed a suit against the Fox News Channel and Fox Corporation for broadcasting false statements about their voting machines being rigged. Fox argued it was reporting "**pure opinion**".
+2021-03-01 Dominion Voting Systems filed a suit against the Fox News Channel and Fox Corporation for broadcasting false statements about their voting machines being rigged. Fox argued it was reporting “pure opinion”.
 
 [https://en.wikipedia.org/wiki/Dominion_Voting_Systems_v._Fox_News_Network](https://en.wikipedia.org/wiki/Dominion_Voting_Systems_v._Fox_News_Network)
 
@@ -176,13 +176,24 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 ### 2022
 
-2022-04-22 Kari Lake and Mark Finchem demanded that Arizona stop using accessible voting and electronic ballot tabulation machines for the 2022 midterms. They requested Arizona instead count ballots by hand. In October 2022, Kari Lake told reporters "I'm going to be your worst f-ing nightmare". 
+2022-04-22 Kari Lake and Mark Finchem demanded that Arizona stop using accessible voting and electronic ballot tabulation machines for the 2022 midterms. They requested Arizona instead count ballots by hand. In October 2022, Kari Lake told reporters, “I’m going to be your worst f-ing nightmare”.
 
 [https://statesunited.org/resources/lake-v-hobbs/](https://statesunited.org/resources/lake-v-hobbs/)
 
-2022-05-01 Online resources say that Larry Ellison participated in a conference call after the 2020 election focusing on strategies for challenging the legitimacy of the vote.
+2022-05-01 Allegedly Larry Ellison participated in a conference call after the 2020 election focusing on strategies for challenging the legitimacy of the vote. The call included members such as Sean Hannity, Lindsey Graham, Jay Sekulow, James Bopp. 
 
 [https://en.wikipedia.org/wiki/Larry_Ellison](https://en.wikipedia.org/wiki/Larry_Ellison)
+
+[https://www.washingtonpost.com/politics/2022/05/20/larry-ellison-oracle-trump-election-challenges/](https://www.washingtonpost.com/politics/2022/05/20/larry-ellison-oracle-trump-election-challenges/)
+
+[https://www.reuters.com/legal/government/oracles-ellison-joined-nov-2020-call-about-contesting-trumps-defeat-2022-05-20/](https://www.reuters.com/legal/government/oracles-ellison-joined-nov-2020-call-about-contesting-trumps-defeat-2022-05-20/)
+
+[https://www.yahoo.com/news/billionaire-larry-ellison-reportedly-participated-211805216.html](https://www.yahoo.com/news/billionaire-larry-ellison-reportedly-participated-211805216.html)
+
+[https://www.businessinsider.com/larry-ellison-oracle-discussed-challenging-2020-election-trump-loss-report-2022-5](https://www.businessinsider.com/larry-ellison-oracle-discussed-challenging-2020-election-trump-loss-report-2022-5)
+
+[https://www.washingtonexaminer.com/news/841361/oracles-larry-ellison-joined-call-contesting-trump-election-loss-report/](https://www.washingtonexaminer.com/news/841361/oracles-larry-ellison-joined-call-contesting-trump-election-loss-report/)
+
 
 2022-12-03 Trump posted that alleged widespread election fraud could justify terminating constitutional rules and suggested either overturning the 2020 election or holding a new one, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 

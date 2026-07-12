@@ -88,6 +88,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
+2022-05-01 Allegedly Larry Ellison participated in a conference call after the 2020 election focusing on strategies for challenging the legitimacy of the vote. The call included members such as Sean Hannity, Lindsey Graham, Jay Sekulow, James Bopp. 
+
 2022-05-02 Brendan Carr posted on X, “President Biden is right. Political satire is one of the oldest and most important forms of free speech. It challenges those in power while using humor to draw more people into the discussion. That’s why people in influential positions have always targeted it for censorship”. 
 
 2022-05-25 Beto O’Rourke was physically removed from Governor Greg Abbott’s Uvalde shooting press conference after criticizing state gun policies.

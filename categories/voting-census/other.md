@@ -45,7 +45,7 @@ OTHER SHADY BUSINESS
 
 
 
-2021-01-04 Democrats introduced the For The People/Freedom to Vote Act but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
+2021-01-04 Democrats introduced the For The People/Freedom to Vote Act, but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
 
 [https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc](https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc)
 
@@ -58,7 +58,7 @@ OTHER SHADY BUSINESS
 
 [https://isi.org/j-d-vance-on-our-civilizational-crisis/](https://isi.org/j-d-vance-on-our-civilizational-crisis/)
 
-2021-09-14 (context) Nancy Pelosi introduced the John Lewis Voting Rights Advancement Act which would require states with a history of voting rights violations to seek federal approval before enacting changes to their voting laws.
+2021-09-14 Nancy Pelosi introduced the John Lewis Voting Rights Advancement Act which would require states with a history of voting rights violations to seek federal approval before enacting changes to their voting laws.
 
 [https://www.congress.gov/bill/117th-congress/house-bill/4](https://www.congress.gov/bill/117th-congress/house-bill/4)
 

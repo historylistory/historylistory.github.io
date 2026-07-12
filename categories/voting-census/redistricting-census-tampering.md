@@ -41,7 +41,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 ### 2021
 
-2021-01-04 Democrats introduced the For The People/Freedom to Vote Act but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
+2021-01-04 Democrats introduced the For The People/Freedom to Vote Act, but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
 
 [https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc](https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc)
 

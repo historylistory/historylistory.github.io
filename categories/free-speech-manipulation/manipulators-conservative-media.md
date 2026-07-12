@@ -84,6 +84,20 @@ permalink: /categories/free-speech-manipulation/manipulators-conservative-media/
 
 [https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf](https://assets.ctfassets.net/qnesrjodfi80/5sXDznmT78abPArUAlPCqE/1fedef81bdb19e99a78ab3228b5393ac/2022_AnnualReport_Final_Optimized.pdf)
 
+2022-05-01 Allegedly Larry Ellison participated in a conference call after the 2020 election focusing on strategies for challenging the legitimacy of the vote. The call included members such as Sean Hannity, Lindsey Graham, Jay Sekulow, James Bopp. 
+
+[https://en.wikipedia.org/wiki/Larry_Ellison](https://en.wikipedia.org/wiki/Larry_Ellison)
+
+[https://www.washingtonpost.com/politics/2022/05/20/larry-ellison-oracle-trump-election-challenges/](https://www.washingtonpost.com/politics/2022/05/20/larry-ellison-oracle-trump-election-challenges/)
+
+[https://www.reuters.com/legal/government/oracles-ellison-joined-nov-2020-call-about-contesting-trumps-defeat-2022-05-20/](https://www.reuters.com/legal/government/oracles-ellison-joined-nov-2020-call-about-contesting-trumps-defeat-2022-05-20/)
+
+[https://www.yahoo.com/news/billionaire-larry-ellison-reportedly-participated-211805216.html](https://www.yahoo.com/news/billionaire-larry-ellison-reportedly-participated-211805216.html)
+
+[https://www.businessinsider.com/larry-ellison-oracle-discussed-challenging-2020-election-trump-loss-report-2022-5](https://www.businessinsider.com/larry-ellison-oracle-discussed-challenging-2020-election-trump-loss-report-2022-5)
+
+[https://www.washingtonexaminer.com/news/841361/oracles-larry-ellison-joined-call-contesting-trump-election-loss-report/](https://www.washingtonexaminer.com/news/841361/oracles-larry-ellison-joined-call-contesting-trump-election-loss-report/)
+
 ### 2023
 
 2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways. 

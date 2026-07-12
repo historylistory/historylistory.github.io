@@ -56,7 +56,7 @@ OTHER SHADY BUSINESS
 
 [https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time](https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time)
 
-2021-01-04 Democrats introduced the For The People/Freedom to Vote Act but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
+2021-01-04 Democrats introduced the For The People/Freedom to Vote Act, but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
 
 [https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc](https://www.npr.org/2021/10/20/1040238982/senate-democrats-are-pushing-a-voting-rights-bill-republicans-have-vowed-to-bloc)
 
