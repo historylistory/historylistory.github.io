@@ -200,7 +200,7 @@ permalink: /categories/crime-defiance/legal-trouble-trump/
 
 ### 2024 October
 
-2024-10-02 Special Counsel Jack Smith released 165 pages outlining Trump’s efforts to overturn the 2020 elections, involvement with the January 6 insurrection, and proof that Trump **knew** he had lost the 2020 elections.
+2024-10-02 Special Counsel Jack Smith released 165 pages outlining Trump’s efforts to overturn the 2020 elections, involvement with the January 6 insurrection, and proof that Trump knew he had lost the 2020 elections.
 
 [https://www.brennancenter.org/our-work/analysis-opinion/jack-smiths-new-filing-against-trump-proof-process-not-politics](https://www.brennancenter.org/our-work/analysis-opinion/jack-smiths-new-filing-against-trump-proof-process-not-politics)
 

@@ -81,7 +81,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 [https://www.ohiosenate.gov/news/the-democratic-standard/its-time-for-congressional-redistrictingagain](https://www.ohiosenate.gov/news/the-democratic-standard/its-time-for-congressional-redistrictingagain)
 
-2025-08-14 News outlets listed the eight states set to redistrict.
+2025-08-14 Texas, California, Missouri, Ohio, New York, Illinois, Indiana, and Florida all announced upcoming plans to redistrict.
 
 [https://www.npr.org/2025/08/14/nx-s1-5501537/texas-california-gerrymandering-redistricting](https://www.npr.org/2025/08/14/nx-s1-5501537/texas-california-gerrymandering-redistricting)
 
@@ -95,7 +95,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 [https://www.msnbc.com/top-stories/latest/indiana-redistricting-mike-braun-trump-gerrymandering-rcna232027](https://www.msnbc.com/top-stories/latest/indiana-redistricting-mike-braun-trump-gerrymandering-rcna232027)
 
-2025-08-29 Missouri announced their plan to redistrict.
+2025-08-29 Missouri issued a press release about their plan to redistrict.
 
 [https://governor.mo.gov/press-releases/archive/governor-kehoe-announces-special-session-congressional-redistricting-and](https://governor.mo.gov/press-releases/archive/governor-kehoe-announces-special-session-congressional-redistricting-and)
 

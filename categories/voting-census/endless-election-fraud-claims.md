@@ -236,11 +236,11 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 [https://edition.cnn.com/2024/10/11/politics/video/jd-vance-nyt-interview-2020-election-lulu-garcia-navarro-ebof-bts-digvid](https://edition.cnn.com/2024/10/11/politics/video/jd-vance-nyt-interview-2020-election-lulu-garcia-navarro-ebof-bts-digvid)
 
-2024-11-05 During an interview on Fox News Lara Trump stated they had to get their lawyers involved to get access to polling sites.
+2024-11-05 Lara Trump shared on a Fox interview that her committee used lawyers to gain access to polling sites. 
 
 [https://www.facebook.com/FoxNews/posts/had-to-act-rnc-co-chair-laratrump-says-the-committee-had-to-get-their-lawyers-in/955067239816472/](https://www.facebook.com/FoxNews/posts/had-to-act-rnc-co-chair-laratrump-says-the-committee-had-to-get-their-lawyers-in/955067239816472/)
 
-2024-11-05 Trump posted on social media, “A lot of talk about massive CHEATING in Philadelphia. Law Enforcement coming!!!”. 
+2024-11-05 Trump posted, “A lot of talk about massive CHEATING in Philadelphia. Law Enforcement coming!!!”.
 
 [https://www.factcheck.org/2024/11/trump-makes-unsupported-claim-about-massive-cheating-in-philadelphia/](https://www.factcheck.org/2024/11/trump-makes-unsupported-claim-about-massive-cheating-in-philadelphia/)
 
