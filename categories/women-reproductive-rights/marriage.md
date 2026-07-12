@@ -8,7 +8,7 @@ permalink: /categories/women-reproductive-rights/marriage/
 
 ### 2021
 
-2021-09-01 During a presentation at Pacifica Christian High School JD Vance shared his contempt for no-fault divorce, stating, *”…and this is one of the great tricks that I think the sexual revolution pulled on the American populace, which is this idea that, like, well, okay, these marriages were fundamentally, you know, they were maybe even violent, but certainly they were unhappy. And so getting rid of them and making it easier for people to shift spouses like they change their underwear, that’s going to make people happier in the long term. And maybe it worked out for the moms and dads – though I’m skeptical – but it really didn’t work out for the kids in those marriages…”*.
+2021-09-01 Vance said at Pacifica Christian High School, “And this is one of the great tricks that I think the sexual revolution pulled on the American populace, which is this idea that, like, well, okay, these marriages were fundamentally, you know, they were maybe even violent, but certainly they were unhappy. And so getting rid of them and making it easier for people to shift spouses like they change their underwear, that’s going to make people happier in the long term. And maybe it worked out for the moms and dads – though I’m skeptical – but it really didn’t work out for the kids in those marriages”.
 
 [https://www.vanityfair.com/news/story/jd-vances-extreme-political-positions](https://www.vanityfair.com/news/story/jd-vances-extreme-political-positions)
 
@@ -46,11 +46,7 @@ permalink: /categories/women-reproductive-rights/marriage/
 
 ### 2026 January
 
-2026-01-14 The Heritage Foundation has a Project 2026 agenda to totally eliminate no-fault divorce, removing agency from women (and some men) from being able to leave an abusive or unwanted marriage.
-
-Their online page is already talking about no-fault divorce, saying, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”.
-
-An excerpt from Project 2026 on the Heritage Foundation website, titled **Saving America by Saving the Family** reads, ***”These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home.”***
+2026-01-14 The Heritage Foundation Project 2026 agenda plans eliminate no-fault divorce, removing agency and rights to leave an abusive or unwanted marriage. Their website reads, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”, “These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home”.
 
 [https://www.scarymommy.com/lifestyle/heritage-foundation-taking-aim-at-no-fault-divorce](https://www.scarymommy.com/lifestyle/heritage-foundation-taking-aim-at-no-fault-divorce)
 

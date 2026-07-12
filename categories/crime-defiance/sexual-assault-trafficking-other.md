@@ -51,9 +51,12 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 
 ### 2017
 
-2017-10-01 During an appearance on Fox & Friends Larry Elder downplayed sexual assault allegations, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
+2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
 [https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009](https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009)
+
+[https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
+
 
 ### 2021 May
 

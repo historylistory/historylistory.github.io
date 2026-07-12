@@ -111,6 +111,11 @@ FROM 2025 [https://movember.com/uploads/files/2025/Movember](https://movember.co
 
 ### Manosphere
 
+2021-01-01 The author of “It’s Good to Be a Man” wrote, “Men were made to rule. They always have and always will”.
+
+[https://cbmw.org/2024/06/18/review-of-michael-foster-dominic-bnonn-tennant-its-good-to-be-a-man/](https://cbmw.org/2024/06/18/review-of-michael-foster-dominic-bnonn-tennant-its-good-to-be-a-man/)
+
+
 2023-01-01 Manosphere, incels and online misogyny.
 
 [https://www.wired.com/story/donald-trump-manosphere-won/](https://www.wired.com/story/donald-trump-manosphere-won/)

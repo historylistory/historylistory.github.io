@@ -8,7 +8,7 @@ permalink: /categories/women-reproductive-rights/assault/
 
 ### 1970
 
-1970 Donald J Trump has faced numerous allegations of sexual assault and misconduct dating back to at least the 70’s.
+1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 
 
 [https://19thnews.org/2023/10/donald-trump-associates-sexual-misconduct-allegations/](https://19thnews.org/2023/10/donald-trump-associates-sexual-misconduct-allegations/)
 
@@ -54,15 +54,13 @@ permalink: /categories/women-reproductive-rights/assault/
 
 ### 2016
 
-2016-10-19 Most people remember Trump's "grab them by the pussy" comment. **Full transcript** loaded with derogatory commentary can be found here:
+2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.
 
 [https://www.bbc.com/news/election-us-2016-37595321](https://www.bbc.com/news/election-us-2016-37595321)
 
 ### 2017
 
-2017-10-01 Larry Elder called Trump’s behavior “child’s play”. This was during his appearance on Fox & Friends in October, where he stated, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
-
-Side note: Stephen Miller called into the conservative Larry Elder show during high school. 
+2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
 [https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009](https://www.huffpost.com/entry/larry-elder-trump-sexual-assault-childs-play_n_61169c7ae4b07c140314a009)
 
@@ -168,9 +166,7 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://www.bbc.com/news/articles/ce3ex92557jo](https://www.bbc.com/news/articles/ce3ex92557jo)
 
-2026-02-11 During his podcast Nick Fuentes stated women get sent to the gulags first and then they will “determine who the good ones are after the fact”. He also called them “breeding gulags”. The quote cited in an article reads, “So just like Hitler imprisoned Gypsies, Jews, communists, you know, all of his political rivals, we have to do the same thing with women. And we’ll sort it out. We’ll find the good ones. They can prove themselves. Then we’ll let them go. So they go to the gulag first. They go to the breeding gulags. The good ones will be liberated. The bad ones will toil in the mines forever.
-
-Trump has invited this person into the White House for dinner. 
+2026-02-11 Founder of America First PAC Nick Fuentes said, “So just like Hitler imprisoned Gypsies, Jews, communists, you know, all of his political rivals, we have to do the same thing with women. And we’ll sort it out. We’ll find the good ones. They can prove themselves. Then we’ll let them go. So they go to the gulag first. They go to the breeding gulags. The good ones will be liberated. The bad ones will toil in the mines forever”. 
 
 [https://www.mediamatters.org/nick-fuentes/nick-fuentes-number-one-political-enemy-america-women-they-have-be-imprisoned](https://www.mediamatters.org/nick-fuentes/nick-fuentes-number-one-political-enemy-america-women-they-have-be-imprisoned)
 

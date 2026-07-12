@@ -76,7 +76,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2017-08-25 Trump pardoned Sheriff Joe Arpaio after Arpaio was convicted of criminal contempt for defying a federal court order to stop racially profiling Latino motorists.
 
-2017-10-01 During an appearance on Fox & Friends Larry Elder downplayed sexual assault allegations, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
+2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
 2019-07-09 Democratic leaders including Lois Frankel and Debbie Wasserman Schultz called for continued investigation into Epstein, including his 2008 plea deal, his death, and the handling of his case. The 2008 plea deal was negotiated by then–U.S. Attorney Alex Acosta, who later became Trump's Labor Secretary.
 

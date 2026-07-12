@@ -16,14 +16,14 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 ### 2001
 
-2001-09-04 Then, in 2001, Larry Elder published a book called “Ten Things You Can’t Say in America” touting his opinions about women, race, and drug control. He wrote, “**Smart women simply overlook some boorish behavior by men. Off-color jokes and stupid remarks may be irritating, but a smart woman deals with this**”.
+2001-09-04 Then, in 2001, Larry Elder published “Ten Things You Can’t Say in America” where he wrote, “Smart women simply overlook some boorish behavior by men. Off-color jokes and stupid remarks may be irritating, but a smart woman deals with this”.
 
 [https://www.sacbee.com/news/politics-government/capitol-alert/article253592444.html](https://www.sacbee.com/news/politics-government/capitol-alert/article253592444.html)
 
 
 ### 2006
 
-2006-10-10 Stephen Miller takes issue with Women’s Studies. In a Duke Chronicle article, he wrote "Women's Studies…seems to be an effort to indoctrinate students in radical feminism". He wrote a lot of racist stuff too.
+2006-10-10 Stephen Miller wrote, “Women’s Studies…seems to be an effort to indoctrinate students in radical feminism”. He wrote a lot of racist stuff too.
 
 [https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7](https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7)
 
@@ -38,13 +38,13 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 ### 2021
 
-2021-01-01 The author of "It's Good to Be a Man" wrote, "**Men were made to rule. They always have and always will**".
+2021-01-01 The author of “It’s Good to Be a Man” wrote, “Men were made to rule. They always have and always will”.
 
 [https://cbmw.org/2024/06/18/review-of-michael-foster-dominic-bnonn-tennant-its-good-to-be-a-man/](https://cbmw.org/2024/06/18/review-of-michael-foster-dominic-bnonn-tennant-its-good-to-be-a-man/)
 
 [https://canonpress.com/products/its-good-to-be-a-man?variant=39717272813616](https://canonpress.com/products/its-good-to-be-a-man?variant=39717272813616)
 
-2021-09-01 During a presentation at Pacifica Christian High School JD Vance shared his contempt for no-fault divorce, stating, *”…and this is one of the great tricks that I think the sexual revolution pulled on the American populace, which is this idea that, like, well, okay, these marriages were fundamentally, you know, they were maybe even violent, but certainly they were unhappy. And so getting rid of them and making it easier for people to shift spouses like they change their underwear, that’s going to make people happier in the long term. And maybe it worked out for the moms and dads – though I’m skeptical – but it really didn’t work out for the kids in those marriages…”*.
+2021-09-01 Vance said at Pacifica Christian High School, “And this is one of the great tricks that I think the sexual revolution pulled on the American populace, which is this idea that, like, well, okay, these marriages were fundamentally, you know, they were maybe even violent, but certainly they were unhappy. And so getting rid of them and making it easier for people to shift spouses like they change their underwear, that’s going to make people happier in the long term. And maybe it worked out for the moms and dads – though I’m skeptical – but it really didn’t work out for the kids in those marriages”.
 
 [https://www.vanityfair.com/news/story/jd-vances-extreme-political-positions](https://www.vanityfair.com/news/story/jd-vances-extreme-political-positions)
 
@@ -101,7 +101,7 @@ UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogy
 
 [https://x.com/mrddmia/status/1818117118371783119?lang=en](https://x.com/mrddmia/status/1818117118371783119?lang=en)
 
-2024-07-30 Jesse Watters stated on Fox News that "**when a man votes for a woman, he actually transitions into a woman**".
+2024-07-30 Jesse Watters stated on Fox News, “when a man votes for a woman, he actually transitions into a woman”.
 
 [https://www.rollingstone.com/politics/politics-news/jesse-watters-vote-for-women-trans-fox-news-1235071300/](https://www.rollingstone.com/politics/politics-news/jesse-watters-vote-for-women-trans-fox-news-1235071300/)
 
@@ -189,11 +189,7 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 January
 
-2026-01-14 The Heritage Foundation has a Project 2026 agenda to totally eliminate no-fault divorce, removing agency from women (and some men) from being able to leave an abusive or unwanted marriage.
-
-Their online page is already talking about no-fault divorce, saying, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”.
-
-An excerpt from Project 2026 on the Heritage Foundation website, titled **Saving America by Saving the Family** reads, ***”These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home.”***
+2026-01-14 The Heritage Foundation Project 2026 agenda plans eliminate no-fault divorce, removing agency and rights to leave an abusive or unwanted marriage. Their website reads, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”, “These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home”.
 
 [https://www.scarymommy.com/lifestyle/heritage-foundation-taking-aim-at-no-fault-divorce](https://www.scarymommy.com/lifestyle/heritage-foundation-taking-aim-at-no-fault-divorce)
 
@@ -213,7 +209,7 @@ An excerpt from Project 2026 on the Heritage Foundation website, titled **Saving
 
 [https://www.nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html](https://www.nytimes.com/2026/02/03/us/politics/kaitlan-collins-smile-trump.html)
 
-2026-02-04 Elon Musk reposted from PubWanghaf "It breaks my heart to say but in order to save this country we are probably going to have to do things that make women sad". In his repost, Elon Musk wrote “True words”.
+2026-02-04 Elon Musk reposted from PubWanghaf, “It breaks my heart to say but in order to save this country we are probably going to have to do things that make women sad”. Elon Musk responded, “True words”.
 
 [https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists](https://www.theguardian.com/technology/2026/feb/12/elon-musk-posts-january-white-supremacists)
 

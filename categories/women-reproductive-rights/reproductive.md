@@ -169,7 +169,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2020
 
-2020-11-24 During an interview on The Chris Buskirk Show, JD Vance said, *”…There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people – especially in America’s leadership class – just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable…”*.
+2020-11-24 Vance said on The Chris Buskirk Show, “There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people, especially in America’s leadership class, just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable”.
 
 [https://www.iheart.com/podcast/966-the-chris-buskirk-show-45914131/](https://www.iheart.com/podcast/966-the-chris-buskirk-show-45914131/)
 
@@ -201,7 +201,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 
-2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He gave a long-winded “yes”.
+2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He didn’t say no.
 
 [https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/](https://www.politifact.com/article/2022/oct/12/context-what-jd-vance-said-about-rape-abortion-and/)
 
@@ -270,7 +270,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2024 May
 
-2024-05-01 In December 2023 over 150,000 registered Republican voters in Florida joined others in signing to KEEP abortion access for women, making it more than 1.3 million signatures. Regardless, in May 2024 Florida banned abortions after 6 weeks, which is before many women even know they are pregnant because it typically gives a woman two weeks **at most** to know that she has missed her period.
+2024-05-01 Florida banned abortions after 6 weeks before women even know they’re pregnant (giving women about 2 weeks to find care), even after over 150,000 registered Republican voters joined the rest of us to KEEP abortion access available. 
 
 [https://www.nbcnews.com/politics/2024-election/florida-abortion-activists-win-republicans-ballot-measure-push-rcna129315](https://www.nbcnews.com/politics/2024-election/florida-abortion-activists-win-republicans-ballot-measure-push-rcna129315)
 

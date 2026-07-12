@@ -81,7 +81,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2020-11-20 Jay Bhattacharya authored the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed. In 2026 he was the acting CDC director who blocked COVID vaccination reports.
 
-2020-11-24 During an interview on The Chris Buskirk Show, JD Vance said, ”…There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people – especially in America’s leadership class – just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable…”.
+2020-11-24 Vance said on The Chris Buskirk Show, “There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people, especially in America’s leadership class, just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable”.
 
 2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
@@ -97,7 +97,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2021-09-17 During an interview on Jack Murphy Live, JD Vance claimed that COVID masking traumatized children, chastised teachers for teaching about slavery, attacked CRT, claimed “wokeism” assimilation, and praised Curtis Yarvin.
 
-2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He gave a long-winded “yes”.
+2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He didn’t say no.
 
 2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
 
@@ -121,7 +121,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
 
-2024-05-01 In December 2023 over 150,000 registered Republican voters in Florida joined others in signing to KEEP abortion access for women, making it more than 1.3 million signatures. Regardless, in May 2024 Florida banned abortions after 6 weeks, which is before many women even know they are pregnant because it typically gives a woman two weeks at most to know that she has missed her period.
+2024-05-01 Florida banned abortions after 6 weeks before women even know they’re pregnant (giving women about 2 weeks to find care), even after over 150,000 registered Republican voters joined the rest of us to KEEP abortion access available. 
 
 2024-05-15 The North Carolina Senate voted to ban masks in public.
 

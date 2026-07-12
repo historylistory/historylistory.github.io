@@ -6,12 +6,13 @@ subcategory_slug: misogyny
 permalink: /categories/behavioral-issues/misogyny/
 ---
 
-### Commentary
+### 2016
 
-This section is SO HUGE. 
+This section has been moved to 
+[https://historylistory.com/categories/women-reproductive-rights](https://historylistory.com/categories/women-reproductive-rights)
 
-See Women's section in multiple subsections
+But here's a link for you: 
 
-See Crime-Ethics section under sexual assault
+2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.
 
-See Religion section pertaining to putting women "in their place".
+[https://www.bbc.com/news/election-us-2016-37595321](https://www.bbc.com/news/election-us-2016-37595321)
