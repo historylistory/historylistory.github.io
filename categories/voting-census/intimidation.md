@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Voter Intimidation
+title: Intimidation
 category_slug: voting-census
-subcategory_slug: voter-intimidation
-permalink: /categories/voting-census/voter-intimidation/
+subcategory_slug: intimidation
+permalink: /categories/voting-census/intimidation/
 ---
 
 ### 2020 
@@ -23,6 +23,23 @@ permalink: /categories/voting-census/voter-intimidation/
 [https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653](https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653)
 
 [https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453](https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453)
+
+### 2025 September
+
+2025-09-26 The DOJ sued several Democratic-led states over access to voter information.
+
+{% include youtubePlayer.html id="Kjy02hyfu0Y" %}
+
+[https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182](https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182)
+
+
+### 2026 January
+
+2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
+
+[https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
+
+[https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085](https://people.com/pam-bondi-full-letter-tim-walz-after-alex-pretti-shooting-11892085)
 
 ### 2026 March
 
@@ -55,15 +72,6 @@ permalink: /categories/voting-census/voter-intimidation/
 
 [https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159](https://www.politico.com/news/2026/04/19/trump-doj-redoubling-election-scrutiny-efforts-00880159)
 
-2026-04-21 The DOJ demanded Wayne County to turn over more than 860,000 ballots along with envelopes and receipts from the 2024 general election. Michigan Attorney General Dana Nessel said, “Once again, President Trump is weaponizing the Justice Department in an attempt to sabotage our democratic process and turn it into his own personal agency to interfere in State elections”. 
-
-[https://www.democracynow.org/2026/4/21/headlines/justice_department_demands_wayne_county_michigan_turn_over_2024_ballots](https://www.democracynow.org/2026/4/21/headlines/justice_department_demands_wayne_county_michigan_turn_over_2024_ballots)
-
-[https://www.cbsnews.com/detroit/news/department-of-justice-demands-2024-ballots-wayne-county/](https://www.cbsnews.com/detroit/news/department-of-justice-demands-2024-ballots-wayne-county/)
-
-[https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891](https://www.nbcnews.com/politics/elections/justice-department-demands-michigan-county-turn-2024-ballots-rcna340891)
-
-[https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
 
 ### 2026 May
 
@@ -72,6 +80,10 @@ permalink: /categories/voting-census/voter-intimidation/
 [https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/](https://www.democracydocket.com/news-alerts/anything-necessary-trump-wont-rule-out-sending-troops-to-polls/)
 
 ### 2026 June
+
+2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
+
+[https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)
 
 2026-06-23 Elissa Slotkin introduced legislation to prevent troops from poll intimidation. 
 
@@ -83,3 +95,15 @@ permalink: /categories/voting-census/voter-intimidation/
 
 [https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693](https://www.nbcnews.com/politics/trump-administration/slotkin-bill-bar-trump-deploying-troops-federal-agents-polling-places-rcna350693)
 
+
+### 2026 July
+
+2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
+
+[https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433](https://www.nbcnews.com/politics/elections/doj-warns-criminal-charges-state-election-officials-non-citizen-voting-rcna353433)
+
+[https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote](https://www.pbs.org/newshour/show/doj-threatens-to-arrest-state-election-officials-if-noncitizens-vote)
+
+[https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown](https://www.theguardian.com/us-news/2026/jul/08/trump-administration-voter-election-crackdown)
+
+[https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/](https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/)

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Billionaire Bankrolling
+title: Pay To Play
 category_slug: voting-census
-subcategory_slug: billionaire-bankrolling
-permalink: /categories/voting-census/billionaire-bankrolling/
+subcategory_slug: pay-to-play
+permalink: /categories/voting-census/pay-to-play/
 ---
 
 ### 2025

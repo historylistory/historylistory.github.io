@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Voter Suppression - Accessibility
+title: Suppress Accessibility
 category_slug: voting-census
-subcategory_slug: voter-suppression-accessibility
-permalink: /categories/voting-census/voter-suppression-accessibility/
+subcategory_slug: suppress-accessibility
+permalink: /categories/voting-census/suppress-accessibility/
 ---
 
 ### 2020

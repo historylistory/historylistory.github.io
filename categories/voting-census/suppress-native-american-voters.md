@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Voter Suppression - Native Americans
+title: Suppress Native American Voters
 category_slug: voting-census
-subcategory_slug: voter-suppression-native-americans
-permalink: /categories/voting-census/voter-suppression-native-americans/
+subcategory_slug: suppress-native-american-voters
+permalink: /categories/voting-census/suppress-native-american-voters/
 ---
 
 ### 2025

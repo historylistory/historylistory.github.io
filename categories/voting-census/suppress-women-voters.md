@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Voter Suppression - Women
+title: Suppress Women Voters
 category_slug: voting-census
-subcategory_slug: voter-suppression-women
-permalink: /categories/voting-census/voter-suppression-women/
+subcategory_slug: suppress-women-voters
+permalink: /categories/voting-census/suppress-women-voters/
 ---
 
 ### 2000

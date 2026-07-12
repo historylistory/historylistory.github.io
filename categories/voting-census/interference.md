@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Interference & MAGA Fraud"
+title: Interference
 category_slug: voting-census
-subcategory_slug: interference-maga-fraud
-permalink: /categories/voting-census/interference-maga-fraud/
+subcategory_slug: interference
+permalink: /categories/voting-census/interference/
 ---
 
 ### 2010
@@ -155,12 +155,20 @@ OTHER SHADY BUSINESS
 
 ### 2025 October
 
+2025-10-09 News outlets reported that a **former Republican election official bought Dominion Voting Systems** and how he plans to push for paper ballots.
+
+[https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots](https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots)
+
 2025-10-13 A Rolling Stone news article headline reads, “The Right’s secret plan to help billionaires buy elections”.
 
 [https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/](https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/)
 
+
 ### 2025 December
 
+2025-12-12 The Justice Department sued 18 States, seeking voter-registration records. 
+
+[https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada](https://www.npr.org/2025/12/12/nx-s1-5642610/doj-voter-data-lawsuits-colorado-hawaii-massachusetts-nevada)
 
 2025-12-30 Trump vetoed a bill to fund a pipeline project intended to bring clean drinking water to communities on the Easter Plans of Colorado in retaliation for keeping Tina Peters in prison on her election system tampering conviction.
 
@@ -176,7 +184,25 @@ OTHER SHADY BUSINESS
 
 [https://truthsocial.com/@realDonaldTrump/posts/115815355325954705](https://truthsocial.com/@realDonaldTrump/posts/115815355325954705)
 
+### 2026 January
+
+2026-01-29 The FBI, led by Tulsi Gabbard, raided the Georgia election office and removed 700 boxes of ballots and voter data.
+
+[https://www.pbs.org/newshour/show/fbi-raids-georgia-elections-office-as-trump-administration-seeks-voter-data-from-states](https://www.pbs.org/newshour/show/fbi-raids-georgia-elections-office-as-trump-administration-seeks-voter-data-from-states)
+
+[https://www.reuters.com/world/us/fbi-executing-search-warrant-election-office-georgia-related-2020-vote-fox-news-2026-01-28/](https://www.reuters.com/world/us/fbi-executing-search-warrant-election-office-georgia-related-2020-vote-fox-news-2026-01-28/)
+
+[https://abcnews.go.com/US/fulton-county-official-slams-trump-administration-fbis-seizure/story?id=129670285](https://abcnews.go.com/US/fulton-county-official-slams-trump-administration-fbis-seizure/story?id=129670285)
+
 ### 2026 February
+
+2026-02-03 Trump urged Republicans to pursue nationalized elections.
+
+[https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections](https://www.cnn.com/2026/02/02/politics/trump-calls-on-republicans-to-nationalize-future-elections)
+
+[https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260](https://www.nbcnews.com/politics/congress/senate-gop-leader-john-thune-says-disagrees-trump-congress-nationalize-rcna257260)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab](https://www.ms.now/rachel-maddow-show/maddowblog/republicans-ought-to-nationalize-the-voting-trump-eyes-radical-power-grab)
 
 2026-02-04 Tulsi Gabbard seized voting machines from Puerto Rico.
 
@@ -249,6 +275,7 @@ OTHER SHADY BUSINESS
 
 [https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495](https://apnews.com/article/justice-department-elections-trump-wayne-county-michigan-4341df00ea8a2814a9fd42f2225d4495)
 
+
 2026-04-21 Democrats in Virginia won additional seats after Republicans started a gerrymandering war in 2025. Even though Republicans had unfairly tried to gerrymander in every state, capitulating Fox network called Virginia’s win a “gerrymander scheme”. 
 
 [https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917](https://www.politico.com/news/2026/04/21/democrats-win-redistricting-virginia-00885917)
@@ -290,6 +317,12 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
 
 [https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)
+
+2026-06-23 A federal judge blocked Trump’s efforts to create a national citizenship database to verify voter eligibility. Judge Sooknanan wrote, “All in all, the federal government has knowingly trampled on the privacy rights of American citizens in a manner that threatens the sacred right to vote. This court cannot stand idly by while that happens”. 
+
+[https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935](https://www.politico.com/news/2026/06/22/americans-private-information-database-ruling-00969935)
+
+[https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/](https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/)
 
 ### 2026 July
 

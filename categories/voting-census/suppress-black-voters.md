@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Voter Suppression - Black Americans
+title: Suppress Black Voters
 category_slug: voting-census
-subcategory_slug: voter-suppression-black-americans
-permalink: /categories/voting-census/voter-suppression-black-americans/
+subcategory_slug: suppress-black-voters
+permalink: /categories/voting-census/suppress-black-voters/
 ---
 
 ### 2006

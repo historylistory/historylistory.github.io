@@ -1,12 +1,12 @@
 ---
 layout: subcategory
-title: Voter Suppression - Non Parents
+title: Suppress Non Parent Voters
 category_slug: voting-census
-subcategory_slug: voter-suppression-non-parents
-permalink: /categories/voting-census/voter-suppression-non-parents/
+subcategory_slug: suppress-non-parents
+permalink: /categories/voting-census/suppress-non-parents/
 ---
 
-### 2021
+### 2021 
 
 2021-07-24 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote.
 
