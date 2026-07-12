@@ -47,7 +47,7 @@ This is not simply an accumulation of isolated incidents. It reflects a system i
 
 The examples that follow illustrate the basis for these concerns. Some are included to provide historical context, while others document recent developments that demonstrate how public office, private profit, and political power have become increasingly intertwined.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
 

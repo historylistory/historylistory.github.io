@@ -50,7 +50,7 @@ When this period ends, there must be a full investigation. The conduct of this a
 
 The examples below explain the basis for my concerns. Some are included for historical context, while others document more recent actions.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1964-1968 Trump received five deferments to serving the Army: four student deferments and one medical deferment for bone spurs.
 

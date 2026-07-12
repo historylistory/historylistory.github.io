@@ -47,7 +47,7 @@ Finally, President Trump has consistently removed individuals who do not align w
 
 The list below outlines my specific concerns. Some entries are included to provide historical context and illustrate how these patterns have developed over time.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.

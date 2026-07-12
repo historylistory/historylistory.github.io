@@ -41,7 +41,7 @@ These behaviors are inconsistent with the principles of mutual respect, civic di
 The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 2000-01-01 Trump frequently used derogatory nicknames and insults against political opponents. 
 

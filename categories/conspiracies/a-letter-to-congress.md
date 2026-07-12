@@ -39,7 +39,7 @@ It is particularly troubling when elected officials and party leaders amplify su
 
 The examples below illustrate these concerns. For example, Trump spread misinformation about Hurricane Helene relief efforts, leaving thousands of victims afraid to file claims. Vance spread misinformation about Somalians eating pets, and residents suffered death threats and bomb threats. These deliberate efforts to fearmonger are damaging, dangerous, and embarrassing. 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1992-03-08 Kenneth Starr led a witch-hunt against the Clintons in the so-called Whitewater scandal, alleging fraud. 
 

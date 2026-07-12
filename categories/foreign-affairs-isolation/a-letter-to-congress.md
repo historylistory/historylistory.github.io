@@ -35,6 +35,6 @@ You can start it however you'd like.
 
 pending text
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 pending text

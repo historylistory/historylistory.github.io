@@ -41,7 +41,7 @@ Furthermore, the extensive business entanglements involving Trump, members of hi
 
 These issues strike at the heart of government accountability, the rule of law, and the public's faith in our institutions. The examples below illustrate many of these concerns. Some of the information is there solely for historical context.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 

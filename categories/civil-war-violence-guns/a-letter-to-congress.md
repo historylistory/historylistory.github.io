@@ -41,7 +41,7 @@ America is strongest when its leaders seek to unite rather than divide, to persu
 
 Below are examples of which events highlight these concerns. Some of the points are there for historical context. 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1982-01-01 The Federalist Society was founded by Yale, Harvard, and University of Chicago law students to challenge liberal legal ideas. Many Trump allies have been members or supporters.

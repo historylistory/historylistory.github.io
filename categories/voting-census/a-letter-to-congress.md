@@ -52,7 +52,7 @@ Silence is not neutrality. Delay is not caution. When political leaders openly d
 The right to vote is not a privilege granted by a president, a political party, a billionaire, a pastor, or a state legislature. It belongs to the people. Congress must defend it before the machinery of democratic government is placed entirely under partisan control.
 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 2000-01-01 Larry Elder wrote, “Women know less than men about political issues, economics, and current events”. 

@@ -40,7 +40,7 @@ I am also troubled by efforts to defund or oppose legislation intended to assist
 
 Taken together, these actions and statements suggest a lack of compassion and respect for some of the nation's most vulnerable citizens. In my view, effective leadership should prioritize the well-being and dignity of all Americans. The examples below illustrate the basis for my concerns and frustration. Some are included primarily to provide context for the broader pattern I believe they represent.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1973-01-22 Roe v. Wade legalized abortion. 

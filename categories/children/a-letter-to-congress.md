@@ -47,7 +47,7 @@ These concerns are not isolated incidents. They reflect a broader pattern of gov
 The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1969-01-01 The Black Panther Party launched its Free Breakfast for Children Program to combat student hunger. 

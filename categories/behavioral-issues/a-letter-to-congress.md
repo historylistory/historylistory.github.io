@@ -37,7 +37,7 @@ I find several aspects of the current administration's conduct and governing app
 
 These concerns represent only a few examples of the issues that have led me to this conclusion. Below are several additional examples that further illustrate my concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1952-01-01 The US put support behind Cuban dictator Fulgencio Batista.
 

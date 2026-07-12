@@ -43,7 +43,7 @@ Taken together, these actions reflect a pattern of consolidating power, weakenin
 
 Look at these examples and ask yourself whether they represent the principles our country was founded upon. Ask whether this is the direction we want our nation to continue moving. If the answer is no, then we should be working together to oppose what increasingly resembles an authoritarian government rather than dismissing each incident as an isolated event.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1952-01-01 The US put support behind Cuban dictator Fulgencio Batista. 

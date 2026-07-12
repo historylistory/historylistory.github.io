@@ -52,7 +52,7 @@ Finally, the United States is increasingly isolating itself from allies and trad
 
 Taken together, these issues paint a troubling picture of a country where concentrated wealth and power continue to expand while ordinary Americans struggle to afford basic necessities. The examples below illustrate the concerns outlined above. Some are included as historical context, but all help demonstrate the broader patterns that have led to my frustration and alarm.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development.

@@ -49,7 +49,7 @@ Many Trump-aligned religious organizations also sympathize with white nationalis
 
 No one is arguing against anyone's right to practice their religion. The objection is to using government power to promote one religious ideology over all others. That movement is performative, politically motivated, and transparently self-serving. It misuses faith to divide, conquer, and enrich itself, and that is why so many people reject it.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1964-01-01 The US-funded Summer Institute of Linguistics proselytized to indigenous people in remote areas, fostered subservience and compliance, forced people onto reservations at the will of oil companies, and helped Brazil assimilate people of the Amazon.

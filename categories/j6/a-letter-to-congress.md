@@ -46,7 +46,7 @@ Trump's conduct in both encouraging the attack and subsequently celebrating and 
 
 Below are some examples of the J6 timeline, lest we forget. 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 2020-01-01 Leaders of the “Stop the Steal” movement promoted false claims of fraud in the 2020 elections and organized protests leading up to the J6 insurrection.
 

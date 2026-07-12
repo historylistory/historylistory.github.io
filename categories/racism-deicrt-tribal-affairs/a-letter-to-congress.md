@@ -46,7 +46,7 @@ Most disturbing, white supremacists are being pardoned, appointed to positions o
 How can you support a political movement that repeatedly enables and elevates white supremacist ideology? The following outlines my concerns in greater detail. Some examples are included to provide historical context and demonstrate how these patterns have developed over time.
 
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 1920-01-01 During the rise of the eugenics movement Charles Davenport proposed building a wall to “keep out the cheaper races”.

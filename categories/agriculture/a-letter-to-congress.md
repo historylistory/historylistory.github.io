@@ -33,6 +33,6 @@ For U.S. Senators
 
 pending text
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 pending text

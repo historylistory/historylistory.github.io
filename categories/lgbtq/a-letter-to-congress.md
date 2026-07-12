@@ -43,7 +43,7 @@ The LGBTQ+ community is not composed of criminals, nor should its members be por
 
 The following sections outline my concerns in greater detail. Some of the information is included to provide historical context and demonstrate the broader pattern that has led to the issues addressed in this letter.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1955-01-01 The anti-LGBTQ Westboro Baptist church was founded. They are known for their picketing, harassment, and slogan “God hates f-gs”.
 

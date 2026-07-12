@@ -46,7 +46,7 @@ Across the country, disturbing reports continue to emerge of people being killed
 
 The list below outlines my concerns in greater detail. Some of the information is included to provide historical context and illustrate why these developments warrant serious public attention.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 1920-01-01 During the rise of the eugenics movement Charles Davenport proposed building a wall to “keep out the cheaper races”.
 

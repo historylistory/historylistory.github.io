@@ -33,6 +33,9 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
+pending text 
+
+### Chronology.
 
 
 1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 
@@ -269,7 +272,5 @@ For U.S. Senators
 
 2026-06-22 Texas resident Lynn Callaway was denied critical medical care during a miscarriage due to anti-abortion laws.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
 
-pending text
 

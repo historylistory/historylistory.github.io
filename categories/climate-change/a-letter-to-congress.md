@@ -41,7 +41,7 @@ For decades, powerful fossil fuel and mining interests have worked to undermine 
 
 The following examples highlight these concerns, while some are included for historical context.
 
-### LIST OF EVERYTHING YOU CAN INCLUDE IN YOUR LETTER
+### Chronology.
 
 
 2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
