@@ -114,9 +114,9 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 [https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181](https://abcnews.go.com/US/trump-admin-ignores-judges-order-bring-deportation-planes/story?id=119857181)
 
-{% include youtubePlayer.html id="tVU8R0Nv9bk" %}
-
 [https://x.com/nayibbukele/status/1901238762614517965?lang=en](https://x.com/nayibbukele/status/1901238762614517965?lang=en)
+
+{% include youtubePlayer.html id="tVU8R0Nv9bk" %}
 
 2025-03-23 News reports described an “unprecedented degree of resistance” to court rulings and a forceful attack on the American judiciary.
 
