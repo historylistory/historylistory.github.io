@@ -6,9 +6,9 @@ subcategory_slug: voting
 permalink: /categories/women-reproductive-rights/voting/
 ---
 
-### Context
+### SAVE Act: About
 
-We already know that: conservative talking heads like Larry Elder don’t believe women should or can vote, JD Vance has a problem with childless cat ladies voting, whoever was at the Future of American Political Economy conference in 2021 may or may not have agreed that non parents shouldn’t have a say, Jesse Watters thinks if you vote for a girl you’ll turn into one, and several church leaders including Doug Wilson don’t think women should be allowed to vote. 
+**Clarifying the SAVE Act**: Trump had repeated that the only way Democrats would win the election is if they “cheat”, so he vowed he would stop it. That’s when he started pushing the SAVE Act, nationalizing elections, seizing voting rolls, and eliminating mail-in ballots. Voter ID is different from proof of citizenship. Americans show their ID, match it up against voter rolls, and register to vote. Some states’ drivers’ licenses – like Michigan, for example – do not show citizenship status. With the SAVE Act,  Americans (particularly women) would have to show proof of citizenship with a passport or original birth certificate in their original name (including married names). The new process is cumbersome, with the intent to kick as many people off voter rolls as possible.  
 
 ### 2024 July
 
@@ -30,5 +30,5 @@ OCT 2024 VIRGINIA USED THIS SYSTEM AND WRONGFULLY PURGED VOTERS: [https://www.su
 
 {% include youtubePlayer.html id="LLAdmVDXx60" %}
 
-**Clarifying the SAVE Act**: Trump had repeated that the only way Democrats would win the election is if they “cheat”, so he vowed he would stop it. That’s when he started pushing the SAVE Act, nationalizing elections, seizing voting rolls, and eliminating mail-in ballots. Voter ID is different from proof of citizenship. Americans show their ID, match it up against voter rolls, and register to vote. Some states’ drivers’ licenses – like Michigan, for example – do not show citizenship status. With the SAVE Act,  Americans (particularly women) would have to show proof of citizenship with a passport or original birth certificate in their original name (including married names). The new process is cumbersome, with the intent to kick as many people off voter rolls as possible.  
+
 

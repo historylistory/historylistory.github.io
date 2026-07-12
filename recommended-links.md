@@ -71,6 +71,10 @@ permalink: /recommended-links/
 
 ---
 
+[Education: SIECUS.org](https://siecus.org/siecus-state-profiles/)
+
+---
+
 
 [Energy: CleanView.Co](https://cleanview.co)
 
@@ -180,6 +184,9 @@ permalink: /recommended-links/
 
 ---
 
+[Health: Johns Hopkins](https://publichealth.jhu.edu/)
+
+--- 
 
 [History: American Presidency Project](https://www.presidency.ucsb.edu/documents)
 
