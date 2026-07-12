@@ -526,3 +526,19 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
 
 [https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)
+
+2026-07-09 The White House is quietly remodeling or changing the columns behind tarps. No information at this time how much that will cost taxpayers.
+
+[https://www.youtube.com/watch?v=mSQAxh2nUQE&list=WL&index=1](https://www.youtube.com/watch?v=mSQAxh2nUQE&list=WL&index=1)
+
+[https://www.yahoo.com/news/politics/articles/donald-trump-covers-white-house-203236148.html](https://www.yahoo.com/news/politics/articles/donald-trump-covers-white-house-203236148.html)
+
+[https://www.pbs.org/newshour/politics/watch-white-house-columns-appear-to-be-trumps-latest-project](https://www.pbs.org/newshour/politics/watch-white-house-columns-appear-to-be-trumps-latest-project)
+
+2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
+
+[https://www.theguardian.com/us-news/2026/jul/10/washington-reflecting-pool-trump](https://www.theguardian.com/us-news/2026/jul/10/washington-reflecting-pool-trump)
+
+[https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp](https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp)
+
+[https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs](https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs)

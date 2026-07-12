@@ -42,6 +42,8 @@ I do not agree with the current direction of technology policy in my country, pa
 
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
 
+2008-01-01 Many people don’t know the Waze Navigation App was bought by Google but managed by a team in Israel where they monitor US traffic and record personal data. According to Terms and Services, If customers file complaints or sue they must travel to Tel Aviv to handle cases. 
+
 2009-04-13 Peter Thiel wrote in The Education of a Libertarian that expanded welfare and women’s suffrage made “capitalist democracy” an oxymoron, adding that he no longer believed “freedom and democracy are compatible.”
 
 2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 

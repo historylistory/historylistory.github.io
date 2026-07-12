@@ -873,3 +873,11 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.facebook.com/reel/1409347791026818](https://www.facebook.com/reel/1409347791026818)
 
 [https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting](https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting)
+
+2026-07-12 Lindsey Graham died at 71. 
+
+[https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s](https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s)
+
+[https://www.foxnews.com/video/6400948165112](https://www.foxnews.com/video/6400948165112)
+
+[https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/](https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/)

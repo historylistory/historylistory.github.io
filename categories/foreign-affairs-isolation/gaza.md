@@ -503,3 +503,13 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
 
+
+2026-07-11 Ro Khanna says he was detained by armed Israeli settlers during his visit to West Bank. He said he faced intimidation, racism, and disrespect, and witnessed the aftermath of attacks on Palestinian villages.  
+
+[https://www.youtube.com/watch?v=R2NYa2veU-s&list=WL&index=5&t=75s](https://www.youtube.com/watch?v=R2NYa2veU-s&list=WL&index=5&t=75s)
+
+[https://www.youtube.com/watch?v=yazM-nzK_hI&list=WL&index=4](https://www.youtube.com/watch?v=yazM-nzK_hI&list=WL&index=4)
+
+[https://thehill.com/homenews/house/5964095-khanna-detained-israeli-settlers/](https://thehill.com/homenews/house/5964095-khanna-detained-israeli-settlers/)
+
+[https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank](https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank)

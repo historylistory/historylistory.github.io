@@ -638,3 +638,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-07-04 White supremacist group Patriot Front boarded a metro and protested the streets over the weekend. 
 
 2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”.
+
+
+2026-07-11 Ro Khanna says he was detained by armed Israeli settlers during his visit to West Bank. He said he faced intimidation, racism, and disrespect, and witnessed the aftermath of attacks on Palestinian villages.  

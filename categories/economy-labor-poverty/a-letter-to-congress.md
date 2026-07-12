@@ -899,6 +899,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-09 The Trump administration is changing the rules on applying and receiving grants for farmers that will make the process more burdensome and less reliable. 
 
+2026-07-09 The White House is quietly remodeling or changing the columns behind tarps. No information at this time how much that will cost taxpayers.
+
 2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
 
 2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
+
+2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.

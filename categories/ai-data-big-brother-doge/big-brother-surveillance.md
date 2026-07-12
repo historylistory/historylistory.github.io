@@ -77,6 +77,19 @@ Think About:
 
 [https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license](https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license)
 
+### 2008 
+
+2008-01-01 Many people don’t know the Waze Navigation App was bought by Google but managed by a team in Israel where they monitor US traffic and record personal data. According to Terms and Services, If customers file complaints or sue they must travel to Tel Aviv to handle cases. 
+
+[https://www.investopedia.com/articles/investing/060415/pros-cons-waze.asp](https://www.investopedia.com/articles/investing/060415/pros-cons-waze.asp)
+
+[https://www.jpost.com/history/article-857520](https://www.jpost.com/history/article-857520)
+
+[https://www.npr.org/2013/06/12/190873075/google-acquires-israeli-mapping-service-waze](https://www.npr.org/2013/06/12/190873075/google-acquires-israeli-mapping-service-waze)
+
+[https://www.quantumrun.com/consulting/who-owns-waze/](https://www.quantumrun.com/consulting/who-owns-waze/)
+
+
 ### 2016
 
 2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.

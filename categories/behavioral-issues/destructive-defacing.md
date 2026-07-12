@@ -303,3 +303,28 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 [https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae](https://www.cnn.com/2026/06/16/politics/lincoln-reflecting-pool-algae)
 
 [https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265](https://abcnews.com/US/reflecting-pool-renovations-cost-16-million/story?id=134024265)
+
+### 2026 July
+
+2026-07-08 The DOJ prosecuted several more people for the Reflecting Pool without evidence that they caused any damage, including three-time US Olympic canoeist David Hearn who was charged with a felony for property destruction after he reached into the water to touch a piece of loose, peeling sealant. 
+
+[https://www.cnn.com/2026/07/08/politics/three-people-charged-damaging-reflecting-pool](https://www.cnn.com/2026/07/08/politics/three-people-charged-damaging-reflecting-pool)
+
+[https://wtop.com/dc/2026/07/former-olympian-pleads-not-guilty-in-reflecting-pool-damage-case-after-trump-alleged-vandalism-2/](https://wtop.com/dc/2026/07/former-olympian-pleads-not-guilty-in-reflecting-pool-damage-case-after-trump-alleged-vandalism-2/)
+
+2026-07-09 The White House is quietly remodeling or changing the columns behind tarps. No information at this time how much that will cost taxpayers.
+
+[https://www.youtube.com/watch?v=mSQAxh2nUQE&list=WL&index=1](https://www.youtube.com/watch?v=mSQAxh2nUQE&list=WL&index=1)
+
+[https://www.yahoo.com/news/politics/articles/donald-trump-covers-white-house-203236148.html](https://www.yahoo.com/news/politics/articles/donald-trump-covers-white-house-203236148.html)
+
+[https://www.pbs.org/newshour/politics/watch-white-house-columns-appear-to-be-trumps-latest-project](https://www.pbs.org/newshour/politics/watch-white-house-columns-appear-to-be-trumps-latest-project)
+
+2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
+
+[https://www.theguardian.com/us-news/2026/jul/10/washington-reflecting-pool-trump](https://www.theguardian.com/us-news/2026/jul/10/washington-reflecting-pool-trump)
+
+[https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp](https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp)
+
+[https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs](https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs)
+

@@ -248,3 +248,12 @@ permalink: /categories/climate-change/weird-weather/
 [https://asianews.network/heavy-rain-and-winds-batter-china-as-super-typhoon-bavi-approaches/](https://asianews.network/heavy-rain-and-winds-batter-china-as-super-typhoon-bavi-approaches/)
 
 [https://www.nbcnews.com/world/asia/southern-chinese-region-reels-floods-destruction-tropical-storm-rcna353443](https://www.nbcnews.com/world/asia/southern-chinese-region-reels-floods-destruction-tropical-storm-rcna353443)
+
+2026-07-11 A foot of rain caused record flash floods in Missouri to West Virginia.
+
+[https://www.youtube.com/watch?v=P78ZyQWqRlE&list=WL&index=6&t=18s](https://www.youtube.com/watch?v=P78ZyQWqRlE&list=WL&index=6&t=18s)
+
+[https://weather.com/2026/07/12/news/weather/black-river-record-flash-kentucky-flooding-missouri-rescues](https://weather.com/2026/07/12/news/weather/black-river-record-flash-kentucky-flooding-missouri-rescues)
+
+[https://www.aol.com/articles/watch-drone-reveals-devastating-flash-194357974.html](https://www.aol.com/articles/watch-drone-reveals-devastating-flash-194357974.html)
+
