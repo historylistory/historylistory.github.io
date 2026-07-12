@@ -100,11 +100,15 @@ OTHER SHADY BUSINESS
 
 [https://www.c-span.org/clip/public-affairs-event/user-clip-trump-admits-they-rigged-the-election/5150039](https://www.c-span.org/clip/public-affairs-event/user-clip-trump-admits-they-rigged-the-election/5150039)
 
-2025-09-03 News sources reported that Trump offered NY Mayor Adams a job in the event he lost the mayoral race to Mamdani, leaving more opportunity for Cuomo to defeat Momdani.
+2025-09-03 Allegedly Trump offered Eric Adams a job to drop his candidacy so they could leave Cuomo more opportunity to defeat Momdani, but Adams later denied this claim. 
 
-[https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html](https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html)
+[https://www.theguardian.com/us-news/2025/sep/03/eric-adams-trump-new-york-mayor](https://www.theguardian.com/us-news/2025/sep/03/eric-adams-trump-new-york-mayor)
 
-2025-09-03 Republicans proposed a "**nuclear option**" to speed up confirmation on multiple Trump nominees so they don't have to go through the standard voting system. This way they could appoint their nominees all at once.
+[https://www.cbsnews.com/newyork/news/trump-administration-eric-adams-job-to-leave-nyc-mayors-race/](https://www.cbsnews.com/newyork/news/trump-administration-eric-adams-job-to-leave-nyc-mayors-race/)
+
+PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html](https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc-mayor.html)
+
+2025-09-03 Republicans proposed a “nuclear option” to speed up confirmation on multiple Trump nominees, so they don’t have to go through the standard voting system. This way they could appoint their nominees all at once.
 
 [https://www.politico.com/news/2025/09/03/senate-nominees-rules-change-00542580](https://www.politico.com/news/2025/09/03/senate-nominees-rules-change-00542580)
 

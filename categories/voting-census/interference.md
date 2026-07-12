@@ -149,19 +149,28 @@ OTHER SHADY BUSINESS
 
 ### 2025 September
 
-2025-09-09 Judges **dropped all charges against the 16 fake electors** in the Michigan fake elector case.
+2025-09-09 Judges dropped all charges against the 16 fake electors in the Michigan fake elector case.
 
 [https://www.bbc.com/news/articles/cd725wd1023o](https://www.bbc.com/news/articles/cd725wd1023o)
 
 ### 2025 October
 
-2025-10-09 News outlets reported that a **former Republican election official bought Dominion Voting Systems** and how he plans to push for paper ballots.
+2025-10-09 Former Republican director for the St. Louis City Board of Elections Scott Leindecker bought the Dominion Voting Systems for an undisclosed amount. The voting machines are now owned by Liberty Now and allegedly would be pushing paper ballots. 
 
 [https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots](https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots)
 
 2025-10-13 A Rolling Stone news article headline reads, “The Right’s secret plan to help billionaires buy elections”.
 
 [https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/](https://www.rollingstone.com/politics/political-commentary/jd-vance-right-plan-billionaires-elections-1235445122/)
+
+[https://www.countyofcolusaca.gov/m/newsflash/Home/Detail/657](https://www.countyofcolusaca.gov/m/newsflash/Home/Detail/657)
+
+[https://www.npr.org/2025/10/09/nx-s1-5569817/dominion-voting-liberty-vote-false-claims](https://www.npr.org/2025/10/09/nx-s1-5569817/dominion-voting-liberty-vote-false-claims)
+
+[https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots](https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots)
+
+PAY WALL [https://www.startribune.com/mike-lindell-election-machine-defamation-suit-dominion-liberty-vote-dismiss-billion/601861129](https://www.startribune.com/mike-lindell-election-machine-defamation-suit-dominion-liberty-vote-dismiss-billion/601861129)
+
 
 
 ### 2025 December
