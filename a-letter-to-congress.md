@@ -1,7 +1,7 @@
 ---
 layout: staticpage
-title: PROPOSAL
-permalink: /proposal/
+title: A Letter to Congress
+permalink: /a-letter-to-congress/
 ---
 
 ### What Is Happening?

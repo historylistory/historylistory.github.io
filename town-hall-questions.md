@@ -31,7 +31,7 @@ If you want to jump ahead and check them out right now, here they are:
 
 [Crime & Defiance](https://historylistory.com/categories/crime-defiance/30-second-questions/)
 
-[Economy, Labor & Povert](https://historylistory.com/categories/economy-labor-poverty/)
+[Economy, Labor & Poverty](https://historylistory.com/categories/economy-labor-poverty/30-second-questions)
 
 [Education](https://historylistory.com/categories/education/30-second-questions)
 
