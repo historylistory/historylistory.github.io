@@ -57,7 +57,7 @@ PAY WALL [https://www.washingtonpost.com/technology/2022/08/21/andrew-tate-tikto
 UNVERIFIED SITE [https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate](https://dgnomega.org/13440/uncategorized/latest-trend-in-misogyny-andrew-tate)
 
 
-2025-10-01 In a Movember Foundation report 60% of young men interact with content from men and masculinity influencers.
+2025-10-01 In a November Foundation report 60% of young men interact with content from men and masculinity influencers.
 
 [https://ex.movember.com/movember-institute/masculinities-report](https://ex.movember.com/movember-institute/masculinities-report)
 

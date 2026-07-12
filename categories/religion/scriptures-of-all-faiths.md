@@ -16,7 +16,9 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 ***“Give me your tired, your poor, your huddled masses yearning to breathe free, the wretched refuse of your teeming shore. Send these, the homeless, tempest-to’st to me. I lift my lamp beside the golden door”.***
 
 
+### Christian Superiority
 
+*** Isaiah 56:7, Jeremiah 7:11, Luke 19:46, Matthew 21:13 *** “Is it not written, My house shall be called of all nations the house of prayer? but ye have made it a den of thieves.”
 
 ### Counterfeit Christianity
 
