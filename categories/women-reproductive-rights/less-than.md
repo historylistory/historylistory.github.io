@@ -20,6 +20,14 @@ permalink: /categories/women-reproductive-rights/less-than/
 
 [https://www.sacbee.com/news/politics-government/capitol-alert/article253592444.html](https://www.sacbee.com/news/politics-government/capitol-alert/article253592444.html)
 
+
+### 2006
+
+2006-10-10 Stephen Miller takes issue with Women’s Studies. In a Duke Chronicle article, he wrote "Women's Studies…seems to be an effort to indoctrinate students in radical feminism". He wrote a lot of racist stuff too.
+
+[https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7](https://www.dukechronicle.com/article/f759949a-d8fd-4f65-bcd9-dffab1d84aa7)
+
+
 ### 2020
 
 2020-01-01 The TradWife movement took off on social media - predominantly among white, conservative women with money.
@@ -232,6 +240,17 @@ Also out of left field, one conservative commentator praised the win as a show o
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
 
 ### 2026 June
+
+
+2026-02-02 Texas A&M cut Women’s Studies due to policy on race and gender topics.
+
+[https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/](https://firstamendmentwatch.org/texas-am-university-to-end-womens-studies-due-to-new-policy-on-race-and-gender-topics/)
+
+[https://msmagazine.com/2026/02/02/texas-a-m-women-gender-studies-degree-program-feminist-college-university/](https://msmagazine.com/2026/02/02/texas-a-m-women-gender-studies-degree-program-feminist-college-university/)
+
+[https://www.insidehighered.com/news/business/academic-programs/2026/01/30/texas-am-closes-womens-and-gender-studies](https://www.insidehighered.com/news/business/academic-programs/2026/01/30/texas-am-closes-womens-and-gender-studies)
+
+[https://www.kbtx.com/2026/01/30/texas-am-ends-womens-gender-studies-program-comply-with-system-policies/](https://www.kbtx.com/2026/01/30/texas-am-ends-womens-gender-studies-program-comply-with-system-policies/)
 
 2026-06-10 The Southern Baptist Convention voted to formally ban women from serving as pastors. 
 
