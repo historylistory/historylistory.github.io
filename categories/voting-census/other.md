@@ -66,7 +66,7 @@ OTHER SHADY BUSINESS
 
 ### 2022
 
-2022-10-12 In his podcast, Charlie Kirk told his listeners not to support the rank-choice voting system. He also told his viewers that empathy is a “new age term” and does a “lot of damage”.
+2022-10-12 Charlie Kirk told his listeners to not support the rank-choice voting system. He also told his viewers that empathy is a “new age term” and does a “lot of damage”.
 
 [https://ca.news.yahoo.com/fact-check-charlie-kirk-once-001900786.html](https://ca.news.yahoo.com/fact-check-charlie-kirk-once-001900786.html)
 

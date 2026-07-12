@@ -162,7 +162,7 @@ permalink: /categories/crime-defiance/legal-trouble-trump/
 
 ### 2023 August
 
-2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
+2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.
 
 [https://www.wabe.org/fulton-election-case/](https://www.wabe.org/fulton-election-case/)
 

@@ -82,6 +82,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2022-11-24 Russia suppressed the media, same as the US started doing in 2025.
 
+2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+
 2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”
 
 2023-12-05 Trump joked about being a dictator “on day one” during a speech in Davenport, Iowa.

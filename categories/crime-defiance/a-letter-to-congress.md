@@ -138,13 +138,13 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2022-08-08 The FBI seized over 11,000 government documents from Mar-a-Lago. The federal case was later dismissed on February 10, 2025 after Republicans took control of the House.
 
-2022-12-03 Trump posted that alleged widespread election fraud could justify terminating constitutional rules and suggested either overturning the 2020 election or holding a new one, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
 2022-12-06 Trump’s company was found guilty of criminal tax fraud.
 
 2023-03-30 A Manhattan grand jury indicted Trump on state charges of falsifying business records.
 
-2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
+2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.
 
 2023-09-15 Multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
 

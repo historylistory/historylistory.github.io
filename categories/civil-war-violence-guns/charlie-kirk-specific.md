@@ -14,6 +14,10 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 
 [https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)
 
+2022-10-12 Charlie Kirk told his listeners to not support the rank-choice voting system. He also told his viewers that empathy is a “new age term” and does a “lot of damage”.
+
+[https://ca.news.yahoo.com/fact-check-charlie-kirk-once-001900786.html](https://ca.news.yahoo.com/fact-check-charlie-kirk-once-001900786.html)
+
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)

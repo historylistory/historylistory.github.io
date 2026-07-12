@@ -89,6 +89,18 @@ permalink: /categories/red-flags/warning-signs/
 
 {% include youtubePlayer.html id="IuK5v8taTfA" %}
 
+2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+
+[https://www.bbc.com/news/world-us-canada-63851751](https://www.bbc.com/news/world-us-canada-63851751)
+
+[https://www.cbsnews.com/news/donald-trump-claims-grounds-termination-us-constitution-twitter/](https://www.cbsnews.com/news/donald-trump-claims-grounds-termination-us-constitution-twitter/)
+
+[https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social](https://www.cnn.com/2022/12/03/politics/trump-constitution-truth-social)
+
+[https://archive.ph/u0vZk](https://archive.ph/u0vZk)
+
+[https://truthsocial.com/@realDonaldTrump/posts/109449803240069864](https://truthsocial.com/@realDonaldTrump/posts/109449803240069864)
+
 ### 2023
 
 2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”

@@ -71,11 +71,11 @@ OTHER SHADY BUSINESS
 
 ### 2023
 
-2023-07-18 Michigan charged **16 fake electors** for Donald Trump. The charges were dismissed September 9, 2025.
+2023-07-18 Michigan charged 16 fake electors for Donald Trump. The charges were dismissed September 9, 2025.
 
 [https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf](https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf)
 
-2023-08-14 Trump and 18 co-defendants were charged in Georgia's election interference case; proceedings remain stalled.
+2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.
 
 [https://www.wabe.org/fulton-election-case/](https://www.wabe.org/fulton-election-case/)
 
@@ -114,7 +114,7 @@ OTHER SHADY BUSINESS
 
 [https://rumble.com/v4rduvo-lara-trump-boasts-rnc-will-have-people-who-can-physically-handle-ballots-on.html](https://rumble.com/v4rduvo-lara-trump-boasts-rnc-will-have-people-who-can-physically-handle-ballots-on.html)
 
-2024-04-27 According to a news article,36 of 84 people involved in a fake elector’s case were criminally charged, 10 faced a civil lawsuit, and 7 **remained in office**.
+2024-04-27 Of the 84 fake electors charged across multiple states, 36 were criminally charged, 10 faced a civil lawsuit, and 7 remained in office. A small number of them gained public offices or were appointed to positions of power since the scheme. 
 
 [https://www.theguardian.com/us-news/2024/apr/27/fake-electors-2020-presidential-election](https://www.theguardian.com/us-news/2024/apr/27/fake-electors-2020-presidential-election)
 
