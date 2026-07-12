@@ -5,16 +5,13 @@ category_slug: behavioral-issues
 subcategory_slug: 30-second-questions
 permalink: /categories/behavioral-issues/30-second-questions/
 ---
-
 ### WHAT AM I
 
-New as of July 8, 2026
+If you don't know what to ask at your next town hall, feel free to use one of these questions below. 
 
-This section is a growing collection of sample questions for your next Town Hall, designed to help you ask clear, effective questions in 30 seconds or less—even if you're not sure what to say or how to say it.
+These questions are all being managed by one (1) person, so edit and correct them to your liking and make them your own. 
 
-Questions will be added over time, with the goal of including reliable sources and dates whenever possible. As this project grows, existing questions may be updated or expanded.
-
-Have a question you'd like to see included? Feel free to [email me/](https://historylistory.com/contact/). I don't check email often, and this is not a full-time project, so replies may take a little while. But I will do my best.
+Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
 ### Lies
 
