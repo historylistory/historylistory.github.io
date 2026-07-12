@@ -21,7 +21,7 @@ permalink: /categories/voting-census/other/
 
 ### 2020
 
-2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud. She even suggested during an interview with Fox that she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released including receiving funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
+2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud and told Fox she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released showing she funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
 
 FRAUD CLAIMS
 

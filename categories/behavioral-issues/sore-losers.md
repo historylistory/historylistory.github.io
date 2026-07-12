@@ -8,7 +8,7 @@ permalink: /categories/behavioral-issues/sore-losers/
 
 ### 2020
 
-2020-11-07 Trump repeatedly pushed baseless election-fraud claims after losing the election. Trump posted "I WON THIS ELECTION, BY A LOT!" and stated, "this election is far from over".
+2020-11-07 Trump posted “I WON THIS ELECTION, BY A LOT!” and, “this election is far from over”.
 
 [https://x.com/realDonaldTrump/status/1325099845045071873?lang=en](https://x.com/realDonaldTrump/status/1325099845045071873?lang=en)
 

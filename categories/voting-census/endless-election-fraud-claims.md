@@ -40,7 +40,7 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 ### 2018
 
-2018-11-05 Just before the midterms, Trump planted more seeds of doubt on social media, "Law Enforcement has been strongly notified to watch closely for any ILLEGAL VOTING which may take place in Tuesday’s Election (or Early Voting). Anyone caught will be subject to the Maximum Criminal Penalties allowed by law".
+2018-11-05 Just before the midterms Trump posted, “Law Enforcement has been strongly notified to watch closely for any ILLEGAL VOTING which may take place in Tuesday’s Election (or Early Voting). Anyone caught will be subject to the Maximum Criminal Penalties allowed by law”.
 
 [https://x.com/realDonaldTrump/status/1059470847751131138](https://x.com/realDonaldTrump/status/1059470847751131138)
 
@@ -52,13 +52,13 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 ### 2020 August
 
-2020-08-17 Trump continued to lean into allegations of voter fraud, stating publicly that "the only way we're going to lose this election is if the election is rigged".
+2020-08-17 Trump claimed publicly that “the only way we’re going to lose this election is if the election is rigged”.
 
 [https://thehill.com/homenews/administration/512424-trump-the-only-way-we-are-going-to-lose-this-election-is-if-the/](https://thehill.com/homenews/administration/512424-trump-the-only-way-we-are-going-to-lose-this-election-is-if-the/)
 
 ### 2020 November
 
-2020-11-07 2020-11-07 Trump repeatedly pushed baseless election-fraud claims after losing the election. Trump posted "I WON THIS ELECTION, BY A LOT!" and stated, "this election is far from over".
+2020-11-07 Trump posted “I WON THIS ELECTION, BY A LOT!” and, “this election is far from over”.
 
 [https://x.com/realDonaldTrump/status/1325099845045071873?lang=en](https://x.com/realDonaldTrump/status/1325099845045071873?lang=en)
 
@@ -72,7 +72,7 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 [https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts](https://www.pbs.org/newshour/politics/read-president-donald-trumps-full-statement-on-the-election-results-vowing-to-head-to-the-courts)
 
-2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud. She even suggested during an interview with Fox that she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released including receiving funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
+2020-11-09 Trump’s former press secretary Kayleigh McEnany repeatedly pushed false claims of election fraud and told Fox she wanted all Pennsylvanian ballots thrown out. After a financial disclosure statement was released showing she funds from both Trump and TPUSA the Fox broadcast system put out a statement saying that she “is not currently an employee or contributor at FOX News”.
 
 FRAUD CLAIMS
 
@@ -95,9 +95,20 @@ OTHER SHADY BUSINESS
 
 ### 2020 December
 
-2020-12-01 Online resources state that Jeanine Pirro contributed to voting system misinformation during the 2020 elections.
+2020-12-01 Jeanine Pirro contributed to voting system misinformation during the 2020 elections, as she was the center of a $1.6B defamation suit against Fox by Dominion over false claims. Allegedly a Fox News producer called her a “reckless maniac” in an internal company email, and Conservative legal experts wrote a report in 2022 saying Trump and his allies never provided any actual evidence of fraud. 
 
 [https://en.wikipedia.org/wiki/Dominion_Voting_Systems_v._Fox_News_Network](https://en.wikipedia.org/wiki/Dominion_Voting_Systems_v._Fox_News_Network)
+
+[https://www.npr.org/2022/09/30/1126286121/fox-news-jeanine-pirro-election-defamation](https://www.npr.org/2022/09/30/1126286121/fox-news-jeanine-pirro-election-defamation)
+
+[https://www.washingtonpost.com/media/2023/04/03/fox-dominion-jeanine-pirro-brain-room/](https://www.washingtonpost.com/media/2023/04/03/fox-dominion-jeanine-pirro-brain-room/)
+
+[https://www.usatoday.com/story/news/politics/2025/07/31/judge-jeanine-pirro-2020-election-lies-trump/85363846007/](https://www.usatoday.com/story/news/politics/2025/07/31/judge-jeanine-pirro-2020-election-lies-trump/85363846007/)
+
+[https://www.yahoo.com/entertainment/jeanine-pirro-named-1-6-041809298.html](https://www.yahoo.com/entertainment/jeanine-pirro-named-1-6-041809298.html)
+
+LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913-lost-not-stolen-the-conservative-case-that-trump-lost-and-biden-won-the-2020-presidential-election-july-2022/](https://www.documentcloud.org/documents/25116913-lost-not-stolen-the-conservative-case-that-trump-lost-and-biden-won-the-2020-presidential-election-july-2022/)
+
 
 ### 2020 "Get Moving, Republicans"
 
