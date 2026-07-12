@@ -92,6 +92,8 @@ permalink: /recommended-links/
 
 [GET INVOLVED: DCCC.org](https://dccc.org/)
 
+[GET INVOLVED: Center for American Progress.org](https://www.americanprogress.org/)
+
 [GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
 
 [GET INVOLEVD/IMMIGRATION: FIEL Houston](https://fielhouston.org/)
@@ -111,6 +113,8 @@ permalink: /recommended-links/
 [GET INVOLVED/VOTE: USA.gov - Voting & Elections](https://usa.gov/voting-and-elections)
 
 [GET INVOLVED/VOTE: US Vote Foundation](https://www.usvotefoundation.org)
+
+[GET INVOLVED/VOTE: Vote Riders.org](https://voteriders.org/)
 
 [GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
 
