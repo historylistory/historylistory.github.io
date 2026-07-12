@@ -403,7 +403,7 @@ Manhattan grand jury in the hush-money case.
 
 2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
-2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
+2025-12-11 After Indiana legislature rejected the new map the Heritage Foundation made threats to withhold funding via X.
 
 2025-12-12 The Justice Department sued 18 states seeking voter-registration records. 
 

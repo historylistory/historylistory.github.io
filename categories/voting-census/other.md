@@ -128,7 +128,7 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 {% include youtubePlayer.html id="EZHGkBxvVnk" %}
 
-2025-12-19 Before the 2026 midterms even started, Erika Trump started endorsing JD Vance for 2028.
+2025-12-19 Erika Trump endorsed JD Vance for 2028.
 
 [https://www.bbc.com/news/articles/cp84p722m3do](https://www.bbc.com/news/articles/cp84p722m3do)
 

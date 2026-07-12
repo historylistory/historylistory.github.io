@@ -392,7 +392,7 @@ NOEM MEMO [https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.us
 
 [https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/](https://truthout.org/articles/admin-reportedly-pushing-icc-to-exempt-trump-from-war-crimes-prosecution/)
 
-2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
+2025-12-11 After Indiana legislature rejected the new map the Heritage Foundation made threats to withhold funding via X.
 
 [https://x.com/Heritage_Action/status/1999141506473509071](https://x.com/Heritage_Action/status/1999141506473509071)
 

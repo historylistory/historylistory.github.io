@@ -267,7 +267,7 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 ### 2025
 
-2025-11-04 Trump made numerous random posts on Truth Social, specifically about voting. He touted a swampthevoteusa.com website, called to terminate the filibuster and mail in ballots, celebrated his ratings on an episode of 60 Minutes, made baseless claims about the Republican loss, and on and on.
+2025-11-04 Trump ranted on Truth Social about voting, swampthevoteusa.com, terminating the filibuster, terminating mail in ballots, ratings, and so on. 
 
 [https://truthsocial.com/@realDonaldTrump/posts/115493792769655959](https://truthsocial.com/@realDonaldTrump/posts/115493792769655959)
 

@@ -121,7 +121,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 
-2025-11-05 Not only did Proposition 50 pass in California and Mamdani win the mayoral election in New York, but several other states flipped blue or gained Democratic seats during this election including Georgia, New Jersey and Virginia.
+2025-11-05 Proposition 50 passed in California. Mamdani won the mayoral election in New York.  Several states gained Democratic seats during this election including Georgia, New Jersey and Virginia.
 
 [https://www.npr.org/2025/11/05/nx-s1-5599185/2025-election-results-georgia-pennsylvania-democrats-win](https://www.npr.org/2025/11/05/nx-s1-5599185/2025-election-results-georgia-pennsylvania-democrats-win)
 
@@ -159,7 +159,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 [https://www.lawyerscommittee.org/supreme-court-grants-stay-in-texas-redistricting-case/](https://www.lawyerscommittee.org/supreme-court-grants-stay-in-texas-redistricting-case/)
 
-2025-12-11 After Indiana refused to redistrict ahead of mid-term elections the Heritage Foundation made threats about withholding funding via X. 
+2025-12-11 After Indiana legislature rejected the new map the Heritage Foundation made threats to withhold funding via X.
 
 [https://x.com/Heritage_Action/status/1999141506473509071](https://x.com/Heritage_Action/status/1999141506473509071)
 

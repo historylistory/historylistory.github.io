@@ -170,6 +170,8 @@ permalink: /recommended-links/
 
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
+[Trump's SWAMP THE VOTE website](https://swampthevoteusa.com/)
+
 [Trump: List of Nicknames Used by Donald Trump](https://en.wikipedia.org/wiki/List_of_nicknames_used_by_Donald_Trump)
 
 [Trump: Misinformation Study - Harvard](https://misinforeview.hks.harvard.edu/article/twitter-flagged-donald-trumps-tweets-with-election-misinformation-they-continued-to-spread-both-on-and-off-the-platform/)
