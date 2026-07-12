@@ -18,7 +18,7 @@ permalink: /categories/voting-census/redistricting-census-tampering/
 
 ### 2013
 
-2013-06-25 Courts tossed out a ruling that areas with a history of discrimination get “pre-clearance” before redrawing maps. (see Shelby County, Alabama v. Holder, Attorney General). 
+2013-06-25 Courts tossed out a rule in the Voting Rights Act that would require states with an extensive history of racial discrimination to submit any changes in their election policies or maps to the federal government for advance review before putting them into effect (see Shelby County, Alabama v. Holder, Attorney General).
 
 [https://www.brennancenter.org/our-work/research-reports/preclearance-under-voting-rights-act](https://www.brennancenter.org/our-work/research-reports/preclearance-under-voting-rights-act)
 

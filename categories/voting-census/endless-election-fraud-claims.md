@@ -14,15 +14,17 @@ permalink: /categories/voting-census/endless-election-fraud-claims/
 
 ### 2016
 
-2016-10-16 Trump planted seeds on social media that the 2016 vote was "rigged" and made unfounded claims of voter fraud.
+2016-10-16 Trump posted, "The election is absolutely being rigged by the dishonest and distorted media pushing Crooked Hillary - but also at many polling places - SAD."
 
 [https://www.cnn.com/2016/10/15/politics/donald-trump-rigged-election-hillary-clinton](https://www.cnn.com/2016/10/15/politics/donald-trump-rigged-election-hillary-clinton)
 
 [https://www.bbc.com/news/election-us-2016-37673797](https://www.bbc.com/news/election-us-2016-37673797)
 
-2016-11-27 Trump asserted on social media that millions of people were voting illegally. Then he posted a second tweet making unfounded claims of voter fraud in Virginia, New Hampshire, and California.
+2016-11-27 Trump posted, “In addition to winning the Electoral College in a landslide, I won the popular vote if you deduct the millions of people who voted illegally” the posted accusations of voter fraud in  Virginia, New Hampshire, and California. 
 
 [https://www.npr.org/2016/11/27/503506026/trump-makes-unfounded-claim-that-millions-voted-illegally-for-clinton](https://www.npr.org/2016/11/27/503506026/trump-makes-unfounded-claim-that-millions-voted-illegally-for-clinton)
+
+[https://x.com/realDonaldTrump/status/802972944532209664](https://x.com/realDonaldTrump/status/802972944532209664)
 
 ### 2017
 

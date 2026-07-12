@@ -91,7 +91,7 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America.
 
-2013-06-25 Courts tossed out a ruling that areas with a history of discrimination get “pre-clearance” before redrawing maps. (see Shelby County, Alabama v. Holder, Attorney General).
+2013-06-25 Courts tossed out a rule in the Voting Rights Act that would require states with an extensive history of racial discrimination to submit any changes in their election policies or maps to the federal government for advance review before putting them into effect (see Shelby County, Alabama v. Holder, Attorney General).
 
 2013-11-02 Renisha McBride was shot and killed after she knocked on a door and the homeowner thought she was breaking in. 
 
