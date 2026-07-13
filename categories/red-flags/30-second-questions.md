@@ -21,6 +21,8 @@ Under Secretary Hegseth, the Pentagon dismantled much of its civilian-harm preve
 
 SOME SOURCES 
 
+* CIVILIAN HARM MITIGATION AND RESPONSE ACTION PLAN PDF: This is a PDF of the program Hegseth dismantled [media.defense.gov PDF FILE](https://media.defense.gov/2022/Aug/25/2003064740/-1/-1/1/CIVILIAN-HARM-MITIGATION-AND-RESPONSE-ACTION-PLAN.PDF)
+
 * BOMBING LITTLE GIRLS February 28, 2025 A US Tomahawk missile was launched into an all-girls school and killed at least 170 children. [Democracy Now.org](https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked)
 
 * BOMBING BRIDGES April 2, 2026 Trump proudly posted about the US bombing a civilian suspension bridge [The Guardian.com](https://www.theguardian.com/world/2026/apr/02/trump-warns-tehran-more-to-follow-after-strike-destroys-irans-largest-bridge)
