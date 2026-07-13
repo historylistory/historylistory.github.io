@@ -13,20 +13,13 @@ These questions are all being managed by one (1) person, so edit and correct the
 
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
-### Lies
-
-(QUESTION IN PROGRESS, NOT READY) Said mexico to pay for border wall...
-
-(QUESTION IN PROGRESS, NOT READY) Inflation down day one...
-
-(QUESTION IN PROGRESS, NOT READY) whitehouse ballroom from private donors...
-
 
 ### Trump Rhetoric
 
-#1) You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing—and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country?
-* EXAMPLES BELOW ARE NOT ALL THE EXAMPLES, JUST A FEW
----
+#1) You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing—and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country? 
+
+SOME SOURCES:
+
 * [VIOLENCE August 9, 2016: Trump told supporters maybe the 2nd Amendment should 'do' something about Hillary Clinton](https://www.youtube.com/watch?v=58SawH2FJ4Q)
 
 * [VIOLENCE June 1, 2020: Trump asked if he could 'just shoot' protestors in Lafayette Square](https://www.acludc.org/lafayette-square-attack-timeline/)
