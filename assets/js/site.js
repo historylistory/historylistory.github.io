@@ -1,19 +1,3 @@
-// Auto-navigate to first H3 anchor when opening a subcategory
-(function () {
-  var summaries = document.querySelectorAll('.sidebar-subcategory > summary');
-  for (var i = 0; i < summaries.length; i++) {
-    summaries[i].addEventListener('click', function () {
-      var details = this.parentNode;
-      if (!details.hasAttribute('open')) {
-        var firstLink = details.querySelector('.sidebar-subsubcategories > li > a');
-        if (firstLink) {
-          window.location.href = firstLink.href;
-        }
-      }
-    });
-  }
-})();
-
 // Close mobile nav on small screens; scroll sidebar on desktop
 (function () {
   if (window.innerWidth <= 960) {

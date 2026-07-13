@@ -12,17 +12,13 @@ Why? Because the response is scattered. **Reactive. Unfocused.**
 
 If anything is going to challenge Trump and the current GOP strategy, it has to be organized. Not louder...ORGANIZED.
 
-### We Aren't Getting Much Done.
+### We Have To Do More.
 
 Right now, people are just reacting to whatever headline is in front of them. That’s why nothing lands.
 
 We don’t need more outrage. We need coordination.
 
-### What Can We Do Better?
-
-Divide & Conquer.
-
-This file is broken into categories.
+We need to divide & conquer. 
 
 Pick a category (agriculture, education, etc.)
 
@@ -32,7 +28,7 @@ Develop targeted arguments, legislation ideas, petitions
 
 Push those issues consistently until they stick
 
-### Then WRITE CONGRESS (SEE LINKS BELOW)
+### Also, WRITE CONGRESS (SEE LINKS BELOW)
 
 Each section has a chapter called **A LETTER TO CONGRESS** where you can find a sample letter and how to contact your representatives. It also encludes an easy to copy-and-paste list of everything in that section in case you want to add it to your letters, emails or phone calls. 
 

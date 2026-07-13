@@ -24,7 +24,10 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Unconventional
 
-(QUESTION IN PROGRESS, NOT READY) You say trump is unconventional and laugh at that but what if a democratic president acted like this. MAGA might snicker and giggle like schoolgirls about his quips and antics, but it's shameful and embarassing, the entire world is watching. His antics are pointedly racist, or derrogatory, or divisve, or even incite violence and bad choices. He is not a leader, he is an excaped mental patient. ---- insert a question here 
+#1) You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing—and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country?
+* source 1
+* source 2
+
 
 
 (QUESTION IN PROGRESS, NOT READY) some trump supporters say they are fine with trumps behavior. does that iunclude when he celebrated the deaths of (give all the examples here) or threatened violence when he said (xyz)
