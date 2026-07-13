@@ -18,13 +18,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Military
 
-(QUESTION IN PROGRESS, NOT READY) Hegseth has issued an order to further ban transgenders from serving. This policy stinks of an underlying religious bias and agenda to it, so transgender may even be the first step to totally exclude all of the LGBTQ community. What do you tell all the transgender people who have or want to serve their country that Hegseth has ordered they be removed because they don't fit his "warrior ethos"? 
-
-(QUESTION IN PROGRESS, NOT READY) Hegseth renamed USNS Harvey Milk to something else because the ship was named after a gay servicemember and he didn't want naming of ships to be political. What part of his DEI renmaing campaign in 2025 of bases, and several battleships wasn't political, and how much do you think this cost taxpayers just to rebrand? I hear the DOD alone cost us $125M. Are Hegseth's ego and MAGA's hate rhetoric really worth that much? 
-
-Sources: (feel free to cite them, but if they say you're wrong, tell them OKAY, THEN PROVE ME WRONG)
-
-
+(QUESTION IN PROGRESS, NOT READY) 
 
 
 

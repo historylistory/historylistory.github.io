@@ -17,9 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Rules
 
-(QUESTION IN PROGRESS, NOT READY) Hegseth wrote in his book that America should ignore the Geneva Convention and abide by its own rules. What do you think he means by that and is this the type of person we want as our acting Defense Secretary? 
+(QUESTION IN PROGRESS, NOT READY) 
 
-
-(QUESTION IN PROGRESS, NOT READY) Hegseth dismantled the Civilian Mitigation and Response Action Plan a strategy designed to mitigate civilian harm in times of war. He did this ahead of the Iran war. Then he ordered USCENTCOM to bomb an all girl's school and killed almost 200 children. On March 2 2026 he said there would be "no stupid rules of engagement". --I don't know what do you think, future international investigation for war crimes or no? 
 
 

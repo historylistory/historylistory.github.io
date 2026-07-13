@@ -16,13 +16,10 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Misinformation
 
-(QUESTION IN PROGRESS, NOT READY) The Canadian Medical Association issued a warning that US health and science institutions could no longer be relied upon for accurate guidance (Jan 4, 2026) how does that make you feel knowing other nations find our new DOH full of misinformation? 
-
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Rhetoric
 
-(QUESTION IN PROGRESS, NOT READY) RFK's Children's health defense sells anti-vax onesies to consumers online and sold a book titled "Measles...". Kash Patel pas peddled anti-COVID vax supplements on his website. Dr. Oz has a documented history of peddling mircale cures and snake oils for profit. The CDC website was changed to link vaccines and autism. Do you think it is a clear choice to have these people in charge of health...
-
-
+(QUESTION IN PROGRESS, NOT READY) 
 
 

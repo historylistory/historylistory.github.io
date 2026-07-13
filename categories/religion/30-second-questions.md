@@ -15,29 +15,31 @@ These questions are all being managed by one (1) person, so edit and correct the
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
 
+### Bias
 
-### Schools
-
-(QUESTION IN PROGRESS, NOT READY)  THIS ONE IS DEFINITELY TOO LONG AND OVER 30 SECONDS NEED TO REWORK: The administration is forcing a fringe Christian nationalist movement that is not actually Christian, putting 10 commandments in schools, requiring bible studies starting in Texas. Any history teacher will tell you the constitution is godless by design to stop relig8ion from controlling politics and politics to control religion. Since we are adding Christianity into school curriculum, when can we expect to also see Jewish studies, buddhist studies, a copy of the Quran, Hindu studies, Taoism, and others, as well as at least 2-to-5 breaks per day so school children can practice their devotionals based on the religion they practice? I assume if you want to integrate God into school, you woulndt dare discredit the faith of billions of others, would you?  
-
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Idolatry
 
 (QUESTION IN PROGRESS, NOT READY) 
 
-### Bias
-
-(QUESTION IN PROGRESS, NOT READY) The trump administration claims there is an anti-christian bias in the united staets, so much so he created a task force to eradicate it in 2025. What is the big persecution trumps administration is talking about, when in fact it is the largest group in the united states, holds moer political power than anybody else, indoctrinates schoolchildren, dips into taxpayer money to fund private schools, and can hide behind it's 501-3c status as it doles out billions to political Pacs?
-
-### Weaponizing God
-
-(QUESTION IN PROGRESS, NOT READY) IN 2025 a teacher in Oklahoma discovered the trump bible excludes amendments 11-thru-27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more. Do you think this administration is using tools of religion to slide in propaganda or political agendas? 
-
 ### Indoctrination 
 
+(QUESTION IN PROGRESS, NOT READY) 
 
-(QUESTION IN PROGRESS, NOT READY) Schools have debate teams. The government has no business incorporating right-wing TPUSA propaganda into their schools. This can be an outside-school thing, but taxpayers don’t need to be paying for the government to indoctrinate their kids against the will of the people. Especially just to enrich another 501c3 status organization that leverages faith to enrich themselves and probably makes way more many than they’d ever dare report. We’ve seen how well people like Erika Kirk lives as they peddle Tshirts and ask for donations, why are we promoting this?  
+### Schools
+
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Superiority
 
-(QUESTION IN PROGRESS, NOT READY)  In June 2026 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic. Can you cite where in the constitution or anywhere in historical documentaiton is it written that this nation has an established religion, or gives any authority to our government to exclude or downgrade other faiths?
+(QUESTION IN PROGRESS, NOT READY) 
+
+### Weaponizing God
+
+(QUESTION IN PROGRESS, NOT READY) 
+
+
+
+
+

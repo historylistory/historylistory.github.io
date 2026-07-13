@@ -17,5 +17,4 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### TITLE
 
-(QUESTION IN PROGRESS, NOT READY) QUESTION
-
+(QUESTIONS IN PROGRESS, NOT READY) 

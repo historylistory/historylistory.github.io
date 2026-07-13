@@ -17,12 +17,9 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Interference
 
-(QUESTION IN PROGRESS, NOT READY) we know about interference, cambridge analytica whistleblower, the robocall campaign to disenfranchise Black voters, georgia election interference case, trying to gain emergency federal control over votes before midterms, racial gerrymandering, buying up Dominion voting machines, confiscating ballots, and trump has claimed fraud since 2012 way before the J6 insurrection...do you honestly believe he isn't trying to dismantle voting access with the SAVE act as a sort of authoritarian creep? 
-
-(QUESTION IN PROGRESS, NOT READY) Isn't voter suppresion and media manipulation exactly what Victor Orban did in Hungary? 
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Nationalizing
 
-(QUESTION IN PROGRESS, NOT READY) samples of all the MAGA voter interference plus what trump said at TPUSA anbout the vote being fixed, then ask what are you going to tell your constituents if trump finally does get emergency federal control over the USPS and ballots? What then?
-
+(QUESTION IN PROGRESS, NOT READY) 
 

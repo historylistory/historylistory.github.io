@@ -29,19 +29,14 @@ SOURCES:
 * [CONGRESS December 30, 2019: A Congressional report that supports all the above claims](https://www.congress.gov/crs-product/R45908)
 
 
-(QUESTION IN PROGRESS, NOT READY) Inflation down day one...
-
-(QUESTION IN PROGRESS, NOT READY) whitehouse ballroom from private donors...
-
 ### Revenue
 
-(QUESTION IN PROGRESS, NOT READY) You say tariffs and BBB have revenue, but what's the explanation behind turning around and spending all that, aside from vanity projects, pete hegseth spending spree, kristi noem ad campaigns, bailing out argentina, a border wall mexico was supposed to pay for, slush funds for j6, more farmer subsidies because trump screwed the economy....now that our natl debt is greater than our GDP....
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Oil
 
-(QUESTION IN PROGRESS, NOT READY) Top 100 oil and gas companies made bank in the first few weeks of iran war, do you think maybe the war is lucrative for the richest of the rich? ExxonMobile is now part of the DOJ and Chevron is taking over venezuelan oil... 
+(QUESTION IN PROGRESS, NOT READY) 
 
 ### Food Insecurity
 
-(QUESTION IN PROGRESS, NOT READY) Now that Trump has ordered the USDA to stop tracking food insecurity, what is the Trump administration's new plan to track that, and what are the newest stats on food insecurity now that lifelines like SNAP, energy assistance, or social security disability have been dismantled? 
-
+(QUESTION IN PROGRESS, NOT READY) 
