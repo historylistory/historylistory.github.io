@@ -31,12 +31,15 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
-Dear Sir or Madam,
+Dear Member of Congress,
 
-I find several aspects of the current administration's conduct and governing approach concerning. For example, I am troubled by the communication strategy described by Steve Bannon in 2018 as "flooding the zone," which I believe can make it more difficult for the public to engage thoughtfully with important issues. I am also concerned by what I perceive as an excessive focus on loyalty to President Trump, increasing political polarization, a lack of restraint and humility in leadership, and decisions that I believe prioritize partisan interests over the broader public good.
+I am writing to express my outrage over the Trump administration’s continuing pattern of cruelty, corruption, self-promotion, reckless rhetoric, and contempt for democratic norms.
 
-These concerns represent only a few examples of the issues that have led me to this conclusion. Below are several additional examples that further illustrate my concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
+At a time when Americans are struggling with healthcare costs, food insecurity, disasters, war, and economic instability, the administration has too often responded with political stunts, dehumanizing propaganda, personal insults, threats against critics, extravagant vanity projects, and the misuse of public institutions for partisan purposes. The conduct described across recent events—including attacks on journalists, politicized federal messaging, disregard for oversight, glorification of violence, and apparent retaliation against opponents—has damaged public trust and diminished the dignity of the presidency.
 
+Congress must not normalize this behavior. I urge you to defend constitutional limits, investigate abuses of power and public funds, protect inspectors general and whistleblowers, enforce ethics laws, and demand professional conduct from every public official.
+
+The American people deserve leadership focused on service, competence, compassion, and the rule of law—not spectacle, intimidation, personal enrichment, and political revenge.
 ### Chronology.
 
 1952-01-01 The US put support behind Cuban dictator Fulgencio Batista.

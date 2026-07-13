@@ -31,15 +31,18 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
-Dear Sir or Madam,
+Dear Member of Congress,
 
-I am deeply concerned by the Trump administration's continued rollback of environmental protections while advancing fossil fuel development. The administration has repeatedly attacked renewable energy, weakened regulations, expanded drilling opportunities, and reduced support for climate, weather, and oceanic research.
+I am writing to express my deep frustration with the Trump administration’s systematic dismantling of climate programs and environmental protections.
 
-These actions threaten clean air, safe drinking water, wildlife, public lands, and the long-term stability of our climate. Emissions monitoring, endangered species protections, and environmental oversight exist for a reason: to protect both people and the natural world from preventable harm.
+The administration has withdrawn from the Paris Agreement, weakened clean-air and clean-water rules, cut staff and funding at NOAA, EPA, FEMA, and the Forest Service, eliminated climate research, reduced disaster-prevention programs, and expanded drilling, mining, logging, and fossil-fuel development. It has also removed climate information from government websites and sidelined scientists whose work is essential to public safety.
 
-For decades, powerful fossil fuel and mining interests have worked to undermine public understanding of climate risks and weaken regulations that limit environmental damage. Many of the policies outlined below reflect that influence.
+These actions come as Americans face worsening heat, drought, flooding, wildfires, severe storms, water contamination, rising insurance costs, and threats to food and energy security. Ignoring climate science does not make these dangers disappear—it leaves communities less prepared and gives polluters greater freedom at the public’s expense.
 
-The following examples highlight these concerns, while some are included for historical context.
+I urge Congress to restore environmental and climate funding, protect independent scientific research, defend the Clean Air Act, Clean Water Act, NEPA, and Endangered Species Act, strengthen disaster preparedness, and hold agencies accountable for weakening safeguards.
+
+Americans deserve clean air, safe water, protected public lands, and a government that plans for the future rather than denying the crisis in front of us.
+
 
 ### Chronology.
 

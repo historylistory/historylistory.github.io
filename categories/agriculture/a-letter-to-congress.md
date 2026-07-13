@@ -31,7 +31,15 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
-pending text
+Dear Member of Congress,
+
+I am writing to express my frustration with the Trump administration’s repeated cuts to agricultural programs, conservation assistance, food-safety protections, and support for small, beginning, and underserved farmers.
+
+Farmers are facing rising fuel and fertilizer costs, drought, disease threats, unstable export markets, consolidation, and growing financial distress. Yet the administration has reduced conservation funding, weakened or eliminated programs intended to help farmers remain viable, furloughed critical USDA staff, and made grant assistance more difficult to obtain. These decisions disproportionately harm family farms while large corporations and the wealthiest landowners continue to receive substantial benefits.
+
+I am also deeply concerned by the weakening of food-safety standards, including the repeal of stronger Salmonella protections and the approval of pesticides containing persistent chemicals. Preventing outbreaks and protecting consumers should never be treated as unnecessary government spending.
+
+Congress must restore agricultural and conservation funding, protect independent and underserved farmers, strengthen antitrust enforcement, preserve rigorous food-safety standards, and provide meaningful oversight of USDA and related agencies. American farmers and families deserve a food system built around safety, competition, and long-term stability—not political favoritism, corporate consolidation, and repeated bailouts after preventable policy failures.
 
 ### Chronology.
 

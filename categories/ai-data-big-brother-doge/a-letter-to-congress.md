@@ -31,9 +31,17 @@ For U.S. Senators
 
 ### SAMPLE LETTER
 
-Dear Sir or Madam,
+Dear Member of Congress,
 
-I do not agree with the current direction of technology policy in my country, particularly regarding AI deregulation, mass surveillance, and the environmental impacts of emerging technologies. Below are several examples that illustrate these concerns. SOME OF THE CONTENT LISTED IS FOR HISTORICAL CONTEXT. 
+I am writing to express my deep frustration with the Trump administration’s reckless approach to artificial intelligence, deregulation, mass surveillance, and DOGE.
+
+The administration has weakened AI safety rules, opposed state-level protections, expanded government access to sensitive data, and allowed private technology companies and unelected billionaires to gain extraordinary influence over public policy. Reports of DOGE accessing federal payroll systems, mishandling personal information, using AI to recommend government cuts, and disrupting essential agencies raise serious constitutional and cybersecurity concerns.
+
+At the same time, facial recognition, data brokers, AI-powered surveillance, dynamic pricing, deepfakes, autonomous weapons, and government tracking tools are expanding faster than meaningful safeguards. Americans should not have to surrender their privacy, civil liberties, jobs, or personal data in the name of innovation.
+
+I urge Congress to investigate DOGE’s access to federal systems, establish strong national AI safeguards, protect whistleblowers and personal data, restrict domestic surveillance, and require transparency and human accountability for automated government decisions.
+
+Technology should serve the public—not become a tool for political retaliation, corporate control, or “Big Brother” government.
 
 
 ### Chronology.
