@@ -22,11 +22,39 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 (QUESTION IN PROGRESS, NOT READY) whitehouse ballroom from private donors...
 
 
-### Unconventional
+### Trump Rhetoric
 
 #1) You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing—and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country?
-* source 1
-* source 2
+* EXAMPLES BELOW ARE NOT ALL THE EXAMPLES, JUST A FEW
+---
+* [VIOLENCE August 9, 2016: Trump told supporters maybe the 2nd Amendment should 'do' something about Hillary Clinton](https://www.youtube.com/watch?v=58SawH2FJ4Q)
+
+* [VIOLENCE June 1, 2020: Trump asked if he could 'just shoot' protestors in Lafayette Square](https://www.acludc.org/lafayette-square-attack-timeline/)
+
+* [VIOLENCE March 16, 2024: Trump said there would be a blood bath if he didn't win the election](https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746)
+
+* [VIOLENCE March 28, 2024: Trump posted images of Biden bound and gagged](https://www.aljazeera.com/video/newsfeed/2024/4/1/trump-posts-video-with-image-of-biden-bound-and-tied)
+
+* [VIOLENCE November 3, 2024: Trump suggested someone open fire on the media](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
+
+* [VIOLENCE May 26, 2025: Trump posted violent rhetoric about judges; afterwards those judges all received death threats](https://truthsocial.com/@realDonaldTrump/114573871728757682)
+
+* [VIOLENCE April 29, 2026: Trump posted an AI image of himself holding an assault rifle](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
+
+* [VIOLENCE December 19, 2020: Trump posted "Big protest in DC on January 6th. Be there, will be wild!"](https://www.presidency.ucsb.edu/documents/tweets-december-19-2020)
+---
+* [DIVISION June 28, 2025: Trump posted "Republicans must remember they are fighting against a very evil, corrupt, and incompetent group of people who would rather see our country go down in flames than do the right thing"](https://truthsocial.com/@realDonaldTrump/posts/114764221948518343)
+
+* [DIVISION September 12, 2025: Trump said "Radicals on the right are radical because they don't want crime. Radicals on the left are the problem"](https://www.youtube.com/watch?v=SxzScV6HXyk)
+
+* [DIVISION March 22, 2026: Trump posted "Now with the death of Iran the greatest enemy America has is the Radical Left, Highly Incompetent, Democrat Party!"](https://truthsocial.com/@realDonaldTrump/posts/116272810363139207)
+---
+* [RACIST February 6, 2026: Trump posted AI video of the Obamas as apes](https://www.aljazeera.com/news/2026/2/6/republicans-condemn-racist-trump-video-post-depicting-obamas-as-apes)
+
+* [RACIST November 27, 2025: Trump mocked Ilhan Omar's hijab](https://thenationaldesk.com/news/nation-world/trump-claims-ilhan-omar-should-get-thrown-the-hell-out-of-our-country)
+
+* [RACIST December 2, 2025: Trump called Somali immigrants garbage](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
+
 
 
 
