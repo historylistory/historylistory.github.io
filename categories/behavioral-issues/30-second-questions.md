@@ -55,6 +55,8 @@ The president’s words carry enormous influence. He has quipped about injecting
 
 SOME SOURCES
 
+* TYLENOL September 22, 2025: Trump gave unfounded medical advise that women shouldn't take Tylenol [CNN.com](https://www.cnn.com/2025/09/22/health/video/trump-rfk-announce-autism-acetaminophen-connection-lead-digvid)
+
 * TYLENOL September 22, 2025: The American College of Obstetricians and Gynecologists calls Trump’s comments irresponsible [PBS.org](https://www.pbs.org/newshour/politics/ob-gyn-group-calls-trumps-remarks-on-acetaminophen-irresponsible)
 
 * VACCINES September 22, 2025: Trump baselessly linked vaccines to autism [Stat News.com](https://www.statnews.com/2025/09/22/trump-autism-event-questions-vaccine-safety-urges-schedule-timing-changes)
