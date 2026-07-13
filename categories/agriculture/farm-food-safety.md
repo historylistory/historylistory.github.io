@@ -61,6 +61,19 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 
 [https://waterkeeper.org/news/poisoned-produce-epa-approvals-threaten-public-health/](https://waterkeeper.org/news/poisoned-produce-epa-approvals-threaten-public-health/)
 
+### 2026 February
+
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
+[https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/](https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/)
+
+[https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/](https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/)
+
+[https://x.com/GovRonDeSantis/status/2019508100139823520](https://x.com/GovRonDeSantis/status/2019508100139823520)
+
+[https://exposingfoodtoxins.com/bread/](https://exposingfoodtoxins.com/bread/)
+
+
 ### 2026 June
 
 2026-06-04 Texas issued a state of disaster after a new world screwworm case was detected in cattle, goats and dogs. 
@@ -72,3 +85,15 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 [https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
 
 [https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)
+
+2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
+[https://www.usatoday.com/story/news/politics/2026/02/20/trump-executive-order-glyphosate-rfk-maha-moms/88780353007/](https://www.usatoday.com/story/news/politics/2026/02/20/trump-executive-order-glyphosate-rfk-maha-moms/88780353007/)
+
+[https://www.aol.com/news/decision-sickening-maha-leaders-feel-234923560.html](https://www.aol.com/news/decision-sickening-maha-leaders-feel-234923560.html)
+
+[https://www.nbcnews.com/health/health-news/supreme-court-ruling-roundup-weedkiller-maha-betrayed-rcna351796](https://www.nbcnews.com/health/health-news/supreme-court-ruling-roundup-weedkiller-maha-betrayed-rcna351796)
+
+[https://www.chemistryworld.com/news/us-supreme-court-ruling-supports-bayers-defence-in-roundup-lawsuits/4023791.article](https://www.chemistryworld.com/news/us-supreme-court-ruling-supports-bayers-defence-in-roundup-lawsuits/4023791.article)
+
+[https://www.reuters.com/legal/government/bayers-725-billion-roundup-settlement-gets-august-hearing-date-2026-06-30/](https://www.reuters.com/legal/government/bayers-725-billion-roundup-settlement-gets-august-hearing-date-2026-06-30/)

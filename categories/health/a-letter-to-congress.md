@@ -415,6 +415,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-02-06 RFK claimed the keto diet can cure schizophrenia with no actual data or supporting evidence.
 
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
 2026-02-09 Several March for Life attendees were exposed to measles according to DC health officials.
 
 2026-02-10 RFK’s RealFood.gov used Grok for nutrition advice, but users reported bizarre and unsafe responses. In one user experience, the platform gave a recommendation to insert food into the rectum.

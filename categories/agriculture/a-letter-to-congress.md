@@ -89,6 +89,8 @@ pending text
 
 2025-12-14 Trump announced a $12B bailout for farmers using tariff revenue.
 
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
 2026-03-08 Billion-dollar farm subsidies for the top 2% of farmers.
 
 2026-03-10 The war in Iran affected global fertilizer trade and global helium supplies.
@@ -116,6 +118,8 @@ pending text
 2026-06-05 Trump visited a swing district in Wisconsin amidst rising costs for American farmers. Experts reported numerous farmers are asset heavy and going bankrupt. Farm families held up banners while Trump talked about his reflecting pool project.
 
 2026-06-11 Trump further advocated on Fox that he wanted the Chinese Communist Party to continue buying up American farmland.
+
+2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
 
 2026-07-09 The Trump administration is changing the rules on applying and receiving grants for farmers that will make the process more burdensome and less reliable.
 

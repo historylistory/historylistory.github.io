@@ -906,3 +906,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
 
 2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
+
+2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 

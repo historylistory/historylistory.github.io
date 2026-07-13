@@ -212,6 +212,8 @@ The following examples highlight these concerns, while some are included for his
 
 2026-02-03 Interior Secretary Doug Burgum introduced “Coalie” as a child-friendly mascot for Trump’s drilling campaign.
 
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
 2026-02-09 Lake Erie developed a roughly 100-mile ice crack linked to unusually warm conditions.
 
 2026-02-12 Trump reversed Obama-era greenhouse-gas regulations.

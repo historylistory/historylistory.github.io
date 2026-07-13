@@ -161,6 +161,16 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 ### 2026 February
 
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
+[https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/](https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/)
+
+[https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/](https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/)
+
+[https://x.com/GovRonDeSantis/status/2019508100139823520](https://x.com/GovRonDeSantis/status/2019508100139823520)
+
+[https://exposingfoodtoxins.com/bread/](https://exposingfoodtoxins.com/bread/)
+
 2026-02-10 RFK’s RealFood.gov used Grok for nutrition advice, but users reported bizarre and unsafe responses. In one user experience, the platform gave a recommendation to insert food into the rectum. 
 
 [https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/#:~:text=Kyle%20Diamantas%2C%20head%20of%20the,%2C%20salmon%2C%20and%20olive%20oil](https://www.statnews.com/2026/02/10/new-food-pyramid-website-raises-ai-questions-grok-realfood-dot-gov/).

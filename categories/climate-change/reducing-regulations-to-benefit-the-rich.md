@@ -261,6 +261,16 @@ OFFICIAL PETITION: [https://www.change.org/p/petition-to-ask-epa-administrator-l
 
 ### 2026 February
 
+2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
+[https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/](https://www.bakeryandsnacks.com/Article/2026/02/08/florida-glyphosate-bread-tests-put-food-safety-rules-to-test/)
+
+[https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/](https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer/)
+
+[https://x.com/GovRonDeSantis/status/2019508100139823520](https://x.com/GovRonDeSantis/status/2019508100139823520)
+
+[https://exposingfoodtoxins.com/bread/](https://exposingfoodtoxins.com/bread/)
+
 2026-02-12 Trump reversed Obama-era greenhouse-gas regulations.
 
 [https://www.cnn.com/2026/02/12/climate/trump-repeals-epa-endangerment-finding](https://www.cnn.com/2026/02/12/climate/trump-repeals-epa-endangerment-finding)

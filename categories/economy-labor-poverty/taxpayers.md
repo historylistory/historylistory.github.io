@@ -542,3 +542,13 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp](https://www.pbs.org/newshour/politics/crews-are-draining-the-lincoln-memorial-reflecting-pool-again-as-part-of-trumps-troubled-revamp)
 
 [https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs](https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs)
+
+2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
+
+[https://people.com/west-virginia-anti-woke-university-program-12016314](https://people.com/west-virginia-anti-woke-university-program-12016314)
+
+[https://www.youtube.com/watch?v=Gicjs92BIKk](https://www.youtube.com/watch?v=Gicjs92BIKk)
+
+[https://westvirginiawatch.com/2026/07/08/one-student-enrolled-in-wvu-washington-center-after-gop-lawmakers-mandate-creation-of-program/](https://westvirginiawatch.com/2026/07/08/one-student-enrolled-in-wvu-washington-center-after-gop-lawmakers-mandate-creation-of-program/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/west-virginia-university-woke-washington-center-b3012708.html](https://www.the-independent.com/news/world/americas/us-politics/west-virginia-university-woke-washington-center-b3012708.html)
