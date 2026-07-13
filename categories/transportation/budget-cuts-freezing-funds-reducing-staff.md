@@ -37,13 +37,13 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2025 January
 
-2025-01-20 Trump froze billions of dollars in federal funding for various infrastructure projects in Rhode Island. A suit was filed to unfreeze funding.
+2025-01-20 Trump froze billions of dollars in federal funding for various infrastructure projects in Rhode Island. 
 
 [https://www.councilofnonprofits.org/pressreleases/suit-filed-restore-critical-infrastructure-and-investment-funds](https://www.councilofnonprofits.org/pressreleases/suit-filed-restore-critical-infrastructure-and-investment-funds)
 
 ### 2025 February
 
-**2025-02-01** **The Trump administration laid off several FAA employees as part of their workforce reductions**.
+2025-02-01 The Trump administration laid off several FAA employees as part of their workforce reductions.
 
 ### 2025 April
 

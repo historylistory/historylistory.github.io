@@ -26,7 +26,7 @@ permalink: /categories/transportation/other/
 
 ### 2019 November
 
-2019-11-01 (for context) Sean Duffy was a lobbyist for Partnership for Fair and Open Skies.
+2019-11-01 Sean Duffy was a lobbyist for Partnership for Fair and Open Skies.
 
 [https://en.wikipedia.org/wiki/Sean_Duffy](https://en.wikipedia.org/wiki/Sean_Duffy)
 
