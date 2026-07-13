@@ -6,6 +6,21 @@ subcategory_slug: poverty-health-welfare
 permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 ---
 
+### 2009
+
+2009-03-13 A study showed that income inequality is directly related to health and social problems, but more importantly that the wider the inequality gap in the country, the more likely those health problems reach the wealthy. Inequality doesn’t just hurt the people at the bottom; it degrades the entire system. 
+
+[https://inequality.org/article/spirit-level-level/](https://inequality.org/article/spirit-level-level/)
+
+[https://www.theguardian.com/inequality/2018/sep/18/kate-pickett-richard-wilkinson-mental-wellbeing-inequality-the-spirit-level](https://www.theguardian.com/inequality/2018/sep/18/kate-pickett-richard-wilkinson-mental-wellbeing-inequality-the-spirit-level)
+
+[https://www.theguardian.com/commentisfree/article/2024/jul/23/landmark-book-spirit-level-cost-inequality-fifteen-years-later-worse-labour](https://www.theguardian.com/commentisfree/article/2024/jul/23/landmark-book-spirit-level-cost-inequality-fifteen-years-later-worse-labour)
+
+[https://www.theguardian.com/books/2009/mar/13/the-spirit-level](https://www.theguardian.com/books/2009/mar/13/the-spirit-level)
+
+TIMESTAMP 18:35 [https://www.youtube.com/watch?v=w1pwBsaoY0Y](https://www.youtube.com/watch?v=w1pwBsaoY0Y)
+
+
 ### 2012
 
 2012-01-01 Rush Limbaugh mocked food programs for hungry American families, “Now it has to be the best”. Limbaugh called compassion for the poor a “part of a partisan agenda”.
@@ -13,6 +28,20 @@ permalink: /categories/economy-labor-poverty/poverty-health-welfare/
 [https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame](https://www.mediamatters.org/rush-limbaugh/limbaugh-many-cases-poor-people-have-only-themselves-blame)
 
 {% include youtubePlayer.html id="sE1Bhzj81Zo" %}
+
+### 2014 
+
+2014-07-17 When returns on capital exceed economic growth, wealth concentrates inevitably. 
+
+[https://theconversation.com/is-inequality-a-natural-phenomenon-thomas-piketty-argues-it-isnt-and-proposes-a-way-forward-240325](https://theconversation.com/is-inequality-a-natural-phenomenon-thomas-piketty-argues-it-isnt-and-proposes-a-way-forward-240325)
+
+[https://www.theguardian.com/books/2024/sep/18/nature-culture-and-inequality-by-thomas-piketty-review-mind-the-gap](https://www.theguardian.com/books/2024/sep/18/nature-culture-and-inequality-by-thomas-piketty-review-mind-the-gap)
+
+[https://www.theguardian.com/books/2014/jul/17/capital-twenty-first-century-thomas-piketty-review](https://www.theguardian.com/books/2014/jul/17/capital-twenty-first-century-thomas-piketty-review)
+
+[https://aier.org/article/understanding-thomas-pikettys-capital-in-the-21st-century/](https://aier.org/article/understanding-thomas-pikettys-capital-in-the-21st-century/)
+
+TAX FOUNDATION DISAGREES [https://taxfoundation.org/research/all/federal/thomas-piketty-s-false-depiction-wealth-america/](https://taxfoundation.org/research/all/federal/thomas-piketty-s-false-depiction-wealth-america/)
 
 
 ### 2023

@@ -329,6 +329,10 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
 
+2026-07-13 Apple sued OpenAI over alleged trade secret theft. 
+
+2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
+
 
 
 

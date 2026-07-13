@@ -187,3 +187,10 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/](https://www.democracydocket.com/news-alerts/trump-doj-threatens-election-officials-with-criminal-prosecution/)
 
+2026-07-11 The DOJ subpoenaed New York Times reporters for reporting about Air Force One. 
+
+[https://www.npr.org/2026/07/11/g-s1-133160/justice-department-subpoenas-new-york-times-reporters-over-air-force-one-reporting](https://www.npr.org/2026/07/11/g-s1-133160/justice-department-subpoenas-new-york-times-reporters-over-air-force-one-reporting)
+
+[https://apnews.com/article/trump-nyt-air-force-one-qatari-jet-e2c798a95a1e41077d2cae969774df91](https://apnews.com/article/trump-nyt-air-force-one-qatari-jet-e2c798a95a1e41077d2cae969774df91)
+
+[https://www.cnn.com/2026/07/11/politics/new-york-times-trump-subpoenas-journalists](https://www.cnn.com/2026/07/11/politics/new-york-times-trump-subpoenas-journalists)

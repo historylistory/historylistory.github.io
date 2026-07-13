@@ -64,6 +64,17 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 [https://www.forbes.com/sites/brianbushard/2024/02/06/trump-questions-bud-light-boycott-calling-anheuser-busch-not-a-woke-company/](https://www.forbes.com/sites/brianbushard/2024/02/06/trump-questions-bud-light-boycott-calling-anheuser-busch-not-a-woke-company/)
 
+2023-05-24 After backlash from conservative Christian groups, Target removed Pride Month products. 
+
+[https://www.npr.org/2023/05/24/1177963864/target-pride-month-lgbtq-products-threats](https://www.npr.org/2023/05/24/1177963864/target-pride-month-lgbtq-products-threats)
+
+[https://abcnews.com/US/target-faces-criticism-artists-involved-pride-month-products/story?id=99865846](https://abcnews.com/US/target-faces-criticism-artists-involved-pride-month-products/story?id=99865846)
+
+[https://www.them.us/story/target-pride-month-collection-protest-explained](https://www.them.us/story/target-pride-month-collection-protest-explained)
+
+[https://www.usatoday.com/story/money/2024/12/05/target-pride-2023-lawsuit/76799419007/](https://www.usatoday.com/story/money/2024/12/05/target-pride-2023-lawsuit/76799419007/)
+
+[https://time.com/6282522/target-backlash-lgbtq-merchandise-removal/](https://time.com/6282522/target-backlash-lgbtq-merchandise-removal/)
 
 2023-11-30 The Russian Supreme Court labelled LGBT as a movement and an “extremist organization”.
 

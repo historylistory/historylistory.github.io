@@ -126,3 +126,15 @@ permalink: /categories/health/other/
 [https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187](https://www.nbcnews.com/health/health-news/glp1-weight-loss-drugs-online-safety-risks-overdose-rcna347187)
 
 [https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723](https://www.nbcnews.com/nightly-news/video/alarming-rise-in-weight-loss-drug-overdoses-264116805723)
+
+### 2026 July
+
+2026-07-10 The US had a cyclospora outbreak. 
+
+[https://www.youtube.com/watch?v=vadA7bY0ZIQ&list=WL&index=1&t=6s](https://www.youtube.com/watch?v=vadA7bY0ZIQ&list=WL&index=1&t=6s)
+
+[https://www.cidrap.umn.edu/cyclospora/us-cyclospora-cases-mount-cdc-lags-tracking](https://www.cidrap.umn.edu/cyclospora/us-cyclospora-cases-mount-cdc-lags-tracking)
+
+[https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation](https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation)
+
+[https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us](https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us)

@@ -69,9 +69,13 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”.
 
+2009-03-13 A study showed that income inequality is directly related to health and social problems, but more importantly that the wider the inequality gap in the country, the more likely those health problems reach the wealthy. Inequality doesn’t just hurt the people at the bottom; it degrades the entire system. 
+
 2011-04-17 Trump said he wanted to seize oil fields in Libya and Iraq.
 
 2012-01-01 Rush Limbaugh mocked food programs for hungry American families, “Now it has to be the best”. Limbaugh called compassion for the poor a “part of a partisan agenda”.
+
+2014-07-17 When returns on capital exceed economic growth, wealth concentrates inevitably. 
 
 2015-07-03 Aetna merged with Humana. Trump killed legislation designed to prevent monopolies. 
 

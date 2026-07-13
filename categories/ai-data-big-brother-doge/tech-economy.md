@@ -203,3 +203,14 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase)
 
+### 2026 July
+
+2026-07-13 Apple sued OpenAI over alleged trade secret theft. 
+
+[https://www.reuters.com/legal/litigation/apple-sues-openai-alleging-misappropriation-trade-secrets-court-records-show-2026-07-10/](https://www.reuters.com/legal/litigation/apple-sues-openai-alleging-misappropriation-trade-secrets-court-records-show-2026-07-10/)
+
+[https://www.cnbc.com/2026/07/10/apple-openai-lawsuit-trade-secrets.html](https://www.cnbc.com/2026/07/10/apple-openai-lawsuit-trade-secrets.html)
+
+[https://www.bloomberg.com/news/articles/2026-07-13/how-apple-s-lawsuit-threatens-to-disrupt-openai-s-bid-to-rival-the-iphone](https://www.bloomberg.com/news/articles/2026-07-13/how-apple-s-lawsuit-threatens-to-disrupt-openai-s-bid-to-rival-the-iphone)
+
+[https://www.macrumors.com/2026/07/13/openai-lawsuit-threatens-plans/](https://www.macrumors.com/2026/07/13/openai-lawsuit-threatens-plans/)

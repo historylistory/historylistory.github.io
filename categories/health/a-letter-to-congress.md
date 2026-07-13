@@ -508,3 +508,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
 
 2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
+
+2026-07-10 The US had a cyclospora outbreak. 

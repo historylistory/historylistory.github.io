@@ -593,3 +593,5 @@ Manhattan grand jury in the hush-money case.
 2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
 
 2026-07-07 FEMA announced it would be withholding Homeland Security funding to any states that didn’t comply with Trump’s upcoming election requirements. 
+
+2026-07-11 The DOJ subpoenaed New York Times reporters for reporting about Air Force One. 

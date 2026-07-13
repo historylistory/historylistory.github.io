@@ -87,6 +87,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2023-04-01 MAGA boycotted Bud Light for featuring transgender influencer Dylan Mulvaney in one of their commercials.
 
+2023-05-24 After backlash from conservative Christian groups, Target removed Pride Month products. 
+
 2023-08-23 Missouri introduced SB134 the “Vulnerable Child Compassion and Protection Act” to prohibit gender identity or acknowledgement and threaten teachers who helped students accept their gender identities.
 
 2023-11-30 The Russian Supreme Court labelled LGBT as a movement and an “extremist organization”.

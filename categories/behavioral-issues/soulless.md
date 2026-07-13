@@ -881,3 +881,14 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.foxnews.com/video/6400948165112](https://www.foxnews.com/video/6400948165112)
 
 [https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/](https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/)
+
+
+2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
+
+[https://www.youtube.com/watch?v=7RF-1nK9zm4&list=WL&index=1&t=208s](https://www.youtube.com/watch?v=7RF-1nK9zm4&list=WL&index=1&t=208s)
+
+[https://www.tomshardware.com/tech-industry/farmer-donates-land-for-a-park-city-sells-it-for-data-center-development-usd10-gift-became-usd10m-for-city-government-with-usd30m-tax-expected-over-next-decade](https://www.tomshardware.com/tech-industry/farmer-donates-land-for-a-park-city-sells-it-for-data-center-development-usd10-gift-became-usd10m-for-city-government-with-usd30m-tax-expected-over-next-decade)
+
+[https://www.404media.co/a-farmer-donated-land-to-turn-into-a-park-the-city-is-building-a-massive-data-center-instead/](https://www.404media.co/a-farmer-donated-land-to-turn-into-a-park-the-city-is-building-a-massive-data-center-instead/)
+
+[https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion](https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion)
