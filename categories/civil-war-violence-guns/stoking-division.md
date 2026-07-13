@@ -128,6 +128,12 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 2025-06-28 Trump posted on social media, "Republicans must remember that they are fighting against a very evil, corrupt and, in many ways, incompetent (Policywise!) group of people, who would rather see our Country "go down in flames" than do the right thing”. 
 
+[https://trump-archive.com/item/8e6ef9ad-fb7e-4487-94e4-7167d4984822](https://trump-archive.com/item/8e6ef9ad-fb7e-4487-94e4-7167d4984822)
+
+[https://truthsocial.com/@realDonaldTrump/posts/114764221948518343](https://truthsocial.com/@realDonaldTrump/posts/114764221948518343)
+
+
+
 ### 2025 August
 
 2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group. 
@@ -143,6 +149,8 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 ### 2025 September 12
 
 2025-09-12 In an interview with Fox, Trump said "radicals on the right are radical because they don't want crime" but that "radicals on the left are the problem".
+
+[https://www.youtube.com/watch?v=SxzScV6HXyk](https://www.youtube.com/watch?v=SxzScV6HXyk)
 
 {% include youtubePlayer.html id="SxzScV6HXyk" %}
 

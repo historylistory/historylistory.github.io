@@ -34,6 +34,8 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked "maybe the Second Amendment supporters should 'do' something about Hillary Clinton".
 
+[https://www.youtube.com/watch?v=58SawH2FJ4Q](https://www.youtube.com/watch?v=58SawH2FJ4Q)
+
 {% include youtubePlayer.html id="58SawH2FJ4Q" %}
 
 ### 2017
@@ -180,6 +182,14 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 ### 2024 March
 
 2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
+
+[https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html](https://www.marca.com/en/lifestyle/us-news/2024/03/17/65f6f8c946163f0d418b456a.html)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746](https://www.nbcnews.com/politics/donald-trump/trump-bloodbath-loses-election-2024-rcna143746)
+
+[https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653](https://abcnews.com/Politics/trump-predicts-bloodbath-loses-2024-election-ramps-anti/story?id=108190653)
+
+[https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453](https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453)
 
 2024-03-28 Trump shared an image of a truck mural depicting President Biden bound and gagged. In a statement, Michael Tyler said, “Trump is regularly inciting political violence and it’s time people take him seriously”.
 

@@ -426,9 +426,10 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
+[https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
+
 {% include youtubePlayer.html id="NobIxw0Q3Hg" %}
 
-[https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041](https://www.nbcnews.com/politics/donald-trump/trump-calls-ilhan-omar-garbage-somalis-go-back-came-from-rcna247041)
 
 2025-12-03 Tom Emmer claimed on Fox News that 80% of crimes in Minnesota were committed by Somalis.
 
