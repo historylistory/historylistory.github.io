@@ -16,6 +16,6 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 
 
-### Military
+### Questions in progress
 
-(QUESTION IN PROGRESS, NOT READY) 
+working on it

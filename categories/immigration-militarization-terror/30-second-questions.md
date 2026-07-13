@@ -14,32 +14,9 @@ These questions are all being managed by one (1) person, so edit and correct the
 
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
-### Crime 
+### Questions in progress
 
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Deaths
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Excessive Force
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Gestapo
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### ICE
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Villainizing
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-
-
+working on it
 
 
 

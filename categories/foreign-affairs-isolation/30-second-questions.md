@@ -16,12 +16,6 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 
 
-### Gaza
+### Questions in progress
 
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Rules
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-
+working on it

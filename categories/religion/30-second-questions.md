@@ -15,31 +15,8 @@ These questions are all being managed by one (1) person, so edit and correct the
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
 
-### Bias
+### Questions in progress
 
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Idolatry
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Indoctrination 
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Schools
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Superiority
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Weaponizing God
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-
-
+working on it
 
 

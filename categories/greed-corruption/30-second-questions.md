@@ -14,10 +14,8 @@ These questions are all being managed by one (1) person, so edit and correct the
 
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
-### For Profit Presidency
 
-(QUESTION IN PROGRESS, NOT READY) 
 
-### OIL-igarchy
+### Questions in progress
 
-(QUESTION IN PROGRESS, NOT READY) 
+working on it
