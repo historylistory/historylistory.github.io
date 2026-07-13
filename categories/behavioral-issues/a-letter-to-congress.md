@@ -178,8 +178,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
-Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. 
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
+
 
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 

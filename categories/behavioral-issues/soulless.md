@@ -175,9 +175,18 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}
 
-### 2025 March
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
+
+[https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/why-trump-war-iran-benefits](https://www.ms.now/rachel-maddow-show/maddowblog/why-trump-war-iran-benefits)
+
+[https://www.cnn.com/2026/02/28/middleeast/maps-iran-tehran-attack-vis-intl](https://www.cnn.com/2026/02/28/middleeast/maps-iran-tehran-attack-vis-intl)
+
+[https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran](https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran)
+
+[https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked](https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked)
 
 [https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
 
@@ -194,6 +203,10 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 [https://www.kaine.senate.gov/press-releases/van-hollen-warren-kaine-press-hegseth-on-high-civilian-casualties-in-yemen-strikes-and-trump-administrations-dismantling-of-safeguards-against-civilian-harm](https://www.kaine.senate.gov/press-releases/van-hollen-warren-kaine-press-hegseth-on-high-civilian-casualties-in-yemen-strikes-and-trump-administrations-dismantling-of-safeguards-against-civilian-harm)
 
 [https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
+
+
+### 2025 March
+
 
 2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 

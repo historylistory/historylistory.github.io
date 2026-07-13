@@ -85,7 +85,7 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-02-27 The Trump administration targeted legal oversight of military lawyers, stating their enforcement of law were potential “roadblocks” to Trump’s orders.
 
-2025-03-01 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children.
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
 2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 

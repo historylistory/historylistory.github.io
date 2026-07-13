@@ -174,7 +174,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
-2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
+
 
 2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism.
 
@@ -282,3 +283,4 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-09 A new poll from AP NORC showed that some Jewish Americans are tired of Netanyahu and perhaps don't feel like they are supported by any political party. 
 
+2026-07-13 The Trump administration vowed to disable the International Criminal Court. 

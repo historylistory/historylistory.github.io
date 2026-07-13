@@ -8,5 +8,4 @@ permalink: /categories/crime-defiance/war-crimes/
 
 ### COMMENT
 
-See section [https://historylistory.com/categories/crime-defiance/war-crimes](https://historylistory.com/categories/crime-defiance/war-crimes)
-
+See section [Red Flags / War Crimes](https://historylistory.com/categories/red-flags/war-crimes)

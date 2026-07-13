@@ -370,3 +370,11 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://thehill.com/homenews/house/5964095-khanna-detained-israeli-settlers/](https://thehill.com/homenews/house/5964095-khanna-detained-israeli-settlers/)
 
 [https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank](https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank)
+
+2026-07-13 The Trump administration vowed to disable the International Criminal Court. 
+
+[https://www.aljazeera.com/news/2026/7/13/trump-administration-vows-to-disable-international-criminal-court](https://www.aljazeera.com/news/2026/7/13/trump-administration-vows-to-disable-international-criminal-court)
+
+[https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/](https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/)
+
+[https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813](https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813)

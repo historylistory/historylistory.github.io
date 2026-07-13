@@ -448,7 +448,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-02-27 Trump tried to push an executive order granting him total emergency federal oversight of upcoming elections, again alleging fraud in the 2020 election and interference by China.
 
-2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
 2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 

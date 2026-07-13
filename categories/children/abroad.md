@@ -109,7 +109,7 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/](https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/)
 
-2026-02-28 On the first day of Trump’s elective war in Iran, the US –  in joint efforts with Israel – bombed an all-girl’s school, killing at least 170 schoolgirls. The US did not seek Congressional or international approval and had no proof there was an imminent threat. Before an investigation was opened, Trump claimed maybe Iran bombed themselves. 
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
 [https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
 
@@ -120,6 +120,23 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 [https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran](https://www.cfr.org/articles/gauging-the-impact-of-massive-u-s-israeli-strikes-on-iran)
 
 [https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked](https://www.democracynow.org/2026/02/28/special_report_us_israel_launch_unprovoked)
+
+[https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/](https://www.theatlantic.com/national-security/2026/03/us-civilian-casualties-iran/686292/)
+
+[https://www.propublica.org/article/trump-defense-department-iran-hegseth-civilian-casualties](https://www.propublica.org/article/trump-defense-department-iran-hegseth-civilian-casualties)
+
+[https://media.defense.gov/2022/Aug/25/2003064740/-1/-1/1/CIVILIAN-HARM-MITIGATION-AND-RESPONSE-ACTION-PLAN.PDF](https://media.defense.gov/2022/Aug/25/2003064740/-1/-1/1/CIVILIAN-HARM-MITIGATION-AND-RESPONSE-ACTION-PLAN.PDF)
+
+[https://www.defenseone.com/threats/2026/03/hegseth-cites-irans-reluctance-sign-new-nuclear-deal-impetus-war/411871/](https://www.defenseone.com/threats/2026/03/hegseth-cites-irans-reluctance-sign-new-nuclear-deal-impetus-war/411871/)
+
+[https://outsidethebeltway.com/pentagon-killed-civilian-protection-program-leading-to-killing-civilians/](https://outsidethebeltway.com/pentagon-killed-civilian-protection-program-leading-to-killing-civilians/)
+
+[https://www.vox.com/the-logoff-newsletter-trump/482187/us-strike-girls-school-minab-iran-investigation-findings](https://www.vox.com/the-logoff-newsletter-trump/482187/us-strike-girls-school-minab-iran-investigation-findings)
+
+[https://www.kaine.senate.gov/press-releases/van-hollen-warren-kaine-press-hegseth-on-high-civilian-casualties-in-yemen-strikes-and-trump-administrations-dismantling-of-safeguards-against-civilian-harm](https://www.kaine.senate.gov/press-releases/van-hollen-warren-kaine-press-hegseth-on-high-civilian-casualties-in-yemen-strikes-and-trump-administrations-dismantling-of-safeguards-against-civilian-harm)
+
+[https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
+
 
 ### 2026 March
 
