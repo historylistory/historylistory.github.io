@@ -88,6 +88,13 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape](https://www.carbon-direct.com/insights/reconciliation-bill-dramatically-shifts-the-clean-energy-landscape)
 
+2025-07-28 Retrofitting the gifted Qatari 747 into Air Force One was estimated at $1BN in taxpayer dollars. 
+
+[https://www.nbcnews.com/politics/national-security/turning-qatari-747-air-force-one-cost-1-billion-take-years-experts-say-rcna206582](https://www.nbcnews.com/politics/national-security/turning-qatari-747-air-force-one-cost-1-billion-take-years-experts-say-rcna206582)
+
+[https://www.newsweek.com/donald-trump-air-force-one-gift-qatar-2104988](https://www.newsweek.com/donald-trump-air-force-one-gift-qatar-2104988)
+
+
 ### 2025 August
 
 2025-08-05 Critics accused DOGE of indiscriminate cuts to agriculture, education, science, infrastructure, and environmental programs despite promises of “surgical” reductions.

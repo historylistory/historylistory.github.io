@@ -203,3 +203,14 @@ PAYWALL [https://www.forbes.com/sites/maryroeloffs/2026/04/16/pete-hegseth-quote
 
 [https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7](https://www.youtube.com/watch?v=kYDam-6Xgro&list=WL&index=7)
 
+### 2026 July
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
+[https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s](https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s)
+
+[https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html](https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html)
+
+[https://www.youtube.com/watch?v=guwQj-uwRiM](https://www.youtube.com/watch?v=guwQj-uwRiM)
+
+[https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/](https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/)

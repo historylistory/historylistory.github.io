@@ -298,6 +298,9 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-07-01 A group of traditionalist Catholics gathered in Switzerland to break away from the Catholic church, ordain its own bishops and condemn Pope Leo XIV’s authority.
 
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
 2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
 
 2026-07-02 The Vatican excommunicated six bishops from the ultraconservative Society of St Pius X.

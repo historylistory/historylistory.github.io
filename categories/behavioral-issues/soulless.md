@@ -257,6 +257,14 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 
+### 2026 July
+
+2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
+
+[https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says](https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says)
+
+[https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl](https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl)
+
 ### 2025 September
 
 2025-09-18 Kristi Noem released an ICE raid montage set to Nirvana’s “Smells Like Teen Spirit”. 

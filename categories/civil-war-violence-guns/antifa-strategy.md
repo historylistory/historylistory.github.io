@@ -155,6 +155,17 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 
 ### 2026 July
 
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
+[https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s](https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s)
+
+[https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html](https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html)
+
+[https://www.youtube.com/watch?v=guwQj-uwRiM](https://www.youtube.com/watch?v=guwQj-uwRiM)
+
+[https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/](https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/)
+
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
 
 [https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail](https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail)

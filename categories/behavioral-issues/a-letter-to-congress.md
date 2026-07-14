@@ -225,6 +225,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
+2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
+
 2025-08-01 Viewers speculated Jeanine Pirro appeared to be intoxicated publicly.
 
 2025-08-06 Tim Cook presented Trump with a gold-themed plaque during Apple investment announcements. Numerous CEOs exhibited sycophancy during this term. The term “apple polisher” is an informal, often derogatory term for a sycophant or a "suck-up."

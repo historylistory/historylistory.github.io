@@ -33,6 +33,22 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 **Offshore Accounts:** Deferral of earnings, bypassing the Foreign Account Tax Compliance Act, transferring patents or trademarks to offshore subsidiaries at low costs then licensing them back to the US parent at a high cost (this generates large tax-deductible expenses), using IRS Form 8832 to make the entity “disappear” for tax purposes. This is legal except if it’s used to hide income (which is tax evasion). 
 
+### 2017
+
+2017-11-02 the Tax Cuts and Jobs Act of 2017 was enacted to overhaul the IRS code by permanently reducing corporate tax rates from 35% to 21%.  Results were the largest stock buyback in history and rich people taking their own tax breaks while inflating their own wealth. 
+
+[https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses](https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses)
+
+[https://taxpolicycenter.org/briefing-book/how-did-tax-cuts-and-jobs-act-change-personal-taxes](https://taxpolicycenter.org/briefing-book/how-did-tax-cuts-and-jobs-act-change-personal-taxes)
+
+[https://www.bloomberg.com/news/articles/2024-05-02/apple-s-110-billion-stock-buyback-plan-is-largest-in-us-history](https://www.bloomberg.com/news/articles/2024-05-02/apple-s-110-billion-stock-buyback-plan-is-largest-in-us-history)
+
+[https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957](https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957)
+
+[https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/](https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/)
+
+
+
 ### 2024 January
 
 2024-01-10 The top 10% of Americans own 93% of US equities. 

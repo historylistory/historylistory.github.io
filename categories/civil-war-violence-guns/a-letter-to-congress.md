@@ -543,6 +543,9 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
 
 2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 

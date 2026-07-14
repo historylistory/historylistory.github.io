@@ -61,6 +61,14 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
+### 2025 July
+
+2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
+
+[https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says](https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says)
+
+[https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl](https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl)
+
 ### 2025 September
 
 2025-09-16 The UN Independent International Commission issued a 72-page report condemning the Israeli government of violating 4-out-of-5 acts prohibited under the 1948 Genocide Convention.

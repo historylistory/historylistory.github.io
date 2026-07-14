@@ -130,3 +130,10 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 [https://deadline.com/2026/06/druski-whiteface-bet-awards-promo-1236961489/](https://deadline.com/2026/06/druski-whiteface-bet-awards-promo-1236961489/)
 
+2026-05-14 The DOJ investigated Yale for discriminating against white and Asian applicants. 
+
+[https://www.ctinsider.com/connecticut/article/yale-responds-doj-admissions-investigation-22343321.php](https://www.ctinsider.com/connecticut/article/yale-responds-doj-admissions-investigation-22343321.php)
+
+[https://www.justice.gov/opa/pr/justice-department-investigation-determines-yales-medical-school-discriminated-based-race](https://www.justice.gov/opa/pr/justice-department-investigation-determines-yales-medical-school-discriminated-based-race)
+
+[https://president.yale.edu/posts/2026-07-13-message-from-the-president](https://president.yale.edu/posts/2026-07-13-message-from-the-president)

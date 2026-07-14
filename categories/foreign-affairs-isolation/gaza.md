@@ -114,6 +114,13 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 
+2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
+
+[https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says](https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says)
+
+[https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl](https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl)
+
+
 2025-07-25 BBC interviewed a U.S. Green Beret Colonel Anthony Aguilar and his first-person account of Israeli forces shooting at Palestinians trying to get aid.
 
 [https://www.bbc.com/news/videos/cy8k8045nx9o](https://www.bbc.com/news/videos/cy8k8045nx9o)

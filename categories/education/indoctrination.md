@@ -196,6 +196,17 @@ h[ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-t
 
 ### 2026 July
 
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
+[https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s](https://www.youtube.com/watch?v=4g9xdwfoGk8&list=WL&index=3&t=9s)
+
+[https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html](https://www.yahoo.com/news/us/articles/fact-check-video-mock-execution-230000202.html)
+
+[https://www.youtube.com/watch?v=guwQj-uwRiM](https://www.youtube.com/watch?v=guwQj-uwRiM)
+
+[https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/](https://www.ksnt.com/news/national/church-faces-pushback-over-skit-depicting-devil-executed-by-firing-squad-at-youth-event/)
+
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
 
 [https://people.com/west-virginia-anti-woke-university-program-12016314](https://people.com/west-virginia-anti-woke-university-program-12016314)

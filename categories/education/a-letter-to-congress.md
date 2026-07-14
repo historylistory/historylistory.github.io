@@ -276,4 +276,7 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
 
+
+2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
+
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 

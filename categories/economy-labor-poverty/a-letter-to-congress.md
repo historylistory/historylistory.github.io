@@ -83,6 +83,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
+2017-11-02 the Tax Cuts and Jobs Act of 2017 was enacted to overhaul the IRS code by permanently reducing corporate tax rates from 35% to 21%.  Results were the largest stock buyback in history and rich people taking their own tax breaks while inflating their own wealth. 
+
 2017-11-24 Trump attempted to dismantle the Consumer Financial Protection Bureau.
 
 2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017 which widened the deficit and caused a120% “billionaire boom”.
@@ -304,6 +306,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-07-24 Trump signed off on an $8.4B merger between Paramount and Skydance.
 
 2025-07-24 Senators requested an investigation into corruption and bribery related to the Paramount megamerger.
+
+2025-07-28 Retrofitting the gifted Qatari 747 into Air Force One was estimated at $1BN in taxpayer dollars. 
 
 2025-07-30 Trump pressured Jerome Powell to lower interest rates. The Federal Reserve pushed back, maintaining that rate cuts are dependent upon economic data and not political pressure.
 
