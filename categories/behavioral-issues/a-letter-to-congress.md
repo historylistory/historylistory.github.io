@@ -704,7 +704,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
 
-2026-07-12 Lindsey Graham died at 71. 
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
 
 2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
 

@@ -52,6 +52,18 @@ permalink: /categories/women-reproductive-rights/assault/
 
 [https://www.theatlantic.com/politics/2013/02/heres-who-voted-against-violence-against-women-act/317872/](https://www.theatlantic.com/politics/2013/02/heres-who-voted-against-violence-against-women-act/317872/)
 
+2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
+[https://www.youtube.com/watch?v=3xSCSM3E-9E&list=WL&index=2](https://www.youtube.com/watch?v=3xSCSM3E-9E&list=WL&index=2)
+
+[https://thehill.com/policy/defense/151809-sen-graham-treads-path-alone-on-military-sexual-assaults-policy/](https://thehill.com/policy/defense/151809-sen-graham-treads-path-alone-on-military-sexual-assaults-policy/)
+
+[https://www.c-span.org/program/public-affairs-event/military-sexual-assault-crimes-response-part-3/336886](https://www.c-span.org/program/public-affairs-event/military-sexual-assault-crimes-response-part-3/336886)
+
+[https://www.nbcnews.com/think/opinion/women-military-deserve-more-thank-yous-they-deserve-be-safe-ncna877721](https://www.nbcnews.com/think/opinion/women-military-deserve-more-thank-yous-they-deserve-be-safe-ncna877721)
+
+[https://www.wcpinst.org/source/senate-panel-focuses-on-military-sexual-assault/](https://www.wcpinst.org/source/senate-panel-focuses-on-military-sexual-assault/)
+
 ### 2016
 
 2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.

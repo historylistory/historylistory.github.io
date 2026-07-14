@@ -82,6 +82,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2013-02-28 Multiple GOP members voted against the Violence Against Women Act which was established in 1994.
 
+2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
 2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.
 
 2017-01-03 News stories circulated around, “Make America Mate Again”.

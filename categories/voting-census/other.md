@@ -185,3 +185,18 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 [https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security](https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security)
 
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+
+[https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s](https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s)
+
+[https://www.foxnews.com/video/6400948165112](https://www.foxnews.com/video/6400948165112)
+
+[https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/](https://www.cbsnews.com/news/senator-lindsey-graham-dies-after-brief-and-sudden-illness/)
+
+[https://people.com/trump-rates-lindsey-graham-99-9-out-of-100-12016958](https://people.com/trump-rates-lindsey-graham-99-9-out-of-100-12016958)
+
+[https://www.usatoday.com/story/entertainment/tv/2026/07/14/jon-stewart-monologue-trump-lindsey-graham/90911934007/](https://www.usatoday.com/story/entertainment/tv/2026/07/14/jon-stewart-monologue-trump-lindsey-graham/90911934007/)
+
+[https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/](https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/)
+
+[https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732])https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732

@@ -6,6 +6,21 @@ subcategory_slug: women
 permalink: /categories/military-veterans/women/
 ---
 
+### 2013 
+
+2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
+[https://www.youtube.com/watch?v=3xSCSM3E-9E&list=WL&index=2](https://www.youtube.com/watch?v=3xSCSM3E-9E&list=WL&index=2)
+
+[https://thehill.com/policy/defense/151809-sen-graham-treads-path-alone-on-military-sexual-assaults-policy/](https://thehill.com/policy/defense/151809-sen-graham-treads-path-alone-on-military-sexual-assaults-policy/)
+
+[https://www.c-span.org/program/public-affairs-event/military-sexual-assault-crimes-response-part-3/336886](https://www.c-span.org/program/public-affairs-event/military-sexual-assault-crimes-response-part-3/336886)
+
+[https://www.nbcnews.com/think/opinion/women-military-deserve-more-thank-yous-they-deserve-be-safe-ncna877721](https://www.nbcnews.com/think/opinion/women-military-deserve-more-thank-yous-they-deserve-be-safe-ncna877721)
+
+[https://www.wcpinst.org/source/senate-panel-focuses-on-military-sexual-assault/](https://www.wcpinst.org/source/senate-panel-focuses-on-military-sexual-assault/)
+
+
 ### 2024
 
 2024-11-15 During a podcast promoting his book, Pete Hegseth stated “I’m straight up just saying we shouldn’t have women in combat roles”.
@@ -78,3 +93,4 @@ PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-na
 PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
 
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
+

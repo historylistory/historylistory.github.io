@@ -99,6 +99,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
 
+2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
 2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
 2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
@@ -319,3 +321,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump.
 
 2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 
+
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
