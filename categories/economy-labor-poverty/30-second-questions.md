@@ -33,15 +33,3 @@ SOURCES:
 
 * CONGRESS December 30, 2019: A Congressional report that supports all the above claims can be found here: [Congress.gov R45908](https://www.congress.gov/crs-product/R45908)
 
-
-### Revenue
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Oil
-
-(QUESTION IN PROGRESS, NOT READY) 
-
-### Food Insecurity
-
-(QUESTION IN PROGRESS, NOT READY) 
