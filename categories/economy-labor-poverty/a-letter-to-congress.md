@@ -916,3 +916,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
 
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
+
+2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 

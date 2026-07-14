@@ -296,3 +296,12 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 [https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824](https://www.wfaa.com/article/news/politics/inside-politics/texas-politics/texas-ag-commissioner-calls-out-governor-demands-special-session-to-address-data-center-concerns/287-26da21de-cb39-4085-86e0-f1f8c22c1824)
 
 [https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef](https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef)
+
+2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
+
+[https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/](https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/)
+
+[https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449](https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449)
+
+h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)
+

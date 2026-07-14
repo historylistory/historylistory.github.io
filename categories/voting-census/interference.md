@@ -362,3 +362,11 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 [https://thehill.com/homenews/campaign/5963244-trump-fires-election-commissioners-interference-fears/](https://thehill.com/homenews/campaign/5963244-trump-fires-election-commissioners-interference-fears/)
 
 [https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process](https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process)
+
+2026-07-13 A federal judge rejected the DOJ’s attempt to subpoena Georgia for names of election workers in Fulton county. 
+
+[https://www.democracynow.org/2026/7/13/headlines/federal_judge_rejects_doj_subpoena_seeking_names_of_election_workers_in_fulton_county_from_the_2020_election](https://www.democracynow.org/2026/7/13/headlines/federal_judge_rejects_doj_subpoena_seeking_names_of_election_workers_in_fulton_county_from_the_2020_election)
+
+[https://www.gpb.org/news/2026/07/11/justice-department-subpoenas-new-york-times-reporters-over-air-force-one-reporting](https://www.gpb.org/news/2026/07/11/justice-department-subpoenas-new-york-times-reporters-over-air-force-one-reporting)
+
+[https://georgiarecorder.com/briefs/doj-cant-subpoena-fulton-county-election-workers-information-trump-appointed-judge-rules/](https://georgiarecorder.com/briefs/doj-cant-subpoena-fulton-county-election-workers-information-trump-appointed-judge-rules/)

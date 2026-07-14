@@ -388,3 +388,12 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 [https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633](https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633)
 
 [https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/](https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/)
+
+2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
+
+[https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/](https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/)
+
+[https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449](https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449)
+
+h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)
+

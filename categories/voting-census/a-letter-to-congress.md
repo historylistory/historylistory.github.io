@@ -354,3 +354,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-07-10 Trump fired the last of the Election Assistance Commission members Hicks and Hoveland. McCormick resigned and Palmer stepped down back in April to join Heritage Foundation.
 
 2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+
+
+
+2026-07-13 A federal judge rejected the DOJ’s attempt to subpoena Georgia for names of election workers in Fulton county. 

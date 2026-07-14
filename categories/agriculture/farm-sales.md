@@ -105,3 +105,13 @@ permalink: /categories/agriculture/farm-sales/
 [https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1](https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1)
 
 [https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/](https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/)
+
+### 2026 July
+
+2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
+
+[https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/](https://www.reuters.com/business/usda-lowers-beef-export-sales-by-90-amid-growing-doubts-over-data-2026-07-09/)
+
+[https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449](https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449)
+
+h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)

@@ -344,3 +344,15 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk](https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk)
 
 SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees](https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees)
+
+### 2026 July
+
+
+2026-07-13 Trump charged Marco Rubio with running Venezuela. 
+
+[https://www.commondreams.org/news/marco-rubio-venezuela-viceroy](https://www.commondreams.org/news/marco-rubio-venezuela-viceroy)
+
+[https://www.yahoo.com/news/politics/articles/marco-rubio-turning-venezuela-colony-100000448.html](https://www.yahoo.com/news/politics/articles/marco-rubio-turning-venezuela-colony-100000448.html)
+
+PAY WALL [https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html](https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html)
+

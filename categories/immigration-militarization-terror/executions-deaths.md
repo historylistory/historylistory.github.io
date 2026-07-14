@@ -284,3 +284,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting](https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting)
 
+2026-07-14 ICE officers killed a 26-year-old father in Maine, claiming the victim tried to hit DHS with his vehicle. Witnesses say his last words as he bled profusely from the head was, “I tried to stop”. 
+
+[https://www.youtube.com/watch?v=KCMqyjtMkIA&list=WL&index=4](https://www.youtube.com/watch?v=KCMqyjtMkIA&list=WL&index=4)
+
+[https://www.cnn.com/2026/07/13/us/live-news/maine-ice-shooting-houston-minnesota](https://www.cnn.com/2026/07/13/us/live-news/maine-ice-shooting-houston-minnesota)
+
+[https://www.aljazeera.com/news/2026/7/14/ice-kills-26-year-old-in-maine-what-happened-and-who-else-has-ice-killed](https://www.aljazeera.com/news/2026/7/14/ice-kills-26-year-old-in-maine-what-happened-and-who-else-has-ice-killed)
+
+[https://www.pbs.org/newshour/nation/ice-shot-and-killed-a-colombian-man-in-maine-this-is-the-2nd-time-in-a-week-the-agency-used-deadly-force](https://www.pbs.org/newshour/nation/ice-shot-and-killed-a-colombian-man-in-maine-this-is-the-2nd-time-in-a-week-the-agency-used-deadly-force)
