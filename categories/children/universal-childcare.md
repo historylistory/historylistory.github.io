@@ -74,9 +74,10 @@ permalink: /categories/children/universal-childcare/
 
 [https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf](https://www.congress.gov/119/meeting/house/118871/documents/HHRG-119-JU08-20260121-SD032.pdf)
 
+[https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
+
 {% include youtubePlayer.html id="_z47VqygrQw" %}
 
-[https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video](https://www.mprnews.org/story/2025/12/31/somali-child-care-providers-report-vandalism-threats-after-viral-video)
 
 2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.”
 

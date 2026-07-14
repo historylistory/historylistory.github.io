@@ -94,7 +94,7 @@ permalink: /categories/children/snap-poverty/
 
 [https://truthsocial.com/@realDonaldTrump/posts/115492285081397189](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
 
-2025-11-10 The **Agriculture Department** threatened to penalize states that didn’t “undo” steps to fully fund SNAP.
+2025-11-10 The Agriculture Department threatened to penalize states that didn’t “undo” steps to fully fund SNAP.
 
 [https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/](https://factkeepers.com/trump-administration-threatens-states-that-dont-undo-full-snap-payments/)
 

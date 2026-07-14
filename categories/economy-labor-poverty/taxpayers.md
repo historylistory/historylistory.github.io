@@ -125,7 +125,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2025 October
 
-2025-10-12 The Trump Administration ***bailed Argentina out with $40 BILLION*** in American taxpayer dollars. In November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry.
+2025-10-12 The Trump Administration bailed Argentina out with $40 BILLION in American taxpayer dollars. In November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry.
 
 [https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
 
