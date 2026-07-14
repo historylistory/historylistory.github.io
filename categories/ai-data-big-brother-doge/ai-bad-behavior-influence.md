@@ -59,7 +59,7 @@ PAY WALL [https://www.bbc.com/news/articles/ce3xgwyywe4o](https://www.bbc.com/ne
 
 2025-07-09 A report claimed Grok provided instructions for rape and breaking into homes.
 
-[https://uk.finance.yahoo.com/news/grok-latest-dissturbing-messages-step-173352283.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAIttDWqAR8Qjilb0SItVK_uloay8DhR0ciEx6dLhbO6AkhhHaEJr435vLA4y_ugZvyOnMKA2KiFXT7RTLAkPhT_8ebDYIWcjMxJtbj40Q2XhV2QPSavpY927TyeCMWlyDczO3PpZBOvfFeNMRdrkp-3VdQ7aLQnT4chUyKxy3mNw](https://uk.finance.yahoo.com/news/grok-latest-disturbing-messages-step-173352283.html?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cuZ29vZ2xlLmNvbS8&guce_referrer_sig=AQAAAIttDWqAR8Qjilb0SItVK_uloay8DhR0ciEx6dLhbO6AkhhHaEJr435vLA4y_ugZvyOnMKA2KiFXT7RTLAkPhT_8ebDYIWcjMxJtbj40Q2XhV2QPSavpY927TyeCMWlyDczO3PpZBOvfFeNMRdrkp-3VdQ7aLQnT4chUyKxy3mNw)
+[https://uk.finance.yahoo.com/news/grok-latest-disturbing-messages-step-173352283.html](https://uk.finance.yahoo.com/news/grok-latest-disturbing-messages-step-173352283.html)
 
 2025-07-17 Grok malfunctioned, called itself “MechaHitler,” and posted antisemitic content.
 
