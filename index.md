@@ -18,7 +18,7 @@ This is also a database of town hall questions, letters to congress, and amazing
 Check out [MY PURPOSE PAGE HERE](https://historylistory.com/purpose-disclaimer/) if you'd like to understand a little bit more about why I am making this. 
 
 This site does not track users, there's no money or sub, nobody is asking for anything. So please, spread the word and pass the site along. 
----
+
 
 ### Important Notes
 
