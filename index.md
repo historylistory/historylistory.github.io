@@ -11,13 +11,13 @@ If you are using the phone app, select MENU at the upper left to get started
 
 ### What You'll Find Here
 
-This is not JUST a database of everything (almost everything) the Trump administration and his lackeys have done.
+This is not JUST a database of (almost) everything the Trump administration and his lackeys have done.
 
-This is also a database of town hall questions, letters to congress, and amazing links.
+This is also a database of 30-second town hall questions, template letters to Congress, and helpful links.
 
-Check out [MY PURPOSE PAGE HERE](https://historylistory.com/purpose-disclaimer/) if you'd like to understand a little bit more about why I am making this. 
+Check out [MY PURPOSE PAGE HERE](https://historylistory.com/purpose-disclaimer/) if you'd like to know more. 
 
-This site does not track users, there's no money or sub, nobody is asking for anything. So please, spread the word and pass the site along. 
+This site does not track users, require subscription or promote ads. So please, spread the word and pass the site along. 
 
 
 ### Important Notes
