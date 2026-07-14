@@ -375,3 +375,22 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 [https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
 
 [https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1](https://www.youtube.com/watch?v=GS6ETupSVVw&list=WL&index=1)
+
+### 2026 July
+
+2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
+
+[https://punchbowl.news/article/house/johnson-pressure/](https://punchbowl.news/article/house/johnson-pressure/)
+
+[https://thehill.com/policy/defense/5967749-house-republicans-defense-funding-hegseth-pentagon/](https://thehill.com/policy/defense/5967749-house-republicans-defense-funding-hegseth-pentagon/)
+
+[https://www.commondreams.org/news/johnson-us-military-communism](https://www.commondreams.org/news/johnson-us-military-communism)
+
+2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 
+
+[https://thehill.com/policy/defense/5967878-senate-democrats-block-ndaa/](https://thehill.com/policy/defense/5967878-senate-democrats-block-ndaa/)
+
+[https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638](https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638)
+
+[https://www.cbsnews.com/news/senate-democrats-ndaa-iran/](https://www.cbsnews.com/news/senate-democrats-ndaa-iran/)
+

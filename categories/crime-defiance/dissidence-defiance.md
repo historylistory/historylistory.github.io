@@ -509,3 +509,12 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.youtube.com/watch?v=9z3eKsygyrc](https://www.youtube.com/watch?v=9z3eKsygyrc)
 
 [https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/](https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/)
+
+2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 
+
+[https://www.reuters.com/world/us-judge-voids-trumps-settlement-with-irs-2026-07-13/](https://www.reuters.com/world/us-judge-voids-trumps-settlement-with-irs-2026-07-13/)
+
+[https://apnews.com/article/trump-irs-justice-department-61adebe5de8982eb214b30889ad4f251](https://apnews.com/article/trump-irs-justice-department-61adebe5de8982eb214b30889ad4f251)
+
+[https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41](https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41)
+

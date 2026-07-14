@@ -745,3 +745,5 @@ Next
 2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 
 
 2026-07-14 ICE officers killed a 26-year-old father in Maine, claiming the victim tried to hit DHS with his vehicle. Witnesses say his last words as he bled profusely from the head was, “I tried to stop”. 
+
+2026-07-14 Mexico filed a criminal complaint on the US for migrant deaths in custody. 

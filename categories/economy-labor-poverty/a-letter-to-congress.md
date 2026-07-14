@@ -918,3 +918,13 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
 
 2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
+
+2026-07-13 Trump claimed the US would be guardian over the Strait of Hormuz and change a 20% fee for cargo shipped through. 
+
+2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 
+
+2026-07-14 Twelve states sued Paramount over the $111B Warner takeover. 
+
+2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
+
+2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 

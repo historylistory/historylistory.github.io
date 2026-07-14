@@ -624,3 +624,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
 
 2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
+
+2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 

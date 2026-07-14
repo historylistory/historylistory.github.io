@@ -397,3 +397,8 @@ SUB WALL [https://fortune.com/2026/04/30/national-debt-larger-than-economy-gdp-r
 
 h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)
 
+2026-07-13 Trump claimed the US would be guardian over the Strait of Hormuz and change a 20% fee for cargo shipped through. 
+
+[https://www.cbsnews.com/live-updates/us-iran-war-trump-ceasefire-attacks-strait-of-hormuz/](https://www.cbsnews.com/live-updates/us-iran-war-trump-ceasefire-attacks-strait-of-hormuz/)
+
+SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz-fee-00994508](https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz-fee-00994508)

@@ -296,6 +296,15 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger](https://www.npr.org/2026/04/23/nx-s1-5793628/warner-bros-discovery-paramount-skydance-merger)
 
+2026-07-14 Twelve states sued Paramount over the $111B Warner takeover. 
+
+[https://www.hollywoodreporter.com/business/business-news/paramount-sued-warner-bros-merger-1236631313/](https://www.hollywoodreporter.com/business/business-news/paramount-sued-warner-bros-merger-1236631313/)
+
+[https://www.cbc.ca/news/entertainment/paramount-warner-merger-opposition-9.7269326](https://www.cbc.ca/news/entertainment/paramount-warner-merger-opposition-9.7269326)
+
+[https://www.npr.org/2026/07/13/nx-s1-5879286/paramount-warner-bros-discovery-lawsuit](https://www.npr.org/2026/07/13/nx-s1-5879286/paramount-warner-bros-discovery-lawsuit)
+
+
 
 ### Pharma
 

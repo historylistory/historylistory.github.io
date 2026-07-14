@@ -559,3 +559,27 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://westvirginiawatch.com/2026/07/08/one-student-enrolled-in-wvu-washington-center-after-gop-lawmakers-mandate-creation-of-program/](https://westvirginiawatch.com/2026/07/08/one-student-enrolled-in-wvu-washington-center-after-gop-lawmakers-mandate-creation-of-program/)
 
 [https://www.the-independent.com/news/world/americas/us-politics/west-virginia-university-woke-washington-center-b3012708.html](https://www.the-independent.com/news/world/americas/us-politics/west-virginia-university-woke-washington-center-b3012708.html)
+
+2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 
+
+[https://www.reuters.com/world/us-judge-voids-trumps-settlement-with-irs-2026-07-13/](https://www.reuters.com/world/us-judge-voids-trumps-settlement-with-irs-2026-07-13/)
+
+[https://apnews.com/article/trump-irs-justice-department-61adebe5de8982eb214b30889ad4f251](https://apnews.com/article/trump-irs-justice-department-61adebe5de8982eb214b30889ad4f251)
+
+[https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41](https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41)
+
+2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
+
+[https://punchbowl.news/article/house/johnson-pressure/](https://punchbowl.news/article/house/johnson-pressure/)
+
+[https://thehill.com/policy/defense/5967749-house-republicans-defense-funding-hegseth-pentagon/](https://thehill.com/policy/defense/5967749-house-republicans-defense-funding-hegseth-pentagon/)
+
+[https://www.commondreams.org/news/johnson-us-military-communism](https://www.commondreams.org/news/johnson-us-military-communism)
+
+2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 
+
+[https://thehill.com/policy/defense/5967878-senate-democrats-block-ndaa/](https://thehill.com/policy/defense/5967878-senate-democrats-block-ndaa/)
+
+[https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638](https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638)
+
+[https://www.cbsnews.com/news/senate-democrats-ndaa-iran/](https://www.cbsnews.com/news/senate-democrats-ndaa-iran/)
