@@ -17,11 +17,25 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-President Trump created a federal task force to eradicate what he calls “anti-Christian bias.” The FBI has documented thousands of religion-based hate crimes, with Jewish Americans targeted most often and Muslim and Sikh Americans also facing substantial hostility. Hindu, Buddhist, and other minority-faith communities experience harassment and discrimination as well. If anti-Christian bias warrants its own federal task force, will you support equally empowered protections for every faith, or explain why one religion deserves a special government response that others do not?
+(THIS QUESTION IS SIMILAR TO #2) President Trump created a federal task force to eradicate what he calls “anti-Christian bias.” The FBI has documented thousands of religion-based hate crimes, with Jewish Americans targeted most often and Muslim and Sikh Americans also facing substantial hostility. Hindu, Buddhist, and other minority-faith communities experience harassment and discrimination as well. If anti-Christian bias warrants its own federal task force, will you support equally empowered protections for every faith, or explain why one religion deserves a special government response that others do not?
 
 SOME SOURCES
 
-still working on it...come back in a few minutes
+* MUSLIMS January 24, 2026: Texas Education Freedom Account allegedly excluded Muslim private schools from state voucher program [Texas Tribune.org](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
+
+* MUSLIMS June 13, 2026: Texas GOP convention “Don’t Sharia My Texas” they excluded Muslim attended and accused Muslims of having a “fake God” [Houston Public Media.org](https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/)
+
+* MUSLIMS January 28, 2017: Trump banned six Muslim majority countries [Amnesty.org.uk](https://www.amnesty.org.uk/licence-discriminate-trumps-muslim-refugee-ban)
+
+* MUSLIMS November 18, 2025: Texas Governor Greg Abbot deemed the Council on American-Islamic Relations a terrorist organization [Texas Tribune.org](https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/)
+
+* JEWS July 5, 2025: Trump used the term “shylock” during a rally [BBC.com](https://www.bbc.com/news/articles/c80p3v0xx53o)
+
+* JEWS March 12, 2026: A synagogue in Michigan was attacked [Free Press.com](https://www.freep.com/story/news/local/michigan/2026/03/13/temple-israel-attack-rabbi-reactions/89127354007/)
+
+* EXCLUSION June 4, 2026: The Pentagon dropped 180 faiths from the military’s recognized religions list [Military.com](https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list)
+
+* THREATS July 13, 2026: MAGA pastor Joel Webbon suggested seizing and imprisoning pastors of other faiths [Lincoln Square, YouTube](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s) Lincoln Square YouTube 
 
 ### Question 2 
 
