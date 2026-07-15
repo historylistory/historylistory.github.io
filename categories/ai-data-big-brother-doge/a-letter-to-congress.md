@@ -100,7 +100,7 @@ Technology should serve the public—not become a tool for political retaliation
 2025-01-14 Biden signed Executive Order 14141 on AI infrastructure and environmental impacts.
 
 
-2025-01-18 The U.S. temporarily banned TikTok for about 15 hours, then pressured ByteDance to sell to a U.S. company despite CNN reporting no public evidence China harvested TikTok user data.
+2025-01-18 TikTok shut itself down for about 15 hours as Trump's ban law took effect. 
 
 2025-01-20 Trump rescinded Executive Order 14110 on safe and trustworthy AI development.
 

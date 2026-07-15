@@ -74,7 +74,9 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 [https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it](https://www.tomsguide.com/computing/thats-not-going-to-last-jeff-bezos-believes-ai-will-force-you-to-rent-your-pc-from-the-cloud-and-the-ram-crisis-is-accelerating-it)
 
-2025-01-18 The U.S. temporarily banned TikTok for about 15 hours, then pressured ByteDance to sell to a U.S. company despite CNN reporting no public evidence China harvested TikTok user data.
+2025-01-18 TikTok shut itself down for about 15 hours as Trump's ban law took effect. 
+
+TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global-sensation-trump-target-2025-09-16](https://www.reuters.com/legal/litigation/tiktoks-journey-global-sensation-trump-target-2025-09-16)
 
 [https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
 

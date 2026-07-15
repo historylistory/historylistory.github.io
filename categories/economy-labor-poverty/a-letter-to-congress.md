@@ -183,7 +183,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-01-17 TrumpCoin was launched 3 days before inauguration.
 
-2025-01-18 The U.S. temporarily banned TikTok for about 15 hours, then pressured ByteDance to sell to a U.S. company despite CNN reporting no public evidence China harvested TikTok user data.
+2025-01-18 TikTok shut itself down for about 15 hours as Trump's ban law took effect. 
 
 2025-01-20 The Trump administration froze funds to USAID. By March USAID was 83% gutted. By July 24, 2025 Trump signed the Rescissions Act of 2025 to claw back $8B in funding from USAID. Aside from foreign aid, dismantling USAID can negatively impact farm subsidies. 
 
