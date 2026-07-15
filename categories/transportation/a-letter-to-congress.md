@@ -66,7 +66,6 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-02-01 A medical transport Learjet 55 crashed in Northeast Philadelphia.
 
-2025-02-01 The Trump administration laid off several FAA employees as part of their workforce reductions.
 
 2025-02-02 A United Airlines plane caught fire before takeoff in Houston.
 
@@ -75,6 +74,8 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2025-02-06 Bering Air 445 crashed outside of Nome Alaska.
 
 2025-02-10 A plane veered off the runway and crashed into another parked plane at Scottsdale airport.
+
+2025-02-15 The Trump administration laid off several FAA employees as part of their workforce reductions.
 
 2025-02-17 A Delta Airlines plane flipped over during landing in Toronto.
 

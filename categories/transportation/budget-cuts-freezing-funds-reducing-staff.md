@@ -23,6 +23,13 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the USDOT and the NIOSH (National Institute for Occupational Safety and Health).
 
+[https://www.clasp.org/blog/cuts-to-niosh-and-osha-are-an-imminent-threat-to-all-workers/](https://www.clasp.org/blog/cuts-to-niosh-and-osha-are-an-imminent-threat-to-all-workers/)
+
+[https://www.afge.org/article/win-for-public-health-workers-as-senate-rejects-trump-cuts-to-cdc-and-niosh/](https://www.afge.org/article/win-for-public-health-workers-as-senate-rejects-trump-cuts-to-cdc-and-niosh/)
+
+[https://aflcio.org/sites/default/files/2017-07/Trump%20job%20safety%20budget%20fact%20sheet%20FY%202018.pdf](https://aflcio.org/sites/default/files/2017-07/Trump%20job%20safety%20budget%20fact%20sheet%20FY%202018.pdf)
+
+
 ### 2017 June
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
@@ -35,6 +42,8 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 [https://t4america.org/2019/03/12/presidents-budget-dramatically-cuts-transit-grants-while-usdot-sits-on-billions-of-unobligated-funds/](https://t4america.org/2019/03/12/presidents-budget-dramatically-cuts-transit-grants-while-usdot-sits-on-billions-of-unobligated-funds/)
 
+[https://www.npr.org/2019/05/16/724145472/trump-administration-cancels-nearly-1-billion-in-california-high-speed-rail-fund](https://www.npr.org/2019/05/16/724145472/trump-administration-cancels-nearly-1-billion-in-california-high-speed-rail-fund)
+
 ### 2025 January
 
 2025-01-20 Trump froze billions of dollars in federal funding for various infrastructure projects in Rhode Island. 
@@ -43,7 +52,11 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2025 February
 
-2025-02-01 The Trump administration laid off several FAA employees as part of their workforce reductions.
+2025-02-15 The Trump administration laid off several FAA employees as part of their workforce reductions.
+
+[https://thefulcrum.us/governance-legislation/federal-aviation-administration-airport-delays](https://thefulcrum.us/governance-legislation/federal-aviation-administration-airport-delays)
+
+[https://www.theguardian.com/us-news/2025/feb/17/trump-administration-faa-worker-firings](https://www.theguardian.com/us-news/2025/feb/17/trump-administration-faa-worker-firings)
 
 ### 2025 April
 

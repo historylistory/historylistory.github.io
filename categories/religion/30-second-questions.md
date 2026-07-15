@@ -21,6 +21,8 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 SOME SOURCES
 
+* FBI STATS (a lot of these FBI stat pages are archived and hard to locate, so it has been difficult finding meaningful FBI sources even with the help of AI) [https://www.justice.gov/crs/news/2023-hate-crime-statistics](https://www.justice.gov/crs/news/2023-hate-crime-statistics)
+
 * MUSLIMS January 24, 2026: Texas Education Freedom Account allegedly excluded Muslim private schools from state voucher program [Texas Tribune.org](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
 
 * MUSLIMS June 13, 2026: Texas GOP convention “Don’t Sharia My Texas” they excluded Muslim attended and accused Muslims of having a “fake God” [Houston Public Media.org](https://www.houstonpublicmedia.org/articles/news/religion/2026/06/16/554663/texas-republican-party-convention-muslims-sharia-law/)
