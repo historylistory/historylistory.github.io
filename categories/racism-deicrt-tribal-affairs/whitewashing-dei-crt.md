@@ -164,11 +164,15 @@ permalink: /categories/racism-deicrt-tribal-affairs/whitewashing-dei-crt/
 
 2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
+[https://www.youtube.com/watch?v=tJSbGOyYlUY](https://www.youtube.com/watch?v=tJSbGOyYlUY)
+
 {% include youtubePlayer.html id="tJSbGOyYlUY" %}
 
 ### 2025 September
 
 2025-09-17 The Trump administration ordered the National Park Service to remove or censor exhibits at Harpers Ferry West Virginia, including the Civil War Museum and John Brown's Fort (a key site in an 1859 abolitionist raid).
+
+[https://www.youtube.com/watch?v=4ywN-W-EWHQ](https://www.youtube.com/watch?v=4ywN-W-EWHQ)
 
 {% include youtubePlayer.html id="4ywN-W-EWHQ" %}
 
