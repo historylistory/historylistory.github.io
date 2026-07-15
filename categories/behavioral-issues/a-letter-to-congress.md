@@ -74,6 +74,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2018-06-21 Melania Trump wore an “I really don’t care, do u?” jacket while visiting migrant children at the New Hope Children’s Shelter in McAllen, TX. 
 
+2018-07-15 After a group of rescuers rejected Elon Musk’s mini sub to help rescue children from a cave, Elon Musk lashed out and called their leader a pedo on social media.  
+
 2019-05-06 Laura Loomer cried and screamed on InfoWars over her Facebook ban.
 
 2019-08-21 Trump referred to himself as “the chosen one.”

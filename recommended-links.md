@@ -75,6 +75,8 @@ permalink: /recommended-links/
 
 [Education: SIECUS.org](https://siecus.org/siecus-state-profiles/)
 
+[Education: Pencils Before Pixels](https://www.pencilsbeforepixels.org/)
+
 ---
 
 
@@ -253,6 +255,8 @@ permalink: /recommended-links/
 [Religion: MAZON.org](https://mazon.org/)
 
 [Religion: Word and Way](https://wordandway.org/)
+
+[Religion: TriFaith.org](https://www.trifaith.org/ourstory/about/)
 
 [Religion CRINGE: Doug Wilson, loves fire](https://canonplus.com/tabs/nqn/video-series/35107)
 

@@ -14,6 +14,15 @@ permalink: /categories/behavioral-issues/hubris-pride-temper/
 
 [https://www.bbc.com/news/election-us-2016-35607597](https://www.bbc.com/news/election-us-2016-35607597)
 
+### 2018
+
+2018-07-15 After a group of rescuers rejected Elon Musk’s mini sub to help rescue children from a cave, Elon Musk lashed out and called their leader a pedo on social media.  
+
+[https://www.theguardian.com/technology/2018/jul/15/elon-musk-british-diver-thai-cave-rescue-pedo-twitter](https://www.theguardian.com/technology/2018/jul/15/elon-musk-british-diver-thai-cave-rescue-pedo-twitter)
+
+[https://www.bbc.com/news/world-us-canada-50695593](https://www.bbc.com/news/world-us-canada-50695593)
+
+
 ### 2022
 
 2022-08-13 Dan Bongino spread anti-FBI rhetoric and conspiracy claims on his podcast.

@@ -18,6 +18,23 @@ permalink: /categories/economy-labor-poverty/labor/
 
 [https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers](https://www.history.com/this-day-in-history/august-5/reagan-fires-11359-air-traffic-controllers)
 
+### 2018
+
+2018-01-31 Amazon used wristbands to track worker productivity.
+
+[https://www.theguardian.com/technology/2018/jan/31/amazon-warehouse-wristband-tracking](https://www.theguardian.com/technology/2018/jan/31/amazon-warehouse-wristband-tracking)
+
+### 2022
+
+2022-08-22 Amazon workers reported harsh conditions of excessive warehouse heat, no bathroom breaks, and penalties for talking in the aisles. 
+
+[https://www.eenews.net/articles/osha-probe-could-put-amazon-in-hot-seat/](https://www.eenews.net/articles/osha-probe-could-put-amazon-in-hot-seat/)
+
+[https://www.help.senate.gov/imo/media/doc/amazon_investigation.pdf](https://www.help.senate.gov/imo/media/doc/amazon_investigation.pdf)
+
+[https://www.cnet.com/tech/services-and-software/amazon-fires-two-tech-workers-who-criticized-warehouse-conditions/](https://www.cnet.com/tech/services-and-software/amazon-fires-two-tech-workers-who-criticized-warehouse-conditions/)
+
+
 
 ### 2024
 

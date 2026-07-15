@@ -91,6 +91,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2018-01-17 Apple announced it would invest $350B in the U.S. economy over the next 5 years.
 
+2018-01-31 Amazon used wristbands to track worker productivity.
+
 2018-02-01 Trump proposed $183M in cuts to Conservation Technical Assistance, which was designed to help farmers implement conservation practices.
 
 2018-03-01 Trump imposed tariffs on foreign steel and aluminum from China.
@@ -126,6 +128,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2022-04-10 The House Oversight Committee investigated a $2 billion Saudi investment in Jared Kushner’s firm and Trump’s receipt of more than $250,000 in foreign gifts. In an article with CBS, Kushner stated he was not interested in rejoining the White House if Trump won the 2024 presidential election. In 2025, Kushner DID JOIN the White House as Trump’s special envoy in foreign affairs.
 
 2022-07-01 The US slipped to 41st place worldwide on the list of developed countries. It is no longer considered a first-world nation. 
+
+2022-08-22 Amazon workers reported harsh conditions of excessive warehouse heat, no bathroom breaks, and penalties for talking in the aisles. 
 
 2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 
 

@@ -22,6 +22,21 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 
 {% include youtubePlayer.html id="KgH7Lv2gQdk" %}
 
+### 2015
+
+2015-10-04 Google dropped their “Don’t Be Evil” motto. 
+
+[https://time.com/4060575/alphabet-google-dont-be-evil/](https://time.com/4060575/alphabet-google-dont-be-evil/)
+
+[https://www.the-independent.com/tech/google-dont-be-evil-code-conduct-removed-alphabet-a8361276.html](https://www.the-independent.com/tech/google-dont-be-evil-code-conduct-removed-alphabet-a8361276.html)
+
+### 2018
+
+2018-01-31 Amazon used wristbands to track worker productivity.
+
+[https://www.theguardian.com/technology/2018/jan/31/amazon-warehouse-wristband-tracking](https://www.theguardian.com/technology/2018/jan/31/amazon-warehouse-wristband-tracking)
+
+
 ### 2023
 
 2023-11-09 Peter Thiel called the quest for democracy “very evil”.

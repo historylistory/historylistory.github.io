@@ -58,11 +58,15 @@ Technology should serve the public—not become a tool for political retaliation
 
 2014-02-19 Google launched smart glasses.
 
+2015-10-04 Google dropped their “Don’t Be Evil” motto. 
+
 2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
 2017-04-01 Project Maven, run by Palantir, helped the Pentagon identify bomb targets.
 
 2018-01-17 Apple announced a $350B investment in the U.S. economy over 5 years.
+
+2018-01-31 Amazon used wristbands to track worker productivity.
 
 2020-09-19 Trump backed a TikTok deal where Oracle and Walmart partnered with ByteDance; Walmart would hold 7.5% and ByteDance 80%.
 
