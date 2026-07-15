@@ -17,7 +17,8 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-President Trump pressured Georgia officials to “find” enough votes to overturn his 2020 loss, his allies organized false electors, and his administration has now seized Georgia election records while trying to give the Postal Service control over which mail ballots are delivered. Congressman, if Trump again tries to use emergency or federal power to control the 2026 elections, will you oppose him, and what will you do now to protect our ballots from partisan interference?
+President Trump pressured Raffensberger to “find” enough votes to overturn his 2020 loss, his allies organized false electors, his administration has seized Georgia ballots and Puerto Rico’s voting machines. The administration has also tried to give the Postal Service power over which mail ballots are delivered. If Trump again tries to use emergency power to interfere in the 2026 elections, will you oppose him, and what will you do now to protect our ballots from partisan interference?
+
 
 SOME SOURCES
 

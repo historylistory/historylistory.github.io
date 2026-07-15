@@ -142,16 +142,6 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 [https://apnews.com/video/white-house-says-trump-was-joking-as-he-repeatedly-talks-about-canceling-midterm-elections-65084edd0c9a48599c5d4a7764e2ad81](https://apnews.com/video/white-house-says-trump-was-joking-as-he-repeatedly-talks-about-canceling-midterm-elections-65084edd0c9a48599c5d4a7764e2ad81)
 
-### 2026 February
-
-2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings.
-
-[https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/](https://thehill.com/homenews/media/5733236-gallup-stops-presidential-approval-ratings-polls/)
-
-[https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/](https://www.freep.com/story/news/local/michigan/2026/02/16/did-gallup-stop-presidential-polls-see-what-they-said/88658099007/)
-
-[https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/](https://www.usatoday.com/story/news/politics/2026/02/11/gallup-presidential-approval-rating/88629201007/)
-
 ### 2026 March
 
 2026-03-23 Steve Bannon described ICE deployments at airports as a potential "test run" for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
