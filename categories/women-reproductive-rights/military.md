@@ -78,3 +78,6 @@ PAY WALL [https://www.wsj.com/politics/national-security/hegseth-blocks-eight-na
 PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html](https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-list.html)
 
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
+
+[https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c](https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c)
+
