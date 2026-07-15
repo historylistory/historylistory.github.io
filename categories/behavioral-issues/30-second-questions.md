@@ -16,7 +16,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1
 
-You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing—and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country? 
+You call Donald Trump “unconventional” and laugh off his behavior. But would you be laughing if a Democratic president acted the same way? His supporters may enjoy the insults and antics, but they are shameful, divisive, and embarrassing, and the entire world is watching. His remarks are repeatedly racist, derogatory, and inflammatory, sometimes encouraging violence and reckless behavior. At what point will you stop excusing this conduct and admit that it is unfit for a president and dangerous for the country? 
 
 SOME SOURCES:
 
@@ -51,7 +51,7 @@ SOME SOURCES:
 
 ### Question 2
 
-The president’s words carry enormous influence. He has quipped about injecting disinfectant to treat COVID, spread disaster rumors discourage people from seeking FEMA aid, and made unsupported claims about Tylenol and vaccines. We also saw how presidential rhetoric helped fuel the January 6 attack. At what point will you hold a president accountable when his words cause foreseeable harm, and why should voters accept “that’s just how he talks” as an excuse?
+The president’s words carry enormous influence. He has quipped about injecting disinfectant to treat COVID, spread disaster rumors that discouraged people from seeking FEMA aid, and made unsupported claims about Tylenol and vaccines. We also saw how presidential rhetoric helped fuel the January 6 attack. At what point will you hold a president accountable when his words cause foreseeable harm, and why should voters accept “that’s just how he talks” as an excuse?
 
 SOME SOURCES
 

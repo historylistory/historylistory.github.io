@@ -16,7 +16,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1
 
-Trump promised that Mexico would pay for the border wall, but American taxpayers ultimately paid BILLIONS, including funds redirected from the Department of Defense and Department of the Treasury after Congress declined to provide the full amount. Do you believe it was appropriate for the president to bypass Congress’s spending decision in that way, and will you commit to preventing any president—Republican or Democrat—from using emergency powers to redirect taxpayer money that Congress appropriated for other purposes?
+Trump promised that Mexico would pay for the border wall, but American taxpayers ultimately paid BILLIONS, including funds redirected from the Department of Defense and Department of the Treasury after Congress declined to provide the full amount. Do you believe it was appropriate for the president to bypass Congress’s spending decision in that way, and will you commit to preventing any president, Republican or Democrat, from using emergency powers to redirect taxpayer money that Congress appropriated for other purposes?
 
 SOURCES:
 * MEXICO PAYS June 16, 2025: Trump said Mexico would pay for the wall [NPR.org](https://www.npr.org/2016/04/05/473109475/trumps-plan-to-make-mexico-pay-for-the-wall)

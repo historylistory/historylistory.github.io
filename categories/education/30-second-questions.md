@@ -36,7 +36,7 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 ### Question 2
 
-Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA—or any partisan organization—as the preferred voice for students. Congressman, will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
+Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA, or any partisan organization, as the preferred voice for students. Congressman, will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
 
 SOME SOURCES
 
@@ -52,7 +52,7 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 ### Question 3 
 
-In 2025, an Oklahoma teacher discovered that Trump-endorsed Bibles distributed to public-school classrooms omitted Constitutional Amendments 11 through 27—including the abolition of slavery, equal protection, voting rights, women’s suffrage, presidential term limits, and succession. Do you believe government officials are using religion to promote a selective, partisan version of American history—and will you oppose taxpayer-supported religious materials that omit fundamental constitutional rights?
+In 2025, an Oklahoma teacher discovered that Trump-endorsed Bibles distributed to public-school classrooms omitted Constitutional Amendments 11 through 27—including the abolition of slavery, equal protection, voting rights, women’s suffrage, presidential term limits, and succession. Do you believe government officials are using religion to promote a selective, partisan version of American history, and will you oppose taxpayer-supported religious materials that omit fundamental constitutional rights?
 
 SOME SOURCES
 

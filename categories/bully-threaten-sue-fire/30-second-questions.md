@@ -17,7 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-Republican and MAGA figures have repeatedly promoted watchlists and public-identification campaigns against political opponents—from Turning Point’s Professor Watchlist to calls to contact the employers of people over their political speech, while DHS has relied on Canary Mission profiles to target activists. Congressman, will you publicly condemn doxxing and political intimidation by members of your own party, and what concrete action will you take to prevent these campaigns from leading to harassment or violence?
+Republican and MAGA figures have repeatedly promoted watchlists and public-identification campaigns against political opponents, from Turning Point’s Professor Watchlist to calls to contact the employers of people over their political speech, while DHS has relied on Canary Mission profiles to target activists. Congressman, will you publicly condemn doxxing and political intimidation by members of your own party, and what concrete action will you take to prevent these campaigns from leading to harassment or violence?
 
 SOME SOURCES
 
