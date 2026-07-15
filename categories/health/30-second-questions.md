@@ -29,3 +29,29 @@ SOME SOURCES
 * MISINFORMATION November 20, 2025: The CDC website was altered to promote claims linking vaccines to autism [Autism Science Foundation.org](https://autismsciencefoundation.org/press_releases/cdc-webpage/)
 
 * MISINFORMATION February 6, 2026: RFK claimed the keto diet cures schizophrenia [Scientific American.com](https://www.scientificamerican.com/article/rfk-jr-keto-diet-can-cure-schizophrenia-heres-what-the-science-says/)
+
+### Question 2
+
+RFK Jr.’s Children’s Health Defense sells anti-vaccine onesies and an anti-vaccine book. Kash Patel promoted “vaccine detox” supplements, and Dr. Oz has a long record of promoting miracle cures. The CDC website was changed to suggest vaccines might cause autism, forcing the American Medical Association to publicly reaffirm that decades of scientific evidence show no link. This administration is made up of snake oil salesmen. Why should Americans trust these officials with public health, and what will you do to restore scientific integrity?
+
+SOME SOURCES 
+
+* AMA STATEMENT November 20, 2025 The American Medical Association does not agree with the Trump administration and had to release an official statement about that [AMA.org Statement](https://www.ama-assn.org/press-center/ama-press-releases/ama-statement-cdc-changes-website-autism-and-vaccines)
+
+* PROPAGANDA The Measles Book: Thirty-Five Secrets the Government and the Media Aren’t Telling You [Children's Health Defense.org landing page to sell their book](https://childrenshealthdefense.org/store/products/the-measles-book-thirty-five-secrets-the-government-and-the-media-arent-telling-you-about-measles-and-the-measles-vaccine)
+
+* PROPAGANDA Onesies [StatNews.com](https://www.statnews.com/2025/01/29/rfk-jr-onesie-kennedy-group-childrens-health-defense-sells-antivax-merchandise/)
+
+* PROPAGANDA Kash Patel’s “The only mRNA vaccine detoxification system” [Truth Social @Kash](https://truthsocial.com/@Kash/posts/112004498555307440Thanks) or here [Yahoo.com article](https://www.yahoo.com/news/trumps-pick-fbi-director-promoted-120000690.html)
+
+* DR OZ Green coffee bean extract for weight loss, FTC issued a press release on this twice [FTC.gov press release](https://www.ftc.gov/news-events/news/press-releases/2016/06/ftc-sending-refund-checks-totaling-more-9-million-consumers-who-bought-pure-health-or-genesis-today) or here [FTC.gov press release #2](https://www.ftc.gov/business-guidance/blog/2015/01/spilling-beans-anatomy-diet-craze) 
+
+* DR OZ Raspberry ketones for burning fat [Yahoo.com](https://www.yahoo.com/news/articles/much-were-paid-dr-oz-121301877.html)
+
+* DR OZ Forskolin miracle flower for fighting fat [People.com](https://people.com/health/dr-oz-approved-weight-loss-supplements-do-they-really-work)
+
+* DR OZ Garcinia cambogia “holy grail” for weight loss and deemed possibly toxic with regular use [Science Direct.com](https://www.sciencedirect.com/science/article/abs/pii/S0367326X15000544)
+
+* DR OZ HCG for weight loss, even though the FDA warned its unsupported
+
+* DR OZ Selenium for cancer prevention [Washington Post.com](https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show)

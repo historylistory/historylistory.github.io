@@ -6,6 +6,23 @@ subcategory_slug: pseudoscience
 permalink: /categories/health/pseudoscience/
 ---
 
+### 2014 
+
+2014-01-01 Dr. Oz has enriged himself by pushing several miracle cures, some of which the FTC had to release press releases about.  
+
+* DR OZ Green coffee bean extract for weight loss, FTC issued a press release on this twice [https://www.ftc.gov/news-events/news/press-releases/2016/06/ftc-sending-refund-checks-totaling-more-9-million-consumers-who-bought-pure-health-or-genesis-today](https://www.ftc.gov/news-events/news/press-releases/2016/06/ftc-sending-refund-checks-totaling-more-9-million-consumers-who-bought-pure-health-or-genesis-today) or here [https://www.ftc.gov/business-guidance/blog/2015/01/spilling-beans-anatomy-diet-craze](https://www.ftc.gov/business-guidance/blog/2015/01/spilling-beans-anatomy-diet-craze) 
+
+* DR OZ Raspberry ketones for burning fat [https://www.yahoo.com/news/articles/much-were-paid-dr-oz-121301877.html](https://www.yahoo.com/news/articles/much-were-paid-dr-oz-121301877.html)
+
+* DR OZ Forskolin miracle flower for fighting fat [https://people.com/health/dr-oz-approved-weight-loss-supplements-do-they-really-work](https://people.com/health/dr-oz-approved-weight-loss-supplements-do-they-really-work)
+
+* DR OZ Garcinia cambogia “holy grail” for weight loss and deemed possibly toxic with regular use [https://www.sciencedirect.com/science/article/abs/pii/S0367326X15000544](https://www.sciencedirect.com/science/article/abs/pii/S0367326X15000544)
+
+* DR OZ HCG for weight loss, even though the FDA warned its unsupported
+
+* DR OZ Selenium for cancer prevention [https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show](https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show)
+
+
 ### 2025 May
 
 2025-05-30 James Comer sent RFK a letter saying MAHA cited several nonexistent and misinterpreted studies to support their claims. In the letter Comer demanded information about the process MAHA was using to draft their reports.
