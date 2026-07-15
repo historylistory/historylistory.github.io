@@ -49,3 +49,15 @@ SOME SOURCES
 
 * TPUSA February 10, 2026: Governor Pillen of Nebraska allowed extreme-right TPUSA indoctrination, claiming “I see it as right and wrong, God and 
 Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328)
+
+### Question 3 
+
+In 2025, an Oklahoma teacher discovered that Trump-endorsed Bibles distributed to public-school classrooms omitted Constitutional Amendments 11 through 27—including the abolition of slavery, equal protection, voting rights, women’s suffrage, presidential term limits, and succession. Do you believe government officials are using religion to promote a selective, partisan version of American history—and will you oppose taxpayer-supported religious materials that omit fundamental constitutional rights?
+
+SOME SOURCES
+
+* BIBLE September 27, 2025: Teachers in Oklahoma discover the Trump Bible is missing Amendments 11-thru-27 [ABC News YouTube video](https://www.youtube.com/watch?v=EZHGkBxvVnk) ABC News or here [OKC Fox.com](https://okcfox.com/news/local/teacher-raises-concerns-over-missing-amendments-in-classroom-bible-from-supt-walters)
+
+* BIBLE September 29, 2025: This article states the Constitution was 160 years out of date [New Republic.com](https://newrepublic.com/post/201057/teacher-forced-donald-trump-bible-whats-in-it)
+
+* BIBLE October 10, 2024: Oklahoma teachers noticed only the Trump bible met State requirements [AP News.com](https://apnews.com/article/oklahoma-bible-schools-trump-amend-99bec8ed6b67acd2d836913783c4fe7b)
