@@ -15,6 +15,6 @@ These questions are all being managed by one (1) person, so edit and correct the
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
 
-### Questions in progress
+### A note
 
-working on it
+Several of these conspiracy theories end up in other categories. For example, a question surrounding Trump's rhetoric about getting sex changes in school will likely go into the LGBTQ+ category because it has to do with leadership perpetuating hate rhetoric. 

@@ -40,3 +40,20 @@ SIDE NOTE: Under the military’s Disability Evaluation System, medical separati
 * Disability Evaluation System Feb 24 2026: [esd.whs.mil PDF FILE](https://www.esd.whs.mil/Portals/54/Documents/DD/issuances/dodm/133218v1.PDF)
 
 * MEMO Prioritizing Military Excellence [esd.whs.mil PDF FILE](https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/Administration_and_Management/25-F-2299_Prioritizing_military_excellence_readiness.pdf)
+
+
+### Question 2 
+
+Some conspiracy theories are absurd, but others put real people in danger. President Trump falsely claimed that children were going to school and coming home with sex-change operations. When national leaders spread inflammatory lies about transgender children, they invite bullying and harassment against kids who are already vulnerable. Will you publicly condemn that rhetoric, and what will you do to protect transgender students from politically motivated intimidation?
+
+SOME SOURCES 
+
+* RHETORIC September 7, 2024 Trump claimed children were getting sex changes in school [NBC News.com](https://www.nbcnews.com/nbc-out/out-politics-and-policy/trump-false-claims-schools-transgender-surgeries-rcna170217)
+
+* RHETORIC 2024 August 2024, Trump anti-LGBTQ+ rhetoric [19th News.org](https://19thnews.org/2024/09/trump-gender-affirming-care-abortion-claims)
+
+* CONSEQUENCES February 8, 2023 A study on rhetoric targeting transgender and gender diverse youth [National Library of Medicine.gov](https://pmc.ncbi.nlm.nih.gov/articles/PMC9991426/)
+
+* CONSEQUENCES Child welfare journal [CWLA.org](https://www.cwla.org/trans-youth-voice/)
+
+* CONSEQUENCES January 10, 2022 Poll from the Trevor Project [The Trevor Project.org](https://www.thetrevorproject.org/blog/new-poll-illustrates-the-impacts-of-social-political-issues-on-lgbtq-youth/)
