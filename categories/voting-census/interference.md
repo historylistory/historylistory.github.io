@@ -50,11 +50,12 @@ OTHER SHADY BUSINESS
 
 [https://en.wikipedia.org/wiki/Trump%E2%80%93Raffensperger_phone_call](https://en.wikipedia.org/wiki/Trump%E2%80%93Raffensperger_phone_call)
 
-{% include youtubePlayer.html id="wjw2ekfp0oM" %}
-
 [https://www.theguardian.com/us-news/2021/jan/03/trump-georgia-raffensperger-call-biden-washington-post](https://www.theguardian.com/us-news/2021/jan/03/trump-georgia-raffensperger-call-biden-washington-post)
 
 [https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time](https://www.npr.org/2022/06/21/1106472863/georgia-officials-fact-check-infamous-trump-phone-call-in-real-time)
+
+{% include youtubePlayer.html id="wjw2ekfp0oM" %}
+
 
 2021-01-04 Democrats introduced the For The People/Freedom to Vote Act, but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
 
