@@ -40,3 +40,11 @@ permalink: /categories/agriculture/other/
 [https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
 
 [https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)
+
+### 2026 July
+
+2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
+
+[https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time](https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time)
+
+[https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681](https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681)

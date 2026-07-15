@@ -355,3 +355,16 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 [https://www.politico.com/news/2026/06/23/trump-california-election-probe-do-me-a-favor-00972919](https://www.politico.com/news/2026/06/23/trump-california-election-probe-do-me-a-favor-00972919)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/trump-privately-pressed-prosecutor-elections-conspiracy-theory](https://www.ms.now/rachel-maddow-show/maddowblog/trump-privately-pressed-prosecutor-elections-conspiracy-theory)
+
+### 2026 July
+
+2026-07-15 Trump announced an upcoming national address about declassified intelligence on voter fraud. 
+
+[https://www.reuters.com/world/us/trumps-give-speech-about-foreign-interference-2020-election-ms-now-reports-2026-07-13/](https://www.reuters.com/world/us/trumps-give-speech-about-foreign-interference-2020-election-ms-now-reports-2026-07-13/)
+
+[https://www.ms.now/news/trump-speech-thursday-election-2020-interference](https://www.ms.now/news/trump-speech-thursday-election-2020-interference)
+
+[https://www.cnbc.com/2026/07/13/trump-2020-election-intelligence-speech.html](https://www.cnbc.com/2026/07/13/trump-2020-election-intelligence-speech.html)
+
+[https://www.youtube.com/watch?v=0fKZD8dXb4k&list=WL&index=2](https://www.youtube.com/watch?v=0fKZD8dXb4k&list=WL&index=2)
+

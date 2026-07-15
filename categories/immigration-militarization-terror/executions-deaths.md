@@ -318,3 +318,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.bbc.com/news/articles/cly8yrw597eo](https://www.bbc.com/news/articles/cly8yrw597eo)
 
 [https://www.nbcboston.com/news/local/ice-traffic-stops-trump-recent-shootings-biddeford-maine-latest/3981640/](https://www.nbcboston.com/news/local/ice-traffic-stops-trump-recent-shootings-biddeford-maine-latest/3981640/)
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+[https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7](https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7)
+
+[https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+
+[https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
+

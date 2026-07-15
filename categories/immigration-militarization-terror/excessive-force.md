@@ -353,3 +353,13 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html](https://www.yahoo.com/news/us/articles/video-shows-national-guard-members-150000027.html)
 
 [https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4](https://www.youtube.com/watch?v=6aG6ORpfy94&list=WL&index=4)
+
+### 2026 July
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+[https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7](https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7)
+
+[https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+
+[https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)

@@ -305,3 +305,8 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 
 h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)
 
+2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
+
+[https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time](https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time)
+
+[https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681](https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681)

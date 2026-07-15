@@ -446,3 +446,13 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic](https://www.npr.org/2026/07/01/nx-s1-5874124/dhs-tracks-ice-critic)
 
 [https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/](https://www.broomfieldenterprise.com/2026/06/30/federal-agents-confront-residents-over-ice-criticism/)
+
+### 2026 July
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+[https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7](https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7)
+
+[https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+
+[https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)

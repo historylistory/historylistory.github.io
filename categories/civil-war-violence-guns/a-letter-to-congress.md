@@ -553,3 +553,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-07-06 The DOJ rolled back more regulations on gun restrictions including a rule intended to close a gun-show loop hole, reducing regulations on short barrel and bump stocks (used in a mass shooting in 2017), and allowing some with mental illness to purchase firearms. 
 
 2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 

@@ -364,3 +364,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 
 2026-07-13 A federal judge rejected the DOJ’s attempt to subpoena Georgia for names of election workers in Fulton county. 
+
+
+
+2026-07-15 Trump announced an upcoming national address about declassified intelligence on voter fraud. 

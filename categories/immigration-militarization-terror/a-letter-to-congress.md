@@ -751,3 +751,5 @@ Next
 2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. 
 
 2026-07-14 ICE suspended vehicle stops after two killings in one week. 
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 

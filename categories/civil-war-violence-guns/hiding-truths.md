@@ -13,3 +13,13 @@ permalink: /categories/civil-war-violence-guns/hiding-truths/
 [https://www.theguardian.com/us-news/2025/sep/17/justice-department-study-far-right-extremist-violence](https://www.theguardian.com/us-news/2025/sep/17/justice-department-study-far-right-extremist-violence)
 
 [https://web.archive.org/web/20250911012550/https://nij.ojp.gov/topics/articles/what-nij-research-tells-us-about-domestic-terrorism](https://web.archive.org/web/20250911012550/https:/nij.ojp.gov/topics/articles/what-nij-research-tells-us-about-domestic-terrorism)
+
+### 2026 July 
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+[https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7](https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7)
+
+[https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+
+[https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)

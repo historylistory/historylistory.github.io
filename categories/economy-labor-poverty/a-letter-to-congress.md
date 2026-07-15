@@ -932,3 +932,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
 
 2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 
+
+2026-07-14 Utility companies requested an additional $9.2BN rate increase. 
+
+2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 

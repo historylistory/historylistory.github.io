@@ -34,3 +34,12 @@ permalink: /categories/civil-war-violence-guns/politicizing-to-meet-agendas/
 
 [https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299](https://www.nbcnews.com/politics/politics-news/trump-pause-migration-third-world-countries-national-guard-shooting-dc-rcna246299)
 
+### 2026 July
+
+2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+[https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7](https://www.youtube.com/watch?v=oPZfv0mLydE&list=WL&index=7)
+
+[https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+
+[https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
