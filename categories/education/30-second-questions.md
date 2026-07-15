@@ -34,3 +34,18 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 * BILLS June 1, 2021: Texas HB 3979 restricts race, slavery, Native American and current event curriculum in public school [IDRA.org PDF file](https://www.idra.org/wp-content/uploads/2021/06/What-does-HB-3979-do-IDRA-reference.pdf)
 
+### Question 2
+
+Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA—or any partisan organization—as the preferred voice for students. Congressman, will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
+
+SOME SOURCES
+
+
+* TEACHERS December 3, 2025: Colorado Spring teacher indefinitely suspended for disclosing revisions [KOAA.com](https://www.koaa.com/news/covering-colorado/education/colorado-springs-district-11-teacher-fights-to-get-job-back)
+
+* PRAGER U August 25, 2025 Americans United explains PragerU is Christian Nationalist group trying to push their ideas [AU.org](https://www.au.org/the-latest/articles/pragerus-christian-nationalist-agenda-threatens-to-reshape-public-education/)
+
+* PRAGER U September 3, 2025: PragerU installed an AI generated John Adams “Facts do not care about your feelings” [NPR.org](https://www.npr.org/2025/09/03/nx-s1-5521261/white-house-ai-founders-museum)
+
+* TPUSA February 10, 2026: Governor Pillen of Nebraska allowed extreme-right TPUSA indoctrination, claiming “I see it as right and wrong, God and 
+Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328)
