@@ -15,8 +15,10 @@ These questions are all being managed by one (1) person, so edit and correct the
 Or, [email me/](https://historylistory.com/contact/) if you have a question idea you want to submit. I don't always check my email, but I will try! 
 
 
-### Questions in progress
+### Question 1 
 
-working on it
+President Trump created a federal task force to eradicate what he calls “anti-Christian bias.” The FBI has documented thousands of religion-based hate crimes, with Jewish Americans targeted most often and Muslim and Sikh Americans also facing substantial hostility. Hindu, Buddhist, and other minority-faith communities experience harassment and discrimination as well. If anti-Christian bias warrants its own federal task force, will you support equally empowered protections for every faith, or explain why one religion deserves a special government response that others do not?
 
+SOME SOURCES
 
+working on them now, check back in a few minutes 
