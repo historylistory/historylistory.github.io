@@ -88,15 +88,19 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 2010-01-21 The Supreme Court ruled 5-to-4 to strike down restrictions on independent political spending by corporations and labor unions (see Citizens United). By allowing unlimited independent spending, “Super PACs” can raise and spend vast sums of money in pay-to-play schemes and even hide donations behind 501(c)(4) companies (for example, Turning Point USA is a 501(c)(4) nonprofit which can participate in partisan political campaigns). 
 
+[https://campaignlegal.org/update/pacs-super-pacs-dark-money-groups-whats-difference](https://campaignlegal.org/update/pacs-super-pacs-dark-money-groups-whats-difference)
+
+[https://campaignlegal.org/exposing-president-trumps-pay-to-play-administration](https://campaignlegal.org/exposing-president-trumps-pay-to-play-administration
+)
 [https://projects.propublica.org/nonprofits/organizations/464331510](https://projects.propublica.org/nonprofits/organizations/464331510)
 
 [https://www.fec.gov/legal-resources/court-cases/citizens-united-v-fec/](https://www.fec.gov/legal-resources/court-cases/citizens-united-v-fec/)
 
 [https://www.pbs.org/newshour/politics/former-gop-ohio-speaker-lobbyist-guilty-in-60-million-bribery-scheme](https://www.pbs.org/newshour/politics/former-gop-ohio-speaker-lobbyist-guilty-in-60-million-bribery-scheme)
 
-[https://www.dispatch.com/story/news/politics/state/2023/02/15/lobbyist-neil-clark-captured-on-undercover-fbi-tapes/69906257007/](https://www.dispatch.com/story/news/politics/state/2023/02/15/lobbyist-neil-clark-captured-on-undercover-fbi-tapes/69906257007/)
-
 [https://en.wikipedia.org/wiki/Dark_Money_(TV_series)](https://en.wikipedia.org/wiki/Dark_Money_(TV_series))
+
+PAY WALL [https://www.dispatch.com/story/news/politics/state/2023/02/15/lobbyist-neil-clark-captured-on-undercover-fbi-tapes/69906257007/](https://www.dispatch.com/story/news/politics/state/2023/02/15/lobbyist-neil-clark-captured-on-undercover-fbi-tapes/69906257007/)
 
 ### 2013
 

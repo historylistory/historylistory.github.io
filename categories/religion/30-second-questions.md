@@ -21,4 +21,24 @@ President Trump created a federal task force to eradicate what he calls “anti-
 
 SOME SOURCES
 
-working on them now, check back in a few minutes 
+still working on it...come back in a few minutes
+
+### Question 2 
+
+(THIS QUESTION IS SIMILAR TO #1) President Trump created a federal task force to eradicate what he calls “anti-Christian bias.” Yet Christians remain the nation’s largest religious group and hold enormous political and institutional influence. Religious institutions already enjoy taxpayer subsidies for their schools and special tax treatment. What specific, documented persecution justifies a federal task force devoted to one faith, and how will you ensure it does not become a vehicle for granting Christianity special government preference over other religions or nonbelievers?
+
+SOME SOURCES
+
+* DARK MONEY any time: Super PACs can hide their money behind 501(c)3/4 companies like TPUSA, for example [Campaign Legal.org](https://campaignlegal.org/update/pacs-super-pacs-dark-money-groups-whats-difference) or here [Campaign Legal.org](https://campaignlegal.org/exposing-president-trumps-pay-to-play-administration) 
+
+* TPUSA since before 2026: Fringe TPUSA is appointed to the Air Force Academy Board [Independent.co.uk](https://www.independent.co.uk/bulletin/news/erika-kirk-air-force-academy-trump-charlie-b2935898.html)
+
+* SPECIAL TREATMENT June 22, 2026: Forcing biblical curriculum into schools [NBC News.com](https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002)
+
+* SPECIAL TREATMENT May 21, 2025: Requiring the Ten Commandments in school [Texas Attorney General.gov](https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law).
+
+* SPECIAL TREATMENT June 3, 2024: Billions of taxpayer dollars rerouted to private religious schools [Washington Post.com](https://www.washingtonpost.com/nation/2024/06/03/tax-dollars-religious-schools/)
+
+* SPECIAL TREATMENT April 19, 2026: Trump administration announced an 84-hour public Bible reading [Politico.com](https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747)
+
+* SPECIAL TREATMENT May 14, 2026: Taxpayer funded stage at the National Mall [CNN.com](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
