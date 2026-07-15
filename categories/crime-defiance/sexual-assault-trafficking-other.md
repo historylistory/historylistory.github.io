@@ -57,6 +57,15 @@ permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
 
 [https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm](https://www.surfsantamonica.com/ssm_site/the_lookout/letters/Letters-2002/MARCH_2002/03_27_2002_Political_Correctness_Out_of_Control.htm)
 
+### 2018
+
+2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
+
+[https://nwlc.org/three-years-after-brett-kavanaughs-confirmation-were-still-searching-for-truth-and-justice/](https://nwlc.org/three-years-after-brett-kavanaughs-confirmation-were-still-searching-for-truth-and-justice/)
+
+[https://www.npr.org/2019/09/16/761191576/reporters-dig-into-justice-kavanaughs-past-allegations-of-misconduct-against-him](https://www.npr.org/2019/09/16/761191576/reporters-dig-into-justice-kavanaughs-past-allegations-of-misconduct-against-him)
+
+[https://www.theguardian.com/us-news/2024/mar/13/christine-blasey-ford-book-supreme-court-brett-kavanaugh-sexual-assault](https://www.theguardian.com/us-news/2024/mar/13/christine-blasey-ford-book-supreme-court-brett-kavanaugh-sexual-assault)
 
 ### 2021 May
 

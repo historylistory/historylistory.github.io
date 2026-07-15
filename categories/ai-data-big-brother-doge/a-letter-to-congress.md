@@ -331,6 +331,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
 
+2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
+
 2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland. 
 
 2026-07-13 Apple sued OpenAI over alleged trade secret theft. 

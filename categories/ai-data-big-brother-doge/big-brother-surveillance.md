@@ -423,3 +423,11 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.scotusblog.com/2026/06/court-rules-that-law-enforcements-use-of-geofence-warrant-was-a-search/](https://www.scotusblog.com/2026/06/court-rules-that-law-enforcements-use-of-geofence-warrant-was-a-search/)
 
 [https://www.theguardian.com/us-news/2026/jun/29/supreme-court-geofence-warrants-case-decision](https://www.theguardian.com/us-news/2026/jun/29/supreme-court-geofence-warrants-case-decision)
+
+### 2026 July
+
+2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
+
+[https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s](https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s)
+
+[https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/](https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/)

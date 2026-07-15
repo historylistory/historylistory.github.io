@@ -165,3 +165,10 @@ permalink: /categories/religion/declaring-christian-superiority/
 [https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s](https://www.youtube.com/watch?v=9tP7JyVzi9A&list=WL&index=2&t=201s)
 
 [https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1](https://www.youtube.com/watch?v=gt6XyUDV_eo&list=WL&index=1)
+
+### 2026 July
+
+2026-07-13 MAGA pastor Joel Webbon suggested seizing churches and imprisoning pastors for “blasphemy” for not following Christian Nationalism. 
+
+[https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s)
+

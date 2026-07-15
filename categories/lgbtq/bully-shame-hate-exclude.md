@@ -213,3 +213,11 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.nbcnews.com/politics/supreme-court/supreme-court-upholds-state-transgender-sports-bans-rcna261384](https://www.nbcnews.com/politics/supreme-court/supreme-court-upholds-state-transgender-sports-bans-rcna261384)
 
 [https://www.cnn.com/2026/06/30/politics/transgender-athletes-supreme-court-decision-what-to-know](https://www.cnn.com/2026/06/30/politics/transgender-athletes-supreme-court-decision-what-to-know)
+
+### 2026 July
+
+2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
+
+[https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s](https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s)
+
+[https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/](https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/)

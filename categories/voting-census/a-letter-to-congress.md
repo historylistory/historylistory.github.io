@@ -157,6 +157,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2024-04-27 Of the 84 fake electors charged across multiple states, 36 were criminally charged, 10 faced a civil lawsuit, and 7 remained in office. A small number of them gained public offices or were appointed to positions of power since the scheme. 
 
+2024-05-03 MAGA paster Joel Webbon called for the repeal of the 19th Amendment, Women’s right to vote. 
+
 2024-05-06 A group of white voters claimed the Louisiana congressional map “racially stigmatizes”, “racially stereotypes”, and “racially maligns” them.
 
 2024-06-19 Trump falsely claimed Joan Rivers voted for him in 2016 despite her 2014 death.
@@ -273,6 +275,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
+2026-03-09 John Solomon claimed on his far-right outlet Just the News that the FBI was “secretly obtaining a large tranche of voting records” from Maricopa County (Arizona). 
+
 2026-03-18 Trump posted, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 2026-03-23 Steve Bannon described ICE deployments at airports as a potential “test run” for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.
@@ -328,6 +332,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-05-29 Louisiana lawmakers approved a map to eliminate a majority Black district.
 
 2026-06-02 Despite being missing for several months, Republican Tom Kean won the election in New Jersey’s 12 district after receiving Trump’s endorsement.
+
+2026-06-03 Bill Pulte was tasked with reopening election investigations pertaining to alleged voter fraud.
 
 2026-06-10 Trump is trying to take control over the US Postal Service.
 

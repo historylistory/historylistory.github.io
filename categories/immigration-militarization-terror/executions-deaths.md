@@ -302,3 +302,19 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.aljazeera.com/news/2026/7/14/mexico-begins-legal-action-in-us-over-deaths-of-its-citizens-in-ice-custody](https://www.aljazeera.com/news/2026/7/14/mexico-begins-legal-action-in-us-over-deaths-of-its-citizens-in-ice-custody)
 
 [https://www.theguardian.com/world/2026/jul/13/mexico-criminal-complaint-migrant-ice-deaths](https://www.theguardian.com/world/2026/jul/13/mexico-criminal-complaint-migrant-ice-deaths)
+
+2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. 
+
+[https://www.youtube.com/watch?v=INjQHHBNXIM&list=WL&index=5](https://www.youtube.com/watch?v=INjQHHBNXIM&list=WL&index=5)
+
+[https://apnews.com/article/man-killed-semi-truck-ice-florida-8e65b1ca2eab051392afc316972c92eb](https://apnews.com/article/man-killed-semi-truck-ice-florida-8e65b1ca2eab051392afc316972c92eb)
+
+[https://www.kcra.com/article/florida-man-killed-tractor-trailer-immigration-agents/71935147](https://www.kcra.com/article/florida-man-killed-tractor-trailer-immigration-agents/71935147)
+
+2026-07-14 ICE suspended vehicle stops after two killings in one week. 
+
+[https://www.youtube.com/watch?v=z_rDjw-LWqo&list=WL&index=8](https://www.youtube.com/watch?v=z_rDjw-LWqo&list=WL&index=8)
+
+[https://www.bbc.com/news/articles/cly8yrw597eo](https://www.bbc.com/news/articles/cly8yrw597eo)
+
+[https://www.nbcboston.com/news/local/ice-traffic-stops-trump-recent-shootings-biddeford-maine-latest/3981640/](https://www.nbcboston.com/news/local/ice-traffic-stops-trump-recent-shootings-biddeford-maine-latest/3981640/)

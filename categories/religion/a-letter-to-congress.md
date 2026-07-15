@@ -308,3 +308,5 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-07-08 Far-right Pastor Dale Partridge claimed in a sermon that God assigned Black people to subordination and dependence due to a biblical curse of Ham and then called for a “return to European Christian colonization of African nations”.
 
 2026-07-08 Member of the White House Faith Office Dave Donaldson asserted that taxpayer money is “God’s money”.
+
+2026-07-13 MAGA pastor Joel Webbon suggested seizing churches and imprisoning pastors for “blasphemy” for not following Christian Nationalism. 

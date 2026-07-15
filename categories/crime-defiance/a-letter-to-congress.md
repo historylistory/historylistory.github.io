@@ -78,6 +78,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
+2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
+
 2019-07-09 Democratic leaders including Lois Frankel and Debbie Wasserman Schultz called for continued investigation into Epstein, including his 2008 plea deal, his death, and the handling of his case. The 2008 plea deal was negotiated by then–U.S. Attorney Alex Acosta, who later became Trump's Labor Secretary.
 
 2019-09-10 Epstein died by suicide during Trump's first term. In 2026, reports raised new questions about missing video footage and alleged activity near his cell before his death.

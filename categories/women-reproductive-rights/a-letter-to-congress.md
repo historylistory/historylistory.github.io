@@ -92,6 +92,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
+2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
+
 2019-01-01 Alt-right women’s magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
 
 2020-01-01 The TradWife movement took off on social media - predominantly among white, conservative women with money.
@@ -135,6 +137,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
 
 2024-05-01 Florida banned abortions after 6 weeks before women even know they’re pregnant (giving women about 2 weeks to find care), even after over 150,000 registered Republican voters joined the rest of us to KEEP abortion access available. 
+
+2024-05-03 MAGA paster Joel Webbon called for the repeal of the 19th Amendment, Women’s right to vote. 
 
 2024-05-05 Liberty University was fined $14M for Clery Act violations. Under the Jeanne Clery Act, colleges and universities must report specific crimes occurring on or near campus. Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film.
 

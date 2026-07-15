@@ -277,7 +277,16 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 [https://truthsocial.com/@realDonaldTrump/posts/115494873923565600](https://truthsocial.com/@realDonaldTrump/posts/115494873923565600)
 
-### 2026
+### 2026 March
+
+2026-03-09 John Solomon claimed on his far-right outlet Just the News that the FBI was “secretly obtaining a large tranche of voting records” from Maricopa County (Arizona). 
+
+[https://www.democracydocket.com/news-alerts/trumpfbi-subpoena-2020-records-maricopa-county-arizona/](https://www.democracydocket.com/news-alerts/trumpfbi-subpoena-2020-records-maricopa-county-arizona/)
+
+[https://www.newsfromthestates.com/article/maricopa-county-pushes-back-trumps-viral-claim-fbi-election-records-subpoena](https://www.newsfromthestates.com/article/maricopa-county-pushes-back-trumps-viral-claim-fbi-election-records-subpoena)
+
+[https://justthenews.com/politics-policy/elections/monfbi-secretly-seizes-election-records-arizonas-largest-county-voting](https://justthenews.com/politics-policy/elections/monfbi-secretly-seizes-election-records-arizonas-largest-county-voting)
+
 
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
@@ -333,6 +342,13 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 [https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/](https://www.motherjones.com/politics/2026/05/jared-polis-tina-peters-commutation-clemency-trump/)
 
 ### 2026 June
+
+2026-06-03 Bill Pulte was tasked with reopening election investigations pertaining to alleged voter fraud.
+
+[https://www.democracydocket.com/news-alerts/trump-bill-pulte-acting-intel-chief-probe-elections](https://www.democracydocket.com/news-alerts/trump-bill-pulte-acting-intel-chief-probe-elections)
+
+[https://www.washingtonpost.com/national-security/2026/07/02/house-democrats-warn-pulte-election-intelligence](https://www.washingtonpost.com/national-security/2026/07/02/house-democrats-warn-pulte-election-intelligence)
+
 
 2026-06-24 Trump publicly admitted he asked a prosecutor to launch an election fraud investigation in California without any actual evidence.
 

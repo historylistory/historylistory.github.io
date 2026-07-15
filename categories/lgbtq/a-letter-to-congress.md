@@ -194,3 +194,5 @@ The following sections outline my concerns in greater detail. Some of the inform
 2026-06-02 Ghana’s anti-LGBTQ bill required further scrutiny as it would endanger the lives of the LGBTQ community. The bill places 10-year prison sentences on anyone promoting LGBTQ and critics have called it the “kill the gays bill”.
 
 2026-06-30 SCOTUS ruled 6-to-3 to ban trans athletes from participating in women’s sports.
+
+2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 

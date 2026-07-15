@@ -86,6 +86,17 @@ UNAVAILABLE [https://www.youtube.com/shorts/J2cOq55iFZ4](https://www.youtube.com
 
 UNAVAILABLE [https://www.youtube.com/shorts/wGdp8n246f8](https://www.youtube.com/shorts/wGdp8n246f8)
 
+### 2018
+
+2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
+
+[https://nwlc.org/three-years-after-brett-kavanaughs-confirmation-were-still-searching-for-truth-and-justice/](https://nwlc.org/three-years-after-brett-kavanaughs-confirmation-were-still-searching-for-truth-and-justice/)
+
+[https://www.npr.org/2019/09/16/761191576/reporters-dig-into-justice-kavanaughs-past-allegations-of-misconduct-against-him](https://www.npr.org/2019/09/16/761191576/reporters-dig-into-justice-kavanaughs-past-allegations-of-misconduct-against-him)
+
+[https://www.theguardian.com/us-news/2024/mar/13/christine-blasey-ford-book-supreme-court-brett-kavanaugh-sexual-assault](https://www.theguardian.com/us-news/2024/mar/13/christine-blasey-ford-book-supreme-court-brett-kavanaugh-sexual-assault)
+
+
 ### 2021
 
 2021-04-14 During a hearing Representative Scott Perry pushed a Great Replacement theory that nonwhite immigrants were intentionally brought to the US to dilute voting power.  Perry also allegedly voted against the Violence Against Women Act, claimed ISIS was behind a mass shooting in Las Vegas, and tried to repeal the ACA without any way to replace it. 
