@@ -28,7 +28,7 @@ SOME SOURCES
 
 * INTERFERENCE July 18, 2023 Michigan election interference [States United.org PDF FILE](https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf)
 
-* BALLOTS October 30, 2024 Elon Musk was investigated for sending out partially prefilled ballots [The Verge.ocom](https://www.theverge.com/tech/882838/georgia-elon-musk-america-pac-voter-fraud)
+* BALLOTS October 30, 2024 Elon Musk was investigated for sending out partially prefilled ballots [The Verge.com](https://www.theverge.com/tech/882838/georgia-elon-musk-america-pac-voter-fraud)
 
 * BALLOTS January 29, 2026: Tulsi Gabbard seized Georgia ballots [PBS.org](https://www.pbs.org/newshour/show/fbi-raids-georgia-elections-office-as-trump-administration-seeks-voter-data-from-states)
 
@@ -65,3 +65,32 @@ SOME SOURCES
 * INTIMIDATION January 23, 2026 Pam Bondi sent a letter to Tim Walz one hour after Pretti was shot, saying they’ll remove ICE from Minnesota in trade for voter files [NPR.org](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
 
 * INTIMIDATION March 27, 2026 Todd Blanche asked why everyone is opposed to sending ICE to polling places [The Daily Beast.com](https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/)
+
+### Question 3
+
+We saw during the Cambridge Analytica whistleblower case that Trump-aligned partisan actors improperly harvested Facebook data to build voter profiles. We have also seen deceptive robocall campaigns, fake-elector schemes, and partially prefilled absentee ballot applications on behalf of America PAC. Now a former Republican official owns Dominion Voting Systems. What concrete safeguards will you support to guarantee that partisan state officials or political groups won’t interfere with the 2026 election to benefit President Trump?
+
+SOME SOURCES 
+
+* CAMBRIDGE ANALYTICA 2016 A whistleblower revealed the GOP harvested Facebook data for Trump’s 2016 campaign to build voter profiles [Committees.Parliament.UK](https://committees.parliament.uk/work/6330/disinformation-and-fake-news/news/103673/evidence-from-christopher-wylie-cambridge-analytica-whistleblower-published/)
+
+* ROBOCALL CAMPAIGN April 1, 2019 Jacob Wohl and Jack Burkman paid for a robocall campaign in NY to disenfranchise Black voters [Lawyers Committee.org PDF FILE](https://lawyerscommittee.org/wp-content/uploads/2020/10/COMPLAINT-FINAL-filed.pdf)
+
+* BALLOTS October 30, 2024 Elon Musk was investigated for sending out partially prefilled absentee ballots for America PAC [New Republic.com](https://newrepublic.com/post/206857/georgia-voter-fraud-elon-musk)
+
+* BALLOTS November 9, 2020 Former press sec Kayleigh McEnany said she wanted all Pennsylvanian ballots thrown out [Yahoo.com](https://www.yahoo.com/entertainment/fox-news-cuts-away-kayleigh-224725658.html)
+
+* BALLOTS January 29, 2026 Tulsi Gabbard raided Georgia election office and seized ballots [PBS.org](https://www.pbs.org/newshour/show/fbi-raids-georgia-elections-office-as-trump-administration-seeks-voter-data-from-states)
+
+* MACHINES February 4, 2026 Tulsi Gabbard seized voting machines from Puerto Rico [PBS.org](https://www.pbs.org/newshour/show/fbi-raids-georgia-elections-office-as-trump-administration-seeks-voter-data-from-states)
+
+* MACHINES October 9, 2025 GOP member Scott Leindecker bought Dominion Voting Systems [CNN.com](https://www.cnn.com/2025/10/09/politics/dominion-voting-systems-bought-election-ballots)
+
+* FRAUD January 25, 2017 Allegedly Steve Bannon, Tiffany Trump and Steven Mnuchin were registered to vote in more than one state [The Guardian.com](https://www.theguardian.com/us-news/2017/jan/25/steve-bannon-voter-registration-trump-election-voter-fraud)
+
+* FRAUD July 18, 2023 Michigan charged 16 fake electors for Trump [States United.org PDF FILE](https://statesunited.org/wp-content/uploads/2023/11/3-5.28.24-Michigans-fake-electors-charges-explained.pdf)
+
+* GERRYMANDERING November 15, 2024 GOP rejected ballot measures to stop lawmakers from manipulating electoral districts [The Guardian.com](https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures)
+
+* SUSPICOUS July 26, 2024 Trump told a TPUSA crowd they would only need to vote “this one time” because the votes would be “fixed”. [Yahoo.com](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
+
