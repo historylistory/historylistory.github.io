@@ -8,7 +8,13 @@ permalink: /categories/immigration-militarization-terror/executions-deaths/
 
 ### 2025 March
 
-2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed a 23-year-old man Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
+2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed 23-year-old Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
+
+[https://www.youtube.com/watch?v=Vf7v-UF1epY](https://www.youtube.com/watch?v=Vf7v-UF1epY)
+
+[https://www.youtube.com/watch?v=BjyRuCTu0YI](https://www.youtube.com/watch?v=BjyRuCTu0YI)
+
+[https://www.youtube.com/watch?v=tdIv0jB5MWI](https://www.youtube.com/watch?v=tdIv0jB5MWI)
 
 {% include youtubePlayer.html id="Vf7v-UF1epY" %}
 

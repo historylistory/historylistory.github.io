@@ -71,6 +71,10 @@ permalink: /recommended-links/
 
 [Economy: GasBuddy](https://www.gasbuddy.com/)
 
+[Economy: Americans for Tax Fairness](https://americansfortaxfairness.org/)
+
+[Economy: Center on Budget and Policy Priorities](https://www.cbpp.org/)
+
 ---
 
 [Education: SIECUS.org](https://siecus.org/siecus-state-profiles/)

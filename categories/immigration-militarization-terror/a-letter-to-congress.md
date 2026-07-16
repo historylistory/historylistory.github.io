@@ -168,7 +168,7 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-02-18 The White House released “ASMR: Illegal alien deportation flight.”
 
-2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed a 23-year-old man Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
+2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed 23-year-old Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
 
 2025-03-06 Trump invoked the Wartime Alien Enemies Act of 1798 to bypass due process and target Venezuelan immigrants.
 
