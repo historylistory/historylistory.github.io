@@ -34,6 +34,10 @@ permalink: /categories/racism-deicrt-tribal-affairs/racism-is-a-myth/
 
 2024-10-01 Representatives in Kendrick Idaho claimed that discrimination doesn’t exist in Idaho. When Nez Perc member Trish Carter Goodheart disagreed, Senator Forman told her to go back to where she came from. 
 
+[https://idahocapitalsun.com/2024/10/03/idaho-senator-tells-native-american-candidate-to-go-back-to-where-she-came-from-at-forum/](https://idahocapitalsun.com/2024/10/03/idaho-senator-tells-native-american-candidate-to-go-back-to-where-she-came-from-at-forum/)
+
+[https://www.boisestatepublicradio.org/politics-government/2024-10-03/dan-foreman-racism-idaho-nez-perce-candidate-kendrick](https://www.boisestatepublicradio.org/politics-government/2024-10-03/dan-foreman-racism-idaho-nez-perce-candidate-kendrick)
+
 {% include youtubePlayer.html id="PpObco-roz8" %}
 
 {% include youtubePlayer.html id="5MnMqlP10lM" %}
