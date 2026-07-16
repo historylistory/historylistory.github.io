@@ -567,7 +567,7 @@ protocol.
 
 2026-02-12 GEO Group profited from ICE detention centers and private prisons.
 
-2026-02-13 Former ICE attorney Ryan Schwank left the agency, saying, “”I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken.” 
+2026-02-13 Former ICE attorney Ryan Schwank left the agency, saying, “”I swore an oath to uphold the Constitution when I joined ICE", "I followed it when I resigned", and, "The legally required training program at the ICE academy is deficient, defective, and broken.” 
 
 2026-02-14 By this date ICE jailed people illegally at least 4400 times. 
 

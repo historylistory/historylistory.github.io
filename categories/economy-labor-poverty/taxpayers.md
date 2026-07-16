@@ -120,7 +120,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2025 September
 
-2025-09-14 (context/spending) Trump asked Congress for an ***additional $58M*** to increase security for his administration. Taxpayer expense.
+2025-09-14 Trump requested an additional $58M in taxpayer funds for security. 
 
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150](https://www.nbcnews.com/politics/trump-administration/trump-administration-seeks-58-million-security-boost-charlie-kirk-rcna231150)
 

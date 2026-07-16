@@ -56,3 +56,23 @@ SOME SOURCES (just the deaths that were in the news, this doesn’t even include
 * DEATH July 7, 2026 Agents chased down Lorenzo Salgado Araujo, shot him in his car, then dragged his lifeless body out of the vehicle. The three witnesses were deported. [CNN.com](https://www.cnn.com/2026/07/09/us/lorenzo-salgado-araujo-houston-ice-shooting)
 
 * DEATH July 14, 2026 ICE killed 26-year-old man in Maine in front of his little girl. His last words were, “I tried to stop” [PBS.org](https://www.pbs.org/newshour/nation/ice-shot-and-killed-a-colombian-man-in-maine-this-is-the-2nd-time-in-a-week-the-agency-used-deadly-force)
+
+### Question 3 
+
+After immigration agents released two medically vulnerable people without safely reconnecting them with their families, Daphy Michel and Nurul Amin Shah Alam died from exposure, and both deaths were ruled homicides. A former ICE instructor has called agent training “deficient, defective and broken.” Congressman, what would you tell their families, and will you require adequate training, family notification, safe-release procedures, body cameras and real accountability when federal agents endanger vulnerable people?
+
+SOME SOURCES
+
+* DEATH March 2, 2026 Daphy Michel. She was a vulnerable adult. ICE left her at a bus stop, and medical examiners deemed her death a homicide. [Court House News.com](ttps://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/) or here [AP News.com](https://apnews.com/article/haiti-woman-homicide-ice-e31e7109eba053b41f6b0319640df042)
+
+
+* DEATH February 26, 2026 Nurul Amim Shah Alam. ICE left him alone miles from his home and didn’t contact his family. He was found dead outside in the cold. [Investigative Post.org](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
+
+* ICE SPENDING September 14, 2025 Immigration spending reached $75B. [American Progress.org](https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/)
+
+* ICE SPENDING April 23, 2026 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B [NBC News.com](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)
+
+* TRAINING February 13, 2026 Former ICE attorney Ryan Schwank warned ICE training was “deficient, defective, and broken” [C-SPAN.org](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
+
+* BODY CAMS July 14, 2026 Tom Homan blamed lack of body cams on Democrats [CNN.com](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
+

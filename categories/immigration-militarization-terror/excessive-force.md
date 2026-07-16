@@ -245,7 +245,7 @@ permalink: /categories/immigration-militarization-terror/excessive-force/
 
 ### 2026 February
 
-2026-02-13 Former ICE attorney Ryan Schwank left the agency, saying, “”I swore an oath to uphold the Constitution when I joined ICE…I followed it when I resigned…The legally required training program at the ICE academy is deficient, defective, and broken.” 
+2026-02-13 Former ICE attorney Ryan Schwank left the agency, saying, “”I swore an oath to uphold the Constitution when I joined ICE", "I followed it when I resigned", and, "The legally required training program at the ICE academy is deficient, defective, and broken.” 
 
 [https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814](https://www.c-span.org/program/public-affairs-event/sen-richard-blumenthal-rep-robert-garcia-host-forum-on-constitutional-violations/673814)
 
