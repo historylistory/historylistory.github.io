@@ -716,5 +716,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
 
+2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
+
 2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
 

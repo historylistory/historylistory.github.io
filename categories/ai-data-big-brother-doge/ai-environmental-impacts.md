@@ -108,3 +108,21 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 
 [https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion](https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion)
 
+2026-07-14 New York placed a moratorium on building data centers. 
+
+[https://www.nbcnews.com/news/us-news/new-york-impose-countrys-first-statewide-moratorium-data-centers-rcna587429](https://www.nbcnews.com/news/us-news/new-york-impose-countrys-first-statewide-moratorium-data-centers-rcna587429)
+
+[https://www.governor.ny.gov/executive-order/no-62-establishing-temporary-moratorium-data-centers-new-york-while-state-develops](https://www.governor.ny.gov/executive-order/no-62-establishing-temporary-moratorium-data-centers-new-york-while-state-develops)
+
+[https://www.governor.ny.gov/news/first-statewide-moratorium-new-hyperscale-data-centers-launched-governor-kathy-hochul](https://www.governor.ny.gov/news/first-statewide-moratorium-new-hyperscale-data-centers-launched-governor-kathy-hochul)
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
+
+[https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/](https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/)
+
+[https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates](https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates)
+
+[https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
+
+TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
+

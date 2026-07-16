@@ -931,4 +931,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-14 Utility companies requested an additional $9.2BN rate increase. 
 
+2026-07-14 The Iran war cost reached approximately $100BN. 
+
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 

@@ -928,6 +928,9 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732])https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732
 
+2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
+
+[https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/](https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/)
 
 2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
 

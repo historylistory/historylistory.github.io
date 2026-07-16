@@ -219,3 +219,13 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524](https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524)
 
 [https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans](https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans)
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
+
+[https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/](https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/)
+
+[https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates](https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates)
+
+[https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
+
+TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)

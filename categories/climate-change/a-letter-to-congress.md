@@ -312,3 +312,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
 
 2026-07-11 A foot of rain caused record flash floods in Missouri to West Virginia.
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.

@@ -93,3 +93,13 @@ PAY WALL [https://www.forbes.com/sites/conormurray/2026/04/15/us-bishops-rebuff-
 [https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html](https://www.cnbc.com/video/2026/05/07/shell-q1-profits-surge-to-6-point-92bn-amid-middle-east-conflict.html)
 
 PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html](https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.html)
+
+### 2026 July
+
+2026-07-14 The Iran war cost reached approximately $100BN. 
+
+[https://www.nbcnews.com/politics/national-security/iran-war-cost-much-100-billion-rcna587362](https://www.nbcnews.com/politics/national-security/iran-war-cost-much-100-billion-rcna587362)
+
+[https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/](https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/)
+
+[https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war](https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war)

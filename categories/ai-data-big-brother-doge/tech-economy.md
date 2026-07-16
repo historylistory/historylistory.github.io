@@ -187,6 +187,14 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 
 [https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/](https://www.reuters.com/business/allbirds-shares-jump-over-400-plans-pivot-ai-sneakers-2026-04-15/)
 
+2026-04-23 Microsoft announced they would be cutting around 9000 workers amid AI shifts.
+
+[https://www.theguardian.com/technology/2026/apr/23/meta-microsoft-tech-ai-layoffs](https://www.theguardian.com/technology/2026/apr/23/meta-microsoft-tech-ai-layoffs)
+
+[https://www.techtimes.com/articles/316128/20260424/meta-microsoft-announce-job-cuts-thousands-employees-set-lose-their-jobs.htm](https://www.techtimes.com/articles/316128/20260424/meta-microsoft-announce-job-cuts-thousands-employees-set-lose-their-jobs.htm)
+
+[https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift](https://www.fastcompany.com/91531600/microsoft-voluntary-buyout-employees-first-ever-move-to-cut-jobs-workforce-ai-shift)
+
 ### 2026 June
 
 2026-06-01 Anthropic filed for an initial public offering after it raised $65B and pushed its valuation to $965B. Bernie Sanders announced a new bill that would create a sovereign wealth fund by imposing a one-time 50% tax on big-tech stock. Sanders wrote in an op-ed it would, “give the public a direct role in determining the future of this technology….not simply to make the richest people in the world even richer…”.
@@ -207,6 +215,14 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 
 ### 2026 July
 
+2026-07-06 Microsoft cut 4800 more jobs, citing a loss of 64 cents for every dollar the company invested. 
+
+[https://www.businessinsider.com/microsoft-jobs-cuts-across-sales-and-xbox-read-the-memo-2026-7](https://www.businessinsider.com/microsoft-jobs-cuts-across-sales-and-xbox-read-the-memo-2026-7)
+
+[https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html](https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html)
+
+[https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html](https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html)
+
 2026-07-13 Apple sued OpenAI over alleged trade secret theft. 
 
 [https://www.reuters.com/legal/litigation/apple-sues-openai-alleging-misappropriation-trade-secrets-court-records-show-2026-07-10/](https://www.reuters.com/legal/litigation/apple-sues-openai-alleging-misappropriation-trade-secrets-court-records-show-2026-07-10/)
@@ -216,3 +232,13 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.bloomberg.com/news/articles/2026-07-13/how-apple-s-lawsuit-threatens-to-disrupt-openai-s-bid-to-rival-the-iphone](https://www.bloomberg.com/news/articles/2026-07-13/how-apple-s-lawsuit-threatens-to-disrupt-openai-s-bid-to-rival-the-iphone)
 
 [https://www.macrumors.com/2026/07/13/openai-lawsuit-threatens-plans/](https://www.macrumors.com/2026/07/13/openai-lawsuit-threatens-plans/)
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
+
+[https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/](https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/)
+
+[https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates](https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates)
+
+[https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
+
+TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)

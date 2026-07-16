@@ -521,6 +521,10 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank](https://www.pbs.org/newshour/politics/rep-ro-khanna-says-he-was-detained-by-the-israeli-military-and-settlers-in-the-west-bank)
 
+2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
+
+[https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/](https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/)
+
 2026-07-13 The Trump administration vowed to disable the International Criminal Court. 
 
 [https://www.aljazeera.com/news/2026/7/13/trump-administration-vows-to-disable-international-criminal-court](https://www.aljazeera.com/news/2026/7/13/trump-administration-vows-to-disable-international-criminal-court)

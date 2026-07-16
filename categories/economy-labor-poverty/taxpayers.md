@@ -592,3 +592,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638](https://www.politico.com/live-updates/2026/07/14/congress/schumer-rips-senate-defense-bill-as-dems-are-poised-to-block-it-00996638)
 
 [https://www.cbsnews.com/news/senate-democrats-ndaa-iran/](https://www.cbsnews.com/news/senate-democrats-ndaa-iran/)
+
+2026-07-14 The Iran war cost reached approximately $100BN. 
+
+[https://www.nbcnews.com/politics/national-security/iran-war-cost-much-100-billion-rcna587362](https://www.nbcnews.com/politics/national-security/iran-war-cost-much-100-billion-rcna587362)
+
+[https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/](https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/)
+
+[https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war](https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war)

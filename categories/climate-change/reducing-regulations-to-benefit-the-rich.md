@@ -465,3 +465,13 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.axios.com/2026/07/10/trump-housing-bill-affordability](https://www.axios.com/2026/07/10/trump-housing-bill-affordability)
 
 [https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act](https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act)
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
+
+[https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/](https://electrek.co/2026/07/14/musk-buys-gas-turbine-company-apr-energy-grok/)
+
+[https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates](https://www.tomshardware.com/tech-industry/data-centers/elon-musks-colossus-2-data-center-installed-59-natural-gas-turbines-without-permission-report-claims-thousands-of-tons-of-pollutants-reportedly-impact-black-communities-in-mississippi-already-suffering-from-elevated-lung-disease-rates)
+
+[https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
+
+TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)

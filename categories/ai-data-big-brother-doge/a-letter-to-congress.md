@@ -282,6 +282,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
+2026-04-23 Microsoft announced they would be cutting around 9000 workers amid AI shifts.
+
 2026-04-27 Elon Musk sued Sam Altman over OpenAI.
 
 2026-04-29 Maryland became the first state to ban AI-driven grocery dynamic pricing.
@@ -329,6 +331,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-06-30 SCOTUS ruled that geofence warrants are subject to Fourth Amendment protections. Justice Elena Kagan wrote, “An individual has a reasonable expectation of privacy in records about his cell phone’s location, and police intrude on that constitutionally protected interest when they demand the information”. 
 
+2026-07-06 Microsoft cut 4800 more jobs, citing a loss of 64 cents for every dollar the company invested. 
+
 2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
 
 2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
@@ -339,6 +343,9 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
 
+2026-07-14 New York placed a moratorium on building data centers. 
+
+2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
 
 
 
