@@ -449,6 +449,10 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html](https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html)
 
+[https://www.youtube.com/watch?v=JR8KAxmH-UA&list=WL&index=2](https://www.youtube.com/watch?v=JR8KAxmH-UA&list=WL&index=2)
+
+[https://www.reuters.com/business/world-at-work/microsoft-joins-ai-driven-tech-layoff-wave-with-4800-job-cuts-2026-07-06/](https://www.reuters.com/business/world-at-work/microsoft-joins-ai-driven-tech-layoff-wave-with-4800-job-cuts-2026-07-06/)
+
 2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
 
 [https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s](https://www.youtube.com/watch?v=LZEbgh4Vq4c&list=WL&index=1&t=22s)
@@ -456,3 +460,4 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 [https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html](https://finance.yahoo.com/news/retirees-returning-big-reason-why-115506919.html)
 
 [https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)
+

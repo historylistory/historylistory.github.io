@@ -138,3 +138,15 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 [https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases](https://www.pbs.org/newshour/politics/hegseth-says-he-will-allow-troops-to-take-personal-weapons-onto-military-bases)
 
 [https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/](https://www.cbsnews.com/news/hegseth-troops-personal-firearms-military-bases/)
+
+### 2026 July
+
+2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
+
+[https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/](https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/)
+
+[https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait](https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims](https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html](https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html)

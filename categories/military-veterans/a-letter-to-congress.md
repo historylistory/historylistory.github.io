@@ -314,6 +314,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies.
 
+2026-06-10 Congress proposed more cuts to VA benefits. 
+
 2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
 
 2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8.
@@ -323,6 +325,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-04 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway. 
 
 2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+
+2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
 
 2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
 

@@ -79,6 +79,14 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 [https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
  
+### 2026 June
+
+2026-06-10 Congress proposed more cuts to VA benefits. 
+
+[https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/](https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/)
+
+[https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation](https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation)
+
 ### 2026 July
 
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 

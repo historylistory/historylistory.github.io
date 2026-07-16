@@ -31,3 +31,12 @@ permalink: /categories/military-veterans/education-and-benefits/
 [https://www.businessinsider.com/pentagon-hegseth-order-cancels-military-attendance-more-top-universities-2026-2#:~:text=That%20leaked%20guidance%20noted%20that,war%20college%20could%20be%20targeted](https://www.businessinsider.com/pentagon-hegseth-order-cancels-military-attendance-more-top-universities-2026-2).
 
 [https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness](https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness)
+
+### 2026 June
+
+2026-06-10 Congress proposed more cuts to VA benefits. 
+
+[https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/](https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/)
+
+[https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation](https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation)
+

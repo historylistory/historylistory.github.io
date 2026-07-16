@@ -122,3 +122,13 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
 
 [https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1](https://www.youtube.com/watch?v=HnefF2SR3jo&list=WL&index=1)
+
+2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
+
+[https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/](https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/)
+
+[https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait](https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims](https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html](https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html)

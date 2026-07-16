@@ -134,3 +134,11 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 [https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics](https://www.foxnews.com/media/joe-rogan-reveals-text-trump-helped-expedite-federal-review-psychedelics)
 
 [https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/](https://time.com/article/2026/04/21/trump-psychedelics-executive-order-what-to-know/)
+
+### 2026 June
+
+2026-06-10 Congress proposed more cuts to VA benefits. 
+
+[https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/](https://www.dav.org/learn-more/news/2026/dav-condemns-congressional-proposal-to-cut-disability-benefits-for-1-5-million-veterans/)
+
+[https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation](https://democrats-veterans.house.gov/news/press-releases/veterans-service-organizations-and-veterans-reject-the-largest-veterans-benefits-cut-in-a-generation)

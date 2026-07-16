@@ -6,6 +6,20 @@ subcategory_slug: endless-election-fraud-claims
 permalink: /categories/voting-census/endless-election-fraud-claims/
 ---
 
+### 1993
+
+1993-05-20 Clinton signed the “Motor Voter Act” or National Voter Registration Act to help register voters. The GOP used this bill to demonize women, minority and immigrant voters and claim voter fraud. 
+
+[https://www.rockthevote.org/explainers/what-is-the-national-registration-act-of-1993/](https://www.rockthevote.org/explainers/what-is-the-national-registration-act-of-1993/)
+
+[https://www.justice.gov/crt/national-voter-registration-act-1993-nvra](https://www.justice.gov/crt/national-voter-registration-act-1993-nvra)
+
+GOP FRAUD CLAIMS [https://www.npr.org/2017/07/07/535920463/the-controversy-over-the-motor-voter-law](https://www.npr.org/2017/07/07/535920463/the-controversy-over-the-motor-voter-law)
+
+GOP FRAUD CLAIMS [https://steube.house.gov/in-the-news/house-republicans-introduce-bill-to-repeal-motor-voter-law-over-fraud-fears/](https://steube.house.gov/in-the-news/house-republicans-introduce-bill-to-repeal-motor-voter-law-over-fraud-fears/)
+
+GOP FRAUD CLAIMS [https://www.cato.org/testimony/motor-voter-act-voter-fraud](https://www.cato.org/testimony/motor-voter-act-voter-fraud)
+
 ### 2012
 
 2012-10-18 Trump called the 2012 vote a "total sham".

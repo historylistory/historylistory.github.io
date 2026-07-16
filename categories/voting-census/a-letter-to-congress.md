@@ -54,8 +54,11 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 ### Chronology.
 
+1993-05-20 Clinton signed the “Motor Voter Act” or National Voter Registration Act to help register voters. The GOP used this bill to demonize women, minority and immigrant voters and claim voter fraud. 
 
 2000-01-01 Larry Elder wrote, “Women know less than men about political issues, economics, and current events”. 
+
+2000-11-07 George Bush lost the national popular vote to Al Gore, but he won because he secured 271 electoral votes to Gore’s 266. 
 
 2006-06-28 Courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
 

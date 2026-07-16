@@ -378,6 +378,16 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 ### 2026 July
 
+2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
+
+[https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/](https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/)
+
+[https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait](https://newrepublic.com/post/212283/soldiers-hegseth-downplaying-iran-war-injuries-kuwait)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims](https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims)
+
+[https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html](https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html)
+
 2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
 
 [https://punchbowl.news/article/house/johnson-pressure/](https://punchbowl.news/article/house/johnson-pressure/)

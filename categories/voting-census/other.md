@@ -6,6 +6,16 @@ subcategory_slug: other
 permalink: /categories/voting-census/other/
 ---
 
+### 2000 
+
+2000-11-07 George Bush lost the national popular vote to Al Gore, but he won because he secured 271 electoral votes to Gore’s 266. 
+
+[https://www.nationalpopularvote.com/5-47-presidents-came-office-without-winning-national-popular-vote](https://www.nationalpopularvote.com/5-47-presidents-came-office-without-winning-national-popular-vote)
+
+[https://www.reddit.com/r/Presidents/comments/1ob1lwf/george_w_bush_is_the_only_president_that_lost_the/](https://www.reddit.com/r/Presidents/comments/1ob1lwf/george_w_bush_is_the_only_president_that_lost_the/)
+
+[https://www.factcheck.org/2008/03/presidents-winning-without-popular-vote/](https://www.factcheck.org/2008/03/presidents-winning-without-popular-vote/)
+
 ### 2016
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.

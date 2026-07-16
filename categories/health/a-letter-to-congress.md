@@ -491,6 +491,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-05-28 Cases of GLP-1 weight loss drug overdoses rose from 1366 in 2021 to 15,102 in 2025.
 
+2026-06-10 Congress proposed more cuts to VA benefits. 
+
 2026-06-16 The Ebola outbreak in Africa is the worst in history.
 
 2026-06-19 The DOJ released a memo undermining the Olmstead mandate designed to provide community-based services to people with disabilities, particularly if they are homeless disabled.
