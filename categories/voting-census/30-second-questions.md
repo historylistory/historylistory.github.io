@@ -40,3 +40,28 @@ SOME SOURCES
 
 * THREATS March 31, 2026 Trump threatened to nationalize elections and take control of USPS [NBC News.com](https://www.nbcnews.com/politics/elections/trump-signs-executive-order-create-federal-voter-lists-rcna266092)
 
+### Question 2 
+
+President Trump pressured Republican-led states to redraw congressional maps to protect their House majority, then condemned Democratic states when they pursued matching redistricting efforts to protect their own seats. Now he is seeking greater federal control over elections, voting records and equipment before the midterms. What evidence can you offer that this is about election security rather than partisan interference, and will you oppose any attempt by this president to seize emergency control over how Americans vote?
+
+SOME SOURCES
+
+* FIND VOTES January 2, 2021 Trump demanded Sec of State Brad Raffensberger to find him 11,780 more votes [The Guardian.com](https://www.theguardian.com/us-news/2021/jan/03/trump-georgia-raffensperger-call-biden-washington-post)
+
+* GEORIGA INTERFERENCE August 14, 2023 Trump and 18 co-defendants were charged in Georgia election interference [WABE.org](https://www.wabe.org/fulton-election-case/)
+
+* EMERGENCY FEDERAL CONTROL February 27, 2026 Trump tried to push an EO to grant him total emergency federal oversight of elections [Democracy Docket.com](https://www.democracydocket.com/news-alerts/read-the-laughable-legal-memo-behind-the-claim-that-trump-can-declare-a-national-voting-emergency/)
+
+* GERRYMANDERING August 5, 2025 Trump pressured several states to redistrict [NPR.org](https://www.npr.org/2025/08/14/nx-s1-5501537/texas-california-gerrymandering-redistricting) and here [Indiana Capital Chronicle.com](https://indianacapitalchronicle.com/2025/08/28/gop-legislative-leaders-break-redistricting-silence-as-opponents-deliver-signature-backed-petition/)
+
+* GERRYMANDERING November 4, 2025 Trump called California redistricting proposition 50 rigged and criminal [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/115492361756063244) and here [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/115492285081397189)
+
+* NATIONALIZE ELECTIONS March 3, 2026 Trump signed an EO instructing DHS to gather a voter list and let USPS transmit ballots, to nationalize elections [ACLU.org](https://www.aclu.org/press-releases/voting-rights-groups-challenge-executive-order-on-mail-in-ballots-as-illegal-interference-in-elections)
+
+* NATIONALIZE ELECTIONS September 26, 2025 The DOJ sued Democrat-led states for voter information access [Politico.com](https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182)
+
+* INTIMIDATION April 20, 2020 Trump threatened to send law enforcement officials to polling locations [CNN.com](https://www.cnn.com/2020/08/20/politics/trump-election-day-sheriffs)
+
+* INTIMIDATION January 23, 2026 Pam Bondi sent a letter to Tim Walz one hour after Pretti was shot, saying they’ll remove ICE from Minnesota in trade for voter files [NPR.org](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
+
+* INTIMIDATION March 27, 2026 Todd Blanche asked why everyone is opposed to sending ICE to polling places [The Daily Beast.com](https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/)

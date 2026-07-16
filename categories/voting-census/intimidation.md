@@ -28,9 +28,9 @@ permalink: /categories/voting-census/intimidation/
 
 2025-09-26 The DOJ sued several Democratic-led states over access to voter information.
 
-{% include youtubePlayer.html id="Kjy02hyfu0Y" %}
-
 [https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182](https://www.politico.com/news/2025/09/25/department-of-justice-voting-rolls-data-00581182)
+
+{% include youtubePlayer.html id="Kjy02hyfu0Y" %}
 
 
 ### 2026 January
