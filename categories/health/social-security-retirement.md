@@ -126,3 +126,9 @@ permalink: /categories/health/social-security-retirement/
 [https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
 
 [https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)
+
+### 2026 July
+
+2026-07-07 Congressman Mike Flood held a town hall. Thirty-two minutes into that meeting he stated, "that bill eliminated taxes on overtime, on tips, and social security", "I also was a co-sponser of the bill that takes the tax away on Social Security, which we're phasing out over time" but didn't specify what we were phasing out. 
+
+[https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208](https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208)

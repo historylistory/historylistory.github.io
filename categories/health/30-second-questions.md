@@ -55,3 +55,12 @@ SOME SOURCES
 * DR OZ HCG for weight loss, even though the FDA warned its unsupported
 
 * DR OZ Selenium for cancer prevention [Washington Post.com](https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show)
+
+
+### Question 3
+
+Congressman Mike Flood held a town hall. Thirty-two minutes into that meeting he stated, "that bill (meaning the Big Beautiful Bill) eliminated taxes on overtime, on tips, and social security", "I also was a co-sponser of the bill that takes the tax away on Social Security, which we're phasing out over time" but didn't specify what we were phasing out. For clarification, did he mean phasing out taxes, or phasing out Social Security?  
+
+SOME SOURCES 
+
+* TOWN HALL July 7, 2026 full document, skip to timestamp 32:44 [https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208](https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208)
