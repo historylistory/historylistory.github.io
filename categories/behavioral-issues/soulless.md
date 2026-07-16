@@ -941,3 +941,11 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.404media.co/a-farmer-donated-land-to-turn-into-a-park-the-city-is-building-a-massive-data-center-instead/](https://www.404media.co/a-farmer-donated-land-to-turn-into-a-park-the-city-is-building-a-massive-data-center-instead/)
 
 [https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion](https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion)
+
+2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 
+
+[https://www.jpost.com/israel-news/article-902340](https://www.jpost.com/israel-news/article-902340)
+
+[https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104](https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104)
+
+[https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine](https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine)

@@ -257,3 +257,16 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.aol.com/articles/watch-drone-reveals-devastating-flash-194357974.html](https://www.aol.com/articles/watch-drone-reveals-devastating-flash-194357974.html)
 
+2026-07-16 Texas governor Abbot declared flood related disaster in Texas across 59 counties 
+
+[https://www.youtube.com/watch?v=O8v8sBYvVxA&list=WL&index=3](https://www.youtube.com/watch?v=O8v8sBYvVxA&list=WL&index=3)
+
+[https://cbsaustin.com/news/local/gov-abbott-declares-disaster-in-59-texas-counties-including-central-texas](https://cbsaustin.com/news/local/gov-abbott-declares-disaster-in-59-texas-counties-including-central-texas)
+
+[https://www.khou.com/article/news/local/texas/gov-abbott-disaster-declaration-texas-counties-flash-flood-threat/285-4e9b2f37-4555-4626-a73a-d8be1462f6a1](https://www.khou.com/article/news/local/texas/gov-abbott-disaster-declaration-texas-counties-flash-flood-threat/285-4e9b2f37-4555-4626-a73a-d8be1462f6a1)
+
+2026-07-16 Air quality readings reached hazardous levels in the Midwest and Northeastern states. 
+
+[https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert](https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert)
+
+[https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870](https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870)

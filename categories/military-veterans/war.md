@@ -404,3 +404,9 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.cbsnews.com/news/senate-democrats-ndaa-iran/](https://www.cbsnews.com/news/senate-democrats-ndaa-iran/)
 
+
+2026-07-14 Lindsey Graham’s sister was sworn in to public office. Her first act in office was to cast a vote in favor of the $1.15TR annual defense authorization bill.
+
+[https://www.aljazeera.com/news/2026/7/15/why-has-lindsey-grahams-sister-inherited-his-senate-seat-after-his-death](https://www.aljazeera.com/news/2026/7/15/why-has-lindsey-grahams-sister-inherited-his-senate-seat-after-his-death)
+
+

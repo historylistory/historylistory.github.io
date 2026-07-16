@@ -333,3 +333,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
 
+2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
+
+[https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention](https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention)
+
+[https://www.democracynow.org/2026/7/16/headlines/45_year_old_venezuelan_immigrant_dies_in_ice_custody_in_georgia](https://www.democracynow.org/2026/7/16/headlines/45_year_old_venezuelan_immigrant_dies_in_ice_custody_in_georgia)
+
+[https://www.ice.gov/news/releases/venezuelan-detainee-dies-ice-custody-during-transfer-georgia](https://www.ice.gov/news/releases/venezuelan-detainee-dies-ice-custody-during-transfer-georgia)
+
+

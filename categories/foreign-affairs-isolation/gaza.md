@@ -532,3 +532,11 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/](https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/)
 
 [https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813](https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813)
+
+2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 
+
+[https://www.jpost.com/israel-news/article-902340](https://www.jpost.com/israel-news/article-902340)
+
+[https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104](https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104)
+
+[https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine](https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine)

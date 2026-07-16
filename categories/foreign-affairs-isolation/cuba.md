@@ -262,3 +262,12 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 2026-06-15 Vance said the administration plans to release the “Memorandum of Understanding” agreement between the US and Iran. 
 
 [https://www.politico.com/news/2026/06/15/jd-vance-iran-deal-signed-00962149](https://www.politico.com/news/2026/06/15/jd-vance-iran-deal-signed-00962149)
+
+### 2026 July
+
+2024-07-14 Cuba’s national electric grid crashed for the third time in a month. 
+
+[https://www.reuters.com/business/energy/cubas-national-electric-grid-collapses-third-time-july-state-media-says-2026-07-14/](https://www.reuters.com/business/energy/cubas-national-electric-grid-collapses-third-time-july-state-media-says-2026-07-14/)
+
+[https://www.usnews.com/news/world/articles/2026-07-14/cubas-national-electric-grid-collapses-for-the-third-time-in-july-state-media-says](https://www.usnews.com/news/world/articles/2026-07-14/cubas-national-electric-grid-collapses-for-the-third-time-in-july-state-media-says)
+

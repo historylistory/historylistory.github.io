@@ -720,3 +720,4 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
 
+2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 

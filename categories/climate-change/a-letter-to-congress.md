@@ -314,3 +314,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-11 A foot of rain caused record flash floods in Missouri to West Virginia.
 
 2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
+
+2026-07-16 Texas governor Abbot declared flood related disaster in Texas across 59 counties 
+
+2026-07-16 Air quality readings reached hazardous levels in the Midwest and Northeastern states. 
+

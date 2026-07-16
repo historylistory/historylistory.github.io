@@ -363,3 +363,10 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
 
 [https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
+
+2026-07-14 A new report from Physicians for Human Rights warns of over 400 cases of excessive force resulting in blinding, traumatic brain injuries, and permanent disabilities. 
+
+[https://www.aclu.org/press-releases/new-aclu-report-documents-widespread-and-unchecked-civil-rights-abuses-by-immigration-agents-in-president-trumps-second-term](https://www.aclu.org/press-releases/new-aclu-report-documents-widespread-and-unchecked-civil-rights-abuses-by-immigration-agents-in-president-trumps-second-term)
+
+[https://www.democracynow.org/2026/7/15/headlines/report_us_law_enforcement_responsible_for_over_400_misuse_of_force_cases_against_civilians](https://www.democracynow.org/2026/7/15/headlines/report_us_law_enforcement_responsible_for_over_400_misuse_of_force_cases_against_civilians)
+
