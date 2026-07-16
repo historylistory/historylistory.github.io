@@ -126,7 +126,7 @@ permalink: /recommended-links/
 
 [GET INVOLVED: People for the American Way](https://www.peoplefor.org/)
 
-[GET INVOLVEDl People for the American Way/Right Wing Watch](https://www.peoplefor.org/rightwingwatch)
+[GET INVOLVED: People for the American Way/Right Wing Watch](https://www.peoplefor.org/rightwingwatch)
 
 [GET INVOLVED: DCCC.org](https://dccc.org/)
 
@@ -134,6 +134,11 @@ permalink: /recommended-links/
 
 [GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
 
+---
+
+[GET INVOLVED/FIGHT EXTREMISM: Institute for Strategic Dialogue](https://www.isdglobal.org/)
+
+[GET INVOLVED/FIGHT EXTREMISM: Southern Poverty Law Center](https://www.splcenter.org/)
 ---
 
 [GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
