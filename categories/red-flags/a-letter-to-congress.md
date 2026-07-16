@@ -70,6 +70,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2017-04-29 Snake Poem
 
+2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
+
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
 2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil “The Great Liar”. Pope Francis issued a second warning in 

@@ -8,7 +8,17 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 ### 2017
 
-2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017 which widened the deficit and caused a120% “billionaire boom”.
+2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
+
+[https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses](https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses)
+
+[https://taxpolicycenter.org/briefing-book/how-did-tax-cuts-and-jobs-act-change-personal-taxes](https://taxpolicycenter.org/briefing-book/how-did-tax-cuts-and-jobs-act-change-personal-taxes)
+
+[https://www.bloomberg.com/news/articles/2024-05-02/apple-s-110-billion-stock-buyback-plan-is-largest-in-us-history](https://www.bloomberg.com/news/articles/2024-05-02/apple-s-110-billion-stock-buyback-plan-is-largest-in-us-history)
+
+[https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957](https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957)
+
+[https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/](https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/)
 
 [https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis](https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis)
 
@@ -23,6 +33,7 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 [https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf](https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf)
 
 [https://x.com/barronsonline/status/1877264406230310976](https://x.com/barronsonline/status/1877264406230310976)
+
 
 ### 2019
 

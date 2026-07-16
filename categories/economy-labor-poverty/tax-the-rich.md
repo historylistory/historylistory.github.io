@@ -35,7 +35,7 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 ### 2017
 
-2017-11-02 the Tax Cuts and Jobs Act of 2017 was enacted to overhaul the IRS code by permanently reducing corporate tax rates from 35% to 21%.  Results were the largest stock buyback in history and rich people taking their own tax breaks while inflating their own wealth. 
+2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
 
 [https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses](https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses)
 
@@ -46,6 +46,21 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 [https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957](https://www.wsj.com/articles/the-2017-tax-cuts-helped-companies-more-than-workers-11590778957)
 
 [https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/](https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/)
+
+[https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis](https://www.brookings.edu/articles/effects-of-the-tax-cuts-and-jobs-act-a-preliminary-analysis)
+
+[https://trumpwhitehouse.archives.gov/briefings-statements/remarks-president-trump-signing-h-r-1-tax-cuts-jobs-bill-act-h-r-1370/](https://trumpwhitehouse.archives.gov/briefings-statements/remarks-president-trump-signing-h-r-1-tax-cuts-jobs-bill-act-h-r-1370/)
+
+[https://www.americanprogress.org/article/tcja-2-years-later-corporations-not-workers-big-winners/](https://www.americanprogress.org/article/tcja-2-years-later-corporations-not-workers-big-winners/)
+
+[https://www.cbpp.org/research/federal-tax/the-2017-trump-tax-law-was-skewed-to-the-rich-expensive-and-failed-to-deliver](https://www.cbpp.org/research/federal-tax/the-2017-trump-tax-law-was-skewed-to-the-rich-expensive-and-failed-to-deliver)
+
+[https://americansfortaxfairness.org/billionaires-2-2-trillion-richer-since-2017-trump-gop-tax-law/](https://americansfortaxfairness.org/billionaires-2-2-trillion-richer-since-2017-trump-gop-tax-law/)
+
+[https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf](https://populardemocracyinaction.org/wp-content/uploads/2025/06/Trump-Corporate-Oligarchs.pdf)
+
+[https://x.com/barronsonline/status/1877264406230310976](https://x.com/barronsonline/status/1877264406230310976)
+
 
 
 

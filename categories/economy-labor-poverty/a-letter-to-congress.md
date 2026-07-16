@@ -83,11 +83,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
-2017-11-02 the Tax Cuts and Jobs Act of 2017 was enacted to overhaul the IRS code by permanently reducing corporate tax rates from 35% to 21%.  Results were the largest stock buyback in history and rich people taking their own tax breaks while inflating their own wealth. 
+2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
 
 2017-11-24 Trump attempted to dismantle the Consumer Financial Protection Bureau.
-
-2017-12-22 Trump signed the Tax Cuts and Jobs Act of 2017 which widened the deficit and caused a120% “billionaire boom”.
 
 2018-01-17 Apple announced it would invest $350B in the U.S. economy over the next 5 years.
 
