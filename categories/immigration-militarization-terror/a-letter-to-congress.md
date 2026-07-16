@@ -104,6 +104,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
 
+2024-02-22 Republicans used Laken Riley’s tragedy to demonize immigrants. 
+
 2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
 
 2024-03-20 Charlie Kirk said, “The American Democrat party hates this country. They wanna see it collapse. They love it when America becomes less white.”
@@ -695,6 +697,8 @@ Next
 2026-05-26 The Trump administration announced that anyone currently in the US applying for a green card must return to their countries and re-apply.
 
 2026-05-27 After Bari Weiss pulled a story from 60-Minutes about CECOT, reporting correspondent Sharyn Alfonsi wrote in a parting statement, “In the coming days, network leadership may attempt to hide behind corporate euphemisms like ‘modernization’ and ‘restructuring’ to explain away my departure. Don’t be misled. This was not a routine corporate transition; it was a deliberate choice to penalize a journalist for refusing to sanitize factually accurate reporting, and it sends a chilling message to the entire newsroom”.
+
+2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
 
 2026-05-31 Bovino delivered a speech at the neo-fascist Remigration Summit in Portugal (RESUM26).
 

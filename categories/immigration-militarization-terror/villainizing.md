@@ -50,6 +50,20 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 
 ### 2024
 
+2024-02-22 Republicans used Laken Riley’s tragedy to demonize immigrants. 
+
+[https://www.ilrc.org/press/laken-riley-act-manipulates-tragedy-unjustly-demonizes-immigrants](https://www.ilrc.org/press/laken-riley-act-manipulates-tragedy-unjustly-demonizes-immigrants)
+
+[https://www.nbcnews.com/politics/immigration/republicans-invoke-georgia-students-death-push-hardline-immigration-po-rcna140606](https://www.nbcnews.com/politics/immigration/republicans-invoke-georgia-students-death-push-hardline-immigration-po-rcna140606)
+
+[https://truthsocial.com/@realDonaldTrump/posts/111998854564291670](https://truthsocial.com/@realDonaldTrump/posts/111998854564291670)
+
+[https://www.npr.org/2024/03/09/1237179284/how-the-death-of-georgia-nursing-student-laken-riley-led-to-a-debate-about-immig](https://www.npr.org/2024/03/09/1237179284/how-the-death-of-georgia-nursing-student-laken-riley-led-to-a-debate-about-immig)
+
+[https://x.com/GovKemp/status/1761801568024772718?s=20](https://x.com/GovKemp/status/1761801568024772718?s=20)
+
+[https://x.com/SpeakerJohnson/status/1761414113467437435?s=20](https://x.com/SpeakerJohnson/status/1761414113467437435?s=20)
+
 2024-03-01 Charlie Kirk said, “The great replacement strategy, which is well under way every single day in our southern border, is a strategy to replace white rural America with something different.”
 
 [https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs](https://www.theguardian.com/us-news/2025/sep/11/charlie-kirk-quotes-beliefs)
@@ -320,3 +334,15 @@ permalink: /categories/immigration-militarization-terror/villainizing/
 [https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody](https://www.theguardian.com/us-news/2026/apr/25/egyptian-family-ice-custody)
 
 SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html](https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-dilley-texas.html)
+
+### 2026 May
+
+2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
+
+[https://www.whitehouse.gov/aliens/](https://www.whitehouse.gov/aliens/)
+
+[https://www.foxnews.com/politics/white-house-drops-eerie-aliens-walk-among-us-warning-truth-much-closer-home](https://www.foxnews.com/politics/white-house-drops-eerie-aliens-walk-among-us-warning-truth-much-closer-home)
+
+[https://www.npr.org/2026/06/03/nx-s1-5843359/white-house-gov-website-alien-immigration](https://www.npr.org/2026/06/03/nx-s1-5843359/white-house-gov-website-alien-immigration)
+
+[https://thehill.com/homenews/administration/5900475-white-house-aliens-site-immigrant-arrests/](https://thehill.com/homenews/administration/5900475-white-house-aliens-site-immigrant-arrests/)

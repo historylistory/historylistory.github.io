@@ -76,6 +76,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2016-12-02 Pizzagate spread online after leaked Podesta emails were falsely interpreted as code for a Clinton-linked child sex ring.
 
+2017-01-20 Though it originated in 1990, the Deep State conspiracy gained a lot of traction during Trump’s first presidency. The theory alleges a shadow government of unelected officials and corporate elites manipulate and run the country. 
+
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
 2017-10-01 QAnon began on 4chan when an anonymous user claimed ‘Q clearance’ and posted cryptic pro-Trump messages and the slogan “Where we go one, we go all.”
@@ -207,6 +209,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-07-01 Kristi Noem claimed an immigrant attempted to eat their own arm during a deportation flight.
 
 2025-07-22 Trump accused Obama of treason, “they tried to rig the election, and they got caught” and “Whether it’s right or wrong, it’s time to go after people. Obama’s been caught directly”.
+
+2025-07-22 Data from the Institute for Strategic Dialogue showed an increase in false flag claims of 1100%. 
 
 2025-07-23 Tulsi Gabbard claimed in a conspiracy-board post that newly released intelligence documents showed the Obama administration manufactured evidence of Russian election interference in 2016
 

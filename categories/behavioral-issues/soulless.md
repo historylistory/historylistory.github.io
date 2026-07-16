@@ -113,6 +113,23 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 [https://giffords.org/press-release/2024/10/trump-to-parents-of-kids-killed-we-need-guns-for-entertainment/](https://giffords.org/press-release/2024/10/trump-to-parents-of-kids-killed-we-need-guns-for-entertainment/)
 
+### 2024 February
+
+2024-02-22 Republicans used Laken Riley’s tragedy to demonize immigrants. 
+
+[https://www.ilrc.org/press/laken-riley-act-manipulates-tragedy-unjustly-demonizes-immigrants](https://www.ilrc.org/press/laken-riley-act-manipulates-tragedy-unjustly-demonizes-immigrants)
+
+[https://www.nbcnews.com/politics/immigration/republicans-invoke-georgia-students-death-push-hardline-immigration-po-rcna140606](https://www.nbcnews.com/politics/immigration/republicans-invoke-georgia-students-death-push-hardline-immigration-po-rcna140606)
+
+[https://truthsocial.com/@realDonaldTrump/posts/111998854564291670](https://truthsocial.com/@realDonaldTrump/posts/111998854564291670)
+
+[https://www.npr.org/2024/03/09/1237179284/how-the-death-of-georgia-nursing-student-laken-riley-led-to-a-debate-about-immig](https://www.npr.org/2024/03/09/1237179284/how-the-death-of-georgia-nursing-student-laken-riley-led-to-a-debate-about-immig)
+
+[https://x.com/GovKemp/status/1761801568024772718?s=20](https://x.com/GovKemp/status/1761801568024772718?s=20)
+
+[https://x.com/SpeakerJohnson/status/1761414113467437435?s=20](https://x.com/SpeakerJohnson/status/1761414113467437435?s=20)
+
+
 ### 2024 June
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.

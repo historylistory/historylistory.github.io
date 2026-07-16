@@ -368,3 +368,8 @@ LOST NOT STOLEN DOC, JULY 2022 [https://www.documentcloud.org/documents/25116913
 
 [https://www.youtube.com/watch?v=0fKZD8dXb4k&list=WL&index=2](https://www.youtube.com/watch?v=0fKZD8dXb4k&list=WL&index=2)
 
+2026-07-15 Trump’s pick to head national intelligence, Jay Clatyon, refused to tell senators Biden won the 2020 election. 
+
+[https://www.cnbc.com/2026/07/15/trump-dni-jay-clayton-senate-2020-election.html](https://www.cnbc.com/2026/07/15/trump-dni-jay-clayton-senate-2020-election.html)
+
+[https://thehill.com/homenews/senate/5969950-jay-clayton-dni-confirmation-hearing/](https://thehill.com/homenews/senate/5969950-jay-clayton-dni-confirmation-hearing/)

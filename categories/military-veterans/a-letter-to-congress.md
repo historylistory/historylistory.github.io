@@ -327,3 +327,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-14 Republicans are expected to begin work on “Reconciliation 3.0” for an additional $67B and $350B in Pentagon funding.
 
 2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 
+
+2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 

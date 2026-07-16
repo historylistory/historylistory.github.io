@@ -510,3 +510,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-08 Due to cost-of-living retirees are returning to the workforce. 
 
 2026-07-10 The US had a cyclospora outbreak. 
+
+2026-07-15 AOC slams big pharma for gaming the US patent system at a health subcommittee hearing. 

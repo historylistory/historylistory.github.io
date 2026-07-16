@@ -181,6 +181,20 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://x.com/adammocklerr](https://x.com/adammocklerr)
 
+### 2025 October
+
+2025-10-13 A report shows that other countries which suffered mass shootings have reformed their gun laws. 
+
+[https://www.cfr.org/backgrounders/us-gun-policy-global-comparisons](https://www.cfr.org/backgrounders/us-gun-policy-global-comparisons)
+
+[https://www.cbs8.com/article/news/local/a-look-at-gun-reform-laws-in-other-nations/509-1059a14f-6632-4ed9-8ac2-604a313de845](https://www.cbs8.com/article/news/local/a-look-at-gun-reform-laws-in-other-nations/509-1059a14f-6632-4ed9-8ac2-604a313de845)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC2704353/](https://pmc.ncbi.nlm.nih.gov/articles/PMC2704353/)
+
+[https://www.reuters.com/world/how-countries-have-legislated-after-mass-shootings-2023-05-05/](https://www.reuters.com/world/how-countries-have-legislated-after-mass-shootings-2023-05-05/)
+
+PAY WALL [https://www.nytimes.com/2022/05/25/world/europe/gun-laws-australia-britain.html](https://www.nytimes.com/2022/05/25/world/europe/gun-laws-australia-britain.html)
+
 ### 2026 January
 
 2026-01-28 After ICE agents killed Alex Pretti, Trump drew criticism from the NRA and Gun Owners of America when he doubled down on Pretti’s murder, saying he should not have carried a firearm at the protest. 

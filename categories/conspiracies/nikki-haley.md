@@ -13,3 +13,5 @@ permalink: /categories/conspiracies/nikki-haley/
 [https://www.npr.org/2024/01/23/1226406644/trump-is-spreading-birtherism-falsehoods-again-this-time-about-nikki-haley](https://www.npr.org/2024/01/23/1226406644/trump-is-spreading-birtherism-falsehoods-again-this-time-about-nikki-haley)
 
 [https://truthsocial.com/@realDonaldTrump/posts/111721484609384209](https://truthsocial.com/@realDonaldTrump/posts/111721484609384209)
+
+[https://www.nbcnews.com/politics/donald-trump/trump-promotes-baseless-birther-conspiracy-theory-nikki-haley-rcna133166](https://www.nbcnews.com/politics/donald-trump/trump-promotes-baseless-birther-conspiracy-theory-nikki-haley-rcna133166)

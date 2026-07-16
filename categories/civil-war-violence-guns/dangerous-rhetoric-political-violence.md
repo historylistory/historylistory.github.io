@@ -85,6 +85,10 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 
 LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-tax-reform-4/)
 
+2018-10-01 Bill Clinton survived at least 5 assassination attempts. 
+
+[https://en.wikipedia.org/wiki/List_of_United_States_presidential_assassination_attempts_and_plots](https://en.wikipedia.org/wiki/List_of_United_States_presidential_assassination_attempts_and_plots)
+
 
 ### 2020
 
@@ -167,6 +171,12 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 [https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit#:~:text=One%20America%20News'%20Pearson%20Sharp,6%20violence%20at%20the%20Capitol](https://www.mediamatters.org/one-america-news-network/how-oan-figures-call-mass-executions-connected-arizona-ballot-audit).
 
 [https://www.the-independent.com/news/world/americas/us-politics/oan-executions-conspiracy-theory-qanon-b1872104.html#:~:text=A%20host%20on%20the%20far,a%20single%20ballot%20was%20cast](https://www.the-independent.com/news/world/americas/us-politics/oan-executions-conspiracy-theory-qanon-b1872104.html).
+
+### 2022 May
+
+2022-05-24 George W. Bush survived at least 2 assassination attempts. 
+
+[https://en.wikipedia.org/wiki/List_of_United_States_presidential_assassination_attempts_and_plots](https://en.wikipedia.org/wiki/List_of_United_States_presidential_assassination_attempts_and_plots)
 
 ### 2022 June
 

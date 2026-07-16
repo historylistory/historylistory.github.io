@@ -276,3 +276,14 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 2026-06-03 Ukraine struck an oil Depot in St. Petersburg.
 
 [https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9](https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9)
+
+### 2026 July
+
+2026-07-03 Russia lured Africans onto deadly front lines with deceptive recruitment schemes. 
+
+[https://www.pbs.org/newshour/show/lured-by-russia-african-soldiers-end-up-on-deadly-front-lines-of-ukraine-war](https://www.pbs.org/newshour/show/lured-by-russia-african-soldiers-end-up-on-deadly-front-lines-of-ukraine-war)
+
+[https://africacenter.org/spotlight/russia-deceptive-war-recruitment-ensnares-africans/](https://africacenter.org/spotlight/russia-deceptive-war-recruitment-ensnares-africans/)
+
+[https://www.politico.eu/article/ukraine-russia-africa-war-recruits-return/](https://www.politico.eu/article/ukraine-russia-africa-war-recruits-return/)
+

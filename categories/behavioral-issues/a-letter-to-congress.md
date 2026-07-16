@@ -116,6 +116,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 
+2024-02-22 Republicans used Laken Riley’s tragedy to demonize immigrants. 
+
 2024-03-07 Katie Britt delivered a widely mocked State of the Union response.
 
 2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”. 
@@ -661,6 +663,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
 
 2026-05-26 Mamdani released a housing plan to build affordable housing and reform maintenance code enforcement. The Heritage Foundation wrote a smear campaign against it (of course they did). 
+
+2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
 
 2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
 

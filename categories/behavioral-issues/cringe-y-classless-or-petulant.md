@@ -696,6 +696,17 @@ UNVERIFIED PDF [https://www.fcc.gov/sites/default/files/superbowl-60-part-4.pdf]
 
 [https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566](https://www.huffpost.com/entry/trump-ai-image-biden-obama-pelosi-feces_n_6a0366ade4b0cdaf88db3566)
 
+2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
+
+[https://www.whitehouse.gov/aliens/](https://www.whitehouse.gov/aliens/)
+
+[https://www.foxnews.com/politics/white-house-drops-eerie-aliens-walk-among-us-warning-truth-much-closer-home](https://www.foxnews.com/politics/white-house-drops-eerie-aliens-walk-among-us-warning-truth-much-closer-home)
+
+[https://www.npr.org/2026/06/03/nx-s1-5843359/white-house-gov-website-alien-immigration](https://www.npr.org/2026/06/03/nx-s1-5843359/white-house-gov-website-alien-immigration)
+
+[https://thehill.com/homenews/administration/5900475-white-house-aliens-site-immigrant-arrests/](https://thehill.com/homenews/administration/5900475-white-house-aliens-site-immigrant-arrests/)
+
+
 2026-05-29 Several music artists dropped out of Trump’s 250 event, stating they felt it was a politicized partisan event. In place of the event Trump proposed a MAGA rally.
 
 [https://www.youtube.com/watch?v=HVNyP1ekrDg&list=WL&index=7&t=212s](https://www.youtube.com/watch?v=HVNyP1ekrDg&list=WL&index=7&t=212s)

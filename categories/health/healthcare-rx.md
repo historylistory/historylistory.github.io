@@ -223,3 +223,9 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 [https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65](https://www.justice.gov/opa/pr/national-health-care-fraud-takedown-results-455-defendants-charged-connection-over-65)
 
 [https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants](https://www.foxnews.com/us/doj-charges-southern-california-healthcare-fraud-defendants)
+
+### 2026 July
+
+2026-07-15 AOC slams big pharma for gaming the US patent system at a health subcommittee hearing. 
+
+[https://www.youtube.com/watch?v=G-LGQJgTJv0&list=WL&index=1](https://www.youtube.com/watch?v=G-LGQJgTJv0&list=WL&index=1)

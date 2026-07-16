@@ -81,6 +81,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2018-02-05 During a speech Trump accused Democrats of treason.
 
+2018-10-01 Bill Clinton survived at least 5 assassination attempts. 
+
 2019-03-01 Marjorie Taylor Greene confronted and harassed Parkland shooting survivor David Hogg and promoted claims that he was funded by George Soros
 
 2019-09-10 Trump publicly criticized former National Security Advisor John Bolton. 
@@ -108,6 +110,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
 
 2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs.
+
+2022-05-24 George W. Bush survived at least 2 assassination attempts. 
 
 2022-05-25 Beto O'Rourke was physically removed from Governor Greg Abbott's Uvalde shooting press conference after criticizing state gun policies.
 
@@ -405,6 +409,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2025-10-10 Mike Johnson again criticized the No Kings protest, calling it a "Hate America rally”.
 
 2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
+
+2025-10-13 A report shows that other countries which suffered mass shootings have reformed their gun laws. 
 
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 

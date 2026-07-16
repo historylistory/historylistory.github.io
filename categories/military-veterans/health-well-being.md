@@ -79,3 +79,10 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 [https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
  
+### 2026 July
+
+2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
+
+[https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383](https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383)
+
+[https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth](https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth)
