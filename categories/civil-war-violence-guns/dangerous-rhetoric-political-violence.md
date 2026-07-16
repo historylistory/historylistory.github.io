@@ -6,6 +6,17 @@ subcategory_slug: dangerous-rhetoric-political-violence
 permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-violence/
 ---
 
+### 2008
+
+2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
+
+[https://en.wikipedia.org/wiki/Barack_Obama_assassination_plot_in_Denver](https://en.wikipedia.org/wiki/Barack_Obama_assassination_plot_in_Denver)
+
+2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
+
+[https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27](https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27)
+
+
 ### 2010
 
 2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
@@ -29,6 +40,18 @@ permalink: /categories/civil-war-violence-guns/dangerous-rhetoric-political-viol
 [https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage#:~:text=Saying%20that%20%22after%20this%20shocking,More%20options](https://www.npr.org/sections/thetwo-way/2011/01/12/132856601/palin-its-irresponsible-to-apportion-blame-for-arizona-rampage)
 
 {% include youtubePlayer.html id="KhcDh0-_5m4" %}
+
+2011-11-11 Oscar Ramiro Ortega-Hernandez fired a semi-automatic rifle at the White House in effort to assassinate Obama. 
+
+[https://www.pbs.org/newshour/show/idaho-man-charged-with-obama-assassination-attempt-led-sort-of-a-troubled-life](https://www.pbs.org/newshour/show/idaho-man-charged-with-obama-assassination-attempt-led-sort-of-a-troubled-life)
+
+[https://en.wikipedia.org/wiki/Security_incidents_involving_Barack_Obama](https://en.wikipedia.org/wiki/Security_incidents_involving_Barack_Obama)
+
+### 2015
+
+2015-01-01 By this year, Obama had been through at least eleven (11) attempted assassinations or plots. 
+
+[https://theweek.com/politics/president-assassination-attempts-us-history](https://theweek.com/politics/president-assassination-attempts-us-history)
 
 ### 2016
 

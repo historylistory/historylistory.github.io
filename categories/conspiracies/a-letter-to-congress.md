@@ -49,7 +49,16 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 1999-06-20 Falwell’s National Liberty Journal called the Lilith Fair women’s music festival demonic because it referenced Lilith. 
 
+2001-09-11 Alex Jones decried that 9/11 was a “false flag”. 
+
+
+2001-09-11 Alex Jones decried that 9/11 was a “false flag”. 
+
+2005-01-01 A seven-part series of conspiracy-theory films about 9/11 called Loose Change was released. 
+
 2005-12-06 Stephen Miller published “Attack of the Secularist Scrooges” in The Duke Chronicle, promoting the “war on Christmas” narrative.
+
+2008-01-01 Trump pushed the “birther” conspiracy about Obama, claiming he was ineligible to run for presidency. 
 
 2011-01-01 From 2011 to 2019, Fox News repeatedly mocked “shrimp on a treadmill” research, inflating costs and ignoring its food-safety purpose.
 

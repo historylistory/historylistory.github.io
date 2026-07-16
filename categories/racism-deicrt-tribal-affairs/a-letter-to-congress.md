@@ -83,6 +83,10 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2008-03-11 Democrat Geraldine Ferraro was interviewed on the Daily Breeze (Torrance CA) and stated, “If Obama was a white man, he would not be in this position. And if he was a woman (of any color) he would not be in this position. He happens to be very lucky to be who he is. And the country is caught up in the concept”.
 
+2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
+
+2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
+
 2009-01-01 Twenty-two-year-old Oscar Grant was killed by officers in Oakland CA.
 
 2010-01-01 Discussion of the Great Replacement Theory surfaced a lot more and even showed up later in 2022 during the Buffalo NY massacre when it was mentioned in the manifesto. 

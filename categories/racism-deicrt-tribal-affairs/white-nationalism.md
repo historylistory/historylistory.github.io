@@ -12,6 +12,16 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.motherjones.com/politics/2016/12/trumps-newest-senior-adviser-seen-ally-white-nationalists/](https://www.motherjones.com/politics/2016/12/trumps-newest-senior-adviser-seen-ally-white-nationalists/)
 
+### 2008
+
+2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
+
+[https://en.wikipedia.org/wiki/Barack_Obama_assassination_plot_in_Denver](https://en.wikipedia.org/wiki/Barack_Obama_assassination_plot_in_Denver)
+
+2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
+
+[https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27](https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27)
+
 ### 2016
 
 2016-11-03 David Duke and the KKK expressed their support for Donald Trump.

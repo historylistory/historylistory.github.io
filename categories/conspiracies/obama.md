@@ -6,6 +6,16 @@ subcategory_slug: obama
 permalink: /categories/conspiracies/obama/
 ---
 
+### 2008: Birther conspiracy
+
+2008-01-01 Trump pushed the “birther” conspiracy about Obama, claiming he was ineligible to run for presidency. 
+
+[https://www.bbc.com/news/election-us-2016-37391652](https://www.bbc.com/news/election-us-2016-37391652)
+
+[https://repository.gonzaga.edu/jhs/vol14/iss1/3/](https://repository.gonzaga.edu/jhs/vol14/iss1/3/)
+
+
+
 ### 2011: Obama is Muslim
 
 2011-03-28 During an interview with Fox, Trump claimed about Obama, “He doesn’t have a birth certificate. He may have one, but there’s something on that, maybe religion, maybe it says he is a Muslim”.

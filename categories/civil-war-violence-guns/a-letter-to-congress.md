@@ -50,6 +50,11 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 1999-08-16 David Horowitz published an article in Salon, writing, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
 
+2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
+
+
+2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
+
 2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
 
 2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.
@@ -57,6 +62,10 @@ Below are examples of which events highlight these concerns. Some of the points 
 2011-01-08 Representative Gabby Giffords and 18 others were shot at a “Congress On Your Corner” event in Tucson.
 
 2011-01-11 Sarah Palin rejected claims that her political rhetoric contributed to the Giffords shooting, calling the accusations "blood libel." 
+
+2011-11-11 Oscar Ramiro Ortega-Hernandez fired a semi-automatic rifle at the White House in effort to assassinate Obama. 
+
+2015-01-01 By this year, Obama had been through at least eleven (11) attempted assassinations or plots. 
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
 
