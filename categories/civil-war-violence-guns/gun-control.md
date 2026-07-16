@@ -73,7 +73,7 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16](https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16)
 
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax. 
+2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
 
 [https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
 

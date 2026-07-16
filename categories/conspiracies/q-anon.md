@@ -13,3 +13,5 @@ permalink: /categories/conspiracies/q-anon/
 [https://www.bbc.com/news/53498434](https://www.bbc.com/news/53498434)
 
 [https://www.csis.org/blogs/examining-extremism/examining-extremism-qanon](https://www.csis.org/blogs/examining-extremism/examining-extremism-qanon)
+
+[https://www.adl.org/resources/backgrounder/qanon](https://www.adl.org/resources/backgrounder/qanon)

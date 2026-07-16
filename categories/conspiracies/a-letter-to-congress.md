@@ -95,7 +95,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2021-12-01 Conservatives spread the hoax that schools gave litter boxes to students identifying as cats; the claim persisted into 2023 and spread internationally.
 
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax.
+2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 

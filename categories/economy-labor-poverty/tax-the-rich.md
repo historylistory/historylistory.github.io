@@ -108,6 +108,24 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html](https://www.nytimes.com/2026/05/05/us/politics/republicans-immigration-bill-trump-ballroom.html)
 
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists. As part of the IRS settlement, the DOJ agreed to drop pending tax claims involving Trump and his family, and never investigate them for tax fraud again. 
+
+[https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
+
+[https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund](https://www.theguardian.com/us-news/2026/may/16/trump-irs-lawsuit-compensation-fund)
+
+[https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
+
+[https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)
+
+[https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
+
+[https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit](https://www.npr.org/2026/05/19/g-s1-122938/irs-trump-settlement-tax-returns-audit)
+
+[https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term](https://www.cnn.com/2026/05/19/politics/irs-barred-investigating-trump-new-settlement-term)
+
+### 2026 June
+
 2026-06-01 Anthropic filed for an initial public offering after it raised $65B and pushed its valuation to $965B. Bernie Sanders announced a new bill that would create a sovereign wealth fund by imposing a one-time 50% tax on big-tech stock. Sanders wrote in an op-ed it would, “give the public a direct role in determining the future of this technology….not simply to make the richest people in the world even richer…”.
 
 [https://www.msn.com/en-au/news/insight/anthropic-files-for-ipo-after-65b-funding-boost/gm-GMDE74FCD0](https://www.msn.com/en-au/news/insight/anthropic-files-for-ipo-after-65b-funding-boost/gm-GMDE74FCD0)

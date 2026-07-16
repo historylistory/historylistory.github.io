@@ -422,7 +422,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
 
 
-2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists.
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists. As part of the IRS settlement, the DOJ agreed to drop pending tax claims involving Trump and his family, and never investigate them for tax fraud again. 
 
 [https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/](https://time.com/article/2026/05/16/trump-irs-lawsuit-weaponization-fund/)
 
@@ -431,8 +431,6 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion](https://www.cnn.com/2026/05/17/politics/irs-doj-trump-fund-billion)
 
 [https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/](https://abc7.com/post/trump-administration-create-1776b-truth-justice-commission-compensate-allies-sources-say/19116651/)
-
-2026-05-19 As part of the IRS settlement, the Justice Department agreed to drop pending tax claims involving Trump and his family.
 
 [https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973](https://www.nbcnews.com/politics/justice-department/doj-agrees-not-pursue-tax-claims-trump-part-irs-deal-rcna345973)
 

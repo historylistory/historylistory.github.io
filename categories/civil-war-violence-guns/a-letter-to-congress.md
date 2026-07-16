@@ -106,7 +106,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2022-06-23 After NYSRPA v. Bruen, the Federalist Society – a Project 2025 supporter – expanded public-carry rights. 
 
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax.
+2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
 
 2022-10-01 Following Elon Musk's acquisition of Twitter researchers reported increases in impersonation, misinformation, and hate speech. Elon Musk also allowed users to pay their way for their blue check verification. 
 

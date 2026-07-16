@@ -811,13 +811,11 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-05-16 Over 3500 unionized workers walked off the job for the first LIR strike in over 30 years.
 
-2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists.
+2026-05-16 Trump dropped his $10 billion IRS lawsuit in exchange for a taxpayer-funded $1.7 billion slush fund to pay off J6 insurrectionists. As part of the IRS settlement, the DOJ agreed to drop pending tax claims involving Trump and his family, and never investigate them for tax fraud again. 
 
 2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets.
 
 2026-05-19 Twenty-five percent of job seekers reported it had taken them a year or longer to find a job. 
-
-2026-05-19 As part of the IRS settlement, the Justice Department agreed to drop pending tax claims involving Trump and his family.
 
 2026-05-20 Two officers filed a lawsuit against the Trump administration for rewarding J6 insurrectionists with a slush fund. 
 
