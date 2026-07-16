@@ -136,7 +136,7 @@ permalink: /recommended-links/
 
 [GET INVOLVED: Center for American Progress.org](https://www.americanprogress.org/)
 
-[GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can things difficult. 
+[GET INVOLVED: Regulations.gov](https://www.regulations.gov/) Just know this is a Trump administration monitored site. The last time I tried to comment on a bill the link landed on an error page. Legally the administration can't ignore its constituents, but they can make things difficult. 
 
 ---
 
@@ -206,6 +206,10 @@ permalink: /recommended-links/
 ---
 
 [Health: Johns Hopkins](https://publichealth.jhu.edu/)
+
+---
+
+[HUMAN RIGHTS: Physicians for Human Rights](https://phr.org/)
 
 --- 
 
