@@ -49,7 +49,7 @@ SOME SOURCES (just the deaths that were in the news, this doesn’t even include
 
 * DEATH February 26, 2026 Nurul Amim Shah Alam. ICE left him alone miles from his home and didn’t contact his family. He was found dead outside in the cold. [Investigative Post.org](https://www.investigativepost.org/2026/02/25/blind-refugee-abandoned-by-border-patrol-is-dead/)
 
-* DEATH March 2, 2026 Daffy Michelle. She was a vulnerable adult. ICE left her at a bus stop, and medical examiners deemed her death a homicide.  [Courthouse News.com](https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/)
+* DEATH March 2, 2026 Daphy Michel. She was a vulnerable adult. ICE left her at a bus stop, and medical examiners deemed her death a homicide.  [Courthouse News.com](https://courthousenews.com/a-womans-hypothermia-death-in-pittsburgh-after-her-release-from-ice-custody-is-ruled-a-homicide/)
 
 * DEATH May 1, 2026 Several people died in detention centers from health-related incidents to suicide. [The Guardian.com](https://www.theguardian.com/us-news/2026/may/01/georgia-ice-detention-death-cuban-immigrant)
 

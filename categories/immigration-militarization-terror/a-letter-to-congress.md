@@ -593,7 +593,7 @@ protocol.
 
 2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
 
-2026-03-02 Haitian asylum seeker Daffy Michelle’s body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June.
+2026-03-02 Haitian asylum seeker Daphy Michel's body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June.
 
 2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign.
 

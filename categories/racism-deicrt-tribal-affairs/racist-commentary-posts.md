@@ -525,7 +525,7 @@ FISHBACK PODCAST [https://www.youtube.com/watch?v=VOVEIliJ3dM](https://www.youtu
 
 ### 2026 March
 
-2026-03-02 Haitian asylum seeker Daffy Michelle’s body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June. 
+2026-03-02 Haitian asylum seeker Daphy Michel's body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June. 
 
 TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1)
 
