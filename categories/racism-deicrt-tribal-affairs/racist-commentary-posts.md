@@ -38,7 +38,7 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 ### 2008
 
-2008-03-11 **Democrat** Geraldine Ferraro was interviewed on the Daily Breeze (Torrance CA) and stated, “If Obama was a white man, he would not be in this position. And if he was a woman (of any color) he would not be in this position. He happens to be very lucky to be who he is. And the country is caught up in the concept”.
+2008-03-11 Democrat Geraldine Ferraro was interviewed on the Daily Breeze (Torrance CA) and stated, “If Obama was a white man, he would not be in this position. And if he was a woman (of any color) he would not be in this position. He happens to be very lucky to be who he is. And the country is caught up in the concept”.
 
 [https://abcnews.go.com/Politics/Vote2008/story?id=4428719&page=1](https://abcnews.go.com/Politics/Vote2008/story?id=4428719&page=1)
 
