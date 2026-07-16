@@ -131,20 +131,6 @@ permalink: /categories/economy-labor-poverty/housing/
 [https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas](https://wchstv.com/news/local/ky-governor-andy-beshear-takes-steps-to-lower-price-of-gas)
 
 
-2026-05-06 National Economic Council Director Kevin Hasset told Fox news “In fact, I had the head of one of the big five banks in my office yesterday going through the credit card data. And just as Secretary Bessent said, credit card spending is through the roof. They’re spending more on gasoline, but they’re spending more no everything else too.  
-
-[https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?](https://www.yahoo.com/news/articles/trump-official-drops-odd-boast-161158876.html?)
-
-[https://thehill.com/homenews/administration/5867139-strong-job-market-us/](https://thehill.com/homenews/administration/5867139-strong-job-market-us/)
-
-[https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging](https://www.cnn.com/2026/05/07/politics/economy-trump-administration-messaging)
-
-[https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/](https://www.mediaite.com/media/news/trump-official-drops-odd-boast-about-economy-credit-card-spending-is-through-the-roof/)
-
-[https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html](https://www.the-independent.com/us/money/trump-credit-card-spending-b2971738.html)
-
-[https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
-
 2026-05-23 Trump proposed a budget to entirely cut housing and community development funds. Appropriations committee Tom Cole responded to Trump’s proposed housing and community development cuts, “Remember, the power of the Appropriation Committee is here, and we will make those decisions”. 
 
 [https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353](https://www.politico.com/news/2026/05/23/white-house-housing-funds-republicans-00934353)

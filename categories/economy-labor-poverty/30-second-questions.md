@@ -33,3 +33,24 @@ SOURCES:
 
 * CONGRESS December 30, 2019: A Congressional report that supports all the above claims can be found here: [Congress.gov R45908](https://www.congress.gov/crs-product/R45908)
 
+### Question 2 
+
+JD Vance blamed immigrants for unaffordable housing, but the administration’s own answer was a 50-year mortgage that could leave young families paying far more interest and building equity much more slowly. President Trump then refused to sign a bipartisan housing bill, calling it a “big yawn” and using it as leverage for an unrelated voting bill. Congressman, why is housing affordability treated like a political bargaining chip, and what will you do to ensure our children can actually afford homes?
+
+SOME SOURCES
+
+* VANCE October 2, 2024 Vance said, “Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country” [Washington Post.com](https://www.washingtonpost.com/business/2024/10/02/vance-immigration-housing/)
+
+* VANDERBILT January 6, 2025 The CFPB sued Vanderbilt for setting borrowers up to fail in home loans [Consumer Finance Protection Bureau.gov](https://www.consumerfinance.gov/about-us/newsroom/cfpb-sues-vanderbilt-for-setting-borrowers-up-to-fail-in-manufactured-home-loans/)
+
+* 50 YEAR MORTGAGE November 9, 2025 Trump proposed a 50-year mortgage [Fortune.com](https://fortune.com/2025/11/12/how-much-would-50-year-morgage-save-per-month-ubs/)
+
+* HOUSING PRICES UP January 27, 2026 Trump said, “I don’t want to drive housing prices down. I want to drive housing prices up…” [Housing Wire.com](https://www.housingwire.com/articles/president-trump-says-he-wants-to-keep-home-prices-high-lower-borrowing-costs/)
+
+* CUT HUD FUNDING May 23, 2026 Trump proposed entirely cutting housing and community development funds [NLIHC.org](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
+
+* MAMDANI HOUSING PLAN May 26, 2026 Mamdani released a housing plan to build affordable housing [NYC.GOV](https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-takes-on-the-housing-crisis--cracks-down-on-bad-la)
+
+* HERITAGE FOUNDATION May 26, 2026 The HF launched a smear campaign on Mamdani for building affordable housing [Heritage.org](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)
+
+* TRUMP PETULANCE June 24, 2026 Trump refused to sign the bipartisan housing bill until the SAVE act was passed [CNBC.com](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)

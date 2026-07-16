@@ -498,6 +498,14 @@ Eisenhower created the Atoms for Peace, where we gave Iran their first nuclear r
 
 2026-03-04 Numerous explanations emerged as to why the US started a war with Iran.
 
+* Mike Johnson said that Iran had a “misguided religion”, while other leaders also indicated this was to crush the theocratic government.
+* High-ranking Iranian officials deemed this a holy war (Jihad).
+* Marco Rubio said it was because Iran would retaliate if Israel struck first so that’s why the US struck ahead of the Israeli Defense Forces.
+* Pete Hegseth said Iran had an arsenal of ballistic missiles and killer drones which they were allegedly using to create a shield for “nuclear blackmail ambitions”.
+* The Omani foreign minister said they were making substantial progress in talks with the US before the strikes. Trump said he wasn’t happy with how the talks were progressing and that “they’re not willing to give us what we have to have”.
+* Jewish news sources reported that the US did what Netanyahu had “wanted to do for years”. 
+
+
 Trump said it was because he believed Iran was about to strike first. Trump also said it was because Iran was developing long range missiles that would threaten European allies, despite a Defense assessment from 2025 stating to the contrary that Tehran would not have ballistic missiles until 2035.
 
 Mike Johnson said that Iran had a “misguided religion”, while other leaders also indicated this was to crush the theocratic government.

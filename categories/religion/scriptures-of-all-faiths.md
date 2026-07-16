@@ -121,10 +121,10 @@ I may even consider adding non-religious quotes. For example, in Immigration I h
 [https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/](https://www.barna.com/research/a-new-generation-expresses-its-skepticism-and-frustration-with-christianity/)
 
 ***Scripture often cited by those who condemn homosexuality:*** Leviticus 18:22, Leviticus 20:13, Romas 1:26-27, 1 Corinthians 6:9-10. 
-~~~
-~~~ About Leviticus
+
+About Leviticus
+---
 When this book was written same-sex activity was often associated with power dynamics such as slavery, pederasty, ritual acts to worship fertility gods, and humiliation of defeated enemies. Much of what’s talked about in Leviticus is also in a section that discusses incest, child sacrifice, bestiality and adultery and/or ties practices to those rituals, **NOT** modern consensual adult relationships (which were not a recognized social category at the time).
-~~~
 
 ***Acts 10:13-15*** “Do not call anything impure that God has made clean”.
 
@@ -187,12 +187,12 @@ When this book was written same-sex activity was often associated with power dyn
 
 ***Matthew 25:35-40*** “For I was hungry, and you gave me something to eat; I was thirsty, and you gave me something to drink”. I was a stranger, and you welcomed me in. I needed clothes, and you clothed me. I was sick, and you looked after me. I was in prison, and you came to visit me.” 
 
-~~~ text 
-~~~ “Lord, when did we see you hungry, or thirsty, or a stranger, 
+
+* “Lord, when did we see you hungry, or thirsty, or a stranger, 
 or needing clothes, or sick, or in prison?”
-~~~ “Truly I tell you, whatever you did for one of the least of
+* “Truly I tell you, whatever you did for one of the least of
 these brothers and sisters of mine, you did for me.”
-~~~ 
+ 
 
 
 
