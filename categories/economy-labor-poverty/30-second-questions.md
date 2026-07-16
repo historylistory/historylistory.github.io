@@ -54,3 +54,39 @@ SOME SOURCES
 * HERITAGE FOUNDATION May 26, 2026 The HF launched a smear campaign on Mamdani for building affordable housing [Heritage.org](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)
 
 * TRUMP PETULANCE June 24, 2026 Trump refused to sign the bipartisan housing bill until the SAVE act was passed [CNBC.com](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
+
+### Question 3 
+
+Trump supporters wanted a businessman to run America like a business. Anyone who has worked in corporate knows that leaders constantly tell workers to “think of the shareholders.” Well, Americans are the shareholders of this country. We work to build an economy that has made a handful of people extraordinarily rich. So where are our dividends in affordable healthcare, housing, childcare, LIVING wages that match cost of living, and retirement security, and what specific legislation will you support to ensure economic growth benefits the people who create it?
+
+SOME SOURCES 
+
+* BILLIONAIRE BOOM November 1, 2017 Tax Cuts and Jobs Act created a deficit, 120% billionaire boom, inflated wealth and largest stock buyback in history [Americans For Tax Fairness.org](https://americansfortaxfairness.org/buyback-blowout-trump-gop-tax-law/) or here [IRS.gov](https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses) or here [CBPP.org](https://www.cbpp.org/research/federal-tax/the-2017-trump-tax-law-was-skewed-to-the-rich-expensive-and-failed-to-deliver) or here [Americans For Tax Fairness.org](https://americansfortaxfairness.org/billionaires-2-2-trillion-richer-since-2017-trump-gop-tax-law/)
+
+* RUN IT LIKE A BUSINESS February 26, 2025 [The Hill.com](https://thehill.com/homenews/administration/5163638-trump-musk-government-business-efficiency/) or here [CBS News.com](https://www.cbsnews.com/texas/news/trump-says-hell-run-america-like-his-business/)
+
+* HEALTHCARE May 14, 2026 Vance announced withholding $1.3BN in Medicaid reimbursement [MSN.com](https://www.msn.com/en-us/news/insight/white-house-withholds-1-3b-in-california-medicaid-funds-over-fraud-claims/gm-GME85D80C2)
+
+* HEALTHCARE April 22, 2026 TrumpRX is not affordable as advertised [Warren.Senate.Gov](https://www.warren.senate.gov/newsroom/press-releases/at-hearing-warren-exposes-trumprx-scam-blasts-trump-administration-for-putting-big-pharma-over-americans-health)
+
+* HEALTHCARE July 15, 2026 AOC slams Big Pharma for gaming US patent system and price gouging [Rep AOC on YouTube](https://www.youtube.com/watch?v=G-LGQJgTJv0&list=WL&index=1) 
+
+* HOUSING June 24, 2026 Trump refused to sign the bipartisan housing bill until the SAVE act was passed [CNBC.com](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
+
+* HOUSING November 9, 2025 Trump proposed a 50-year mortgage [Fortune.com](https://fortune.com/2025/11/12/how-much-would-50-year-morgage-save-per-month-ubs/)
+
+* HOUSING January 27, 2026 Trump said, “I don’t want to drive housing prices down. I want to drive housing prices up…” [Housing Wire.com](https://www.housingwire.com/articles/president-trump-says-he-wants-to-keep-home-prices-high-lower-borrowing-costs/)
+
+* HOUSING May 23, 2026 Trump proposed entirely cutting housing and community development funds [NLIHC.org](https://nlihc.org/resource/president-trump-releases-fy27-budget-request-proposing-significant-cuts-hud-programs-and)
+
+* CHILDCARE April 29, 2021 Vance says universal daycare is a class war against normal people [X.com @JDVance](https://x.com/JDVance/status/1387763955557445640) and here [X.com @JDVance](https://x.com/JDVance/status/1387763862808768525)
+
+* CHILDCARE January 20, 2025 Pages 486 and 486 of Project 2025 aim to prevent and dismantle all universal childcare [static.Heritage.org PDF FILE](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
+
+* CHILDCARE September 13, 2025 Heritage Foundation’s Dr. Burke claimed universal childcare is “investing in other peoples money” [DemocracyWatch on YouTube](https://www.youtube.com/watch?v=OXwlE1SaFhc) 
+
+* CHILDCARE April 3, 2026 Trump says it’s not possible for us to take care of daycare, Medicaid, Medicare…” but we need more war money [Live Now FOX.com](https://www.livenowfox.com/news/trump-says-us-cant-fund-day-medicare-day-care-because-were-fighting-wars)
+
+* RETIREMENT January 20, 2025 The GOP proposed raising retirement age to 69 [Democrats Budge.House.gov](https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits)
+
+* RETIREMENT July 8, 2026 Retirees are trying to return to the workforce just so they can survive [PBS.org](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)
