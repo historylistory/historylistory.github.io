@@ -43,7 +43,7 @@ SIDE NOTE: Under the military’s Disability Evaluation System, medical separati
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
@@ -68,7 +68,7 @@ SOME SOURCES
 
 ### Q2 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 

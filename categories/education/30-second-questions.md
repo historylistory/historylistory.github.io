@@ -36,7 +36,7 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
@@ -60,7 +60,7 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 ### Q2 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
@@ -80,7 +80,7 @@ SOME SOURCES
 
 ### Q3 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 

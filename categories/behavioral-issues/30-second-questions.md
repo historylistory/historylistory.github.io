@@ -34,11 +34,11 @@ SOME SOURCES:
 
 * VIOLENCE April 29, 2026: Trump posted an AI image of himself holding an assault rifle [Unilad.com](https://www.unilad.com/news/us-news/trump-machine-gun-post-threatens-blow-up-iran-966354-20260429)
 
-* VIOLENCE December 19, 2020: Trump posted "Big protest in DC on January 6th. Be there, will be wild!" [UCSB.edu"](https://www.presidency.ucsb.edu/documents/tweets-december-19-2020)
+* VIOLENCE December 19, 2020: Trump posted "Big protest in DC on January 6th. Be there, will be wild!" [UCSB.edu](https://www.presidency.ucsb.edu/documents/tweets-december-19-2020)
 
 * DIVISION June 28, 2025: Trump posted "Republicans must remember they are fighting against a very evil, corrupt, and incompetent group of people who would rather see our country go down in flames than do the right thing" [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/114764221948518343)
 
-* DIVISION September 12, 2025: Trump said "Radicals on the right are radicla because they don't want crime. Radicals on the left are the problem" [ABC-7 YouTube video](https://www.youtube.com/watch?v=SxzScV6HXyk)
+* DIVISION September 12, 2025: Trump said "Radicals on the right are radical because they don't want crime. Radicals on the left are the problem" [ABC-7 YouTube video](https://www.youtube.com/watch?v=SxzScV6HXyk)
 
 * DIVISION March 22, 2026: Trump posted "Now with the death of Iran the greatest enemy America has is the Radical Left, Highly Incompetent, Democrat Party!" [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/116272810363139207)
 
@@ -50,7 +50,7 @@ SOME SOURCES:
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Yes, on July 17, 2026 
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
@@ -90,7 +90,7 @@ SOME SOURCES
 
 ### Q2 ANSWER
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
