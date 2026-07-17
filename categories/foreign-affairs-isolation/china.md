@@ -98,3 +98,23 @@ PBS INTERVIEW/MULTIPLE TOPICS [https://www.youtube.com/watch?v=ufJ_fl_qgB0](http
 [https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1](https://www.youtube.com/watch?v=Bkxw7cbuYao&list=WL&index=1)
 
 [https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/](https://www.newsmax.com/finance/streettalk/china-agriculture/2026/05/17/id/1256557/)
+
+### 2026 July
+
+2026-07-16 Trump delivered a public address about election fraud claims from 2020. In it, he laid groundwork to make future election fraud claims, fueled doubt about election integrity, made conflicting claims that China meddled in elections despite his own team saying that never happened, claimed “deep state” cover ups, and touted newly declassified and heavily redacted documents available on the White House website. 
+
+[https://time.com/article/2026/07/17/trump-speech-elections-china-save-act-takeaways/](https://time.com/article/2026/07/17/trump-speech-elections-china-save-act-takeaways/)
+
+[https://www.politico.com/news/2026/07/16/republicans-brace-trump-speech-election-fraud-00999640](https://www.politico.com/news/2026/07/16/republicans-brace-trump-speech-election-fraud-00999640)
+
+[https://www.cnn.com/2026/07/16/politics/live-news/trump-speech-election](https://www.cnn.com/2026/07/16/politics/live-news/trump-speech-election)
+
+[https://www.npr.org/2026/07/16/nx-s1-5896448/trump-election-address](https://www.npr.org/2026/07/16/nx-s1-5896448/trump-election-address)
+
+[https://www.youtube.com/watch?v=U1ZAwSOI408&list=WL&index=3&t=329s](https://www.youtube.com/watch?v=U1ZAwSOI408&list=WL&index=3&t=329s)
+
+FEDERAL INTEL REPORT 2022 [https://drive.google.com/file/d/1aqorZ61AYFqZU-EDQBBzjqfvAoC5nKcB/view](https://drive.google.com/file/d/1aqorZ61AYFqZU-EDQBBzjqfvAoC5nKcB/view)
+
+FEDERAL INTEL REPORT 2020 [https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf](https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf)
+
+WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrity/](https://www.whitehouse.gov/election-integrity/)
