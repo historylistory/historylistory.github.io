@@ -58,7 +58,7 @@ Response received? Not yet.
 
 ### Question 2
 
-The president’s words carry enormous influence. He has quipped about injecting disinfectant to treat COVID, spread disaster rumors that discouraged people from seeking FEMA aid, and made unsupported claims about Tylenol and vaccines. We also saw how presidential rhetoric helped fuel the January 6 attack. At what point will you hold a president accountable when his words cause foreseeable harm, and why should voters accept “that’s just how he talks” as an excuse?
+The president’s words carry enormous influence. Trump has quipped about injecting disinfectant to treat COVID, spread disaster rumors that discouraged people from seeking FEMA aid, and made unsupported claims about Tylenol and vaccines. We also saw how presidential rhetoric helped fuel the January 6 attack. At what point will you hold a president accountable when his words cause foreseeable harm, and why should voters accept “that’s just how he talks” as an excuse?
 
 SOME SOURCES
 

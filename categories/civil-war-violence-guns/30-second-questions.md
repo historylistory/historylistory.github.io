@@ -17,7 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-From separate “Freedom 250” celebrations to Turning Point USA’s alternative Super Bowl halftime show, MAGA organizations increasingly seem to create partisan versions of events that once brought Americans together. Congressman, what would you say to Trump supporters who keep dividing the country into “us” versus everyone else, and what will you personally do to represent and unite all Americans, not just those in your political movement?
+From separate “Freedom 250” celebrations to Turning Point USA’s alternative Super Bowl halftime show, MAGA organizations increasingly seem to create partisan versions of events that once brought Americans together. What would you say to Trump supporters who keep dividing the country into “us” versus everyone else, and what will you personally do to represent and unite all Americans, not just those in your political movement?
 
 SOME SOURCES
 

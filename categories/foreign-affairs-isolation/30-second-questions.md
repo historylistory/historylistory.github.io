@@ -18,7 +18,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-Israel’s finance minister called Gaza a “real-estate bonanza,” said the “demolition phase” was complete and claimed a redevelopment plan was on President Trump’s desk. Trump also posted an AI video portraying Gaza as a luxury resort filled with gold statues of himself. Congressman, do you condemn treating the destruction and displacement of Palestinian civilians as a real-estate opportunity, and will you oppose any U.S. support for redevelopment that denies Palestinians their homes, rights and self-determination?
+Israel’s finance minister called Gaza a “real-estate bonanza,” said the “demolition phase” was complete and claimed a redevelopment plan was on President Trump’s desk. Trump also posted an AI video portraying Gaza as a luxury resort filled with gold statues of himself. Do you condemn treating the destruction and displacement of Palestinian civilians as a real-estate opportunity, and will you oppose any U.S. support for redevelopment that denies Palestinians their homes, rights and self-determination?
 
 * REAL ESTATE BONANZA September 18, 2025: Smotrich calls Gaza a real-estate bonanza [CNN.com](https://www.cnn.com/2025/09/18/middleeast/israel-smotrich-gaza-land-intl)
 

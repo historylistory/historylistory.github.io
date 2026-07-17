@@ -44,7 +44,7 @@ Response received? Not yet.
 
 ### Question 2
 
-Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA, or any partisan organization, as the preferred voice for students. Congressman, will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
+Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA, or any partisan organization, as the preferred voice for students. Will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
 
 SOME SOURCES
 

@@ -17,7 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-Secretary Hegseth has barred military officers from Pentagon-sponsored graduate programs at some of America’s leading universities, calling them “breeding grounds of toxic indoctrination” without presenting evidence. Congressman, why should one official’s political judgment restrict educational opportunities that strengthen military leadership, and will you demand objective academic standards rather than ideological loyalty tests for deciding where servicemembers may study?
+Secretary Hegseth has barred military officers from Pentagon-sponsored graduate programs at some of America’s leading universities, calling them “breeding grounds of toxic indoctrination” without presenting evidence. Why should one official’s political judgment restrict educational opportunities that strengthen military leadership, and will you demand objective academic standards rather than ideological loyalty tests for deciding where servicemembers may study?
 
 SOME SOURCES
 

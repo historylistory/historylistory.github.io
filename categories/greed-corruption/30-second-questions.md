@@ -18,7 +18,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1
 
-President Trump bought up to $5M in Axon stock shortly before ICE pursued a major contract. Trump’s family profits from cryptocurrency. Companies connected to Trump’s sons receive Pentagon contracts. Congressman, how many apparent conflicts of interest will Republicans excuse before demanding an independent investigation, and will you support laws requiring presidents to divest their assets and disclose all financial dealings involving their families?
+President Trump bought up to $5M in Axon stock shortly before ICE pursued a major contract. Trump’s family profits from cryptocurrency. Companies connected to Trump’s sons receive Pentagon contracts. How many apparent conflicts of interest will Republicans excuse before demanding an independent investigation, and will you support laws requiring presidents to divest their assets and disclose all financial dealings involving their families?
 
 SOME SOURCES
 

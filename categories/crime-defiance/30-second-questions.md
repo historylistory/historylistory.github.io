@@ -17,7 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1
 
-President Trump says harsh enforcement is necessary to stop drugs and violent crime, yet he pardoned a former Honduran president convicted of drug trafficking, the founder of the Silk Road drug marketplace and January 6 defendants who violently attacked police. Congressman, how can your party justify mercy for politically connected offenders while treating immigrants and other ordinary people as dangerous based merely on suspicion, and will you demand one consistent standard of justice for everyone?
+President Trump says harsh enforcement is necessary to stop drugs and violent crime, yet he pardoned a former Honduran president convicted of drug trafficking, the founder of the Silk Road drug marketplace and January 6 defendants who violently attacked police. How can your party justify mercy for politically connected offenders while treating immigrants and other ordinary people as dangerous based merely on suspicion, and will you demand one consistent standard of justice for everyone?
 
 SOME SOURCES 
 

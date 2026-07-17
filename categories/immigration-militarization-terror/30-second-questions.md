@@ -75,7 +75,7 @@ Response received? Not yet.
 
 ### Question 3 
 
-After immigration agents released two medically vulnerable people without safely reconnecting them with their families, Daphy Michel and Nurul Amin Shah Alam died from exposure, and both deaths were ruled homicides. A former ICE instructor has called agent training “deficient, defective and broken.” Congressman, what would you tell their families, and will you require adequate training, family notification, safe-release procedures, body cameras and real accountability when federal agents endanger vulnerable people?
+After immigration agents released two medically vulnerable people without safely reconnecting them with their families, Daphy Michel and Nurul Amin Shah Alam died from exposure, and both deaths were ruled homicides. A former ICE instructor has called agent training “deficient, defective and broken.” What would you tell their families, and will you require adequate training, family notification, safe-release procedures, body cameras and real accountability when federal agents endanger vulnerable people?
 
 SOME SOURCES
 

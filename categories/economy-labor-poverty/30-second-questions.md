@@ -43,7 +43,7 @@ Response received? Not yet.
 
 ### Question 2 
 
-JD Vance blamed immigrants for unaffordable housing, but the administration’s own answer was a 50-year mortgage that could leave young families paying far more interest and building equity much more slowly. President Trump then refused to sign a bipartisan housing bill, calling it a “big yawn” and using it as leverage for an unrelated voting bill. Congressman, why is housing affordability treated like a political bargaining chip, and what will you do to ensure our children can actually afford homes?
+JD Vance blamed immigrants for unaffordable housing, but the administration’s own answer was a 50-year mortgage that could leave young families paying far more interest and building equity much more slowly. President Trump then refused to sign a bipartisan housing bill, calling it a “big yawn” and using it as leverage for an unrelated voting bill. Why is housing affordability treated like a political bargaining chip, and what will you do to ensure our children can actually afford homes?
 
 SOME SOURCES
 

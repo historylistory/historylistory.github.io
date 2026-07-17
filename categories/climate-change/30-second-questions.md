@@ -17,7 +17,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
-The administration is expanding drilling, opening more public land to fossil-fuel development and weakening environmental protections, while simultaneously restricting wind, solar and other clean-energy projects. Congressman, why should the government favor one energy industry instead of letting all sources compete, and will you support a balanced energy policy that protects consumers, creates long-term jobs and preserves our resources for future generations?
+The administration is expanding drilling, opening more public land to fossil-fuel development and weakening environmental protections, while simultaneously restricting wind, solar and other clean-energy projects. Why should the government favor one energy industry instead of letting all sources compete, and will you support a balanced energy policy that protects consumers, creates long-term jobs and preserves our resources for future generations?
 
 SOME SOURCES
 
