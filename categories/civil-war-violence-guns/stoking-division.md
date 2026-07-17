@@ -236,7 +236,7 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)
 
-2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. 
+2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
 
 [https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s)
 
@@ -245,3 +245,5 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.youtube.com/watch?v=LN1Ffb-ke9U](https://www.youtube.com/watch?v=LN1Ffb-ke9U)
 
 [https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio](https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio)
+
+[https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3](https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3)

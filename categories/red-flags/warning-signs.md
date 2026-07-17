@@ -393,7 +393,7 @@ SUB WALL [https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-n
 [https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/](https://www.nbc4i.com/news/politics/retired-judges-take-part-in-march-cite-threats-to-rule-of-law-in-america/)
 
 
-2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. 
+2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
 
 [https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s)
 
@@ -403,5 +403,5 @@ SUB WALL [https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-n
 
 [https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio](https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio)
 
-
+[https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3](https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3)
 

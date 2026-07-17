@@ -511,3 +511,7 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/](https://www.reuters.com/world/trump-administration-launches-effort-isolate-international-criminal-court-2026-07-13/)
 
 [https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813](https://www.startribune.com/trump-icc-war-crimes-human-rights-israel-gaza/601865813)
+
+2026-07-15 Netanyahu was booed and heckled out of Parliament as people shouted “shame”. 
+
+[https://www.youtube.com/watch?v=RkxC12sAbHA](https://www.youtube.com/watch?v=RkxC12sAbHA)

@@ -405,3 +405,8 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104](https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104)
 
 [https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine](https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine)
+
+2026-07-15 Netanyahu was booed and heckled out of Parliament as people shouted “shame”. 
+
+[https://www.youtube.com/watch?v=RkxC12sAbHA](https://www.youtube.com/watch?v=RkxC12sAbHA)
+

@@ -287,4 +287,4 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-13 The Trump administration vowed to disable the International Criminal Court. 
 
-2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. 
+2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
