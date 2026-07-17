@@ -171,3 +171,13 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail](https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail)
 
 [https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center](https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center)
+
+2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. 
+
+[https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=LN1Ffb-ke9U&list=WL&index=1&t=10s)
+
+[https://www.reuters.com/legal/government/us-will-focus-counterterrorism-efforts-left-wing-groups-rubio-says-2026-07-16/](https://www.reuters.com/legal/government/us-will-focus-counterterrorism-efforts-left-wing-groups-rubio-says-2026-07-16/)
+
+[https://www.youtube.com/watch?v=LN1Ffb-ke9U](https://www.youtube.com/watch?v=LN1Ffb-ke9U)
+
+[https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio](https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio)

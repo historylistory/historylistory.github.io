@@ -570,3 +570,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
 
 2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
+
+2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. 

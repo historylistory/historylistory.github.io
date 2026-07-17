@@ -141,6 +141,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-07-04 As outlined in Project 2025, Trump signed a sweeping reconciliation bill HR-1 that would add $3.3T (trillion) to the national debt, eliminate renewable energy subsidies, and terminate clean energy incentives in the Inflation Reduction Act of 2022.
 
+2025-07-04 A catastrophic flood in Texas devastated Camp Mystic.
+
 2025-07-10 Trump ended federal subsidies for electric vehicles.
 
 2025-07-18 The EPA cut 23% of its personnel.

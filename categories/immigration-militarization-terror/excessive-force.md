@@ -370,3 +370,12 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.democracynow.org/2026/7/15/headlines/report_us_law_enforcement_responsible_for_over_400_misuse_of_force_cases_against_civilians](https://www.democracynow.org/2026/7/15/headlines/report_us_law_enforcement_responsible_for_over_400_misuse_of_force_cases_against_civilians)
 
+2026-07-15 Trump pushed ICE to resume traffic stops despite deadly shootings. He wrote, “We CANNOT give up one of ICE’s most important and effective Crime Fighting tools, THE TRAFFIC STOP!”
+
+[https://apnews.com/article/ice-immigration-enforcement-deaths-traffic-stops-3d614361d8354474bc4eb8e37ec26b28](https://apnews.com/article/ice-immigration-enforcement-deaths-traffic-stops-3d614361d8354474bc4eb8e37ec26b28)
+
+[https://www.pbs.org/newshour/politics/ice-should-continue-traffic-stops-despite-recent-shootings-trump-on-social-media](https://www.pbs.org/newshour/politics/ice-should-continue-traffic-stops-despite-recent-shootings-trump-on-social-media)
+
+[https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026](https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116923585931908111](https://truthsocial.com/@realDonaldTrump/posts/116923585931908111)

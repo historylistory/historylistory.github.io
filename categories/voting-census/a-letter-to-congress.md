@@ -378,3 +378,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-07-15 Trump’s pick to head national intelligence, Jay Clatyon, refused to tell senators Biden won the 2020 election. 
 
+
+
+2026-07-16 Trump delivered a public address about election fraud claims from 2020. In it, he laid groundwork to make future election fraud claims, fueled doubt about election integrity, made conflicting claims that China meddled in elections despite his own team saying that never happened, claimed “deep state” cover ups, and touted newly declassified and heavily redacted documents available on the White House website. 
+

@@ -6,6 +6,17 @@ subcategory_slug: weird-weather
 permalink: /categories/climate-change/weird-weather/
 ---
 
+### 2025 July
+
+2025-07-04 A catastrophic flood in Texas devastated Camp Mystic.
+
+[https://apnews.com/projects/texas-floods-camp-mystic-timeline/](https://apnews.com/projects/texas-floods-camp-mystic-timeline/)
+
+[https://abc13.com/post/texas-flooding-fema-removed-dozens-camp-mystic-buildings-100-year-flood-map-before-expansion-records-show/17083649/](https://abc13.com/post/texas-flooding-fema-removed-dozens-camp-mystic-buildings-100-year-flood-map-before-expansion-records-show/17083649/)
+
+[https://www.nbcdfw.com/news/local/dallas-camper-details-camp-mystic-evacuation-devastation/3878910/](https://www.nbcdfw.com/news/local/dallas-camper-details-camp-mystic-evacuation-devastation/3878910/)
+
+
 ### 2025 August
 
 2025-08-31 Reports of flash flooding, rip currents, heat waves, and wildfires surged nationwide.

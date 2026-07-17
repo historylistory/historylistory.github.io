@@ -333,6 +333,16 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
 
+2026-07-15 Trump pushed ICE to resume traffic stops despite deadly shootings. He wrote, “We CANNOT give up one of ICE’s most important and effective Crime Fighting tools, THE TRAFFIC STOP!”
+
+[https://apnews.com/article/ice-immigration-enforcement-deaths-traffic-stops-3d614361d8354474bc4eb8e37ec26b28](https://apnews.com/article/ice-immigration-enforcement-deaths-traffic-stops-3d614361d8354474bc4eb8e37ec26b28)
+
+[https://www.pbs.org/newshour/politics/ice-should-continue-traffic-stops-despite-recent-shootings-trump-on-social-media](https://www.pbs.org/newshour/politics/ice-should-continue-traffic-stops-despite-recent-shootings-trump-on-social-media)
+
+[https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026](https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026)
+
+[https://truthsocial.com/@realDonaldTrump/posts/116923585931908111](https://truthsocial.com/@realDonaldTrump/posts/116923585931908111)
+
 2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
 
 [https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention](https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention)

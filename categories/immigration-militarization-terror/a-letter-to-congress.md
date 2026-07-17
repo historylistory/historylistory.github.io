@@ -760,4 +760,6 @@ Next
 
 2026-07-14 A new report from Physicians for Human Rights warns of over 400 cases of excessive force resulting in blinding, traumatic brain injuries, and permanent disabilities. 
 
+2026-07-15 Trump pushed ICE to resume traffic stops despite deadly shootings. He wrote, “We CANNOT give up one of ICE’s most important and effective Crime Fighting tools, THE TRAFFIC STOP!”
+
 2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
