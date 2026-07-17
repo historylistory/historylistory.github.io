@@ -364,6 +364,15 @@ SUB WALL [https://www.politico.com/news/2026/06/02/a-democratic-former-navy-pilo
 
 [https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process](https://www.pbs.org/newshour/show/trump-fires-election-commission-members-in-latest-attempt-to-control-voting-process)
 
+2026-07-10 Jacob Wohl and Jack Burkman are back, this time acting as federally registered, paid lobbyists for pardon seekers 
+
+[https://www.washingtonpost.com/politics/2025/11/23/joseph-schwartz-trump-pardon-fraud/](https://www.washingtonpost.com/politics/2025/11/23/joseph-schwartz-trump-pardon-fraud/)
+
+[https://www.notus.org/money/pardon-lobbyists-president-donald-trump](https://www.notus.org/money/pardon-lobbyists-president-donald-trump)
+
+[https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/](https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/)
+
+
 2026-07-13 A federal judge rejected the DOJ’s attempt to subpoena Georgia for names of election workers in Fulton county. 
 
 [https://www.democracynow.org/2026/7/13/headlines/federal_judge_rejects_doj_subpoena_seeking_names_of_election_workers_in_fulton_county_from_the_2020_election](https://www.democracynow.org/2026/7/13/headlines/federal_judge_rejects_doj_subpoena_seeking_names_of_election_workers_in_fulton_county_from_the_2020_election)

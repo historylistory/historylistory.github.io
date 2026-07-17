@@ -594,3 +594,5 @@ Manhattan grand jury in the hush-money case.
 2026-07-07 FEMA announced it would be withholding Homeland Security funding to any states that didn’t comply with Trump’s upcoming election requirements. 
 
 2026-07-11 The DOJ subpoenaed New York Times reporters for reporting about Air Force One. 
+
+2026-07-16 Trump fired new US attorney Roger Rogoff in Seattle just hours after he was appointed. 

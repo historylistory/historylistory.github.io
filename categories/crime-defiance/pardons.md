@@ -413,3 +413,13 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
 
 [https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)
+
+### 2026 July
+
+2026-07-10 Jacob Wohl and Jack Burkman are back, this time acting as federally registered, paid lobbyists for pardon seekers 
+
+[https://www.washingtonpost.com/politics/2025/11/23/joseph-schwartz-trump-pardon-fraud/](https://www.washingtonpost.com/politics/2025/11/23/joseph-schwartz-trump-pardon-fraud/)
+
+[https://www.notus.org/money/pardon-lobbyists-president-donald-trump](https://www.notus.org/money/pardon-lobbyists-president-donald-trump)
+
+[https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/](https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/)

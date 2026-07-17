@@ -424,3 +424,13 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.nbcnews.com/politics/supreme-court/supreme-court-rules-trump-cannot-fire-fed-member-lisa-cook-grants-powe-rcna234931](https://www.nbcnews.com/politics/supreme-court/supreme-court-rules-trump-cannot-fire-fed-member-lisa-cook-grants-powe-rcna234931)
 
 [https://abcnews.com/Politics/supreme-court-allows-trump-firing-ftc-commissioner/story?id=129203395](https://abcnews.com/Politics/supreme-court-allows-trump-firing-ftc-commissioner/story?id=129203395)
+
+### 2026 July
+
+2026-07-16 Trump fired new US attorney Roger Rogoff in Seattle just hours after he was appointed. 
+
+[https://www.theguardian.com/us-news/2026/jul/16/trump-fires-us-attorney-roger-rogoff-seattle](https://www.theguardian.com/us-news/2026/jul/16/trump-fires-us-attorney-roger-rogoff-seattle)
+
+[https://thehill.com/homenews/administration/5971187-donald-trump-roger-rogoff-washington-state-prosecutor-firing/](https://thehill.com/homenews/administration/5971187-donald-trump-roger-rogoff-washington-state-prosecutor-firing/)
+
+[https://apnews.com/article/seattle-us-attorney-fired-trump-8a032be7b44b9b3d927d17e1ccbd1f4a](https://apnews.com/article/seattle-us-attorney-fired-trump-8a032be7b44b9b3d927d17e1ccbd1f4a)
