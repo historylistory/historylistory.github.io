@@ -35,3 +35,11 @@ SOME SOURCES
 * ARMY March 27, 2026 Hegseth removed two Black and two female officers from a promotion list [Military Times.com](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
 
 * NAVY June 6 2026 Hegseth cut women off from a Naval promotion list [AP News.com](https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

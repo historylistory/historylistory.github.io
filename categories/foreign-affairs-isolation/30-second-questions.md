@@ -29,3 +29,11 @@ Israel’s finance minister called Gaza a “real-estate bonanza,” said the �
 * DEATH PENALTY March 30, 2026: Israel passed a new death penalty law for Palestinians [Middle East Eye.net](https://www.middleeasteye.net/news/general-strike-leaves-west-bank-streets-empty-over-death-penalty-bill)
 
 * SETTLEMENTS April 9, 2026: Israel approved 34 new settlements in occupied West Bank [Times of Israel.com](https://www.timesofisrael.com/government-formally-approves-34-new-settlements-as-it-acts-to-deepen-hold-on-west-bank/)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

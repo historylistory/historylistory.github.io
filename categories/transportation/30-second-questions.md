@@ -36,3 +36,11 @@ SOME SOURCES
 * PRIVATIZATION June 5, 2017: Trump proposed firing 30,000 FAA workers and privatizing ATC [NPR.org](https://www.npr.org/2017/06/05/531574945/trump-announces-plan-to-privatize-air-traffic-control)
 
 * PRIVATIZATION April 3, 2026: Trump proposed TSA privatization [WFLA.com](https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

@@ -39,7 +39,13 @@ SOME SOURCES
 
 * EXEC ORDER March 27 2025: Trump signed EO Restoring Truth and Sanity to American History [White House.gov](https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/)
 
+### Q1 ANSWER
 
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
 
 ### Question 2 
 
@@ -72,4 +78,10 @@ SOME SOURCES
 * RACIST September 29, 2025 Sombrero video of Hakeem Jeffries [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/115290424560405640)
 
 
+### Q2 ANSWER
 
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

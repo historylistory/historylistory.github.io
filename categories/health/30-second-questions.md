@@ -30,6 +30,14 @@ SOME SOURCES
 
 * MISINFORMATION February 6, 2026: RFK claimed the keto diet cures schizophrenia [Scientific American.com](https://www.scientificamerican.com/article/rfk-jr-keto-diet-can-cure-schizophrenia-heres-what-the-science-says/)
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 2
 
 RFK Jr.’s Children’s Health Defense sells anti-vaccine onesies and an anti-vaccine book. Kash Patel promoted “vaccine detox” supplements, and Dr. Oz has a long record of promoting miracle cures. The CDC website was changed to suggest vaccines might cause autism, forcing the American Medical Association to publicly reaffirm that decades of scientific evidence show no link. This administration is made up of snake oil salesmen. Why should Americans trust these officials with public health, and what will you do to restore scientific integrity?
@@ -56,6 +64,13 @@ SOME SOURCES
 
 * DR OZ Selenium for cancer prevention [Washington Post.com](https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show)
 
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
 
 ### Question 3
 
@@ -64,3 +79,11 @@ Congressman Mike Flood held a town hall. Thirty-two minutes into that meeting he
 SOME SOURCES 
 
 * TOWN HALL July 7, 2026 full document, skip to timestamp 32:44 [https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208](https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208)
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

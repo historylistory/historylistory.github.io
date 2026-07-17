@@ -28,3 +28,11 @@ SOME SOURCES
 * DIVISION May 29, 2026: MAGA announced its own partisan Freedom 250 separate from America 250. [NBC News.com](https://www.nbcnews.com/politics/trump-administration/trump-freedom-250-concert-america-250-difference-artists-cancel-rcna347573)
 
 * DIVISION May 31, 2026: Musicians drop out of the Freedom 250 after they find out it was a partisan agenda [BBC.com](https://www.bbc.com/news/articles/cwy2z23122zo)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

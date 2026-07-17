@@ -40,6 +40,14 @@ SOME SOURCES
 
 * THREATS March 31, 2026 Trump threatened to nationalize elections and take control of USPS [NBC News.com](https://www.nbcnews.com/politics/elections/trump-signs-executive-order-create-federal-voter-lists-rcna266092)
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 2 
 
 President Trump pressured Republican-led states to redraw congressional maps to protect their House majority, then condemned Democratic states when they pursued matching redistricting efforts to protect their own seats. Now he is seeking greater federal control over elections, voting records and equipment before the midterms. What evidence can you offer that this is about election security rather than partisan interference, and will you oppose any attempt by this president to seize emergency control over how Americans vote?
@@ -65,6 +73,14 @@ SOME SOURCES
 * INTIMIDATION January 23, 2026 Pam Bondi sent a letter to Tim Walz one hour after Pretti was shot, saying they’ll remove ICE from Minnesota in trade for voter files [NPR.org](https://www.npr.org/2026/01/26/nx-s1-5688964/minnesota-data-bondi-letter)
 
 * INTIMIDATION March 27, 2026 Todd Blanche asked why everyone is opposed to sending ICE to polling places [The Daily Beast.com](https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/)
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
 
 ### Question 3
 
@@ -94,3 +110,10 @@ SOME SOURCES
 
 * SUSPICOUS July 26, 2024 Trump told a TPUSA crowd they would only need to vote “this one time” because the votes would be “fixed”. [Yahoo.com](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

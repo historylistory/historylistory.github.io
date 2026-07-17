@@ -34,6 +34,14 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 * BILLS June 1, 2021: Texas HB 3979 restricts race, slavery, Native American and current event curriculum in public school [IDRA.org PDF file](https://www.idra.org/wp-content/uploads/2021/06/What-does-HB-3979-do-IDRA-reference.pdf)
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 2
 
 Students already have debate teams and the right to form voluntary political clubs outside the curriculum. But government officials should not use public schools or taxpayer resources to promote Turning Point USA, or any partisan organization, as the preferred voice for students. Congressman, will you oppose government-sponsored political indoctrination in our schools and require full transparency about any public money, access or special treatment given to outside advocacy groups?
@@ -50,6 +58,14 @@ SOME SOURCES
 * TPUSA February 10, 2026: Governor Pillen of Nebraska allowed extreme-right TPUSA indoctrination, claiming “I see it as right and wrong, God and 
 Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328)
 
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 3 
 
 In 2025, an Oklahoma teacher discovered that Trump-endorsed Bibles distributed to public-school classrooms omitted Constitutional Amendments 11 through 27—including the abolition of slavery, equal protection, voting rights, women’s suffrage, presidential term limits, and succession. Do you believe government officials are using religion to promote a selective, partisan version of American history, and will you oppose taxpayer-supported religious materials that omit fundamental constitutional rights?
@@ -61,3 +77,11 @@ SOME SOURCES
 * BIBLE September 29, 2025: This article states the Constitution was 160 years out of date [New Republic.com](https://newrepublic.com/post/201057/teacher-forced-donald-trump-bible-whats-in-it)
 
 * BIBLE October 10, 2024: Oklahoma teachers noticed only the Trump bible met State requirements [AP News.com](https://apnews.com/article/oklahoma-bible-schools-trump-amend-99bec8ed6b67acd2d836913783c4fe7b)
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

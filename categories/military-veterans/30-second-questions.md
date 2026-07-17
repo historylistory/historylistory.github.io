@@ -34,3 +34,11 @@ SOME SOURCES
 * [Business Insider.com article](https://www.businessinsider.com/pentagon-hegseth-order-cancels-military-attendance-more-top-universities-2026-2).
 
 * [FOX News.com article](https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

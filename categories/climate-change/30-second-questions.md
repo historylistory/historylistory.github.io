@@ -37,3 +37,10 @@ SOME SOURCES
 
 * PROTECTIONS April 29, 2026: Trump weakened the Endangered Species Act [OPB.org](https://www.opb.org/article/2025/04/17/endangered-species-habitat-could-be-at-risk-under-trump-proposal/) 
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

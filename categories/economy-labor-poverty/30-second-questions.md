@@ -33,6 +33,14 @@ SOURCES:
 
 * CONGRESS December 30, 2019: A Congressional report that supports all the above claims can be found here: [Congress.gov R45908](https://www.congress.gov/crs-product/R45908)
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 2 
 
 JD Vance blamed immigrants for unaffordable housing, but the administration’s own answer was a 50-year mortgage that could leave young families paying far more interest and building equity much more slowly. President Trump then refused to sign a bipartisan housing bill, calling it a “big yawn” and using it as leverage for an unrelated voting bill. Congressman, why is housing affordability treated like a political bargaining chip, and what will you do to ensure our children can actually afford homes?
@@ -54,6 +62,14 @@ SOME SOURCES
 * HERITAGE FOUNDATION May 26, 2026 The HF launched a smear campaign on Mamdani for building affordable housing [Heritage.org](https://www.heritage.org/government-regulation/commentary/how-mamdani-aims-crush-property-owners-and-socialize-the-skyline)
 
 * TRUMP PETULANCE June 24, 2026 Trump refused to sign the bipartisan housing bill until the SAVE act was passed [CNBC.com](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
 
 ### Question 3 
 
@@ -90,3 +106,11 @@ SOME SOURCES
 * RETIREMENT January 20, 2025 The GOP proposed raising retirement age to 69 [Democrats Budge.House.gov](https://democrats-budget.house.gov/house-republican-budget-plans-cut-social-security-benefits)
 
 * RETIREMENT July 8, 2026 Retirees are trying to return to the workforce just so they can survive [PBS.org](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

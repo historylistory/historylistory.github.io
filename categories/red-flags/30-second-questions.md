@@ -42,3 +42,11 @@ SOME SOURCES
 * THREATS April 19, 2026: Trump posted more threats [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/116431297579272777)
 
 * THREATS April 23, 2026: Trump gave shoot to kill orders [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/116454087460626531)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

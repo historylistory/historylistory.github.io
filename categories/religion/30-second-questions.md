@@ -39,6 +39,14 @@ SOME SOURCES
 
 * THREATS July 13, 2026: MAGA pastor Joel Webbon suggested seizing and imprisoning pastors of other faiths [Lincoln Square, YouTube](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s) Lincoln Square YouTube 
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
 ### Question 2 
 
 (THIS QUESTION IS SIMILAR TO #1) President Trump created a federal task force to eradicate what he calls “anti-Christian bias.” Yet Christians remain the nation’s largest religious group and hold enormous political and institutional influence. Religious institutions already enjoy taxpayer subsidies for their schools and special tax treatment. What specific, documented persecution justifies a federal task force devoted to one faith, and how will you ensure it does not become a vehicle for granting Christianity special government preference over other religions or nonbelievers?
@@ -58,3 +66,11 @@ SOME SOURCES
 * SPECIAL TREATMENT April 19, 2026: Trump administration announced an 84-hour public Bible reading [Politico.com](https://www.politico.com/news/2026/04/17/trump-scripture-angering-christians-00879747)
 
 * SPECIAL TREATMENT May 14, 2026: Taxpayer funded stage at the National Mall [CNN.com](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

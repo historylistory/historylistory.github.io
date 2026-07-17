@@ -38,3 +38,11 @@ SOME SOURCES
 
 * MILLER SUPPORT April 21 2025: Stephen Miller claimed insurrectionists were falsely accused [X.com @StephenM](https://x.com/StephenM/status/1914347254942494849?lang=en)
 * PARDONS April 14, 2026: Trump’s DOJ moved to vacate the most serious J6 convictions by the Proud Boys and Oath Keepers [ABC News.com](https://abcnews.com/Politics/doj-moves-vacate-convictions-proud-boys-oath-keepers/story?id=132042992)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

@@ -48,6 +48,13 @@ SOME SOURCES:
 
 * RACIST December 2, 2025: Trump called Somali immigrants garbage [The Guardian.com](https://www.theguardian.com/us-news/2025/dec/02/trump-somali-immigrants-minnesota)
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
 
 ### Question 2
 
@@ -80,3 +87,11 @@ SOME SOURCES
 * FEMA October 14, 2024: FEMA had to publish a fact sheet to debunk false claims because people weren’t asking for help or applying for benefits [FEMA.gov](https://www.fema.gov/disaster/recover/rumor/hurricane-rumor-response)
 
 * FEMA October 23, 2024: NOAA had to publish a fact checking page too [NOAA.gov](https://www.noaa.gov/news/fact-check-debunking-weather-modification-claims)
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

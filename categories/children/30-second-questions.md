@@ -42,3 +42,10 @@ SOME SOURCES
 * PAYOFFS March 17, 2026: Trump paid $1B to energy companies to stop offshore wind farm leases [ElectricityInfo.org](https://electricityinfo.org/news/us-wind-8/) or [Huffman.House.Gov](https://huffman.house.gov/media-center/in-the-news/trumps-1b-deal-sinking-offshore-wind-draws-legal-scrutiny)
 
 
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

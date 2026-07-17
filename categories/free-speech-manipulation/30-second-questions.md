@@ -42,3 +42,11 @@ SOME SOURCES
 * THREATS June 8, 2025: Stephen Miller claimed LA protests were an insurrection [Al Jazeera.com](https://www.aljazeera.com/gallery/2025/6/8/protesters-tear-gas-in-los-angeles-as-trump-deploys-national-guar)
 
 * THREATS April 3, 2025: Several Tufts University students’ visas were revoked for protesting [Tufts Daily.com](https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government) and here [Politico.com](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
+
+### Q1 ANSWER
+
+Submitted to Congress by HistoryListory: PENDING
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
