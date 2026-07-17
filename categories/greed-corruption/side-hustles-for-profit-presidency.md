@@ -232,3 +232,15 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 [https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/](https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/)
 
 [https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations](https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations)
+
+2026-07-16 Trump’s Truth Social platform is now offering paid-only early access to presidential posts. Richard Blumenthal wrote, “The President’s social media posts – covering war & peace & government regulations – move markets. Truth Social selling preferential access is yet another example of flagrant corruption, trading access to the White House for Trump’s self-enrichment”. 
+
+[https://www.nbcnews.com/business/media/trump-media-early-access-truth-social-posts-rcna587912](https://www.nbcnews.com/business/media/trump-media-early-access-truth-social-posts-rcna587912)
+
+[https://www.cnbc.com/2026/07/16/trump-truth-social-wall-street-traders-api.html](https://www.cnbc.com/2026/07/16/trump-truth-social-wall-street-traders-api.html)
+
+[https://www.cnbc.com/2026/02/27/truth-social-spin-off-trump-media-djt.html](https://www.cnbc.com/2026/02/27/truth-social-spin-off-trump-media-djt.html)
+
+[https://apnews.com/article/truth-social-trump-media-trump-post-conflicts-of-interest-truth-api-759fa71769729a26024914dd681c1953](https://apnews.com/article/truth-social-trump-media-trump-post-conflicts-of-interest-truth-api-759fa71769729a26024914dd681c1953)
+
+[https://x.com/SenBlumenthal](https://x.com/SenBlumenthal)

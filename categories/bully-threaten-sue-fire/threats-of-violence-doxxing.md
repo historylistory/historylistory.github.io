@@ -318,3 +318,11 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/](https://www.motherjones.com/politics/2026/06/trump-threatens-iran-as-jd-vance-announces-great-progress-on-ceasefire/)
 
 [https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon](https://www.cnn.com/2026/06/21/world/live-news/iran-war-trump-israel-lebanon)
+
+### 2026 July
+
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
+[https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)

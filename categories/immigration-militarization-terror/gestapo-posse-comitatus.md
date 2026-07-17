@@ -456,3 +456,9 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
 
 [https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings](https://www.newsweek.com/videos/homan-gets-pressed-over-lack-of-body-cameras-on-ice-agents-in-recent-shootings)
+
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
+[https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)

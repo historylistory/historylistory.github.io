@@ -595,4 +595,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-07-11 The DOJ subpoenaed New York Times reporters for reporting about Air Force One. 
 
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
 2026-07-16 Trump fired new US attorney Roger Rogoff in Seattle just hours after he was appointed. 
+

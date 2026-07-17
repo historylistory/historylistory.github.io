@@ -379,3 +379,19 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026](https://apnews.com/live/trump-administration-ice-dhs-updates-07-15-2026)
 
 [https://truthsocial.com/@realDonaldTrump/posts/116923585931908111](https://truthsocial.com/@realDonaldTrump/posts/116923585931908111)
+
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
+[https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
+2026-07-17 ICE agents made a violent arrest of an elderly man at the Las Vegas International Airport. Two plain-clothed men pushed him to the ground. 
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
+[https://www.facebook.com/reel/4534003376883887](https://www.facebook.com/reel/4534003376883887)
+
+[https://www.youtube.com/watch?v=Tnx_x1LyeCA](https://www.youtube.com/watch?v=Tnx_x1LyeCA)
+
+[https://www.ktvb.com/article/syndication/associatedpress/outrage-after-ice-agents-tackle-an-elderly-man-at-las-vegas-airport/616-c3815ddc-ff9f-46e5-b9da-222b413eadbf](https://www.ktvb.com/article/syndication/associatedpress/outrage-after-ice-agents-tackle-an-elderly-man-at-las-vegas-airport/616-c3815ddc-ff9f-46e5-b9da-222b413eadbf)

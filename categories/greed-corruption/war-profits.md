@@ -103,3 +103,14 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/](https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/)
 
 [https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war](https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war)
+
+2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 
+
+[https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain](https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain)
+
+[https://www.dropsitenews.com/p/iran-jd-vance-kushner-witkoff-exploiting-negotiations](https://www.dropsitenews.com/p/iran-jd-vance-kushner-witkoff-exploiting-negotiations)
+
+[https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms](https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms)
+
+TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s](https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s)
+

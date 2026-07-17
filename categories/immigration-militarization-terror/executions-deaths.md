@@ -343,6 +343,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://truthsocial.com/@realDonaldTrump/posts/116923585931908111](https://truthsocial.com/@realDonaldTrump/posts/116923585931908111)
 
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
+[https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
 2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
 
 [https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention](https://www.theguardian.com/us-news/2026/jul/15/man-dies-georgia-ice-detention)
@@ -350,5 +356,19 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.democracynow.org/2026/7/16/headlines/45_year_old_venezuelan_immigrant_dies_in_ice_custody_in_georgia](https://www.democracynow.org/2026/7/16/headlines/45_year_old_venezuelan_immigrant_dies_in_ice_custody_in_georgia)
 
 [https://www.ice.gov/news/releases/venezuelan-detainee-dies-ice-custody-during-transfer-georgia](https://www.ice.gov/news/releases/venezuelan-detainee-dies-ice-custody-during-transfer-georgia)
+
+2026-07-17 Family of the ICE agent who fatally shot Johan Sebastian Duran Guerrero in Maine say he suffered from severe mental illness, was abusive, and should not have been given a gun or badge. One family member said to the Associated Press, “Afghanistan destroyed him, trained him to be a killing monster, a machine. They took someone who was extremely mentally ill and turned him into a killing machine”. 
+
+[https://www.theguardian.com/us-news/2026/jul/14/ice-shooting-maine-joan-sebastian-guerrero](https://www.theguardian.com/us-news/2026/jul/14/ice-shooting-maine-joan-sebastian-guerrero)
+
+[https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909](https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909)
+
+[https://katv.com/news/nation-world/my-daughter-asks-for-papa-family-of-maine-man-killed-by-ice-agent-speaks-to-media](https://katv.com/news/nation-world/my-daughter-asks-for-papa-family-of-maine-man-killed-by-ice-agent-speaks-to-media)
+
+2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
+
+[https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144](https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144)
+
+[https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909](https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909)
 
 

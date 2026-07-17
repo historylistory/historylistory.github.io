@@ -360,3 +360,17 @@ FROM 2025 [https://baptistnews.com/article/the-kingdom-of-god-is-not-about-gold/
 [https://www.yahoo.com/news/politics/articles/tulsi-gabbard-entire-career-guided-181829834.html](https://www.yahoo.com/news/politics/articles/tulsi-gabbard-entire-career-guided-181829834.html)
 
 SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard-her-guru-mysterious-messages-that-helped-shape-her-political-career/](https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard-her-guru-mysterious-messages-that-helped-shape-her-political-career/)
+
+### 2026 July
+
+2026-07-16 Trump’s Truth Social platform is now offering paid-only early access to presidential posts. Richard Blumenthal wrote, “The President’s social media posts – covering war & peace & government regulations – move markets. Truth Social selling preferential access is yet another example of flagrant corruption, trading access to the White House for Trump’s self-enrichment”. 
+
+[https://www.nbcnews.com/business/media/trump-media-early-access-truth-social-posts-rcna587912](https://www.nbcnews.com/business/media/trump-media-early-access-truth-social-posts-rcna587912)
+
+[https://www.cnbc.com/2026/07/16/trump-truth-social-wall-street-traders-api.html](https://www.cnbc.com/2026/07/16/trump-truth-social-wall-street-traders-api.html)
+
+[https://www.cnbc.com/2026/02/27/truth-social-spin-off-trump-media-djt.html](https://www.cnbc.com/2026/02/27/truth-social-spin-off-trump-media-djt.html)
+
+[https://apnews.com/article/truth-social-trump-media-trump-post-conflicts-of-interest-truth-api-759fa71769729a26024914dd681c1953](https://apnews.com/article/truth-social-trump-media-trump-post-conflicts-of-interest-truth-api-759fa71769729a26024914dd681c1953)
+
+[https://x.com/SenBlumenthal](https://x.com/SenBlumenthal)

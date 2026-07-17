@@ -13,6 +13,15 @@ permalink: /categories/greed-corruption/tacky/
 [https://dccc.org/fact-check-leavitt-lies-on-wmur/](https://dccc.org/fact-check-leavitt-lies-on-wmur/)
 
 
+### 2024
+
+2024-02-16 Elena Cardone put up a GoFundMe "Stand With Trump" fundraiser for "unjust judgement".
+
+[https://www.gofundme.com/f/stand-with-trump-raise-the-settlement](https://www.gofundme.com/f/stand-with-trump-raise-the-settlement)
+
+[https://www.scmp.com/magazines/style/entertainment/article/3254535/meet-millionaires-who-started-gofundme-donald-trump-elena-and-grant-cardone-are-raising-funds-pay](https://www.scmp.com/magazines/style/entertainment/article/3254535/meet-millionaires-who-started-gofundme-donald-trump-elena-and-grant-cardone-are-raising-funds-pay)
+
+
 ### 2025 September
 
 2025-09-29 Trump submitted a video on social media to display layouts of the gold inlays purchased to decorate the Oval Office. Tacky.

@@ -943,6 +943,12 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion](https://consumerrights.wiki/w/User:Louis/Taylor_parkland_data_center_conversion)
 
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
+[https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
+
+[https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
 2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 
 
 [https://www.jpost.com/israel-news/article-902340](https://www.jpost.com/israel-news/article-902340)
@@ -950,3 +956,9 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104](https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104)
 
 [https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine](https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine)
+
+2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
+
+[https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144](https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144)
+
+[https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909](https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909)

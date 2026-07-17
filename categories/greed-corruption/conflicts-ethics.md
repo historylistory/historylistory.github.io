@@ -737,3 +737,13 @@ SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c
 [https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts](https://www.democracynow.org/2026/7/2/headlines/house_votes_to_disclose_lawmakers_behind_taxpayer_funded_sexual_misconduct_payouts)
 
 [https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)
+
+2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 
+
+[https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain](https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain)
+
+[https://www.dropsitenews.com/p/iran-jd-vance-kushner-witkoff-exploiting-negotiations](https://www.dropsitenews.com/p/iran-jd-vance-kushner-witkoff-exploiting-negotiations)
+
+[https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms](https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms)
+
+TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s](https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s)

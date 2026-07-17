@@ -762,4 +762,12 @@ Next
 
 2026-07-15 Trump pushed ICE to resume traffic stops despite deadly shootings. He wrote, “We CANNOT give up one of ICE’s most important and effective Crime Fighting tools, THE TRAFFIC STOP!”
 
+2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
+
 2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
+
+2026-07-17 Family of the ICE agent who fatally shot Johan Sebastian Duran Guerrero in Maine say he suffered from severe mental illness, was abusive, and should not have been given a gun or badge. One family member said to the Associated Press, “Afghanistan destroyed him, trained him to be a killing monster, a machine. They took someone who was extremely mentally ill and turned him into a killing machine”. 
+
+2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
+
+2026-07-17 ICE agents made a violent arrest of an elderly man at the Las Vegas International Airport. Two plain-clothed men pushed him to the ground. 
