@@ -37,7 +37,7 @@ SOME SOURCES
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: Not yet.
+Submitted to Congress by HistoryListory: Yes. On July 17, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 

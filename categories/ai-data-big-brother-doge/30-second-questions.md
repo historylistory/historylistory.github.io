@@ -45,7 +45,7 @@ SOME SOURCES
 
 ### Q1 ANSWERS
 
-Submitted to Congress by HistoryListory: Yes, on July 16, 2026
+Submitted to Congress by HistoryListory: Yes, on July 16, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 

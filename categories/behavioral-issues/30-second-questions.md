@@ -50,11 +50,11 @@ SOME SOURCES:
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: Yes, on July 17, 2026 
+Submitted to Congress by HistoryListory: Yes, on July 17, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
-Response received? Yes, but it appears they used a pre-written response template that had nothing to do with the question. On 07/17/2026 they wrote: "Thank you for contacting my office regarding the importance of election integrity and security. Our country was founded upon a revolutionary idea.  That idea was to institute a system of government, which operates for the people and by the people. Protecting the integrity of our elections is paramount to ensuring the well-being of our fundamentally democratic society. Any infringement on our democratic process undermines our entire democratic system. My primary mission as your United States Senator is to make government work with proven (MY STATE, EDITED) solutions that are ready for America.  To better inform my decision-making, it is important that I hear the ideas, concerns, and opinions of all  (MY STATE, EDITED).  I appreciate the time and effort you took to provide input on the integrity of our election process and will keep it in mind as the U.S. Senate considers this issue." 
+Response received? Yes, 1 Senator responded, but it appears they used a pre-written response template that had nothing to do with the question. On 07/17/2026 they wrote: "Thank you for contacting my office regarding the importance of election integrity and security. Our country was founded upon a revolutionary idea.  That idea was to institute a system of government, which operates for the people and by the people. Protecting the integrity of our elections is paramount to ensuring the well-being of our fundamentally democratic society. Any infringement on our democratic process undermines our entire democratic system. My primary mission as your United States Senator is to make government work with proven (MY STATE, EDITED) solutions that are ready for America.  To better inform my decision-making, it is important that I hear the ideas, concerns, and opinions of all  (MY STATE, EDITED).  I appreciate the time and effort you took to provide input on the integrity of our election process and will keep it in mind as the U.S. Senate considers this issue." 
 
 ### Question 2
 
