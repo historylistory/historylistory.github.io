@@ -229,7 +229,8 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 ### 2026 July
 
-2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. Trump said, “He was a worker; he was really a worker. But he sounded great, actually, but he actually said he was tired. But he wanted to pass the SAVE America Act, and I said, ‘We’re going to get it done, Lindsey, we’re going to get it done, I’ll see you, like soon. We might even meet today.'”
+
 
 [https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s](https://www.youtube.com/watch?v=m6YI10hqVFI&list=WL&index=3&t=135s)
 

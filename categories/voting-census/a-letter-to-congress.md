@@ -252,6 +252,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-12-04 The Supreme Court decided to grant a stay in Texas to allow Texas to use the redrawn congressional map for the 2026 mid-term elections.
 
+2025-12-10 The SAVE Act tool flags the wrong people. 
+
 2025-12-11 After Indiana legislature rejected the new map the Heritage Foundation made threats to withhold funding via X.
 
 2025-12-12 The Justice Department sued 18 States for their voter-registration records.
@@ -364,7 +366,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-07-10 Jacob Wohl and Jack Burkman are back, this time acting as federally registered, paid lobbyists for pardon seekers 
 
-2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. Trump said, “He was a worker; he was really a worker. But he sounded great, actually, but he actually said he was tired. But he wanted to pass the SAVE America Act, and I said, ‘We’re going to get it done, Lindsey, we’re going to get it done, I’ll see you, like soon. We might even meet today.'”
 
 
 

@@ -150,4 +150,4 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2026-05-24 GOP Senator Tom Tillis of North Carolina responded to Trump’s proposed $1.8B slush fund for J6 insurrectionists, calling it, “stupid on stilts”.
 
-2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. 
+2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. Trump said, “He was a worker; he was really a worker. But he sounded great, actually, but he actually said he was tired. But he wanted to pass the SAVE America Act, and I said, ‘We’re going to get it done, Lindsey, we’re going to get it done, I’ll see you, like soon. We might even meet today.'”
