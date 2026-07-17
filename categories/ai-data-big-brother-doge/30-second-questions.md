@@ -42,3 +42,11 @@ SOME SOURCES
 * BAD AI August 5, 2025: Man kills self and mother after AI instruction [GreenwichTime.com](https://www.greenwichtime.com/news/article/greenwich-shorelands-place-murder-suicide-20808719.php)
 
 * BAD AI November 19, 2025: AI enabled Kumma teddy bear teaches kids to find knives and light matches [CNN.com](https://www.cnn.com/2025/11/19/tech/folotoy-kumma-ai-bear-scli-intl)
+
+### Q1 ANSWERS
+
+Submitted to Congress by HistoryListory: Yes, on July 16, 2026
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
