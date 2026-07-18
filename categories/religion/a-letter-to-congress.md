@@ -286,7 +286,7 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-06-04 A few companies released Christian-themed energy drinks to capitalize on current events.
 
-2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic.
+2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list. 
 
 2026-06-10 The Southern Baptist Convention voted to formally ban women from serving as pastors.
 

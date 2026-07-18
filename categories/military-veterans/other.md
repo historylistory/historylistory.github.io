@@ -206,7 +206,7 @@ SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-
 
 [https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html](https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html)
 
-2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic. 
+2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list. 
 
 [https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s](https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s)
 

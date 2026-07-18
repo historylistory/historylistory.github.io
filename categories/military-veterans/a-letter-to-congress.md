@@ -308,7 +308,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
 
-2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic.
+2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list. 
 
 2026-06-04 Three armed National Guard soldiers approached, physically assaulted and detained a woman on her own porch. 
 

@@ -74,3 +74,27 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 3 
+
+The Constitution never establishes Christianity, expressly prohibits religious tests for office, and the First Amendment forbids government establishment of religion. A treaty unanimously ratified by the founding-era Senate even stated that the United States was “not in any sense founded on the Christian religion.” Congressman, what historical or constitutional evidence supports calling America a Christian nation, and will you defend equal government treatment for Christians, other faiths and nonbelievers?
+SOME SOURCES
+
+* CONSTITUTION, ARTICLE VI (6) “No religious test shall ever be required” [ARCHIVES.gov](https://www.archives.gov/founding-docs/constitution-transcript)
+
+* FIRST AMENDMENT “Congress shall make no law respecting an establishment of religion, or prohibiting the free exercise thereof” THE PRINCIPAL IS NOT HOSTILITY TOWARD CHRISTIANS. IT IS GOVERNMENTAL NEUTRALITY [ARCHIVES.gov](https://www.archives.gov/founding-docs/bill-of-rights-transcript)
+
+* 1797 TREATY OF TRIPOLI “the Government of the United States of America is not in any sense founded on the Christian religion” [Senate.gov](https://www.senate.gov/about/powers-procedures/treaties.htm) or here [First Amendment.MTSU.EDU](https://firstamendment.mtsu.edu/article/1797-treaty-of-tripoli/)
+
+* THOMAS JEFFERSON Opposed government-supported religion. [Library of Congress.gov](https://www.loc.gov/exhibits/jefferson/jefffed.html) 
+
+* JAMES MADISON Rejected government funding of Christian teachers in his Memorial and Remonstrance Against Religious Assessments [Library of Congress.gov](https://www.loc.gov/loc/lcib/9808/rel-symp.html)
+
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

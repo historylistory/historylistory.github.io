@@ -139,7 +139,7 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 ### 2026 June
 
-2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list including Buddhism, several facets of Christianity, Hindu, Islam, Judaism, Sikh, and Agnostic. 
+2026-06-04 The Pentagon dropped 180 faiths from the military’s recognized religions list. 
 
 [https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s](https://www.youtube.com/watch?v=Lcae_l6OoSg&list=WL&index=4&t=69s)
 
