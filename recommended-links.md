@@ -75,6 +75,8 @@ permalink: /recommended-links/
 
 [Economy: Center on Budget and Policy Priorities](https://www.cbpp.org/)
 
+[Economy: National Bureau of Economic Research](https://www.nber.org/)
+
 ---
 
 [Education: SIECUS.org](https://siecus.org/siecus-state-profiles/)
