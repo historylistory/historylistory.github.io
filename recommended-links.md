@@ -77,6 +77,8 @@ permalink: /recommended-links/
 
 [Economy: National Bureau of Economic Research](https://www.nber.org/)
 
+[Economy: Research Papers in Economics](https://ideas.repec.org/) I haven't used this one yet, but it looks interesting. Let me know what you think! 
+
 ---
 
 [Education: SIECUS.org](https://siecus.org/siecus-state-profiles/)

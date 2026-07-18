@@ -85,3 +85,35 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+
+### Question 3
+
+President Trump repeatedly called COVID-19 the “Chinese virus” and “kung flu,” while anti-Asian harassment and violence surged so dramatically that Congress passed the bipartisan COVID-19 Hate Crimes Act. Congressman, should a president’s racially inflammatory rhetoric simply be excused when it places Americans at greater risk, and will you publicly condemn leaders in your own party when their words contribute to hatred and violence?
+
+SOME SOURCES 
+
+* INCITING VIOLENCE October 1, 2022 The National Bureau of Economic Research found that anti-Asian incidents spiked by 4000% in Trump-supporting countries [NBER.org](https://www.nber.org/papers/w30588) or here [Papers.SSRN.com](https://papers.ssrn.com/sol3/papers.cfm)
+
+* INCITING VIOLENCE March 11, 2020 Trump derogatory “China Virus” tweet [Time.com](https://time.com/5800917/trump-china-virus-tweet/)
+
+* INCITING VIOLENCE March 17, 2020 The World Health Organization condemned Trump’s use of “Wuhan Virus” [CHC.House.Gov](https://chc.house.gov/media-center/press-releases/democratic-leaders-of-color-trump-s-use-of-chinese-virus-endangers-lives)
+
+* INCITING VIOLENCE June 24, 2020 Trump called the virus “Kung Flu” to a crowd of supporters that cheered for him [BBC.com](https://www.bbc.com/news/av/world-us-canada-53173436)
+
+* LAWSUITS May 20, 2021 A civil rights group sued Trump for referring to the virus as “Chinese Virus”, “China Virus”, “Wuhan Virus” and “Kung Flu Virus” [BBC.com](https://www.bbc.com/news/av/world-us-canada-53173436)
+
+* STUDIES May 11, 2022 National Library of Medicine [pubmed.ncbi.nlm.nih.gov](https://pubmed.ncbi.nlm.nih.gov/35544766/)
+
+* LEGISLATION April 15, 2021 Sixty-three Republicans voted AGAINST the COVID-19 Hate Crimes Act [CNN.com](https://www.cnn.com/2021/05/20/politics/republicans-voted-no-asian-hate-crime-bill)
+
+* LEGISLATION May 20, 2021 COVID-19 Hate Crimes Act [GovInfo.gov](https://www.govinfo.gov/app/details/PLAW-117publ13) or here [Congress.gov](https://www.congress.gov/bill/117th-congress/senate-bill/937)
+
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
