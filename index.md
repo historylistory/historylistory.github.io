@@ -7,11 +7,9 @@ title: Home
 
 If you are using the phone app, select MENU at the upper left to get started
 
-If you just want a YouTube version of the 30-second town hall questions, you can check me out here: 
+If you just want a YouTube version of the 30-second town hall questions, scroll down for a link
 
-[https://youtu.be/RV0fcp2t4Ak](https://youtu.be/RV0fcp2t4Ak)
 
-{% include youtubePlayer.html id="RV0fcp2t4Ak" %}
 
 
 ### What You'll Find Here
@@ -29,3 +27,10 @@ This site does not track users, require subscription or promote ads. So please, 
 
 This is a personal project maintained by a single individual. Content compiles and references information from public sources and may include opinion and commentary. It is not exhaustive and should not be treated as professional advice. Readers are encouraged to verify information independently.
 
+### YouTube Link
+
+I am currently testing out use of social media to see if it is helpful or necessary.  
+
+[https://youtu.be/RV0fcp2t4Ak](https://youtu.be/RV0fcp2t4Ak)
+
+{% include youtubePlayer.html id="RV0fcp2t4Ak" %}
