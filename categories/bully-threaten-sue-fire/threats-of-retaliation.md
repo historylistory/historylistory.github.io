@@ -819,3 +819,11 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/](https://www.democracydocket.com/news-alerts/fema-threatens-to-withhold-terrorism-prevention-funds/)
 
 [https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security](https://www.foxnews.com/politics/dhs-plans-costly-crackdown-states-dont-cooperate-election-security)
+
+2026-07-17 Markwayne Mullin threatened to prosecute and withhold aid from states that didn’t comply with DHS election directives.  
+
+[https://www.youtube.com/watch?v=hOcdBf6czeg](https://www.youtube.com/watch?v=hOcdBf6czeg)
+
+[https://apnews.com/article/trump-elections-mullin-dhs-voter-fraud-save-6871e13d3f0e2caadaf56f9b2bc1580d](https://apnews.com/article/trump-elections-mullin-dhs-voter-fraud-save-6871e13d3f0e2caadaf56f9b2bc1580d)
+
+[https://www.nbcnews.com/politics/elections/homeland-security-secretary-markwayne-mullin-threatens-states-election-rcna588002](https://www.nbcnews.com/politics/elections/homeland-security-secretary-markwayne-mullin-threatens-states-election-rcna588002)
