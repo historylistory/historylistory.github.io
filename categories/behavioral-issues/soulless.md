@@ -949,6 +949,15 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
 
+2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
+
+[https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s](https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s)
+
+[https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/](https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/)
+
+[https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/](https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/)
+
+
 2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 
 
 [https://www.jpost.com/israel-news/article-902340](https://www.jpost.com/israel-news/article-902340)

@@ -669,3 +669,12 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims](https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims)
 
 [https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html](https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html)
+
+2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
+
+[https://www.youtube.com/watch?v=oPLAz6XuJgU&list=WL&index=2&t=61s](https://www.youtube.com/watch?v=oPLAz6XuJgU&list=WL&index=2&t=61s)
+
+[https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter](https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter)
+
+[https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests
+

@@ -324,6 +324,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-07-14 The Iran war cost reached approximately $100BN. 
 
+2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
+
 2026-07-16 Trump’s Truth Social platform is now offering paid-only early access to presidential posts. Richard Blumenthal wrote, “The President’s social media posts – covering war & peace & government regulations – move markets. Truth Social selling preferential access is yet another example of flagrant corruption, trading access to the White House for Trump’s self-enrichment”. 
 
 2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 

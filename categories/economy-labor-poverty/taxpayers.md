@@ -600,3 +600,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/](https://www.wired.com/story/pentagons-bill-for-iran-war-exceed-100-billion/)
 
 [https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war](https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war)
+
+2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
+
+[https://www.youtube.com/watch?v=oPLAz6XuJgU&list=WL&index=2&t=61s](https://www.youtube.com/watch?v=oPLAz6XuJgU&list=WL&index=2&t=61s)
+
+[https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter](https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter)
+
+[https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests

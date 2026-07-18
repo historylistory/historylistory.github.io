@@ -934,3 +934,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-14 The Iran war cost reached approximately $100BN. 
 
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
+
+2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 

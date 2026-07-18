@@ -484,3 +484,12 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay](https://www.atg.wa.gov/news/news-releases/ag-ferguson-jury-finds-geo-profit-operator-tacoma-ice-detention-center-must-pay)
 
 [https://www.ccijustice.org/post/nlrb-complaint-against-geo](https://www.ccijustice.org/post/nlrb-complaint-against-geo)
+
+2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
+
+[https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s](https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s)
+
+[https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/](https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/)
+
+[https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/](https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/)
+

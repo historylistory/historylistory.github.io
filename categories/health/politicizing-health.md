@@ -29,3 +29,13 @@ permalink: /categories/health/politicizing-health/
 [https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html](https://www.gjsentinel.com/news/western_colorado/the-tina-peters-saga-continued-in-2025/article_1dada8ae-c9ae-421c-81f5-1e16d545025e.html)
 
 {% include youtubePlayer.html id="-JtgxH6hpuU" %}
+
+### 2026 July
+
+2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
+
+[https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s](https://www.youtube.com/watch?v=h2FiDjTn6rE&list=WL&index=3&t=76s)
+
+[https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/](https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/)
+
+[https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/](https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/)

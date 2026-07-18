@@ -764,6 +764,8 @@ Next
 
 2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
 
+2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
+
 2026-07-16 Forty-five-year-old Jesus Manuel Arenas Silva died of a cardiac event while being transported from one ICE facility to another. 
 
 2026-07-17 Family of the ICE agent who fatally shot Johan Sebastian Duran Guerrero in Maine say he suffered from severe mental illness, was abusive, and should not have been given a gun or badge. One family member said to the Associated Press, “Afghanistan destroyed him, trained him to be a killing monster, a machine. They took someone who was extremely mentally ill and turned him into a killing machine”. 
