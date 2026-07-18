@@ -98,3 +98,31 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 4
+
+Christian nationalists are pushing the Ten Commandments and Bible-centered curricula into public schools, even though the First Amendment prohibits government from favoring one religion. If Christianity is going to receive classroom time and government support, when will students also receive comparable instruction in Judaism, Islam, Hinduism, Buddhism and other faiths, and protected time to observe their own religious practices? Do you support equal treatment for every faith, or do you believe public schools should promote Christianity above all others?
+
+SOME SOURCES
+
+* FORCING RELIGION DOWN THROATS IS NOT LOVE Forcing religion down throats is not love [Texas Attorney General.gov](https://www.texasattorneygeneral.gov/news/releases/attorney-general-ken-paxton-instructs-texas-schools-display-ten-commandments-accordance-texas-law).
+
+* FIRST AMENDMENT “Congress shall make no law respecting an establishment of religion, or prohibiting the free exercise thereof” THE PRINCIPAL IS NOT HOSTILITY TOWARD CHRISTIANS. IT IS GOVERNMENTAL NEUTRALITY [ARCHIVES.gov](https://www.archives.gov/founding-docs/bill-of-rights-transcript)
+
+* NO SEPARATION July 6, 2022 Charlie Kirk scoffed at separation of church and state [Media Matters.org](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)
+
+* NO SEPARATION May 1, 2025 Trump scoffed at separation of church and state [Fox 29 Philadelphia on YouTube](https://www.youtube.com/watch?v=w77_maKl8_k) 
+
+* EXCLUSION January 24, 2026 Texas Education Freedom Accounts allegedly excluded Muslim private schools from state voucher programs [Texas Tribune.org](https://www.texastribune.org/2026/01/24/texas-school-vouchers-opinion-terrorists-ken-paxton/)
+
+* EXCLUSION June 4, 2026 The Pentagon dropped 180 recognized faiths from their religions list [Military.com](https://www.military.com/dod-officially-drops-180-faiths-from-militarys-recognized-religion-list)
+
+* THREATS July 13, 2026 MAGA Pastor Joel Webbon threatens imprisonment for pastors who don’t follow his faith [Lincoln Square on YouTube](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s)
+
+### Q4 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

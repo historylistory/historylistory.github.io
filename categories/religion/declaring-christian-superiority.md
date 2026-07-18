@@ -43,6 +43,10 @@ permalink: /categories/religion/declaring-christian-superiority/
 
 2025-05-01 On National Prayer day, Trump said, “They say separation between Church and State – they told me – I said alright let’s forget about that for a – one time”. Another media source quoted him as saying, “We’re bringing back religion in our country and we’re bringing it back quickly and strongly because for America to be a great nation”.
 
+[https://www.youtube.com/watch?v=w77_maKl8_k](https://www.youtube.com/watch?v=w77_maKl8_k)
+
+[https://www.youtube.com/watch?v=bbVMtxdzMlw](https://www.youtube.com/watch?v=bbVMtxdzMlw)
+
 {% include youtubePlayer.html id="w77_maKl8_k" %}
 
 {% include youtubePlayer.html id="bbVMtxdzMlw" %}
