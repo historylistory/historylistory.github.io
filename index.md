@@ -7,7 +7,12 @@ title: Home
 
 If you are using the phone app, select MENU at the upper left to get started
 
----
+If you just want a YouTube version of the 30-second town hall questions, you can check me out here: 
+
+[https://youtu.be/RV0fcp2t4Ak](https://youtu.be/RV0fcp2t4Ak)
+
+{% include youtubePlayer.html id="RV0fcp2t4Ak" %}
+
 
 ### What You'll Find Here
 
