@@ -73,3 +73,28 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 3
+
+Pete Hegseth removed Harvey Milk’s name from a Navy ship while claiming he was “taking the politics out of ship naming,” yet his broader campaign has renamed military ships and bases to reflect this administration’s own political priorities. Meanwhile, the Pentagon’s separate “Department of War” rebranding could cost taxpayers as much as $125 million. How is replacing one set of names with MAGA-approved names somehow apolitical, and how much taxpayer money are you willing to waste on ideological rebranding?
+
+SOME SOURCES 
+
+* RENAMING SHIPS June 27, 2025 Hegseth renamed USNS Harvey Milk during Pride Month [ABC News Go.com](https://abcnews.go.com/Politics/hegseth-announces-usns-harvey-milk-renamed-usns-oscar/story?id=123266490) or his post here [X.com @SecWar](https://x.com/SecWar/status/1938568563838886269)
+
+* RENAMING SHIPS June 1, 2025 Hegseth renamed several ships, in fact. It appears women, civil rights leaders and gays don’t fit his warrior ethos [Navy.mil](https://www.navy.mil/Press-Office/News-Stories/Article/3528533/secnav-names-ship-after-american-abolitionist-social-activist-harriet-tubman/)
+
+* BANNING TRANSGENDER August 25, 2017 First time Trump signed an order to ban transgender people from serving [Wikipedia.org](https://en.wikipedia.org/wiki/Presidential_Memorandum_on_Military_Service_by_Transgender_Individuals_(2017))
+
+* BANNING TRANSGENDER January 25, 2021 Biden revoked Trump’s order [Wikipedia.org](https://en.wikipedia.org/wiki/Presidential_Memorandum_on_Military_Service_by_Transgender_Individuals_(2017))
+
+* BANNING TRANSGENDER January 27, 2025 Trump signed the EO again to ban transgender people from serving [TransEquality.org](https://transequality.org/resources/understanding-trumps-trans-military-ban)
+
+
+### Q3 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
