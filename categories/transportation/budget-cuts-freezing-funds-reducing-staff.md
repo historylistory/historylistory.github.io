@@ -21,7 +21,7 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 ### 2017 January
 
-2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the USDOT and the NIOSH (National Institute for Occupational Safety and Health).
+2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the CDC, OSHA and the NIOSH (National Institute for Occupational Safety and Health).
 
 [https://www.clasp.org/blog/cuts-to-niosh-and-osha-are-an-imminent-threat-to-all-workers/](https://www.clasp.org/blog/cuts-to-niosh-and-osha-are-an-imminent-threat-to-all-workers/)
 

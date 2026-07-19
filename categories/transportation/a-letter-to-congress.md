@@ -50,7 +50,7 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules.
 
-2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the USDOT and the NIOSH (National Institute for Occupational Safety and Health).
+2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the CDC, OSHA and the NIOSH (National Institute for Occupational Safety and Health).
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
