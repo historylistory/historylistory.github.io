@@ -44,3 +44,34 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 2 
+
+President Trump previously proposed cutting federal transit grants by $1 billion, while his Transportation Department was already withholding billions Congress had approved for local projects. Now, NHTSA, the Federal Highway Administration, and the Federal Transit Administration are each losing more than a quarter of their staff, including employees responsible for vehicle, highway, and transit safety. How can cutting both infrastructure funding and safety personnel make transportation safer, and will you vote to restore these resources?
+
+SOME SOURCES
+
+* SAFETY January 20, 2017 Trump proposed cuts to the CDC, OSHA and NIOSH [AFGE.org](https://www.afge.org/article/win-for-public-health-workers-as-senate-rejects-trump-cuts-to-cdc-and-niosh/)
+
+* SAFETY May 1, 2025: Trump cut funding and staff from the National Highway Traffic Safety Administration [Road & Track.com](https://www.roadandtrack.com/news/a65448479/nhtsa-other-us-federal-automotive-safety-agencies-job-losses-trump-doge-buyouts/)
+
+* GRANTS/$1BN March 12, 2019 Trump cut $1BN in budget grants to the USDOT [Transportation for America.org](https://t4america.org/2019/03/12/presidents-budget-dramatically-cuts-transit-grants-while-usdot-sits-on-billions-of-unobligated-funds/)
+
+* LOCAL PROJECTS May 8, 2025 Proposals to cut the Essential Air Service program in Alaska [KYUK.org](https://www.kyuk.org/politics/2025-05-08/trump-proposed-cut-to-federal-essential-air-service-would-fall-on-rural-alaska)
+
+* LOCAL PROJECTS April 15, 2026 Transit and rail funding cuts to Amtrak [Smart Cities Dive.com](https://www.smartcitiesdive.com/news/trump-budget-fy2027-transit-rail-cuts)
+
+* STAFFING July 17, 2025 Auto safety agency shedding more than 25% [Reuters.com](https://www.reuters.com/business/world-at-work/us-auto-safety-agency-shedding-more-than-25-employees-2025-07-17)
+
+* STAFFING May 8, 2025 The FAA is short 3500 air traffic controllers [Reuters.com](https://www.reuters.com/business/aerospace-defense/trumps-plan-fix-air-traffic-control-faces-huge-hurdles-2025-05-08)
+
+* INFRASTRUCTURE: Just go down the list in this section: [Transportation: Budget Cuts, Freezing Funds, Reducing Staff](https://historylistory.com/categories/transportation/budget-cuts-freezing-funds-reducing-staff)
+
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

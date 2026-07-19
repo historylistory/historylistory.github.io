@@ -64,6 +64,11 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 [https://hsph.harvard.edu/environmental-health/news/whats-lost-with-niosh-cuts-qa-with-david-christiani/](https://hsph.harvard.edu/environmental-health/news/whats-lost-with-niosh-cuts-qa-with-david-christiani/)
 
+2025-04-29 The Trump administration terminated a $63.9M Amtrak grant for the Dallas-Houston corridor. 
+
+[https://www.transportation.gov/briefing-room/first-100-days](https://www.transportation.gov/briefing-room/first-100-days)
+
+
 ### 2025 May
 
 2025-05-01 The Trump administration cut the National Highway Traffic Safety Administration workforce by 25%, cut $10M in funding, and rescinded $78M in supplemental funds for infrastructure.
@@ -78,6 +83,16 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 2025-05-01 In May through September, the Trump administration released its FY 2026 "skinny" budget proposal to cut $308M from the Essential Air Service program, cancel $54M in grants to universities tied to DEI and "green initiatives", cancel $32M in transportation construction for Massachusetts, and the USDOT terminated $679M in offshore wind projects.
 
+2025-05-22 The Trump administration paused federal EV-charging funds, which the Government Accountability Office concluded violated the Impoundment Control Act. 
+
+[https://www.gao.gov/products/b-337137](https://www.gao.gov/products/b-337137)
+
+### 2025 July
+
+2025-07-01 The Trump administration terminated $4BN in unspent federal grants for the California high speed rail. 
+
+[https://www.transportation.gov/briefing-room/trumps-transportation-secretary-sean-p-duffy-cancels-californias-additional-rail](https://www.transportation.gov/briefing-room/trumps-transportation-secretary-sean-p-duffy-cancels-californias-additional-rail)
+
 ### 2025 August
 
 2025-08-24 After a dispute with Maryland Governor Wes Moore, Trump suggested reconsidering federal funding for the Francis Scott Key Bridge and later accused Moore of manipulating crime statistics. 
@@ -88,7 +103,28 @@ permalink: /categories/transportation/budget-cuts-freezing-funds-reducing-staff/
 
 [https://apnews.com/article/stb-union-pacific-norfolk-southern-trump-primus-052749d72b2c4186fbcbc87c4c47886a](https://apnews.com/article/stb-union-pacific-norfolk-southern-trump-primus-052749d72b2c4186fbcbc87c4c47886a)
 
+### 2025 September
+
+2025-09-26 The Trump administration withdrew grants for bike lanes, pedestrian-safety improvements and recreation trails. 
+
+[https://apnews.com/article/trump-transportation-infrastructure-grants-hostile-cars-37495f299378ac0980a3dea5b450e004](https://apnews.com/article/trump-transportation-infrastructure-grants-hostile-cars-37495f299378ac0980a3dea5b450e004)
+
+2025-09-30 The Trump administration froze thousands of transportation grants solely for containing climate or equity provisions. 
+
+[https://www.politico.com/news/2025/09/30/dot-biden-era-awards-canceled-00586761?](https://www.politico.com/news/2025/09/30/dot-biden-era-awards-canceled-00586761?)
+
+
 ### 2025 October
+
+2025-10-01 The Trump administration paused $18BN in federal grants for the Gateway Hudson River tunnel and Second Avenue Subway. 
+
+[https://www.washingtonpost.com/transportation/2025/10/01/shutdown-new-york-subway-rail-schumer](https://www.washingtonpost.com/transportation/2025/10/01/shutdown-new-york-subway-rail-schumer)
+
+2025-10-03 The Trump administration froze $2.1BN for the Chicago transit. 
+
+[https://www.reuters.com/world/us/us-senate-vote-dueling-plans-end-shutdown-though-neither-likely-pass-2025-10-03](https://www.reuters.com/world/us/us-senate-vote-dueling-plans-end-shutdown-though-neither-likely-pass-2025-10-03)
+
+
 
 2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities. 
 

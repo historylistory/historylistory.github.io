@@ -109,15 +109,22 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-04-28 Newark Air Traffic Control experienced equipment malfunctions that cause delays.
 
+2025-04-29 The Trump administration terminated a $63.9M Amtrak grant for the Dallas-Houston corridor. 
+
+
 2025-05-01 The Trump administration cut the National Highway Traffic Safety Administration workforce by 25%, cut $10M in funding, and rescinded $78M in supplemental funds for infrastructure.
 
 2025-05-01 In May through September, the Trump administration released its FY 2026 “skinny” budget proposal to cut $308M from the Essential Air Service program, cancel $54M in grants to universities tied to DEI and “green initiatives”, cancel $32M in transportation construction for Massachusetts, and the USDOT terminated $679M in offshore wind projects.
 
 2025-05-09 Newark Air Traffic Control experienced another outage.
 
+2025-05-22 The Trump administration paused federal EV-charging funds, which the Government Accountability Office concluded violated the Impoundment Control Act. 
+
 2025-06-20 Florida Air Traffic Control lost their radar after a fiber optic line was cut.
 
 2025-06-25 An American Airlines plane engine caught fire and had an emergency landing in Las Vegas.
+
+2025-07-01 The Trump administration terminated $4BN in unspent federal grants for the California high speed rail. 
 
 2025-07-27 A Boeing plane experienced a brake fire in Denver. 
 
@@ -127,7 +134,15 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-08-28 Newark Air Traffic Control experienced yet another outage.
 
+2025-09-26 The Trump administration withdrew grants for bike lanes, pedestrian-safety improvements and recreation trails. 
+
+2025-09-30 The Trump administration froze thousands of transportation grants solely for containing climate or equity provisions. 
+
 2025-10-01 Two Delta jets were involved in a low-speed collision at the La Guardia taxiway in New York.
+
+2025-10-01 The Trump administration paused $18BN in federal grants for the Gateway Hudson River tunnel and Second Avenue Subway. 
+
+2025-10-03 The Trump administration froze $2.1BN for the Chicago transit. 
 
 2025-10-09 The FAA canceled $6.7 million in infrastructure grants for Indianapolis International Airport, citing it did not align with Trump’s priorities.
 
