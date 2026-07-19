@@ -572,3 +572,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-07-14 When asked why ICE agents weren’t wearing body cams, Tom Homam claimed the Democrats were to blame for blocking funding for them. 
 
 2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
+
+2026-07-19 Steve Bannon blasted Fox for not covering Trump’s election-fraud speech. 

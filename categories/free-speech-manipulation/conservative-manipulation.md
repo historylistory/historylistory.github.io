@@ -482,6 +482,17 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube.com/watch?v=5yUjicp6VqU)
 
+### 2026 June
+
+
+2026-06-15 Fox Corporation wants to buy Roku for $22BN. 
+
+[https://www.nbcnews.com/business/media/fox-buys-roku-22-billion-rcna350097](https://www.nbcnews.com/business/media/fox-buys-roku-22-billion-rcna350097)
+
+[https://www.foxcorporation.com/news/corp-press-releases/2026/fox-corporation-to-acquire-roku-inc/](https://www.foxcorporation.com/news/corp-press-releases/2026/fox-corporation-to-acquire-roku-inc/)
+
+[https://www.youtube.com/shorts/xJ33k1WKwmE](https://www.youtube.com/shorts/xJ33k1WKwmE)
+
 ### 2026 July
 
 2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 

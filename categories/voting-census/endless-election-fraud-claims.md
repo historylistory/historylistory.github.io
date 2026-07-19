@@ -406,3 +406,8 @@ FEDERAL INTEL REPORT 2020 [https://www.dni.gov/files/ODNI/documents/assessments/
 
 WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrity/](https://www.whitehouse.gov/election-integrity/)
 
+2026-07-19 Steve Bannon blasted Fox for not covering Trump’s election-fraud speech. 
+
+[https://www.modernghana.com/videonews/nbc/1/684721](https://www.modernghana.com/videonews/nbc/1/684721)
+
+[https://www.youtube.com/watch?v=HTboRPK5ZKc](https://www.youtube.com/watch?v=HTboRPK5ZKc)

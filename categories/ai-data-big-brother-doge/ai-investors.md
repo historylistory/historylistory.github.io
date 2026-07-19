@@ -45,3 +45,13 @@ permalink: /categories/ai-data-big-brother-doge/ai-investors/
 2025-09-16 Microsoft announced a $30B AI infrastructure investment in the UK.
 
 [https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2](https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2)
+
+### 2026 July
+
+2026-07-10 The US granted the UAE expanded access to AI chips. 
+
+[https://www.jpost.com/international/article-902621](https://www.jpost.com/international/article-902621)
+
+[https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/](https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/)
+
+SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77)

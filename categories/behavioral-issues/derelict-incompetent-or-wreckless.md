@@ -660,6 +660,12 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 ### 2026 July
 
+2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
+
+[https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
+
+[https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)
+
 2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
 
 [https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/](https://www.cbsnews.com/news/iran-strike-us-troops-kuwait-investigation-findings-families/)

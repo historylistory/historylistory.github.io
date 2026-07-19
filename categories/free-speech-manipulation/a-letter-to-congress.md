@@ -399,6 +399,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-06-15 In Britain four Palestine activists were sentenced as terrorists without conviction for protesting in 2024.
 
+2026-06-15 Fox Corporation wants to buy Roku for $22BN. 
+
 2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
 
 2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.

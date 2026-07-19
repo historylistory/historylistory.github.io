@@ -71,3 +71,11 @@ permalink: /categories/foreign-affairs-isolation/global-security/
 [https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237](https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237)
 
 [https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/](https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/)
+
+### 2026 July
+
+2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
+
+[https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
+
+[https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)

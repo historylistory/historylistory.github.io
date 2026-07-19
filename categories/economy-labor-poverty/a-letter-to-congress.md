@@ -857,6 +857,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-11 Trump further advocated on Fox that he wanted the Chinese Communist Party to continue buying up American farmland. 
 
+2026-06-15 Fox Corporation wants to buy Roku for $22BN. 
+
 2026-06-16 An investigation was launched into allegations that Kash Patel created a $1M personal slush fund of taxpayer money to pay off MAGA loyalists.
 
 2026-06-18 SanDisk drives prices soared to almost $3000.
@@ -914,6 +916,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-10 The bipartisan Road to Housing bill was expected to pass despite Trump’s attempt to veto it. The housing bill is intended to create affordable housing, yet it still loosens building regulations.
 
 2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
+
+2026-07-10 The US granted the UAE expanded access to AI chips. 
+
+2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
 
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
 

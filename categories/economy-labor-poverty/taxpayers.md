@@ -559,6 +559,12 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs](https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs)
 
+2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
+
+[https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
+
+[https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)
+
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
 
 [https://people.com/west-virginia-anti-woke-university-program-12016314](https://people.com/west-virginia-anti-woke-university-program-12016314)

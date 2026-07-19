@@ -146,6 +146,17 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 {% include youtubePlayer.html id="ANuGHbXa9QE" %}
 
+### Fox Corporation
+
+
+2026-06-15 Fox Corporation wants to buy Roku for $22BN. 
+
+[https://www.nbcnews.com/business/media/fox-buys-roku-22-billion-rcna350097](https://www.nbcnews.com/business/media/fox-buys-roku-22-billion-rcna350097)
+
+[https://www.foxcorporation.com/news/corp-press-releases/2026/fox-corporation-to-acquire-roku-inc/](https://www.foxcorporation.com/news/corp-press-releases/2026/fox-corporation-to-acquire-roku-inc/)
+
+[https://www.youtube.com/shorts/xJ33k1WKwmE](https://www.youtube.com/shorts/xJ33k1WKwmE)
+
 ### Google
 
 [https://www.tntechoracle.com/2026/04/14/monopolies-are-turning-us-to-an-oligarchy](https://www.tntechoracle.com/2026/04/14/monopolies-are-turning-us-to-an-oligarchy)

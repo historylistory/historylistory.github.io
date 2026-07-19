@@ -181,3 +181,18 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says](https://www.middleeasteye.net/news/us-needs-move-bases-from-gulf-to-israel-former-centcom-commander-says)
 
 [https://www.jpost.com/middle-east/article-901210](https://www.jpost.com/middle-east/article-901210)
+
+2026-07-10 The US granted the UAE expanded access to AI chips. 
+
+[https://www.jpost.com/international/article-902621](https://www.jpost.com/international/article-902621)
+
+[https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/](https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/)
+
+SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77)
+
+
+2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
+
+[https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
+
+[https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)

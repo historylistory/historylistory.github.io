@@ -570,3 +570,12 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/](https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/)
 
 [https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/](https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/)
+
+### 2026 July
+
+2026-07-19 Steve Bannon blasted Fox for not covering Trump’s election-fraud speech. 
+
+[https://www.modernghana.com/videonews/nbc/1/684721](https://www.modernghana.com/videonews/nbc/1/684721)
+
+[https://www.youtube.com/watch?v=HTboRPK5ZKc](https://www.youtube.com/watch?v=HTboRPK5ZKc)
+

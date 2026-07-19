@@ -167,3 +167,13 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/](https://www.engadget.com/2196530/sandisks-new-8tb-ps5-ssd-costs-more-than-three-times-as-much-as-the-ps5-pro/)
 
 [https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase](https://www.complex.com/pop-culture/a/bernadette-giacomazzo/ps5-owners-hit-price-increase)
+
+### 2026 July
+
+2026-07-10 The US granted the UAE expanded access to AI chips. 
+
+[https://www.jpost.com/international/article-902621](https://www.jpost.com/international/article-902621)
+
+[https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/](https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/)
+
+SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77)

@@ -293,3 +293,10 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.bbc.com/news/articles/cwyq93j34lgo](https://www.bbc.com/news/articles/cwyq93j34lgo)
 
 [https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/](https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/)
+
+2026-07-18 New York City was hit with flash floods. 
+
+[https://www.the-independent.com/news/world/americas/new-york-flash-flooding-soho-canal-street-subway-b3017527.html](https://www.the-independent.com/news/world/americas/new-york-flash-flooding-soho-canal-street-subway-b3017527.html)
+
+[https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/](https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/)
+
