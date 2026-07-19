@@ -227,6 +227,8 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 
 2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 
+[https://www.youtube.com/watch?v=5NecjNqL11c](https://www.youtube.com/watch?v=5NecjNqL11c)
+
 {% include youtubePlayer.html id="5NecjNqL11c" %}
 
 ### 2025 October

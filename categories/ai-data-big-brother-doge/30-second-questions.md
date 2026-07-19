@@ -50,3 +50,36 @@ Submitted to Congress by HistoryListory: Yes, on July 16, 2026 I submitted this 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 2
+
+After years of shifting positions on TikTok, President Trump personally helped broker a deal involving Oracle and other politically connected investors, and the administration is reportedly collecting up to $10 billion in transaction fees. What legal authority permits the White House to charge such a fee, where will that money go, and will you demand full disclosure to ensure that presidential power is not used to benefit political allies? 
+
+SOME SOURCES
+
+* TIKTOK TIMELINE https://www.reuters.com/legal/litigation/tiktoks-journey-global-sensation-trump-target-2025-09-16
+
+The rest of these sources are just things on my timeline which I found interesting to know, but mostly are unrelated to the question. 
+
+* BACK IT September 19, 2020 Trump backed a deal where Oracle and Walmart partnered with ByteDance. [CNBC.com](https://www.cnbc.com/2020/09/19/trump-says-he-has-approved-tiktok-oracle-deal-in-concept.html)
+
+* BAN IT November 1, 2023 Lawmakers pushed for a TikTok ban over alleged anti-Israel bias. [NBC News.com](https://www.nbcnews.com/tech/social-media/tiktok-ban-israel-gaza-palestine-hamas-account-creator-video-rcna122849)
+
+* BAN IT May 6, 2024 Lawmakers said TikTok ban efforts were tied to pro-Palestinian content. [Rolling Stone.com](https://www.rollingstone.com/culture/culture-features/right-tiktok-boost-palestinian-content-1234876108/)
+
+* SHUT IT DOWN January 18, 2025 TikTok shut down for 15 hours. [NPR.org](https://www.npr.org/2025/01/18/nx-s1-5266146/tiktok-offline-supreme-court-ban)
+
+* JOKE ABOUT IT September 26, 2025 Trump joked he would make TikTok’s algorithm 100% MAGA https://www.youtube.com/watch?v=5NecjNqL11c the independent 
+
+* PAYOUT March 14, 2026 Trump (or the administration?) received a $10BN transactional payout in a deal with Larry Ellison [Mother Jones.com](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
+
+* CENSORSHIP January 27, 2026 Users reported censorship of anti-Trump, ICE, and Epstein-related content. [The Guardian.com](https://www.theguardian.com/commentisfree/2026/jan/30/tiktok-us-takeover-new-type-of-censorship)
+
+
+### Q2 ANSWERS
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
