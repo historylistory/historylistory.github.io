@@ -117,3 +117,30 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 4
+
+David Duke and other white supremacists supported Donald Trump. After a white supremacist murdered Heather Heyer at the 2017 Unite the Right rally in Charlottesville, President Trump initially blamed “many sides,” waited two days to explicitly condemn the KKK and neo-Nazis, and then returned to saying there was blame on “both sides”; remarks David Duke praised. Why was condemning racist violence not immediate and unequivocal, and will you condemn leaders who create moral equivalence between white supremacists and those protesting them?
+
+SOME SOURCES
+
+* WHITE HOUSE August 14, 2017 The White House issued a statement by Trump. In the statement they wrote that Trump said, “We must rediscover the bonds of love and loyalty that bring us together as Americans” which is far more polished than Trump’s usual public rhetoric. [Trump White House Archives.gov](https://trumpwhitehouse.archives.gov/briefings-statements/statement-president-trump)
+
+* HISTORY August 11, 2017 “White Supremacists Rally in Charlottesville, Virginia [EJI.org](https://calendar.eji.org/racial-injustice/aug/11)
+
+* TWITTER August 15, 2017 “Right Wing Twitter Explodes After Trump Defends Confederate Rally” [Vanity Fair.com](https://www.vanityfair.com/news/2017/08/right-wing-twitter-trump-press-conference)
+
+* VERY FINE PEOPLE June 20, 2024  PDF on House.Gov defends Trump’s statement [Docs.House.Gov PDF FILE](https://docs.house.gov/meetings/JU/JU10/20251216/118758/HHRG-119-JU10-20251216-SD001.pdf)
+
+* VERY FINE PEOPLE April 26, 2019 Trump defends his “very fine people” comment [ABC News.com](https://abcnews.com/Politics/trump-defends-2017-fine-people-comments-calls-robert/story)
+
+* PRAISE August 16, 2017 KKK leader David Duke praised Trump’s “fair condemnation” [Times of Israel.com](https://www.timesofisrael.com/white-supremacists-praise-trumps-fair-honest-condemnation-of-both-sides-in-charlottesville/) or here [CNN.com](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
+
+
+### Q4 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
