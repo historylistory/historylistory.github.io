@@ -42,3 +42,26 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 2
+
+Pete Hegseth has argued that America should fight wars by its own rules rather than be constrained by the Geneva Conventions. He has promised no “stupid rules of engagement,” while the administration has portrayed military lawyers who enforce the law as potential roadblocks and dismantled programs designed to prevent civilian casualties. What exactly do these actions mean for compliance with the laws of war, and will you hold Secretary Hegseth accountable if he orders or enables illegal conduct?
+
+SOME SOURCES
+
+* NO STUPID RULES March 2, 2026 Hegseth said there’d be no “stupid” rules of engagement governing military operations in Iran. [PBS.org](https://www.pbs.org/newshour/world/hegseth-insists-the-iran-conflict-is-not-iraq-and-is-not-endless) or here [Military.com](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
+
+* MILITARY LAWYERS February 27, 2025 The Trump administration targeted legal oversight of military lawyers [Lawfare Media.org](https://www.lawfaremedia.org/article/are-military-lawyers-being-sidelined) or here [AP News.com](https://apnews.com/article/pentagon-hegseth-firing-chairman-lawyers-6bead3346b1210e45e77648e6cbc3599)
+
+* CIVILIAN CASUALTIES February 28, 2025 Hegseth dismantled the Civilian Mitigation and Response Action Plan. [ProPublica.org](https://www.propublica.org/article/trump-defense-department-iran-hegseth-civilian-casualties) or here [Outside the Beltway.com](https://outsidethebeltway.com/pentagon-killed-civilian-protection-program-leading-to-killing-civilians/) or here [Kaine.Senate.Gov Press Release](https://www.kaine.senate.gov/press-releases/van-hollen-warren-kaine-press-hegseth-on-high-civilian-casualties-in-yemen-strikes-and-trump-administrations-dismantling-of-safeguards-against-civilian-harm)
+
+* GENEVA CONVENTION November 25, 2024 Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules” [The Guardian.com](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances) or here [Wikipedia.org The War on Warriors](https://en.wikipedia.org/wiki/The_War_on_Warriors)
+
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

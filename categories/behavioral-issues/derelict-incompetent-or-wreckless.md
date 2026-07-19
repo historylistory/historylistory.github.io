@@ -71,13 +71,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
-[https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances#:~:text='We%20will%20rip%20your%20arms,cares%20what%20other%20countries%20think?%E2%80%9D](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances)
+[https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances)
 
-[https://www.pbs.org/newshour/politics/7-things-to-know-about-pete-hegseth-trumps-defense-secretary-pick#:~:text=He%20has%20little%20patience%20for,Who%20cares.%22](https://www.pbs.org/newshour/politics/7-things-to-know-about-pete-hegseth-trumps-defense-secretary-pick)
+[https://www.pbs.org/newshour/politics/7-things-to-know-about-pete-hegseth-trumps-defense-secretary-pick](https://www.pbs.org/newshour/politics/7-things-to-know-about-pete-hegseth-trumps-defense-secretary-pick)
 
 [https://www.mainepublic.org/politics/2025-01-14/maine-sen-angus-king-probes-dod-nominees-critiques-of-geneva-conventions](https://www.mainepublic.org/politics/2025-01-14/maine-sen-angus-king-probes-dod-nominees-critiques-of-geneva-conventions)
 
-[https://en.wikipedia.org/wiki/The_War_on_Warriors#:~:text=In%20the%20book%2C%20Hegseth%20writes,it%20back%2C%20because%20legacy%20matters](https://en.wikipedia.org/wiki/The_War_on_Warriors).
+[https://en.wikipedia.org/wiki/The_War_on_Warriors](https://en.wikipedia.org/wiki/The_War_on_Warriors).
 
 ### 2025 February
 
