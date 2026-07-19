@@ -229,3 +229,22 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets](https://www.espn.com/espn/betting/story/_/id/48818821/trump-sues-minnesota-block-law-banning-prediction-markets)
 
 [https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html](https://finance.yahoo.com/markets/options/articles/us-regulator-sues-block-minnesotas-234641314.html)
+
+### 2026 July
+
+2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
+
+[https://lasentinel.net/kalshis-segregation-market-turns-black-suffering-into-a-betting-line.html](https://lasentinel.net/kalshis-segregation-market-turns-black-suffering-into-a-betting-line.html)
+
+[https://www.thedailybeast.com/trump-tied-prediction-market-kalshi-quietly-pulls-jackie-robinson-baseball-segregation-gambling-ad/](https://www.thedailybeast.com/trump-tied-prediction-market-kalshi-quietly-pulls-jackie-robinson-baseball-segregation-gambling-ad/)
+
+[https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html](https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html)
+
+[https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/](https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/)
+
+2026-07-16 Karoline Leavitt responded to questions about Trump’s teleprompter entablements with insider trading on the Kalshi market calling them a “disgrace”. 
+
+[https://www.foxnews.com/politics/white-house-condemns-staffer-accused-betting-trump-speech-disgrace](https://www.foxnews.com/politics/white-house-condemns-staffer-accused-betting-trump-speech-disgrace)
+
+[https://www.usatoday.com/story/news/politics/2026/07/16/white-house-employee-bet-trump-speeches/90945294007/](https://www.usatoday.com/story/news/politics/2026/07/16/white-house-employee-bet-trump-speeches/90945294007/)
+

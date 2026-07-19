@@ -936,3 +936,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
 
 2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
+
+2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
+
+2026-07-16 Karoline Leavitt responded to questions about Trump’s teleprompter entablements with insider trading on the Kalshi market calling them a “disgrace”. 

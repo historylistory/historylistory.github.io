@@ -279,6 +279,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
 
+2026-06-02 The Trump administration cut $386M from an ocean observatory project. 
+
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
 
 2026-06-22 Mamdani signed an Executive Order protecting workers from extreme heat. 

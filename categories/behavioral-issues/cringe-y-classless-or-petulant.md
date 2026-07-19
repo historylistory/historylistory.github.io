@@ -757,3 +757,13 @@ PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-st
 2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
 
 [https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event](https://www.espn.com/mma/story/_/id/49074842/josh-hokit-disparages-michelle-obama-ufc-white-house-event)
+
+### 2026 July
+
+2026-07-16 George Santos’ next gig was as a reality TV show contestant. 
+
+[https://people.com/george-santos-casted-on-reality-show-special-forces-after-prison-release-12020646](https://people.com/george-santos-casted-on-reality-show-special-forces-after-prison-release-12020646)
+
+[https://www.wbaltv.com/article/george-santos-reality-tv/72105834](https://www.wbaltv.com/article/george-santos-reality-tv/72105834)
+
+[https://thehill.com/blogs/in-the-know/5972222-george-santos-fox-reality-tv-cast/](https://thehill.com/blogs/in-the-know/5972222-george-santos-fox-reality-tv-cast/)

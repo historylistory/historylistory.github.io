@@ -138,3 +138,8 @@ permalink: /categories/health/other/
 [https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation](https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation)
 
 [https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us](https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us)
+
+2026-07-17 “Mexico Warns of Diarrhea Risk When Visiting US”
+
+[https://www.newsweek.com/mexico-warns-of-diarrhea-risk-when-visiting-us-12208368](https://www.newsweek.com/mexico-warns-of-diarrhea-risk-when-visiting-us-12208368)
+

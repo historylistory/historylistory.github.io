@@ -1,10 +1,21 @@
 ---
 layout: subcategory
-title: Declaring Christian Superiority
+title: Christian Nationalism
 category_slug: religion
-subcategory_slug: declaring-christian-superiority
-permalink: /categories/religion/declaring-christian-superiority/
+subcategory_slug: christian-nationalism
+permalink: /categories/religion/christian-nationalism/
 ---
+
+### 2021
+
+2021-04-21 Former Trump national security adviser Michael Flynn bought a home in Boca Royale, Florida. One year later it became the epicenter of a far-right Christian Nationalist movement. 
+
+[https://www.sarasotamagazine.com/home-and-real-estate/2021/04/michael-flynn-boca-royale-englewood](https://www.sarasotamagazine.com/home-and-real-estate/2021/04/michael-flynn-boca-royale-englewood)
+
+[https://www.pbs.org/newshour/politics/former-trump-adviser-michael-flynn-at-the-center-of-new-movement-based-on-conspiracies-and-christian-nationalism](https://www.pbs.org/newshour/politics/former-trump-adviser-michael-flynn-at-the-center-of-new-movement-based-on-conspiracies-and-christian-nationalism)
+
+[https://wusf.org/text/health-news-florida/2025-10-31/at-the-hollow-in-venice-the-medical-freedom-movement-finds-its-base-camp](https://wusf.org/text/health-news-florida/2025-10-31/at-the-hollow-in-venice-the-medical-freedom-movement-finds-its-base-camp)
+
 
 ### 2022
 

@@ -185,3 +185,12 @@ permalink: /categories/climate-change/cuts/
 [https://www.americanprogress.org/article/the-trump-administrations-retreat-from-global-climate-leadership/](https://www.americanprogress.org/article/the-trump-administrations-retreat-from-global-climate-leadership/) 
 
 
+### 2026 June
+
+2026-06-02 The Trump administration cut $386M from an ocean observatory project. 
+
+[https://www.pbs.org/newshour/science/lawmakers-fight-to-stop-the-trump-administrations-dismantling-of-a-386-million-ocean-observatory-project](https://www.pbs.org/newshour/science/lawmakers-fight-to-stop-the-trump-administrations-dismantling-of-a-386-million-ocean-observatory-project)
+
+[https://apnews.com/article/climate-oceans-data-trump-science-a9539443dfaa32b3a67468a25f8b2674](https://apnews.com/article/climate-oceans-data-trump-science-a9539443dfaa32b3a67468a25f8b2674)
+
+[https://earth.org/trump-dismantles-ocean-observation-network-used-to-monitor-marine-heatwaves-coastal-flooding/](https://earth.org/trump-dismantles-ocean-observation-network-used-to-monitor-marine-heatwaves-coastal-flooding/)

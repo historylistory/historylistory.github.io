@@ -647,3 +647,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 
 2026-07-11 Ro Khanna says he was detained by armed Israeli settlers during his visit to West Bank. He said he faced intimidation, racism, and disrespect, and witnessed the aftermath of attacks on Palestinian villages.  
+
+
+2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”

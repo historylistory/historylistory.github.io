@@ -516,3 +516,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-15 AOC slams big pharma for gaming the US patent system at a health subcommittee hearing. 
 
 2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
+
+2026-07-17 “Mexico Warns of Diarrhea Risk When Visiting US”

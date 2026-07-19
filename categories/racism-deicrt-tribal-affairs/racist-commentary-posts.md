@@ -646,3 +646,13 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853](https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853)
 
 [https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)
+
+2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
+
+[https://lasentinel.net/kalshis-segregation-market-turns-black-suffering-into-a-betting-line.html](https://lasentinel.net/kalshis-segregation-market-turns-black-suffering-into-a-betting-line.html)
+
+[https://www.thedailybeast.com/trump-tied-prediction-market-kalshi-quietly-pulls-jackie-robinson-baseball-segregation-gambling-ad/](https://www.thedailybeast.com/trump-tied-prediction-market-kalshi-quietly-pulls-jackie-robinson-baseball-segregation-gambling-ad/)
+
+[https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html](https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html)
+
+[https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/](https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/)
