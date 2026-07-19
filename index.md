@@ -31,6 +31,8 @@ This is a personal project maintained by a single individual. Content compiles a
 
 I am currently testing out use of social media to see if it is helpful or necessary.  
 
+[https://youtube.com/@historylistorydotcom](https://youtube.com/@historylistorydotcom)
+
 [https://youtu.be/RV0fcp2t4Ak](https://youtu.be/RV0fcp2t4Ak)
 
 {% include youtubePlayer.html id="RV0fcp2t4Ak" %}
