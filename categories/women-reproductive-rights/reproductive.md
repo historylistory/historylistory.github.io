@@ -353,6 +353,11 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.propublica.org/article/nevaeh-crain-death-texas-abortion-ban-emtala](https://www.propublica.org/article/nevaeh-crain-death-texas-abortion-ban-emtala)
 
+2024-11-12 Talarico filed HB308 to prevent Texas courts from forcing pregnant people to remain legally married until after childbirth. Judges could grant divorce while postponing unresolved custody, parentage or property questions and maintaining necessary protective orders. The bill received no further legislative action and died in committee.
+
+[https://capitol.texas.gov/tlodocs/89R/billtext/html/HB00308I.htm](https://capitol.texas.gov/tlodocs/89R/billtext/html/HB00308I.htm)
+
+[https://trackbill.com/bill/texas-house-bill-308-relating-to-a-suit-for-dissolution-of-a-marriage-and-associated-suit-affecting-the-parent-child-relationship-when-a-party-is-pregnant/2569586/](https://trackbill.com/bill/texas-house-bill-308-relating-to-a-suit-for-dissolution-of-a-marriage-and-associated-suit-affecting-the-parent-child-relationship-when-a-party-is-pregnant/2569586/)
 
 2024-11-25 Porsha Ngumezi died after being refused a life-saving D&C procedure due to anti-abortion laws. 
 

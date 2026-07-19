@@ -24,6 +24,15 @@ permalink: /categories/women-reproductive-rights/marriage/
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
+### 2024 
+
+2024-11-12 Talarico filed HB308 to prevent Texas courts from forcing pregnant people to remain legally married until after childbirth. Judges could grant divorce while postponing unresolved custody, parentage or property questions and maintaining necessary protective orders. The bill received no further legislative action and died in committee.
+
+[https://capitol.texas.gov/tlodocs/89R/billtext/html/HB00308I.htm](https://capitol.texas.gov/tlodocs/89R/billtext/html/HB00308I.htm)
+
+[https://trackbill.com/bill/texas-house-bill-308-relating-to-a-suit-for-dissolution-of-a-marriage-and-associated-suit-affecting-the-parent-child-relationship-when-a-party-is-pregnant/2569586/](https://trackbill.com/bill/texas-house-bill-308-relating-to-a-suit-for-dissolution-of-a-marriage-and-associated-suit-affecting-the-parent-child-relationship-when-a-party-is-pregnant/2569586/)
+
+
 ### 2025 August
 
 2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”

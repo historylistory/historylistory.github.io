@@ -168,6 +168,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-11-01 Nevaeh Crain died after she was refused lifesaving treatment due to anti-abortion laws.
 
+2024-11-12 Talarico filed HB308 to prevent Texas courts from forcing pregnant people to remain legally married until after childbirth. Judges could grant divorce while postponing unresolved custody, parentage or property questions and maintaining necessary protective orders. The bill received no further legislative action and died in committee.
+
 2024-11-15 During a podcast promoting his book, Pete Hegseth stated “I’m straight up just saying we shouldn’t have women in combat roles”.
 
 2024-11-16 A Level Man article reads “Trump, Masculinity and the Rise of the Bro Movement”.
