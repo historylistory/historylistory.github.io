@@ -773,3 +773,6 @@ Next
 2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
 
 2026-07-17 ICE agents made a violent arrest of an elderly man at the Las Vegas International Airport. Two plain-clothed men pushed him to the ground. 
+
+2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s](https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s)
+

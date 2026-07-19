@@ -45,3 +45,12 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.dailywire.com/episode/behind-the-wire-ep-49](https://www.dailywire.com/episode/behind-the-wire-ep-49)
 
 [https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b](https://www.huffpost.com/entry/jonathan-majors-ben-shapiro-run-hide-fight-infidels-trailer_n_6a3eeb56e4b0fe0f0077818b)
+
+### 2026 July
+
+2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. 
+
+[https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking](https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking)
+
+BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s](https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s)
+

@@ -409,4 +409,11 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.aljazeera.com/news/2026/7/15/why-has-lindsey-grahams-sister-inherited-his-senate-seat-after-his-death](https://www.aljazeera.com/news/2026/7/15/why-has-lindsey-grahams-sister-inherited-his-senate-seat-after-his-death)
 
+2026-07-18 Two soldiers died and one is missing in Jordan. 
+
+[https://www.newsnationnow.com/us-news/military/2-us-service-members-killed-in-action-in-jordan/](https://www.newsnationnow.com/us-news/military/2-us-service-members-killed-in-action-in-jordan/)
+
+[https://www.npr.org/2026/07/18/nx-s1-5899039/us-troops-killed-missing-iran-jordan](https://www.npr.org/2026/07/18/nx-s1-5899039/us-troops-killed-missing-iran-jordan)
+
+[https://www.nbcnews.com/world/middle-east/two-us-service-members-killed-jordan-another-missing-centom-says-rcna588181](https://www.nbcnews.com/world/middle-east/two-us-service-members-killed-jordan-another-missing-centom-says-rcna588181)
 

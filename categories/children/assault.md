@@ -131,3 +131,15 @@ PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5](https://www.youtube.com/watch?v=opzaGsMyhhk&list=WL&index=5)
 
 [https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/](https://www.texastribune.org/2026/06/18/texas-senate-james-talarico-ken-paxton-sex-abuse-plea-deal/)
+
+### 2026 July
+
+2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
+
+[https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/](https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/)
+
+[https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami](https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami)
+
+[https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
+
+[https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)

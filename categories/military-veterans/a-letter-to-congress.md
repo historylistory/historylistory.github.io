@@ -334,3 +334,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-14 Lawmakers are expected to vote on the National Defense Authorization Act (NDAA)  to authorize an addition $1.14TR in military spending. 
 
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
+
+2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
+
+2026-07-18 Two soldiers died and one is missing in Jordan. 

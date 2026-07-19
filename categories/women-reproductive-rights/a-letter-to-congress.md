@@ -294,5 +294,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-06-22 Texas resident Lynn Callaway was denied critical medical care during a miscarriage due to anti-abortion laws.
 
+2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
+
+2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
 
 

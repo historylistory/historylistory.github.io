@@ -218,6 +218,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-03-10 Trump appointed Erika Kirk to the Air Force Academy board to push Turning Point USA indoctrination.
 
+2026-03-11 The Arkansas Governor and TPUSA announced TPUSA indoctrination in their schools. 
+
 2026-03-12 During a rally in Arkansas to integrate “Club America” in schools, Erika Kirk pushed white victimhood and white nationalist views onto students, “…just like you and other governors who have been bold enough to stand alongside us to make sure that Charlie’s dream of having a club America on every single high school campus….someone throws all of your resources on the ground, count it all joy. You are being persecuted because you believe in Jesus Christ. Count it all joy….Don’t let anyone disenfranchise you because you’re a young man, especially a young white male man. Don’t ever let anyone talk down to you. We need strong men out there. ….God has created you for a purpose and a reason far greater than you and I will ever know on this side of heaven. But just know that as long as you’re a part of Turning Point USA, you have us by your side, and we will be there for you every step of the way. And just like this governor and many others that are out there, we got your back, always”.
 
 2026-03-16 Federal Judge Timothy Brooks ruled that Arkansas’s Ten Commandments classroom law violated the Constitution’s Establishment and Free Exercise Clauses and wrote, “Act 573’s purpose is only to display a sacred religious text in a prominent place in every public-school classroom, and the only reason to display a sacred religious text in every classroom is to proselytize to children”.
@@ -312,3 +314,5 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-07-08 Member of the White House Faith Office Dave Donaldson asserted that taxpayer money is “God’s money”.
 
 2026-07-13 MAGA pastor Joel Webbon suggested seizing churches and imprisoning pastors for “blasphemy” for not following Christian Nationalism. 
+
+2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. 

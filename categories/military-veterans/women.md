@@ -95,3 +95,21 @@ PAY WALL [https://www.nytimes.com/2026/06/01/us/politics/hegseth-navy-promotion-
 MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/](https://www.militarytimes.com/news/pentagon-congress/2026/03/27/hegseth-reportedly-removes-2-black-2-female-army-officers-from-1-star-promotion-list/)
 
 [https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c](https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c)
+
+### 2026 July
+
+2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
+
+[https://www.youtube.com/watch?v=KcOcgHBuR8E&list=WL&index=1](https://www.youtube.com/watch?v=KcOcgHBuR8E&list=WL&index=1)
+
+[https://sg.news.yahoo.com/beyond-disgusting-critics-slam-jesse-141850388.html](https://sg.news.yahoo.com/beyond-disgusting-critics-slam-jesse-141850388.html)
+
+[https://okmagazine.com/p/jesse-watters-slammed-for-disgusting-joke/](https://okmagazine.com/p/jesse-watters-slammed-for-disgusting-joke/)
+
+[https://www.facebook.com/watch/?v=908662981593798](https://www.facebook.com/watch/?v=908662981593798)
+
+[https://www.huffpost.com/entry/jesse-watters-military-testosterone-joke_n_6a5aeca0e4b042a7aac91894](https://www.huffpost.com/entry/jesse-watters-military-testosterone-joke_n_6a5aeca0e4b042a7aac91894)
+
+[https://www.aol.com/articles/fox-news-host-just-said-150114000.html](https://www.aol.com/articles/fox-news-host-just-said-150114000.html)
+
+[https://www.thecanary.co/trending/2026/07/18/jesse-watters/](https://www.thecanary.co/trending/2026/07/18/jesse-watters/)

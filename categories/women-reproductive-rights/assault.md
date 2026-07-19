@@ -238,3 +238,30 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-09/fbi-arrests-ex-army-
 SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://www.snopes.com/fact-check/cnn-online-rape-academy/)
 
 
+### 2026 July
+
+2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
+
+[https://www.youtube.com/watch?v=KcOcgHBuR8E&list=WL&index=1](https://www.youtube.com/watch?v=KcOcgHBuR8E&list=WL&index=1)
+
+[https://sg.news.yahoo.com/beyond-disgusting-critics-slam-jesse-141850388.html](https://sg.news.yahoo.com/beyond-disgusting-critics-slam-jesse-141850388.html)
+
+[https://okmagazine.com/p/jesse-watters-slammed-for-disgusting-joke/](https://okmagazine.com/p/jesse-watters-slammed-for-disgusting-joke/)
+
+[https://www.facebook.com/watch/?v=908662981593798](https://www.facebook.com/watch/?v=908662981593798)
+
+[https://www.huffpost.com/entry/jesse-watters-military-testosterone-joke_n_6a5aeca0e4b042a7aac91894](https://www.huffpost.com/entry/jesse-watters-military-testosterone-joke_n_6a5aeca0e4b042a7aac91894)
+
+[https://www.aol.com/articles/fox-news-host-just-said-150114000.html](https://www.aol.com/articles/fox-news-host-just-said-150114000.html)
+
+[https://www.thecanary.co/trending/2026/07/18/jesse-watters/](https://www.thecanary.co/trending/2026/07/18/jesse-watters/)
+
+2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
+
+[https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/](https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/)
+
+[https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami](https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami)
+
+[https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
+
+[https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)

@@ -630,3 +630,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-10 Jacob Wohl and Jack Burkman are back, this time acting as federally registered, paid lobbyists for pardon seekers 
 
 2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 
+
+2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.

@@ -97,6 +97,11 @@ permalink: /categories/religion/christian-nationalism/
 
 [https://cbn.com/news/us/man-paints-over-heretical-message-massive-billboard-los-angeles](https://cbn.com/news/us/man-paints-over-heretical-message-massive-billboard-los-angeles)
 
+### 2026 March
+
+2026-03-11 The Arkansas Governor and TPUSA announced TPUSA indoctrination in their schools. 
+
+[https://governor.arkansas.gov/news_post/governor-sanders-awards-the-arkansas-medal-of-freedom-2/](https://governor.arkansas.gov/news_post/governor-sanders-awards-the-arkansas-medal-of-freedom-2/)
 
 ### 2026 April
 
@@ -187,3 +192,8 @@ permalink: /categories/religion/christian-nationalism/
 
 [https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s)
 
+2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. 
+
+[https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking](https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking)
+
+BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s](https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s)

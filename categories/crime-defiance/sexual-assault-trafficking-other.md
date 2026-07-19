@@ -188,3 +188,12 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 
 [https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/](https://www.washingtontimes.com/news/2026/jun/30/house-vote-forces-disclosure-congressional-sexual-harassment/)
 
+2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
+
+[https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/](https://www.nbcmiami.com/news/national-international/andrew-tristan-tate-arrested-in-miami/3835750/)
+
+[https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami](https://www.theguardian.com/news/2026/jul/18/andrew-tristan-tate-arrested-miami)
+
+[https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
+
+[https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)
