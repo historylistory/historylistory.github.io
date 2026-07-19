@@ -747,3 +747,13 @@ SUB WALL [https://www.huffpost.com/entry/ken-paxton-trump-scandal-plagued_n_6a1c
 [https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms](https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms)
 
 TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s](https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s)
+
+2026-07-17 Trump Media pitched a $100,000 monthly fee for access to the fastest feed of the President’s posts. The ethics question is whether this is admission by Trump he is using his position to both manipulate market moves and make a profit. 
+
+[https://www.cnbc.com/2026/07/18/trump-media-pitched-100000/month-fee-for-fastest-feed-of-trump-posts.html](https://www.cnbc.com/2026/07/18/trump-media-pitched-100000/month-fee-for-fastest-feed-of-trump-posts.html)
+
+[https://www.ft.com/content/e466df85-fa3b-4a7f-a4a1-ae04d66db99f?syn-25a6b1a6=1](https://www.ft.com/content/e466df85-fa3b-4a7f-a4a1-ae04d66db99f?syn-25a6b1a6=1)
+
+[https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/](https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/)
+
+

@@ -58,3 +58,13 @@ permalink: /categories/education/teachers/
 2026-05-22 Teachers revolted against I-Ready; a private-equity-backed software used in education.
 
 [https://www.youtube.com/watch?v=QQALEGHg_Ls&list=WL&index=9&t=80s](https://www.youtube.com/watch?v=QQALEGHg_Ls&list=WL&index=9&t=80s)
+
+### 2026 July
+
+2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
+
+[https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625](https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625)
+
+[https://mashable.com/tech/new-york-school-testing-robot-teacher](https://mashable.com/tech/new-york-school-testing-robot-teacher)
+
+[https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians](https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians)

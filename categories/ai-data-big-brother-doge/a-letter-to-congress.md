@@ -347,6 +347,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
 
+2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
 
 
 

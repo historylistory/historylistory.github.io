@@ -37,3 +37,13 @@ permalink: /categories/education/ai/
 [https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192](https://www.nbcnews.com/tech/tech-news/melania-trump-robot-humanoid-robot-white-house-video-rcna265192)
 
 [https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2](https://www.youtube.com/watch?v=x7cANDrarDc&list=WL&index=2)
+
+### 2026 July
+
+2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
+
+[https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625](https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625)
+
+[https://mashable.com/tech/new-york-school-testing-robot-teacher](https://mashable.com/tech/new-york-school-testing-robot-teacher)
+
+[https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians](https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians)

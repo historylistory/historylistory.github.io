@@ -90,3 +90,16 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633](https://abcnews.com/Politics/us-renew-trade-deal-mexico-canada-trump-struck/story?id=134390633)
 
 [https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/](https://thehill.com/homenews/administration/5949845-trump-administration-usmca-renewal/)
+
+2026-07-17 Trump and Fox News blamed Canada for the wildfire smoke, saying pollution costs should be added to tariffs. 
+
+[https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs](https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs)
+
+[https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence](https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence)
+
+[https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/](https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/)
+
+[https://www.bbc.com/news/articles/cwyq93j34lgo](https://www.bbc.com/news/articles/cwyq93j34lgo)
+
+[https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/](https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/)
+

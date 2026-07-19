@@ -36,3 +36,13 @@ PAYWALL [https://www.forbes.com/sites/conormurray/2025/05/06/why-ai-hallucinatio
 [https://time.com/7295195/ai-chatgpt-google-learning-school/](https://time.com/7295195/ai-chatgpt-google-learning-school/)
 
 [https://www.media.mit.edu/publications/your-brain-on-chatgpt/](https://www.media.mit.edu/publications/your-brain-on-chatgpt/)
+
+### 2026 July
+
+2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
+
+[https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625](https://kotaku.com/realdoll-sex-dolls-realbotix-ai-teachers-crypto-new-york-2000716625)
+
+[https://mashable.com/tech/new-york-school-testing-robot-teacher](https://mashable.com/tech/new-york-school-testing-robot-teacher)
+
+[https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians](https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians)

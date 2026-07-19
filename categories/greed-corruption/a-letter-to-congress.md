@@ -329,3 +329,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-07-16 Trump’s Truth Social platform is now offering paid-only early access to presidential posts. Richard Blumenthal wrote, “The President’s social media posts – covering war & peace & government regulations – move markets. Truth Social selling preferential access is yet another example of flagrant corruption, trading access to the White House for Trump’s self-enrichment”. 
 
 2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 
+
+2026-07-17 Trump Media pitched a $100,000 monthly fee for access to the fastest feed of the President’s posts. The ethics question is whether this is admission by Trump he is using his position to both manipulate market moves and make a profit. 

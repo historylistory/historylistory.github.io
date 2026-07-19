@@ -194,3 +194,14 @@ permalink: /categories/climate-change/cuts/
 [https://apnews.com/article/climate-oceans-data-trump-science-a9539443dfaa32b3a67468a25f8b2674](https://apnews.com/article/climate-oceans-data-trump-science-a9539443dfaa32b3a67468a25f8b2674)
 
 [https://earth.org/trump-dismantles-ocean-observation-network-used-to-monitor-marine-heatwaves-coastal-flooding/](https://earth.org/trump-dismantles-ocean-observation-network-used-to-monitor-marine-heatwaves-coastal-flooding/)
+
+
+### 2026 July
+
+2026-07-17 The Trump administration cut funding for targeted wildfire research. 
+
+[https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke](https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke)
+
+[https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949](https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949)
+
+PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html](https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html)

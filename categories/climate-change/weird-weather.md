@@ -281,3 +281,15 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert](https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert)
 
 [https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870](https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870)
+
+2026-07-17 Trump and Fox News blamed Canada for the wildfire smoke, saying pollution costs should be added to tariffs. 
+
+[https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs](https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs)
+
+[https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence](https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence)
+
+[https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/](https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/)
+
+[https://www.bbc.com/news/articles/cwyq93j34lgo](https://www.bbc.com/news/articles/cwyq93j34lgo)
+
+[https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/](https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/)

@@ -323,3 +323,4 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-07-16 Air quality readings reached hazardous levels in the Midwest and Northeastern states. 
 
+2026-07-17 The Trump administration cut funding for targeted wildfire research. 

@@ -98,3 +98,40 @@ permalink: /categories/climate-change/forest-fire-services/
 [https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/](https://www.eenews.net/articles/concerns-grow-about-herbicide-use-in-wildfires-wake/)
 
 [https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests](https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests)
+
+### 2026 July
+
+2026-07-07 Utah’s Babylon Fire surpassed 100,000 acres, making it one of the largest wildfires in the nation. 
+
+[https://www.fox13now.com/news/utah-wildfires/babylon-fire-tops-100-000-acres-as-monticello-residents-remain-on-alert](https://www.fox13now.com/news/utah-wildfires/babylon-fire-tops-100-000-acres-as-monticello-residents-remain-on-alert)
+
+[https://kutv.com/news/wildfire/firefighters-from-across-utah-deploy-to-fight-massive-babylon-cottonwood-wildfires](https://kutv.com/news/wildfire/firefighters-from-across-utah-deploy-to-fight-massive-babylon-cottonwood-wildfires)
+
+[https://www.abc4.com/utah-weather/wildfire/babylon-fire-grows-over-100000-acres/](https://www.abc4.com/utah-weather/wildfire/babylon-fire-grows-over-100000-acres/)
+
+2026-07-16 Air quality readings reached hazardous levels in the Midwest and Northeastern states. 
+
+[https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert](https://www.iqair.com/newsroom/midwest-and-northeast-us-air-quality-alert)
+
+[https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870](https://www.accuweather.com/en/weather-news/dangerous-air-quality-in-detroit-minneapolis-as-thick-wildfire-smoke-shrouds-the-sky-for-millions/1911870)
+
+2026-07-17 Trump and Fox News blamed Canada for the wildfire smoke, saying pollution costs should be added to tariffs. 
+
+[https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs](https://www.foxnews.com/politics/trump-blames-canada-wildfire-smoke-pollution-costs-tariffs)
+
+[https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence](https://www.foxnews.com/world/canadian-wildfire-smoke-ignites-cross-border-feud-over-ottawas-willful-negligence)
+
+[https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/](https://fox8.com/news/trump-says-canada-will-face-tariffs-over-wildfire-smoke-claiming-willful-negligence/)
+
+[https://www.bbc.com/news/articles/cwyq93j34lgo](https://www.bbc.com/news/articles/cwyq93j34lgo)
+
+[https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/](https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/)
+
+2026-07-17 The Trump administration cut funding for targeted wildfire research. 
+
+[https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke](https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke)
+
+[https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949](https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949)
+
+PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html](https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html)
+
