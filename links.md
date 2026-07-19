@@ -1,7 +1,7 @@
 ---
 layout: staticpage
-title: Recommended Links
-permalink: /recommended-links/
+title: Links
+permalink: /links/
 ---
 
 

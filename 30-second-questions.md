@@ -1,7 +1,7 @@
 ---
 layout: staticpage
-title: Town Hall Questions
-permalink: /town-hall-questions/
+title: 30 Second Questions
+permalink: /30-second-questions/
 ---
 
 
