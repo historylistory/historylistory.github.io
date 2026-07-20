@@ -39,7 +39,7 @@ SOME SOURCES
 
 ### Q1 ANSWER
 
-Submitted to Congress by HistoryListory: Not yet.
+Submitted to Congress by HistoryListory: Yes. This was emailed to two (2) Congressman, two (2) Senators and one (1) Governor on July 20, 2026. 
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
