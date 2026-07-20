@@ -514,3 +514,23 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
 
 [https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)
+
+2026-07-17 A Colorado prison guard shot a protester. 
+
+[https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail](https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail)
+
+[https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester](https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester)
+
+[https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/](https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/)
+
+2026-07-20 A suspect was arrested after lighting fireworks near a NYC federal building. 
+
+[https://www.youtube.com/watch?v=ZyXGhgrCelw&list=WL&index=2&t=51s](https://www.youtube.com/watch?v=ZyXGhgrCelw&list=WL&index=2&t=51s)
+
+[https://www.reuters.com/world/us/arrest-made-after-incendiary-device-thrown-fbi-building-new-york-cnn-reports-2026-07-20/](https://www.reuters.com/world/us/arrest-made-after-incendiary-device-thrown-fbi-building-new-york-cnn-reports-2026-07-20/)
+
+[https://www.pbs.org/newshour/nation/person-in-custody-after-starting-fire-outside-new-york-federal-building-fbi-says](https://www.pbs.org/newshour/nation/person-in-custody-after-starting-fire-outside-new-york-federal-building-fbi-says)
+
+2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
+
+[https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s)

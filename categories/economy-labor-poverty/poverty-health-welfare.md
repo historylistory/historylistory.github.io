@@ -663,3 +663,16 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/](https://fortune.com/2026/06/29/mackenzie-scott-vs-elon-musk-philanthropy-donations/)
 
 [https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html](https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html)
+
+### 2026 July
+
+
+2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
+
+[https://www.youtube.com/watch?v=us1aYyH8j90&list=WL&index=4&t=15s](https://www.youtube.com/watch?v=us1aYyH8j90&list=WL&index=4&t=15s)
+
+[https://www.youtube.com/watch?v=us1aYyH8j90](https://www.youtube.com/watch?v=us1aYyH8j90)
+
+[https://www.aol.com/articles/fox-news-viewer-tells-reporter-014200000.html](https://www.aol.com/articles/fox-news-viewer-tells-reporter-014200000.html)
+
+[https://www.axios.com/local/seattle/2023/09/27/fox-news-seattle-crime-mock](https://www.axios.com/local/seattle/2023/09/27/fox-news-seattle-crime-mock)

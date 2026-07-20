@@ -410,3 +410,20 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 [https://www.youtube.com/watch?v=RkxC12sAbHA](https://www.youtube.com/watch?v=RkxC12sAbHA)
 
+2026-07-17 Israel planned to surround prisons for Palestinians with crocodile infested moats. 
+
+[https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/](https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/)
+
+[https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat](https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat)
+
+[https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center](https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center)
+
+2026-07-20 Mamdani said Netanyahu should be arrested when he visits New York this fall for the UN General Assembly. 
+
+[https://www.newsnationnow.com/politics/mamdani-arresting-netanyahu-visits-nyc-un-general-assembly](https://www.newsnationnow.com/politics/mamdani-arresting-netanyahu-visits-nyc-un-general-assembly)
+
+[https://www.theguardian.com/us-news/2026/jul/19/mamdani-netanyahu](https://www.theguardian.com/us-news/2026/jul/19/mamdani-netanyahu)
+
+[https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/](https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/)
+
+[https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/](https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/)

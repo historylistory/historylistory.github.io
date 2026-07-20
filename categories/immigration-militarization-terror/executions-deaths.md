@@ -371,4 +371,14 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909](https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909)
 
+2026-07-20 Allegedly the Trump Administration told FBI agents that going forward they would no longer investigate ICE confrontations. 
 
+[https://www.youtube.com/watch?v=EUU_GASII8Y&list=WL&index=3&t=22s](https://www.youtube.com/watch?v=EUU_GASII8Y&list=WL&index=3&t=22s)
+
+[https://www.nbcnews.com/politics/immigration/fbi-agents-told-no-longer-investigate-confrontations-ice-rcna588276](https://www.nbcnews.com/politics/immigration/fbi-agents-told-no-longer-investigate-confrontations-ice-rcna588276)
+
+[https://www.cnbc.com/amp/2026/07/19/ice-assault-claims-fbi.html](https://www.cnbc.com/amp/2026/07/19/ice-assault-claims-fbi.html)
+
+2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
+
+[https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s)

@@ -43,3 +43,11 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 [https://www.cnn.com/2026/06/22/world/live-news/keir-starmer-uk-pm](https://www.cnn.com/2026/06/22/world/live-news/keir-starmer-uk-pm)
 
 [https://www.youtube.com/watch?v=G68GnjnGg-Q&list=WL&index=2](https://www.youtube.com/watch?v=G68GnjnGg-Q&list=WL&index=2)
+
+### 2026 July
+
+2026-07-20 Andy Burnham succeeded Kier Starmer. 
+
+[https://www.npr.org/2026/07/19/nx-s1-5895993/andy-burnham-prime-minister-keir-starmer](https://www.npr.org/2026/07/19/nx-s1-5895993/andy-burnham-prime-minister-keir-starmer)
+
+[https://www.nbcnews.com/world/united-kingdom/andy-burnham-british-prime-minister-keir-starmer-labour-king-charles-rcna588324](https://www.nbcnews.com/world/united-kingdom/andy-burnham-british-prime-minister-keir-starmer-labour-king-charles-rcna588324)

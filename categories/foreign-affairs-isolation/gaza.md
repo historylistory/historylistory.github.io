@@ -540,3 +540,11 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104](https://www.nbcnews.com/world/gaza/palestinian-doctor-held-israel-18-months-dire-condition-rcna353104)
 
 [https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine](https://www.theguardian.com/commentisfree/2026/jul/13/israel-prison-torture-death-hussam-abu-safiya-palestine)
+
+2026-07-17 Israel planned to surround prisons for Palestinians with crocodile infested moats. 
+
+[https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/](https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/)
+
+[https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat](https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat)
+
+[https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center](https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center)

@@ -390,3 +390,11 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail](https://www.democracynow.org/2026/7/2/headlines/seven_more_receive_harsh_sentences_for_terrorism_after_attending_protest_at_texas_ice_jail)
 
 [https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center](https://www.theguardian.com/us-news/2026/jul/01/protest-shooting-texas-detention-center)
+
+2026-07-17 A Colorado prison guard shot a protester. 
+
+[https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail](https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail)
+
+[https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester](https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester)
+
+[https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/](https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/)

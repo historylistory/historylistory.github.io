@@ -116,3 +116,14 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 
 [https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/](https://www.ctvnews.ca/world/article/un-to-provide-10000-body-bags-to-venezuela-after-quakes/)
 
+### 2026 July
+
+2026-07-20 Mamdani said Netanyahu should be arrested when he visits New York this fall for the UN General Assembly. 
+
+[https://www.newsnationnow.com/politics/mamdani-arresting-netanyahu-visits-nyc-un-general-assembly](https://www.newsnationnow.com/politics/mamdani-arresting-netanyahu-visits-nyc-un-general-assembly)
+
+[https://www.theguardian.com/us-news/2026/jul/19/mamdani-netanyahu](https://www.theguardian.com/us-news/2026/jul/19/mamdani-netanyahu)
+
+[https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/](https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/)
+
+[https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/](https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/)

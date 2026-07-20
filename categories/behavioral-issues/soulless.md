@@ -971,3 +971,22 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144](https://www.wmtw.com/article/biddeford-maine-ice-shooting-wife-of-man-killed-speaks/72715144)
 
 [https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909](https://www.nbcnews.com/news/us-news/wife-colombian-father-killed-ice-biddeford-maine-immigration-rcna587909)
+
+2026-07-17 Israel planned to surround prisons for Palestinians with crocodile infested moats. 
+
+[https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/](https://www.timesofisrael.com/likud-minister-reclassifies-crocodile-as-tended-paving-way-for-ben-gvirs-prison-plan/)
+
+[https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat](https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat)
+
+[https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center](https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center)
+
+
+2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
+
+[https://www.youtube.com/watch?v=us1aYyH8j90&list=WL&index=4&t=15s](https://www.youtube.com/watch?v=us1aYyH8j90&list=WL&index=4&t=15s)
+
+[https://www.youtube.com/watch?v=us1aYyH8j90](https://www.youtube.com/watch?v=us1aYyH8j90)
+
+[https://www.aol.com/articles/fox-news-viewer-tells-reporter-014200000.html](https://www.aol.com/articles/fox-news-viewer-tells-reporter-014200000.html)
+
+[https://www.axios.com/local/seattle/2023/09/27/fox-news-seattle-crime-mock](https://www.axios.com/local/seattle/2023/09/27/fox-news-seattle-crime-mock)

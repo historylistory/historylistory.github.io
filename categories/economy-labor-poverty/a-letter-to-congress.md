@@ -946,3 +946,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
 
 2026-07-16 Karoline Leavitt responded to questions about Trump’s teleprompter entablements with insider trading on the Kalshi market calling them a “disgrace”. 
+
+
+2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 

@@ -395,3 +395,23 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.youtube.com/watch?v=Tnx_x1LyeCA](https://www.youtube.com/watch?v=Tnx_x1LyeCA)
 
 [https://www.ktvb.com/article/syndication/associatedpress/outrage-after-ice-agents-tackle-an-elderly-man-at-las-vegas-airport/616-c3815ddc-ff9f-46e5-b9da-222b413eadbf](https://www.ktvb.com/article/syndication/associatedpress/outrage-after-ice-agents-tackle-an-elderly-man-at-las-vegas-airport/616-c3815ddc-ff9f-46e5-b9da-222b413eadbf)
+
+2026-07-17 A Colorado prison guard shot a protester. 
+
+[https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail](https://www.democracynow.org/2026/7/20/headlines/colorado_prison_guard_faces_multiple_charges_after_shooting_protesters_outside_ice_jail)
+
+[https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester](https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester)
+
+[https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/](https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/)
+
+2026-07-20 Allegedly the Trump Administration told FBI agents that going forward they would no longer investigate ICE confrontations. 
+
+[https://www.youtube.com/watch?v=EUU_GASII8Y&list=WL&index=3&t=22s](https://www.youtube.com/watch?v=EUU_GASII8Y&list=WL&index=3&t=22s)
+
+[https://www.nbcnews.com/politics/immigration/fbi-agents-told-no-longer-investigate-confrontations-ice-rcna588276](https://www.nbcnews.com/politics/immigration/fbi-agents-told-no-longer-investigate-confrontations-ice-rcna588276)
+
+[https://www.cnbc.com/amp/2026/07/19/ice-assault-claims-fbi.html](https://www.cnbc.com/amp/2026/07/19/ice-assault-claims-fbi.html)
+
+2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
+
+[https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s)

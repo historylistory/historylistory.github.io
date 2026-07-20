@@ -736,3 +736,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-07-16 George Santos’ next gig was as a reality TV show contestant. 
 
 2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
+
+2026-07-17 Israel planned to surround prisons for Palestinians with crocodile infested moats. 
+
+
+2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 

@@ -573,4 +573,13 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
 
+2026-07-17 A Colorado prison guard shot a protester. 
+
 2026-07-19 Steve Bannon blasted Fox for not covering Trump’s election-fraud speech. 
+
+2026-07-20 A suspect was arrested after lighting fireworks near a NYC federal building. 
+
+2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
+
+
+

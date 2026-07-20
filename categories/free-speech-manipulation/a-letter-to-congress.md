@@ -417,3 +417,6 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-07-08 Salem Media Partners released a taxpayer-funded movie By Dawn’s Early Light that chastises non-Trump supporters and claims systemic bias against Christians during the Biden administration. Salem Media Partners also promoted election fraud claims in their other movie 2000 Mules. 
 
 2026-07-11 The DOJ subpoenaed New York Times reporters for reporting about Air Force One. 
+
+2026-07-17 A Colorado prison guard shot a protester. 
+
