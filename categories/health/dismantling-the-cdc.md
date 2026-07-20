@@ -76,3 +76,15 @@ Great Barrington Declaration links:
 [https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf](https://www.congress.gov/118/meeting/house/115561/witnesses/HHRG-118-IF16-Wstate-BhattacharyaJ-20230328.pdf)
 
 [https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns](https://www.hoover.org/research/man-who-talked-back-jay-bhattacharya-fight-against-covid-lockdowns)
+
+### 2026 July
+
+2026-07-17 We were reminded that the slow progression to find the source of cyclosporiasis was largely due to Trump’s cuts to the CDC budget and staff. 
+
+[https://www.wired.com/story/cdc-cyclospora-lab-doge-downsized-it-last-year/](https://www.wired.com/story/cdc-cyclospora-lab-doge-downsized-it-last-year/)
+
+[https://www.cnn.com/2026/07/20/health/trump-cyclosporiasis-outbreak-cdc-response-invs](https://www.cnn.com/2026/07/20/health/trump-cyclosporiasis-outbreak-cdc-response-invs)
+
+[https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html](https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html)
+
+[https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/](https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/)

@@ -198,6 +198,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-01-29 During a presidential rally at the Capital One Arena in Washington DC, Trump stated “…but then they rigged the election, and now we won, so I’m gonna be your president for the Olympics…”
 
+2025-03-25 Trump issued EO 14248 to assert presidential control over federal elections. 
+
 2025-08-05 Republicans started redistricting to gain more Republican seats ahead of the midterms. 
 
 2025-08-07 Representative Andy Ogles out of Tennessee reposted a tweet from Trump, “I have instructed our Department of Commerce to immediately begin work on a new and highly accurate CENSUS based on modern day facts and figures and, importantly, using the results and information gained from the Presidential Election of 2024. People who are in our Country illegally WILL NOT BE COUNTED IN THE CENSUS…”
@@ -261,6 +263,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2025-12-19 Erika Trump endorsed JD Vance for 2028.
 
 2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
+
+2026-01-12 Trump said he was sorry he did not sign an Executive Order he wrote to tell the National Guard to seize voting machines and ballots. 
 
 2026-01-15 Trump said, “We shouldn’t even have an election”. Karoline Leavitt claimed Trump was “just joking”.
 

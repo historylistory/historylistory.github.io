@@ -147,6 +147,15 @@ OTHER SHADY BUSINESS
 
 [https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures](https://www.theguardian.com/us-news/2024/nov/15/electoral-reform-ballot-measures)
 
+### 2025 March
+
+2025-03-25 Trump issued EO 14248 to assert presidential control over federal elections. 
+
+[https://www.brennancenter.org/our-work/research-reports/status-trumps-2025-anti-voting-executive-order](https://www.brennancenter.org/our-work/research-reports/status-trumps-2025-anti-voting-executive-order)
+
+[https://www.brennancenter.org/our-work/research-reports/presidents-executive-order-elections-explained](https://www.brennancenter.org/our-work/research-reports/presidents-executive-order-elections-explained)
+
+[https://www.whitehouse.gov/presidential-actions/2025/03/preserving-and-protecting-the-integrity-of-american-elections/](https://www.whitehouse.gov/presidential-actions/2025/03/preserving-and-protecting-the-integrity-of-american-elections/)
 
 ### 2025 September
 

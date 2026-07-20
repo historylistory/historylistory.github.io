@@ -24,6 +24,17 @@ permalink: /categories/voting-census/intimidation/
 
 [https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453](https://www.politico.com/news/2024/03/16/trump-bloodbath-biden-november-00147453)
 
+### 2025 March
+
+2025-03-25 Trump issued EO 14248 to assert presidential control over federal elections. 
+
+[https://www.brennancenter.org/our-work/research-reports/status-trumps-2025-anti-voting-executive-order](https://www.brennancenter.org/our-work/research-reports/status-trumps-2025-anti-voting-executive-order)
+
+[https://www.brennancenter.org/our-work/research-reports/presidents-executive-order-elections-explained](https://www.brennancenter.org/our-work/research-reports/presidents-executive-order-elections-explained)
+
+[https://www.whitehouse.gov/presidential-actions/2025/03/preserving-and-protecting-the-integrity-of-american-elections/](https://www.whitehouse.gov/presidential-actions/2025/03/preserving-and-protecting-the-integrity-of-american-elections/)
+
+
 ### 2025 September
 
 2025-09-26 The DOJ sued several Democratic-led states over access to voter information.
@@ -34,6 +45,13 @@ permalink: /categories/voting-census/intimidation/
 
 
 ### 2026 January
+
+2026-01-12 Trump said he was sorry he did not sign an Executive Order he wrote to tell the National Guard to seize voting machines and ballots. 
+
+[https://www.theguardian.com/us-news/2026/jan/12/trump-voting-machines-election-2020](https://www.theguardian.com/us-news/2026/jan/12/trump-voting-machines-election-2020)
+
+THAT INTERVIEW, SUB WALL: [https://www.nytimes.com/2026/01/11/us/trump-voting-machines-2020-election.html](https://www.nytimes.com/2026/01/11/us/trump-voting-machines-2020-election.html)
+
 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
