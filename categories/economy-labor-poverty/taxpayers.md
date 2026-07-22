@@ -614,3 +614,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter](https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter)
 
 [https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests
+
+2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
+
+[https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request](https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request)
+
+[https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting](https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting)
+
+[https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces](https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces)

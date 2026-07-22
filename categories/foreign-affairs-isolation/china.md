@@ -118,3 +118,7 @@ FEDERAL INTEL REPORT 2022 [https://drive.google.com/file/d/1aqorZ61AYFqZU-EDQBBz
 FEDERAL INTEL REPORT 2020 [https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf](https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf)
 
 WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrity/](https://www.whitehouse.gov/election-integrity/)
+
+2026-07-20 The Trump administration is considering restrictions on newer Chinese open weight AI models.
+
+[https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi](https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi)

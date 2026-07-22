@@ -953,3 +953,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
 
+2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
+

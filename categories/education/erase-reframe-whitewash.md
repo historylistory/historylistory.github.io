@@ -186,3 +186,12 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 [https://www.youtube.com/watch?v=jKiK3vtxmtY&list=WL&index=4](https://www.youtube.com/watch?v=jKiK3vtxmtY&list=WL&index=4)
 
+### 2026 July
+
+2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 
+
+[https://www.youtube.com/watch?v=tFLy0qqTnBI&list=WL&index=2](https://www.youtube.com/watch?v=tFLy0qqTnBI&list=WL&index=2)
+
+[https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing](https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing)
+
+[https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/](https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/)

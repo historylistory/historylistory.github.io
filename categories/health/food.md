@@ -210,3 +210,30 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 [https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524](https://www.newsweek.com/epa-faces-backlash-drinking-water-monitoring-plan-12139524)
 
 [https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans](https://www.food-safety.com/articles/11300-epa-addresses-microplastics-pfas-in-drinking-water-hhs-to-study-microplastics-in-humans)
+
+
+2026-07-10 The US had a cyclospora outbreak. 
+
+[https://www.youtube.com/watch?v=vadA7bY0ZIQ&list=WL&index=1&t=6s](https://www.youtube.com/watch?v=vadA7bY0ZIQ&list=WL&index=1&t=6s)
+
+[https://www.cidrap.umn.edu/cyclospora/us-cyclospora-cases-mount-cdc-lags-tracking](https://www.cidrap.umn.edu/cyclospora/us-cyclospora-cases-mount-cdc-lags-tracking)
+
+[https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation](https://www.food-safety.com/articles/10770-cyclospora-cayetanensis-an-emergent-public-health-threat-and-an-enigma-for-traceback-investigation)
+
+[https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us](https://www.npr.org/2026/07/12/nx-s1-5890935/cyclosporiasis-outbreak-diarrhea-nausea-where-states-us)
+
+
+2026-07-17 We were reminded that the slow progression to find the source of cyclosporiasis was largely due to Trump’s cuts to the CDC budget and staff. 
+
+[https://www.wired.com/story/cdc-cyclospora-lab-doge-downsized-it-last-year/](https://www.wired.com/story/cdc-cyclospora-lab-doge-downsized-it-last-year/)
+
+[https://www.cnn.com/2026/07/20/health/trump-cyclosporiasis-outbreak-cdc-response-invs](https://www.cnn.com/2026/07/20/health/trump-cyclosporiasis-outbreak-cdc-response-invs)
+
+[https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html](https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html)
+
+[https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/](https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/)
+
+
+2026-07-20 The FDA said the parasite cyclospora was linked to Taylor Farms, then said it was a false positive.
+
+[https://www.theguardian.com/us-news/2026/jul/20/fda-taylor-farms-lettuce-cyclospora-false-positive](https://www.theguardian.com/us-news/2026/jul/20/fda-taylor-farms-lettuce-cyclospora-false-positive)

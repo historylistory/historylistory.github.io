@@ -1943,3 +1943,12 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 [https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms](https://timesofindia.indiatimes.com/world/us/did-kushner-witkoff-profit-from-middle-east-war-what-iran-claimed-in-private-message-to-vance/amp_articleshow/132437130.cms)
 
 TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s](https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s)
+
+2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
+
+[https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request](https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request)
+
+[https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting](https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting)
+
+[https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces](https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces)
+

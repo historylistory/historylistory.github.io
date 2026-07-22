@@ -520,3 +520,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-17 “Mexico Warns of Diarrhea Risk When Visiting US”
 
 2026-07-17 We were reminded that the slow progression to find the source of cyclosporiasis was largely due to Trump’s cuts to the CDC budget and staff. 
+
+2026-07-20 The FDA said the parasite cyclospora was linked to Taylor Farms, then said it was a false positive.

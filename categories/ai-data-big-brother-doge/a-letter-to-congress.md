@@ -355,6 +355,10 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
 
+2026-07-20 The Trump administration is considering restrictions on newer Chinese open weight AI models.
+
+2026-07-20 LG monitor owners noticed unwanted pop-up ads and automatic installation of bloatware.
+
 
 
 

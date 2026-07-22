@@ -258,3 +258,14 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
 
 [https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html](https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html)
+
+2026-07-20 The Trump administration is considering restrictions on newer Chinese open weight AI models.
+
+[https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi](https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi)
+
+2026-07-20 LG monitor owners noticed unwanted pop-up ads and automatic installation of bloatware.
+
+[https://www.theverge.com/tech/967983/lg-monitors-mcafee-adware-gamers-nexus](https://www.theverge.com/tech/967983/lg-monitors-mcafee-adware-gamers-nexus)
+
+[https://www.tomshardware.com/software/windows/companies-are-now-using-automatic-windows-installers-to-display-adware-through-the-microsoft-store-when-you-install-new-hardware-customer-immediately-gets-mcafee-ads-on-their-pc-after-connecting-new-lg-monitor-heres-how-to-block-the-new-ads](https://www.tomshardware.com/software/windows/companies-are-now-using-automatic-windows-installers-to-display-adware-through-the-microsoft-store-when-you-install-new-hardware-customer-immediately-gets-mcafee-ads-on-their-pc-after-connecting-new-lg-monitor-heres-how-to-block-the-new-ads)
+

@@ -411,3 +411,9 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 [https://www.modernghana.com/videonews/nbc/1/684721](https://www.modernghana.com/videonews/nbc/1/684721)
 
 [https://www.youtube.com/watch?v=HTboRPK5ZKc](https://www.youtube.com/watch?v=HTboRPK5ZKc)
+
+2026-07-21 New Jersey Governor said more than 6600 non-citizens were accidentally registered to vote after a software glitch. Fewer than 400 actually ended up voting.
+
+[https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/](https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/)
+
+[https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/](https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/)

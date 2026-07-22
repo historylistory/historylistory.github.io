@@ -283,3 +283,14 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 [https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing](https://www.pbs.org/newshour/show/fcc-threatens-abcs-licenses-as-trumps-call-for-kimmels-firing)
 
 [https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html](https://www.cnbc.com/2026/04/28/fcc-begins-review-of-disney-broadcast-licenses-years-ahead-of-schedule.html)
+
+### 2026 July
+
+2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 
+
+[https://www.youtube.com/watch?v=tFLy0qqTnBI&list=WL&index=2](https://www.youtube.com/watch?v=tFLy0qqTnBI&list=WL&index=2)
+
+[https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing](https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing)
+
+[https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/](https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/)
+

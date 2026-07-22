@@ -459,3 +459,11 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 
 [https://www.cnn.com/2026/07/11/politics/new-york-times-trump-subpoenas-journalists](https://www.cnn.com/2026/07/11/politics/new-york-times-trump-subpoenas-journalists)
 
+2026-07-20 Trump’s DOJ targeted the New York Times, seeking phone records from both the journalists and their family members.
+
+[https://www.youtube.com/watch?v=jYhGpDauJGA&list=WL&index=4](https://www.youtube.com/watch?v=jYhGpDauJGA&list=WL&index=4)
+
+[https://apnews.com/article/new-york-times-justice-department-trump-88f5ceca88dcdd19779e6f61abedf337](https://apnews.com/article/new-york-times-justice-department-trump-88f5ceca88dcdd19779e6f61abedf337)
+
+[https://www.theguardian.com/media/2026/jul/21/trump-phone-records-new-york-times-journalists](https://www.theguardian.com/media/2026/jul/21/trump-phone-records-new-york-times-journalists)
+

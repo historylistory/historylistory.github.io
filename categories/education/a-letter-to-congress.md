@@ -284,3 +284,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-07-12 West Virginia spent $3M to establish an “anti-woke” university program. 
 
 2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
+
+2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 

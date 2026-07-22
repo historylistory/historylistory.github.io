@@ -650,3 +650,5 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 
 2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
+
+2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 

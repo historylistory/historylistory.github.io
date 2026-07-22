@@ -200,3 +200,9 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 [https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/](https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/)
 
 [https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732])https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732
+
+2026-07-21 New Jersey Governor said more than 6600 non-citizens were accidentally registered to vote after a software glitch. Fewer than 400 actually ended up voting.
+
+[https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/](https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/)
+
+[https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/](https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/)

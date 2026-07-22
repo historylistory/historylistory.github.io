@@ -287,3 +287,10 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 
 [https://www.politico.eu/article/ukraine-russia-africa-war-recruits-return/](https://www.politico.eu/article/ukraine-russia-africa-war-recruits-return/)
 
+2026-07-21 Zelensky fired commander-in-chief Oleksandr Syrskyi after days of protest. 
+
+[https://www.youtube.com/watch?v=U7R-MWSxips&list=WL&index=1](https://www.youtube.com/watch?v=U7R-MWSxips&list=WL&index=1)
+
+[https://www.nbcnews.com/world/ukraine/ukraines-zelenskyy-fires-commander-chief-protests-major-rift-rcna588159](https://www.nbcnews.com/world/ukraine/ukraines-zelenskyy-fires-commander-chief-protests-major-rift-rcna588159)
+
+[https://thehill.com/policy/international/5983647-zelensky-fires-general-syrskyi-military/](https://thehill.com/policy/international/5983647-zelensky-fires-general-syrskyi-military/)

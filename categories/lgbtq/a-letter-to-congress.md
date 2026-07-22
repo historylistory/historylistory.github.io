@@ -198,3 +198,5 @@ The following sections outline my concerns in greater detail. Some of the inform
 2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
 
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
+
+2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 
