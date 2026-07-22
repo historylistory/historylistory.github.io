@@ -947,5 +947,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-16 Karoline Leavitt responded to questions about Trump’s teleprompter entablements with insider trading on the Kalshi market calling them a “disgrace”. 
 
+2026-07-17 France blocked access to Polymarket.
+
+2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
 
 2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
+

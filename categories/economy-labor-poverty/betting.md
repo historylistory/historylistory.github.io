@@ -248,3 +248,8 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 
 [https://www.usatoday.com/story/news/politics/2026/07/16/white-house-employee-bet-trump-speeches/90945294007/](https://www.usatoday.com/story/news/politics/2026/07/16/white-house-employee-bet-trump-speeches/90945294007/)
 
+2026-07-17 France blocked access to Polymarket.
+
+[https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france](https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france)
+
+[https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/](https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/)

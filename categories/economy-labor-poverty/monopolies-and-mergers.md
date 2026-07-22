@@ -170,6 +170,11 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://www.npr.org/sections/thetwo-way/2015/07/03/419797436/aetna-announces-37-billion-merger-with-rival-humana](https://www.npr.org/sections/thetwo-way/2015/07/03/419797436/aetna-announces-37-billion-merger-with-rival-humana)
 
+### HP
+
+2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
+
+[https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html](https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html)
 
 ### LiveNation/Ticketmaster
 

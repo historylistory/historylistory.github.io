@@ -767,3 +767,12 @@ PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-st
 [https://www.wbaltv.com/article/george-santos-reality-tv/72105834](https://www.wbaltv.com/article/george-santos-reality-tv/72105834)
 
 [https://thehill.com/blogs/in-the-know/5972222-george-santos-fox-reality-tv-cast/](https://thehill.com/blogs/in-the-know/5972222-george-santos-fox-reality-tv-cast/)
+
+2026-07-19 Trump crashed the 2026 FIFA World Cup in Spain during a trophy moment and was booed. 
+
+[https://sports.yahoo.com/articles/donald-trump-humiliated-world-cup-104001454.html](https://sports.yahoo.com/articles/donald-trump-humiliated-world-cup-104001454.html)
+
+[https://www.irishstar.com/sport/soccer/donald-trump-spain-trophy-lift-37451552](https://www.irishstar.com/sport/soccer/donald-trump-spain-trophy-lift-37451552)
+
+PAY WALL [https://www.washingtonpost.com/politics/2026/07/19/trump-loomed-over-world-cup-up-until-awkward-trophy-ceremony/](https://www.washingtonpost.com/politics/2026/07/19/trump-loomed-over-world-cup-up-until-awkward-trophy-ceremony/)
+

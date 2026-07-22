@@ -144,6 +144,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2022-12-06 Trump’s company was found guilty of criminal tax fraud.
 
+2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
+
 2023-03-30 A Manhattan grand jury indicted Trump on state charges of falsifying business records.
 
 2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.

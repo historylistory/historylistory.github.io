@@ -741,3 +741,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 
 2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
+
+2026-07-19 Trump crashed the 2026 FIFA World Cup in Spain during a trophy moment and was booed. 

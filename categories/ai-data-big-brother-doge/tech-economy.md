@@ -242,3 +242,19 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
 
 TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
+
+2026-07-18 Google-backed satellites for wildfire detection launched. This was after Trump defunded wildlife prevention services and dismantled a satellite program intended to track wildfire smoke and pollution.
+
+[https://arstechnica.com/space/2026/07/google-backed-satellites-for-wildfire-detection-launch-as-smoke-chokes-us-canada/](https://arstechnica.com/space/2026/07/google-backed-satellites-for-wildfire-detection-launch-as-smoke-chokes-us-canada/)
+
+[https://www.pcmag.com/news/these-google-backed-satellites-could-detect-wildfires-early](https://www.pcmag.com/news/these-google-backed-satellites-could-detect-wildfires-early)
+
+[https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke](https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke)
+
+[https://www.npr.org/2025/08/04/nx-s1-5453731/nasa-carbon-dioxide-satellite-mission-threatened](https://www.npr.org/2025/08/04/nx-s1-5453731/nasa-carbon-dioxide-satellite-mission-threatened)
+
+[https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949](https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949)
+
+2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
+
+[https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html](https://finance.yahoo.com/economy/policy/articles/hp-fined-millions-dollars-acting-175942607.html)

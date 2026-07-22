@@ -103,6 +103,20 @@ permalink: /categories/red-flags/warning-signs/
 
 ### 2023
 
+2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
+
+[https://www.pbs.org/newshour/show/netanyahu-government-defies-court-raising-constitutional-crisis-fears-as-election-nears](https://www.pbs.org/newshour/show/netanyahu-government-defies-court-raising-constitutional-crisis-fears-as-election-nears)
+
+[https://www.bbc.com/news/world-middle-east-65086871](https://www.bbc.com/news/world-middle-east-65086871)
+
+[https://en.wikipedia.org/wiki/2023_Israeli_judicial_reform](https://en.wikipedia.org/wiki/2023_Israeli_judicial_reform)
+
+[https://www.csmonitor.com/World/Middle-East/2026/0710/israel-netanyahu-judicial-overhaul-democracy-protests](https://www.csmonitor.com/World/Middle-East/2026/0710/israel-netanyahu-judicial-overhaul-democracy-protests)
+
+[https://www.politico.com/news/2024/01/01/israel-supreme-court-netanyahu-judicial-overhaul-00133385](https://www.politico.com/news/2024/01/01/israel-supreme-court-netanyahu-judicial-overhaul-00133385)
+
+[https://en.idi.org.il/tags-en/47383](https://en.idi.org.il/tags-en/47383)
+
 2023-11-11 Trump called his political opponents “vermin” at a rally in Claremont, NH, and pledged to “root them out.”
 
 [https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748](https://abcnews.go.com/Politics/trump-compares-political-opponents-vermin-root-alarming-historians/story?id=104847748)

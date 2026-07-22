@@ -30,6 +30,22 @@ permalink: /categories/crime-defiance/dissidence-defiance/
 
 [https://truthsocial.com/@realDonaldTrump/posts/109449803240069864](https://truthsocial.com/@realDonaldTrump/posts/109449803240069864)
 
+### 2023 Sound Familiar?
+
+2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
+
+[https://www.pbs.org/newshour/show/netanyahu-government-defies-court-raising-constitutional-crisis-fears-as-election-nears](https://www.pbs.org/newshour/show/netanyahu-government-defies-court-raising-constitutional-crisis-fears-as-election-nears)
+
+[https://www.bbc.com/news/world-middle-east-65086871](https://www.bbc.com/news/world-middle-east-65086871)
+
+[https://en.wikipedia.org/wiki/2023_Israeli_judicial_reform](https://en.wikipedia.org/wiki/2023_Israeli_judicial_reform)
+
+[https://www.csmonitor.com/World/Middle-East/2026/0710/israel-netanyahu-judicial-overhaul-democracy-protests](https://www.csmonitor.com/World/Middle-East/2026/0710/israel-netanyahu-judicial-overhaul-democracy-protests)
+
+[https://www.politico.com/news/2024/01/01/israel-supreme-court-netanyahu-judicial-overhaul-00133385](https://www.politico.com/news/2024/01/01/israel-supreme-court-netanyahu-judicial-overhaul-00133385)
+
+[https://en.idi.org.il/tags-en/47383](https://en.idi.org.il/tags-en/47383)
+
 
 ### 2024 April
 

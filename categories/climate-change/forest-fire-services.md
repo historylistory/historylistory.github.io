@@ -135,3 +135,15 @@ permalink: /categories/climate-change/forest-fire-services/
 
 PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html](https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health-epa-forest-service.html)
 
+2026-07-18 Google-backed satellites for wildfire detection launched. This was after Trump defunded wildlife prevention services and dismantled a satellite program intended to track wildfire smoke and pollution.
+
+[https://arstechnica.com/space/2026/07/google-backed-satellites-for-wildfire-detection-launch-as-smoke-chokes-us-canada/](https://arstechnica.com/space/2026/07/google-backed-satellites-for-wildfire-detection-launch-as-smoke-chokes-us-canada/)
+
+[https://www.pcmag.com/news/these-google-backed-satellites-could-detect-wildfires-early](https://www.pcmag.com/news/these-google-backed-satellites-could-detect-wildfires-early)
+
+[https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke](https://futurism.com/science-energy/trump-cancelled-satellite-geoxo-noaa-monitoring-wildfire-smoke)
+
+[https://www.npr.org/2025/08/04/nx-s1-5453731/nasa-carbon-dioxide-satellite-mission-threatened](https://www.npr.org/2025/08/04/nx-s1-5453731/nasa-carbon-dioxide-satellite-mission-threatened)
+
+[https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949](https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949)
+

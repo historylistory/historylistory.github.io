@@ -351,6 +351,9 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
 
+2026-07-18 Google-backed satellites for wildfire detection launched. This was after Trump defunded wildlife prevention services and dismantled a satellite program intended to track wildfire smoke and pollution.
+
+2026-07-18 Hewlett-Packard India was fined $14.4M for rigging government bids and fixing ink and toner prices.
 
 
 
