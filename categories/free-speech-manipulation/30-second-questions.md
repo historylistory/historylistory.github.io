@@ -50,3 +50,37 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 2
+
+Trump has threatened journalists with imprisonment, pressured networks to fire people and cancel shows, and has places allies in control. The Pentagon has barred reporters from offices and demanded they accept restrictions on gathering information. Now the DOJ wants phone records on journalists and their families. How is this different from the press intimidation seen in Hungary or Russia, and what will you do to stop it?
+
+SOME SOURCES
+
+* CENSORSHIP May 27 2026 Bari Weiss pulled an airing of 60 Minutes about CECOT. [The Guardian.com](https://www.theguardian.com/media/2026/may/27/60-minutes-sharyn-alfonsi) or here [The Guardian.com](https://www.theguardian.com/media/2025/dec/26/bari-weiss-60-minutes-el-salvador-prison)
+
+* PHONE RECORDS July 20, 2026 The DOJ sought phone records of New York Times journalists and their family members. [AP News.com](https://apnews.com/article/new-york-times-justice-department-trump-88f5ceca88dcdd19779e6f61abedf337) or here [The Guardian.com](https://www.theguardian.com/media/2026/jul/21/trump-phone-records-new-york-times-journalists)
+
+* BARRED ENTRY June 2, 2026 Hegseth classified the Pentagon to keep out journalists [The Hill.com](https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/)
+
+* PLEDGE October 15, 2025 [Reuters.com](https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/)
+
+* REPORT May 4, 2026 Reporters Without Borders ranked the US at #64 for the free speech index. [RSF.org](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)
+
+* OBJECTION April 16, 2026 Peter Theil funded “Objection”, an AI “tribunal judge” designed to investigate media claims. [Tech Crunch.com](https://techcrunch.com/2026/04/15/can-ai-judge-journalism-a-thiel-backed-startup-says-yes-even-if-it-risks-chilling-whistleblowers/)
+
+* THREATS April 6, 2026 Trump threatened to imprison any journalist that covered a downed fighter jet rescue operation. [NBC News.com](https://www.nbcnews.com/politics/donald-trump/trump-iran-press-conference-jail-journalist-fighter-jet-pilot-rcna266958)
+
+* THREATS February 22, 2026 Trump threatened Netflix with consequences if they didn’t remove board member Susan Rice. [Axios.com](https://www.axios.com/2026/02/23/trump-netflix-susan-rice)
+
+* THREATS January 21 2026 FCC threatens ABC license [USA Today.com](https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/)
+
+* THREATS November 3, 2024 Trump encouraged deadly violence, ““to get me someone would have to shoot through the fake news, and I don’t mind that so much”. [Politico.com](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
+
+### Q2 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
