@@ -491,3 +491,11 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.cbsnews.com/news/judge-orders-doj-unredact-more-epstein-files-or-explain-why-blanche/](https://www.cbsnews.com/news/judge-orders-doj-unredact-more-epstein-files-or-explain-why-blanche/)
 
 [https://www.axios.com/2026/06/26/epstein-files-doj-lawsuit-judge-release-unredacted-july-order](https://www.axios.com/2026/06/26/epstein-files-doj-lawsuit-judge-release-unredacted-july-order)
+
+### 2026 July
+
+2026-07-22 One of Jeffrey Epstein’s French professional model recruiters was found dead at his home in Paris. 
+
+[https://www.youtube.com/watch?v=tiY_uW6wW4w&list=WL&index=6&t=29s](https://www.youtube.com/watch?v=tiY_uW6wW4w&list=WL&index=6&t=29s)
+
+[https://www.bbc.com/news/articles/cp8en38vpd3o](https://www.bbc.com/news/articles/cp8en38vpd3o)

@@ -522,3 +522,10 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-17 We were reminded that the slow progression to find the source of cyclosporiasis was largely due to Trump’s cuts to the CDC budget and staff. 
 
 2026-07-20 The FDA said the parasite cyclospora was linked to Taylor Farms, then said it was a false positive.
+
+2026-07-21 RFK claimed the cyclospora outbreak was under control. 
+
+2026-07-22 the cyclospora outbreak bloomed in Michigan topping 7000 cases. 
+
+2026-07-22 The Trump administration paused billions of dollars in Medicaid funding to California and Minnesota and claimed it was a strategy to “stop the fraud before it happens”. 
+

@@ -361,6 +361,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-20 LG monitor owners noticed unwanted pop-up ads and automatic installation of bloatware.
 
+2026-07-22 OpenAI hacked another company during testing. 
+
 
 
 

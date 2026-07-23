@@ -292,3 +292,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
 
 2026-07-20 Mamdani said Netanyahu should be arrested when he visits New York this fall for the UN General Assembly. 
+
+2026-07-23 Netanyahu backed the GOP to end US military aid, but in the agreement they included a 5-page piece of legislation within HR 8800 Section 224 entitled, “United States-Israel Defense Technology Cooperation Initiative”. This bill includes “facilitating the transition of technologies”, “establishing frameworks”, and “promoting joint training exercises”. This integrates the United States military into the Israeli military. 

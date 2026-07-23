@@ -634,3 +634,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-13 A judge found that Trump misused court for his IRS case to earmark $10B in taxpayer money. 
 
 2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
+
+2026-07-22 One of Jeffrey Epstein’s French professional model recruiters was found dead at his home in Paris. 

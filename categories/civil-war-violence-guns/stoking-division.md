@@ -247,3 +247,8 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 [https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio](https://www.theguardian.com/us-news/2026/jul/16/political-violence-event-trump-marco-rubio)
 
 [https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3](https://www.youtube.com/watch?v=4s-8eN3Mks8&list=WL&index=3)
+
+2026-07-22 Mike Johnson made a statement about passing the NDAA, spending bills, insider training laws, and the SAVE Act. He stated, “Republicans support our troops, our farmers, and election security. We’re the only team in Washington that does”. 
+
+[https://www.youtube.com/watch?v=LZC2eeFN4QY&list=WL&index=4](https://www.youtube.com/watch?v=LZC2eeFN4QY&list=WL&index=4)
+

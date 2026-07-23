@@ -242,3 +242,11 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 [https://www.malwarebytes.com/blog/ai/2026/07/turn-off-this-meta-setting-before-someone-generates-ai-images-of-you](https://www.malwarebytes.com/blog/ai/2026/07/turn-off-this-meta-setting-before-someone-generates-ai-images-of-you)
 
 [https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/](https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/)
+
+2026-07-22 OpenAI hacked another company during testing. 
+
+[https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s](https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s)
+
+[https://openai.com/index/hugging-face-model-evaluation-security-incident/](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
+
+[https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained](https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained)

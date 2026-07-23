@@ -237,3 +237,11 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 2026-07-20 The FDA said the parasite cyclospora was linked to Taylor Farms, then said it was a false positive.
 
 [https://www.theguardian.com/us-news/2026/jul/20/fda-taylor-farms-lettuce-cyclospora-false-positive](https://www.theguardian.com/us-news/2026/jul/20/fda-taylor-farms-lettuce-cyclospora-false-positive)
+
+2026-07-21 RFK claimed the cyclospora outbreak was under control. 
+
+[https://www.cnbc.com/2026/07/21/cyclospora-rfk-jr-says-outbreak-is-under-control.html](https://www.cnbc.com/2026/07/21/cyclospora-rfk-jr-says-outbreak-is-under-control.html)
+
+2026-07-22 the cyclospora outbreak bloomed in Michigan topping 7000 cases. 
+
+[https://www.wjr.com/2026/07/22/michigans-cyclosporiasis-outbreak-tops-7000-cases-rfk-jr-claims-outbreak-is-under-control/](https://www.wjr.com/2026/07/22/michigans-cyclosporiasis-outbreak-tops-7000-cases-rfk-jr-claims-outbreak-is-under-control/)

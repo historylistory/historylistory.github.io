@@ -153,3 +153,11 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
 
 TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
+
+2026-07-22 OpenAI hacked another company during testing. 
+
+[https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s](https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s)
+
+[https://openai.com/index/hugging-face-model-evaluation-security-incident/](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
+
+[https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained](https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained)

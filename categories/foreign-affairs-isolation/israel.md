@@ -432,3 +432,12 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/](https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/)
 
 [https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/](https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/)
+
+2026-07-23 Netanyahu backed the GOP to end US military aid, but in the agreement they included a 5-page piece of legislation within HR 8800 Section 224 entitled, “United States-Israel Defense Technology Cooperation Initiative”. This bill includes “facilitating the transition of technologies”, “establishing frameworks”, and “promoting joint training exercises”. This integrates the United States military into the Israeli military. 
+
+[https://www.youtube.com/watch?v=7zewIhvs6SE&list=WL&index=1&t=41s](https://www.youtube.com/watch?v=7zewIhvs6SE&list=WL&index=1&t=41s)
+
+[https://www.jpost.com/american-politics/article-898426](https://www.jpost.com/american-politics/article-898426)
+
+HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+

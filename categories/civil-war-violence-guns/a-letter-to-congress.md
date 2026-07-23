@@ -581,5 +581,6 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
 
+2026-07-22 Mike Johnson made a statement about passing the NDAA, spending bills, insider training laws, and the SAVE Act. He stated, “Republicans support our troops, our farmers, and election security. We’re the only team in Washington that does”. 
 
 

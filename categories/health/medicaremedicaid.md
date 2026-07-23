@@ -117,3 +117,11 @@ permalink: /categories/health/medicaremedicaid/
 [https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48](https://www.msn.com/en-us/news/insight/white-house-freezes-1-3b-medicaid-funds-to-california-over-fraud-claims/gm-GM9B146C48)
 
 [https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/](https://www.cbsnews.com/news/medicare-enrollment-hospice-fraud-trump-administration/)
+
+### 2026 July
+
+2026-07-22 The Trump administration paused billions of dollars in Medicaid funding to California and Minnesota and claimed it was a strategy to “stop the fraud before it happens”. 
+
+[https://time.com/article/2026/07/22/medicaid-california-minnesota-fraud-newsom-walz-trump/](https://time.com/article/2026/07/22/medicaid-california-minnesota-fraud-newsom-walz-trump/)
+
+[https://www.healthcaredive.com/news/minnesota-california-1-billion-medicaid-funding-deferred-fraud-trump-hhs/825802/](https://www.healthcaredive.com/news/minnesota-california-1-billion-medicaid-funding-deferred-fraud-trump-hhs/825802/)
