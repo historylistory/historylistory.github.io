@@ -87,3 +87,31 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 4 
+
+The EPA has approved new pesticides containing “forever chemicals” for use on food, while studies continue finding glyphosate residues in common products like bread. The Trump administration then backed Bayer as the Supreme Court blocked consumers from suing over Roundup’s lack of cancer warnings, and the EPA excluded microplastics from its next drinking-water monitoring program. Why are corporations being protected while Americans are left with fewer warnings and less testing, and what will you do to ensure our food and water are safe?
+
+SOME SOURCES 
+
+* FOREVER CHEMICALS November 24, 2025 The EPA approved two new pesticides with “forever chemicals” that would be used on food: [MindBodyGreen.com](https://www.mindbodygreen.com/articles/epa-approves-pfas-pesticide-for-dozens-of-crops)
+
+* FOREVER CHEMICALS November 20, 2024 The EPA registered 10 chemicals for crop use [EPA.gov](https://www.epa.gov/pesticides/epa-announces-final-registration-new-pesticide-isocycloseram)
+
+* GLYPHOSATE IN BREAD February 8, 2026 Florida studies show increased glyphosate in bread products [Poynter.org](https://www.poynter.org/fact-checking/2026/does-bread-contain-weed-killer)
+
+* NO WARNINGS FROM BAYER June 25, 2026 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup [USA Today.com](https://www.usatoday.com/story/news/politics/2026/02/20/trump-executive-order-glyphosate-rfk-maha-moms/88780353007)
+
+* NO MORE TESTING July 1, 2026 The EPA quit monitoring and testing for microplastics and pesticides in drinking water [CEN.ACS.org](https://cen.acs.org/policy/regulation/epa-microplastics-pfas-drinking-water-contaminants-ucmr/104/web/2026/07)
+
+* BACKING UP BAYER June 25, 2026 SCOTUS scales back Roundup cancer suits in win for Bayer [Reuters.com](https://www.reuters.com/world/us-supreme-court-scales-back-roundup-cancer-lawsuits-2026-06-25)
+
+
+
+### Q4 ANSWER
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

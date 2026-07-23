@@ -122,7 +122,7 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 [https://www.foodandwine.com/epa-approves-pesticides-containing-forever-chemicals-pfas-11855500](https://www.foodandwine.com/epa-approves-pesticides-containing-forever-chemicals-pfas-11855500)
 
-[https://www.mindbodygreen.com/articles/epa-approves-pfas-pesticide-for-dozens-of-crops?srsltid=AfmBOoqlDbCVCfeKpf_qn2s9BPDrD35x0LxVIN7ytLtp8AUTpARNxuQv](https://www.mindbodygreen.com/articles/epa-approves-pfas-pesticide-for-dozens-of-crops?srsltid=AfmBOoqlDbCVCfeKpf_qn2s9BPDrD35x0LxVIN7ytLtp8AUTpARNxuQv)
+[https://www.mindbodygreen.com/articles/epa-approves-pfas-pesticide-for-dozens-of-crops](https://www.mindbodygreen.com/articles/epa-approves-pfas-pesticide-for-dozens-of-crops)
 
 [https://time.com/7336883/epa-pfas-pesticides-health-risks/](https://time.com/7336883/epa-pfas-pesticides-health-risks/)
 
