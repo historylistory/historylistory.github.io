@@ -211,6 +211,37 @@ permalink: /links/
 
 [Health: Johns Hopkins](https://publichealth.jhu.edu/)
 
+[Health/Free Clinics: RAM USA.org](https://www.ramusa.org/)
+
+[Health/Free Clinics: RAM USA.org Schedule](https://www.ramusa.org/schedule/)
+
+[Health/Direct Primary Care: One Medical.com](https://www.onemedical.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/Direct Primary Care: Health-C2U.com](https://healthc2u.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/Direct Primary Care: Redirect Health.com](https://www.redirecthealth.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/Direct Primary Care.com](https://www.mdvip.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DPC Directories: DPC Frontier.com](https://www.dpcfrontier.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DPC Directories: DPC Alliance.org](https://www.dpcalliance.org/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DPC Directories: DPCare.org](https://www.dpcare.org/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DPC Directories: HSA For America.com](https://hsaforamerica.com/) ***NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DENTAL: CODA.ADA.org](https://coda.ada.org/find-a-program) This should be a directory for low-cost dental services. NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/DENTAL: DCDS.org Low Cost Services](https://www.dcds.org/for-the-public/low-cost-services) This should be a directory for low-cost dental services. NOTE: These sites are UNVERIFIED by me because I have not used them. Providing information to them if asked is at your own discretion. 
+
+[Health/VISION: NEI.NIH.gov Low Cost Eye Care](https://www.nei.nih.gov/eye-health-information/healthy-vision/finding-eye-doctor/get-free-or-low-cost-eye-care)
+
+[Health/VISION: Zenni Optical.com](https://www.zennioptical.com/) If you have your own eye prescription you can get cheap luxury glasses here, sometimes for under $20! 
+
+[Health/VISION: ZeeLooL.com](https://www.zeelool.com/)
+
+
 ---
 
 [HUMAN RIGHTS: Physicians for Human Rights](https://phr.org/)
@@ -259,6 +290,8 @@ permalink: /links/
 [Polls: Pew Research](https://www.pewresearch.org/)
 
 [Polls: AP NORC](https://apnorc.org/)
+
+[Polls: KFF.org for health related polls](https://www.kff.org/)
 
 ---
 
