@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Big Brother & Surveillance
-category_slug: ai-data-big-brother-doge
-subcategory_slug: big-brother-surveillance
-permalink: /categories/ai-data-big-brother-doge/big-brother-surveillance/
+title: Surveillance
+category_slug: ai-data-big-brother
+subcategory_slug: surveillance
+permalink: /categories/ai-data-big-brother/surveillance/
 ---
 
 

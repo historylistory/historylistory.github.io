@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: 30-SECOND QUESTIONS
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: 30-second-questions
-permalink: /categories/ai-data-big-brother-doge/30-second-questions/
+permalink: /categories/ai-data-big-brother/30-second-questions/
 ---
 
 ### WHAT AM I

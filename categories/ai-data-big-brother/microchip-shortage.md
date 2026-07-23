@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Microchip Shortage
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: microchip-shortage
-permalink: /categories/ai-data-big-brother-doge/microchip-shortage/
+permalink: /categories/ai-data-big-brother/microchip-shortage/
 ---
 
 ### 2022

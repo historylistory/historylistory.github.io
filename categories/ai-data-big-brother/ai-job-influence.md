@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: AI Job Influence
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: ai-job-influence
-permalink: /categories/ai-data-big-brother-doge/ai-job-influence/
+permalink: /categories/ai-data-big-brother/ai-job-influence/
 ---
 
 ### 2024

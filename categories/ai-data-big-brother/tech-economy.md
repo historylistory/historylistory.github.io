@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Tech Economy
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: tech-economy
-permalink: /categories/ai-data-big-brother-doge/tech-economy/
+permalink: /categories/ai-data-big-brother/tech-economy/
 ---
 
 
@@ -58,9 +58,15 @@ permalink: /categories/ai-data-big-brother-doge/tech-economy/
 
 ### 2025 January
 
+### 2025 January STARGATE
+
+
+
+
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
 
 [https://en.wikipedia.org/wiki/Stargate_LLC](https://en.wikipedia.org/wiki/Stargate_LLC)
+
 
 2026-01-13 Jeff Bezos said personal computing will inevitably move to the cloud, so someday people will have to “rent” cloud space just to use their computers. 
 
@@ -93,6 +99,10 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/#:~:text=Summary,the%20Biggest%20in%20the%20World.%22](https://www.reuters.com/world/china/tiktok-reaches-deal-new-us-joint-venture-avoid-american-ban-2026-01-23/)
 
 [https://www.timesunion.com/news/article/bytedance-s-agreement-to-sell-tiktok-puts-21251979.php](https://www.timesunion.com/news/article/bytedance-s-agreement-to-sell-tiktok-puts-21251979.php)
+
+2025-01-21 Trump announced the $500B private-sector AI infrastructure investment through Stargate.
+
+[https://www.cnn.com/2025/01/21/tech/openai-oracle-softbank-trump-ai-investment](https://www.cnn.com/2025/01/21/tech/openai-oracle-softbank-trump-ai-investment)
 
 ### 2025 April
 
@@ -141,6 +151,10 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 
 {% include youtubePlayer.html id="5NecjNqL11c" %}
+
+2025-09-16 Microsoft announced a $30B AI infrastructure investment in the UK.
+
+[https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2](https://www.wsj.com/tech/microsoft-will-invest-30-billion-in-ai-infrastructure-operations-across-u-k-5099a7be?mod=WTRN_pos2)
 
 ### 2026 February
 

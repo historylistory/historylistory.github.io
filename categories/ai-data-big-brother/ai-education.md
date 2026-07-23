@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: AI & Education
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: ai-education
-permalink: /categories/ai-data-big-brother-doge/ai-education/
+permalink: /categories/ai-data-big-brother/ai-education/
 ---
 
 ### 2024

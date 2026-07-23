@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "AI Bad Behavior & Influence"
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: ai-bad-behavior-influence
-permalink: /categories/ai-data-big-brother-doge/ai-bad-behavior-influence/
+permalink: /categories/ai-data-big-brother/ai-bad-behavior-influence/
 ---
 
 ### 2024

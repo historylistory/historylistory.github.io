@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Data Mining & Manipulation
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: data-mining-manipulation
-permalink: /categories/ai-data-big-brother-doge/data-mining-manipulation/
+permalink: /categories/ai-data-big-brother/data-mining-manipulation/
 ---
 
 ### 2022

@@ -1,10 +1,35 @@
 ---
 layout: subcategory
-title: Tech Bro Elites
-category_slug: ai-data-big-brother-doge
-subcategory_slug: tech-bro-elites
-permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
+title: Weird Tech News
+category_slug: ai-data-big-brother
+subcategory_slug: weird-tech-news
+permalink: /categories/ai-data-big-brother/weird-tech-news/
 ---
+
+### 2003
+
+2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
+
+[https://en.wikipedia.org/wiki/Palantir#:~:text=Its%20flagship%20products%E2%80%94Gotham%20(for%20intelligence%20and%20defense),was%20founded%20in%202003%20by%20Peter%20Thiel%2C](https://en.wikipedia.org/wiki/Palantir)
+
+[https://www.amnesty.org/en/documents/amr51/3124/2020/en/](https://www.amnesty.org/en/documents/amr51/3124/2020/en/)
+
+[https://www.amnesty.org/en/documents/amr51/0211/2025/en/](https://www.amnesty.org/en/documents/amr51/0211/2025/en/)
+
+[https://en.wikipedia.org/wiki/AI-assisted_targeting_in_the_Gaza_Strip#:~:text=Israeli%20Intelligence%20Corps.-,Lavender,a%20PIJ%20or%20Hamas%20militant](https://en.wikipedia.org/wiki/AI-assisted_targeting_in_the_Gaza_Strip).
+
+[https://www.theguardian.com/world/2024/apr/03/israel-gaza-ai-database-hamas-airstrikes](https://www.theguardian.com/world/2024/apr/03/israel-gaza-ai-database-hamas-airstrikes)
+
+[https://www.wired.com/story/ice-palantir-immigrationos/](https://www.wired.com/story/ice-palantir-immigrationos/)
+
+[https://www.nytimes.com/2025/05/30/technology/trump-palantir-data-americans.html](https://www.nytimes.com/2025/05/30/technology/trump-palantir-data-americans.html)
+
+[https://www.wired.com/story/palantir-government-contracting-push/](https://www.wired.com/story/palantir-government-contracting-push/)
+
+[https://finance.yahoo.com/news/palantir-secures-795m-us-army-180040461.html](https://finance.yahoo.com/news/palantir-secures-795m-us-army-180040461.html)
+
+[https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license](https://www.executivebiz.com/articles/palantir-usg-795-million-army-contract-maven-smart-system-software-license)
+
 
 ### 2009
 
@@ -46,7 +71,8 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
 
-### 2025
+
+### 2025 June
 
 2025-06-02 Curtis Yarvin promoted authoritarian “CEO-style” government systems and RAGE (“Retire All Government Employees”). JD Vance praised Yarvin’s ideas in a 2021 interview. JD Vance was interviewed in 2021 on Jack Murphy Live, and stated, “There’s this guy Curtis Yarvin who’s written about some of these things…I think that what Trump should do, like, if I was giving him one piece of advice, fire every single mid-level bureaucrat, every civil servant in the administrative state, replace them with our people. And when the courts – because you will get taken to court – and when the courts stop you, stand before the country like Andrew Jackson did and say ‘The chief justice has made his ruling, now let him enforce it’”.
 
@@ -65,6 +91,9 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
 
 
+
+### 2025 October 
+
 2025-10-10 Peter Thiel reportedly called critics of AI and technology “legionnaires of the Antichrist.”
 
 [https://www.washingtonpost.com/technology/2025/10/10/peter-thiel-antichrist-lectures-leaked/](https://www.washingtonpost.com/technology/2025/10/10/peter-thiel-antichrist-lectures-leaked/)
@@ -74,6 +103,8 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://www.ischool.berkeley.edu/news/2025/hany-farid-verifies-billionaire-lectures-warning-antichrist-and-us-destruction](https://www.ischool.berkeley.edu/news/2025/hany-farid-verifies-billionaire-lectures-warning-antichrist-and-us-destruction)
 
 [https://www.youtube.com/watch?v=NtRPLCso0Sw](https://www.youtube.com/watch?v=NtRPLCso0Sw)
+
+### 2025 December
 
 
 2025-12-07 Alex Karp gave a widely discussed jittery interview.
@@ -87,9 +118,7 @@ permalink: /categories/ai-data-big-brother-doge/tech-bro-elites/
 [https://futurism.com/future-society/palantir-joke-ceo-cocaine](https://futurism.com/future-society/palantir-joke-ceo-cocaine)
 
 
-
-
-### 2026
+### 2026 April
 
 2026-04-06 The New Yorker published “Can Sam Altman be Trusted?”
 
@@ -216,14 +245,10 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 ### 2026 July
 
-2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+2026-07-10 The US granted the UAE expanded access to AI chips. 
 
-[https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases](https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases)
+[https://www.jpost.com/international/article-902621](https://www.jpost.com/international/article-902621)
 
-[https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death](https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death)
+[https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/](https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/)
 
-[https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html](https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html)
-
-[https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
-
-PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)
+SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77)

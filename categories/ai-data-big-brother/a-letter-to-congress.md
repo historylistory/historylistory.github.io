@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: A LETTER TO CONGRESS 
-category_slug: ai-data-big-brother-doge
+category_slug: ai-data-big-brother
 subcategory_slug: a-letter-to-congress
-permalink: /categories/ai-data-big-brother-doge/a-letter-to-congress/
+permalink: /categories/ai-data-big-brother/a-letter-to-congress/
 ---
 
 

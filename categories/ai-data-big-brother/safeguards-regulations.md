@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "AI Safeguards & Regulation"
-category_slug: ai-data-big-brother-doge
-subcategory_slug: ai-safeguards-regulation
-permalink: /categories/ai-data-big-brother-doge/ai-safeguards-regulation/
+title: "Safeguards & Regulation"
+category_slug: ai-data-big-brother
+subcategory_slug: safeguards-regulation
+permalink: /categories/ai-data-big-brother/safeguards-regulation/
 ---
 
 ### 2025 January

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: AI Environmental Impacts
-category_slug: ai-data-big-brother-doge
-subcategory_slug: ai-environmental-impacts
-permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
+title: Data Centers
+category_slug: ai-data-big-brother
+subcategory_slug: data-centers
+permalink: /categories/ai-data-big-brother/data-centers/
 ---
 
 ### 2025 July

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: AI Other
+title: Other
 category_slug: ai-data-big-brother-doge
-subcategory_slug: ai-other
-permalink: /categories/ai-data-big-brother-doge/ai-other/
+subcategory_slug: other
+permalink: /categories/ai-data-big-brother-doge/other/
 ---
 
 ### 2025 February

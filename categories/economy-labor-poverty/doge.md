@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: DOGE
-category_slug: ai-data-big-brother-doge
+category_slug: economy-labor-poverty
 subcategory_slug: doge
-permalink: /categories/ai-data-big-brother-doge/doge/
+permalink: /categories/economy-labor-poverty/doge/
 ---
 
 ### 2024 November
@@ -84,3 +84,17 @@ permalink: /categories/ai-data-big-brother-doge/doge/
 [https://www.youtube.com/watch?v=beMb-MHflOs](https://www.youtube.com/watch?v=beMb-MHflOs)
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
+
+### 2026 July
+
+2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
+
+[https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases](https://truthout.org/articles/musks-doge-accused-of-seizing-sole-control-of-essential-federal-databases)
+
+[https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death](https://www.foxnews.com/media/elon-musk-threatens-sue-ro-khanna-usaid-cuts-sentenced-children-death)
+
+[https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html](https://www.cnbc.com/2026/06/22/ro-khanna-challenges-elon-musk-to-televised-debate-after-doge-battle.html)
+
+[https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
+
+PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)
