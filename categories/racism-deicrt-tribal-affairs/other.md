@@ -123,3 +123,8 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 
 [https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2](https://www.youtube.com/watch?v=43QexWNgqUc&list=WL&index=2)
 
+### 2026 July
+
+2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
+
+[https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/](https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/)

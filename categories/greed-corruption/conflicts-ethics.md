@@ -615,6 +615,15 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 [https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company](https://www.democracynow.org/2026/4/24/headlines/eric_trump_touts_24_million_pentagon_contract_awarded_to_his_robotics_company)
 
+2026-04-26 Foundation Robotics secured a Pentagon contract to build robots to replace human soldiers. The company’s chief strategy adviser is Eric Trump. 
+
+[https://www.youtube.com/watch?v=9O2iIZt25p4&list=WL&index=7](https://www.youtube.com/watch?v=9O2iIZt25p4&list=WL&index=7)
+
+IN JULY [https://www.wired.com/story/humanoid-robot-soldier-eric-trump-foundation-future-industries/](https://www.wired.com/story/humanoid-robot-soldier-eric-trump-foundation-future-industries/)
+
+BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-robot-startup](https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-robot-startup)
+
+
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
 [https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290](https://www.nbcnews.com/politics/congress/republicans-split-using-taxpayer-funds-trump-white-house-ballroom-rcna342290)

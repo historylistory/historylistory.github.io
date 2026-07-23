@@ -26,6 +26,11 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 4) If you are interested in context about past genocides, please consider researching the **1947 Nakba Ethnic Cleansing.** Here is a link, which can also be found in the historical timeline under the "Iran" section. [https://en.wikipedia.org/wiki/Nakba](https://en.wikipedia.org/wiki/Nakba)
 
+### 2016
+
+2016-09-21 Obama brokered a Memorandum of Understanding with Israel that would run through 2028. The bill would guarantee $3.3BN per year to Israel. 
+
+[https://obamawhitehouse.archives.gov/the-press-office/2016/09/14/fact-sheet-memorandum-understanding-reached-israel](https://obamawhitehouse.archives.gov/the-press-office/2016/09/14/fact-sheet-memorandum-understanding-reached-israel)
 
 ### 2017
 

@@ -296,6 +296,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
+2026-05-05 NVIDIA rolled out XFRA nodes; mini data centers that mount directly onto homes. The company offered to pay each household for installation, but users reported the payout was only enough to cover the cost of added utility bills.
+
 2026-05-10 Malware infecting robot dogs raised national-security concerns.
 
 2026-05-13 Google unveiled facial recognition technology with their smart glasses. 

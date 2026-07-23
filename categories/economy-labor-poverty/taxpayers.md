@@ -6,6 +6,13 @@ subcategory_slug: taxpayers
 permalink: /categories/economy-labor-poverty/taxpayers/
 ---
 
+### 2016
+
+2016-09-21 Obama brokered a Memorandum of Understanding with Israel that would run through 2028. The bill would guarantee $3.3BN per year to Israel. 
+
+[https://obamawhitehouse.archives.gov/the-press-office/2016/09/14/fact-sheet-memorandum-understanding-reached-israel](https://obamawhitehouse.archives.gov/the-press-office/2016/09/14/fact-sheet-memorandum-understanding-reached-israel)
+
+
 ### 2017
 
 2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 

@@ -144,6 +144,14 @@ VIDEO [https://www.youtube.com/watch?v=Fa_bVB_4MQQ&list=WL&index=3](https://www.
 
 SUBSCRIPTION WALL [https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/](https://theintercept.com/2026/04/10/military-draft-automatic-registration-selective-service/)
 
+2026-04-26 Foundation Robotics secured a Pentagon contract to build robots to replace human soldiers. The company’s chief strategy adviser is Eric Trump. 
+
+[https://www.youtube.com/watch?v=9O2iIZt25p4&list=WL&index=7](https://www.youtube.com/watch?v=9O2iIZt25p4&list=WL&index=7)
+
+IN JULY [https://www.wired.com/story/humanoid-robot-soldier-eric-trump-foundation-future-industries/](https://www.wired.com/story/humanoid-robot-soldier-eric-trump-foundation-future-industries/)
+
+BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-robot-startup](https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-robot-startup)
+
 ### 2026 May
 
 2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.

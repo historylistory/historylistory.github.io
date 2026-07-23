@@ -64,9 +64,14 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 
 ### 2026 May
 
-2026-05-22 More reports linked data centers to major environmental damage.
+2026-05-05 NVIDIA rolled out XFRA nodes; mini data centers that mount directly onto homes. The company offered to pay each household for installation, but users reported the payout was only enough to cover the cost of added utility bills.
 
-[https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)
+[https://www.cnbc.com/2026/05/05/nvidia-pulte-span-mini-data-centers-on-homes.html](https://www.cnbc.com/2026/05/05/nvidia-pulte-span-mini-data-centers-on-homes.html)
+
+[https://finance.yahoo.com/sectors/technology/articles/nvidias-latest-partnership-could-pay-161500467.html](https://finance.yahoo.com/sectors/technology/articles/nvidias-latest-partnership-could-pay-161500467.html)
+
+[https://arstechnica.com/ai/2026/05/the-newest-ai-boom-pitch-host-a-mini-data-center-at-your-home/](https://arstechnica.com/ai/2026/05/the-newest-ai-boom-pitch-host-a-mini-data-center-at-your-home/)
+
 
 2026-05-18 China built data centers under water. 
 
@@ -75,6 +80,13 @@ permalink: /categories/ai-data-big-brother-doge/ai-environmental-impacts/
 [https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/](https://www.wired.com/story/china-dives-in-on-the-worlds-first-wind-powered-undersea-data-center/)
 
 [https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/](https://www.scientificamerican.com/article/china-powers-ai-boom-with-undersea-data-centers/)
+
+
+2026-05-22 More reports linked data centers to major environmental damage.
+
+[https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)
+
+
 
 ### 2026 June
 

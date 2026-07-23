@@ -286,6 +286,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-04-23 Trump ordered the U.S. Navy to “shoot and kill” Iranian boats.
 
+2026-04-26 Foundation Robotics secured a Pentagon contract to build robots to replace human soldiers. The company’s chief strategy adviser is Eric Trump. 
+
 2026-04-27 Four Democratic senators investigated the Kuwait bombing that killed six U.S. servicemembers and left more than 20 injured.
 
 2026-04-28 After the DOE declassified nursing careers as “professional”, Senator Merkley pressed Linda McMahon on why she gutted TRIO, a program designed to encourage nursing careers. McMahon said declassifying nursing jobs would make tuition more affordable. What really has happened is students who can’t get a sufficient federal loan with low interest now will have to seek out a privatized loan with higher interest rates. 

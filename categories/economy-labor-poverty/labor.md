@@ -461,3 +461,6 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)
 
+2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
+
+[https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/](https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/)

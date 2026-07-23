@@ -79,7 +79,11 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2015-07-03 Aetna merged with Humana. Trump killed legislation designed to prevent monopolies. 
 
+2026-01-13 The Clarity Act was introduced to regulate digital assets but has come down to a fight over ethics enforcement, entanglements, and loopholes.
+
 2016-09-21 Trump said he wanted to take the oil from Iraq, “You’re not stealing anything. We’re reimbursing ourselves”.
+
+2016-09-21 Obama brokered a Memorandum of Understanding with Israel that would run through 2028. The bill would guarantee $3.3BN per year to Israel. 
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
@@ -955,3 +959,4 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
 
+2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 

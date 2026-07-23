@@ -50,6 +50,18 @@ Section is new and data is pending - expect information to cross over with AI Su
 
 [https://x.com/cz_binance/status/1981404850832494666](https://x.com/cz_binance/status/1981404850832494666)
 
+### 2026 January
+
+2026-01-13 The Clarity Act was introduced to regulate digital assets but has come down to a fight over ethics enforcement, entanglements, and loopholes.
+
+[https://www.banking.senate.gov/newsroom/majority/myth-vs-fact-the-clarity-act](https://www.banking.senate.gov/newsroom/majority/myth-vs-fact-the-clarity-act)
+
+[https://www.americanprogress.org/article/clarity-act-risks-rewarding-illicit-financing-bad-actors-and-harming-u-s-national-security/](https://www.americanprogress.org/article/clarity-act-risks-rewarding-illicit-financing-bad-actors-and-harming-u-s-national-security/)
+
+[https://www.ms.now/opinion/crypto-ai-regulation-bill-congress](https://www.ms.now/opinion/crypto-ai-regulation-bill-congress)
+
+THIS SITE HAS THE 616-PAGE DOCUMENT [https://punchbowl.news/ehf26654-clarity-act](https://punchbowl.news/ehf26654-clarity-act)
+
 ### 2026 February
 
 2026-02-01 Trump family's World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.

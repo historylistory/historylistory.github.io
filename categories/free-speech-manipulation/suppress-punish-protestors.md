@@ -398,3 +398,10 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester](https://www.theguardian.com/us-news/2026/jul/17/colorado-ice-employee-arrested-shooting-protester)
 
 [https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/](https://coloradonewsline.com/briefs/colorado-ice-shooting-protester/)
+
+2026-07-21 The US appeals court overturned a ruling requiring release of pro-Palestinian activist Mohsen Mahdawi. 
+
+[https://www.middleeasteye.net/news/us-appeals-court-overturns-ruling-release-pro-palestinian-activist-mohsen-mahdawi](https://www.middleeasteye.net/news/us-appeals-court-overturns-ruling-release-pro-palestinian-activist-mohsen-mahdawi)
+
+[https://www.thecollegefix.com/court-rules-against-perpetual-college-student-slated-for-deportation/](https://www.thecollegefix.com/court-rules-against-perpetual-college-student-slated-for-deportation/)
+

@@ -421,3 +421,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-07-17 A Colorado prison guard shot a protester. 
 
 2026-07-20 Trump’s DOJ targeted the New York Times, seeking phone records from both the journalists and their family members.
+
+2026-07-21 The US appeals court overturned a ruling requiring release of pro-Palestinian activist Mohsen Mahdawi. 

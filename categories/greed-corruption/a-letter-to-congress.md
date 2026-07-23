@@ -272,6 +272,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-04-23 Eric Trump’s startup company Foundation Futures Industries - of which he is the Chief Strategy Adviser - landed a $24M contract with the Pentagon.
 
+2026-04-26 Foundation Robotics secured a Pentagon contract to build robots to replace human soldiers. The company’s chief strategy adviser is Eric Trump. 
+
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
 2026-05-05 Howard Lutnick was forced to testify for his involvement with Epstein.
