@@ -53,7 +53,7 @@ Response received? Not yet.
 
 ### Question 2
 
-Trump has threatened journalists with imprisonment, pressured networks to fire people and cancel shows, and has places allies in control. The Pentagon has barred reporters from offices and demanded they accept restrictions on gathering information. Now the DOJ wants phone records on journalists and their families. How is this different from the press intimidation seen in Hungary or Russia, and what will you do to stop it?
+Trump has threatened journalists with imprisonment, pressured networks to fire people and cancel shows, and has placed allies in control. The Pentagon has barred reporters from offices and demanded they accept restrictions on gathering information. Now the DOJ wants phone records on journalists and their families. How is this different from the press intimidation seen in Hungary or Russia, and what will you do to stop it?
 
 SOME SOURCES
 
@@ -63,7 +63,7 @@ SOME SOURCES
 
 * BARRED ENTRY June 2, 2026 Hegseth classified the Pentagon to keep out journalists [The Hill.com](https://thehill.com/policy/defense/5904725-pentagon-bars-reporters-press-office/)
 
-* PLEDGE October 15, 2025 [Reuters.com](https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/)
+* PLEDGE October 15, 2025 The Pentagon issued a new requirement for journalists to sign a pledge not to gather or report on any information unless it is formally authorized for release. [Reuters.com](https://www.reuters.com/business/media-telecom/us-news-outlets-reject-pentagon-press-access-policy-2025-10-14/)
 
 * REPORT May 4, 2026 Reporters Without Borders ranked the US at #64 for the free speech index. [RSF.org](https://rsf.org/en/2026-rsf-index-press-freedom-25-year-low)
 
