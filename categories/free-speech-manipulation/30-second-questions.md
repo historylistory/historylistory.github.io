@@ -75,7 +75,7 @@ SOME SOURCES
 
 * THREATS January 21 2026 FCC threatens ABC license [USA Today.com](https://www.usatoday.com/story/news/nation/2026/01/23/jimmy-kimmel-stephen-colbert-seth-meyers-late-night-tv-fcc-brendan-carr/88303889007/)
 
-* THREATS November 3, 2024 Trump encouraged deadly violence, ““to get me someone would have to shoot through the fake news, and I don’t mind that so much”. [Politico.com](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
+* THREATS November 3, 2024 Trump encouraged deadly violence, “To get to me someone would have to shoot through the fake news, and I don’t mind that so much”. [Politico.com](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
 
 ### Q2 ANSWER
 
