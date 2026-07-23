@@ -40,4 +40,5 @@ Submitted to Congress by HistoryListory: Yes, on July 19, 2026 I emailed this qu
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
-Response received? Not yet.
+Response received? On July 20, 2026 one (1) Senator responded to my email with the following, "Thank you for contacting my office regarding your opinion of President Donald Trump. As you know, on November 6, 2024, President Trump was elected the 47th President of the United States and was sworn into office on January 20, 2025.  President Trump's second inauguration marks an important turning point in our country.  After four years of open borders, high prices, overregulation, and weakness on the world stage, we are seeing now real leadership in the White House again.  I believe our country's best days are still ahead of us.  As new policies take effect, I will always be sure to evaluate the interests of (STATE).  
+My primary mission as your United States Senator is to make government work with proven (STATE) solutions that are ready for America. To better inform my decision-making, it is important that I hear the ideas, concerns, and opinions of all (STATE). I appreciate the time and effort you took to provide input regarding President Trump.
