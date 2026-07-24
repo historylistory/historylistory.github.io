@@ -318,3 +318,8 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 [https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
 
 [https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
+
+2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
+
+[https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion](https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion)
+

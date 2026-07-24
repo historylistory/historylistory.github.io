@@ -96,3 +96,9 @@ permalink: /categories/health/world-health/
 
 [https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases](https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases)
 
+### 2026 July
+
+2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
+
+[https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor)
+

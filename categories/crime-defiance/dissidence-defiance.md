@@ -534,3 +534,10 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 
 [https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41](https://www.msn.com/en-us/news/politics/trumps-attorneys-justice-dept-leaders-misused-courts-in-irs-case-judge-says/ar-AA27PA41)
 
+2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 
+
+[https://www.scotusblog.com/2026/03/the-remaining-questions-after-the-supreme-courts-tariffs-ruling/](https://www.scotusblog.com/2026/03/the-remaining-questions-after-the-supreme-courts-tariffs-ruling/)
+
+[https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt](https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt)
+
+[https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/](https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/)

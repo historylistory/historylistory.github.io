@@ -534,3 +534,9 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
 
 [https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s)
+
+2026-07-23 The man who killed Melissa and Mark Hortman was sentenced to two consecutive life terms. The suspect left behind 3 assault rifles, a handgun, and a hit list containing the names of dozens of people including prominent Democrats and abortion providers and advocates. 
+
+[https://www.axios.com/local/twin-cities/2026/07/23/vance-boelter-sentenced-life-hortman-assasinations](https://www.axios.com/local/twin-cities/2026/07/23/vance-boelter-sentenced-life-hortman-assasinations)
+
+[https://www.nbcnews.com/news/us-news/vance-boelter-sentencing-man-killed-minnesota-democratic-lawmaker-face-rcna588852](https://www.nbcnews.com/news/us-news/vance-boelter-sentencing-man-killed-minnesota-democratic-lawmaker-face-rcna588852)

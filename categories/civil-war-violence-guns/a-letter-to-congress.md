@@ -585,3 +585,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 
 
+2026-07-23 The man who killed Melissa and Mark Hortman was sentenced to two consecutive life terms. The suspect left behind 3 assault rifles, a handgun, and a hit list containing the names of dozens of people including prominent Democrats and abortion providers and advocates. 
+

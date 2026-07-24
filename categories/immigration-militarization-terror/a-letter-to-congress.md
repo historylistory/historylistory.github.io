@@ -779,3 +779,5 @@ Next
 2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s](https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s)
 
 2026-07-20 Allegedly the Trump Administration told FBI agents that going forward they would no longer investigate ICE confrontations. 
+
+2026-07-24 Dozens of businesses in Houston participated in an economic boycott demanding justice for the killing of Lorenzo Salgado Araujo. 

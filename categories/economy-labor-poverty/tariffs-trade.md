@@ -402,3 +402,12 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 [https://www.cbsnews.com/live-updates/us-iran-war-trump-ceasefire-attacks-strait-of-hormuz/](https://www.cbsnews.com/live-updates/us-iran-war-trump-ceasefire-attacks-strait-of-hormuz/)
 
 SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz-fee-00994508](https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz-fee-00994508)
+
+2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 
+
+[https://www.scotusblog.com/2026/03/the-remaining-questions-after-the-supreme-courts-tariffs-ruling/](https://www.scotusblog.com/2026/03/the-remaining-questions-after-the-supreme-courts-tariffs-ruling/)
+
+[https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt](https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt)
+
+[https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/](https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/)
+

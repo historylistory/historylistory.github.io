@@ -138,3 +138,5 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
 
 2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 

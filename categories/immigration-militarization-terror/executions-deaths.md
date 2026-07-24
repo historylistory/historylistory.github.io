@@ -384,3 +384,8 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 2026-07-20 Tom Homan told reporters, “I’m afraid that we’re going to bury an ICE agent”. 
 
 [https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s](https://www.youtube.com/watch?v=c_6jiz2D1ho&list=WL&index=1&t=10s)
+
+2026-07-24 Dozens of businesses in Houston participated in an economic boycott demanding justice for the killing of Lorenzo Salgado Araujo. 
+
+[https://cw39.com/news/local/houston-ice-shooting-day-action/](https://cw39.com/news/local/houston-ice-shooting-day-action/)
+

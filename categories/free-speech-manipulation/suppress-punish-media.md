@@ -474,3 +474,19 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 [https://freedom.press/issues/house-subpoena-of-breakthrough-news-threatens-press-freedom/](https://freedom.press/issues/house-subpoena-of-breakthrough-news-threatens-press-freedom/)
 
 [https://www.democracynow.org/2026/7/23/headlines/gop_led_house_ways_and_means_committee_subpoenas_breakthrough_news](https://www.democracynow.org/2026/7/23/headlines/gop_led_house_ways_and_means_committee_subpoenas_breakthrough_news)
+
+2026-07-23 The Trump administration’s Republican led House Ways and Means Committee issued subpoenas for phone records from not just Breakthrough News, but also from The People’s Forum, and Tricontinental Institute for Social Research. 
+
+[https://www.commondreams.org/news/house-gop-subpoena-left-wing-news](https://www.commondreams.org/news/house-gop-subpoena-left-wing-news)
+
+[https://www.democracynow.org/2026/7/24/headlines/doj_drops_subpoenas_against_new_york_times_reporters_after_grilling_by_federal_judge](https://www.democracynow.org/2026/7/24/headlines/doj_drops_subpoenas_against_new_york_times_reporters_after_grilling_by_federal_judge)
+
+[https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5](https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5)
+
+FOX ‘NEWS’ TAKE [https://www.foxnews.com/politics/house-panel-subpoenas-3-left-wing-groups-probe-39m-tied-marxist-tycoon-neville-singham](https://www.foxnews.com/politics/house-panel-subpoenas-3-left-wing-groups-probe-39m-tied-marxist-tycoon-neville-singham)
+
+2026-07-24 The Trump administration withdrew subpoenas for New York Times journalists’ phone records. This came after a stern reprimand from a judge. 
+
+[https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5](https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5)
+
+SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html](https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html)

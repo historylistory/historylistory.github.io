@@ -182,3 +182,12 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.axios.com/2026/07/10/trump-housing-bill-affordability](https://www.axios.com/2026/07/10/trump-housing-bill-affordability)
 
 [https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act](https://nlihc.org/resource/house-passes-amended-bipartisan-21st-century-road-housing-act)
+
+2026-07-24 Landlords in New York are suing to overturn Mamdani’s rent freeze on apartments. 
+
+[https://www.wsj.com/real-estate/new-york-city-rent-freeze-lawsuit-landlords-5467b881](https://www.wsj.com/real-estate/new-york-city-rent-freeze-lawsuit-landlords-5467b881)
+
+[https://www.democracynow.org/2026/7/24/headlines/new_york_city_landlords_sue_mamdani_administration_to_reverse_rent_freeze](https://www.democracynow.org/2026/7/24/headlines/new_york_city_landlords_sue_mamdani_administration_to_reverse_rent_freeze)
+
+[https://www.businessinsider.com/nyc-landlords-sued-over-mamdanis-rent-freeze-has-happened-before-2026-7](https://www.businessinsider.com/nyc-landlords-sued-over-mamdanis-rent-freeze-has-happened-before-2026-7)
+

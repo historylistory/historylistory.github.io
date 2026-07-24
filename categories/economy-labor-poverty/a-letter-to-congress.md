@@ -962,3 +962,11 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
 
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
+
+2026-07-24 Landlords in New York are suing to overturn Mamdani’s rent freeze on apartments. 
+
+2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
+
+2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
+
+2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 

@@ -119,3 +119,8 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 [https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2](https://www.youtube.com/watch?v=UPXrXwuyAq8&list=WL&index=2)
 
+### 2026 July
+
+2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
+
+[https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion](https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion)
