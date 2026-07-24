@@ -293,4 +293,6 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-20 Mamdani said Netanyahu should be arrested when he visits New York this fall for the UN General Assembly. 
 
+2026-07-22 Mamdani urged an ICC arrest warrant on Netanyahu but made it very clear that he does not have authority to arrest him as the Mayor.
+
 2026-07-23 Netanyahu backed the GOP to end US military aid, but in the agreement they included a 5-page piece of legislation within HR 8800 Section 224 entitled, “United States-Israel Defense Technology Cooperation Initiative”. This bill includes “facilitating the transition of technologies”, “establishing frameworks”, and “promoting joint training exercises”. This integrates the United States military into the Israeli military. 

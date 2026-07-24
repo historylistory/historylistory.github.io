@@ -122,3 +122,11 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 2026-07-20 The Trump administration is considering restrictions on newer Chinese open weight AI models.
 
 [https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi](https://www.axios.com/2026/07/20/ai-us-china-open-source-kimi)
+
+2026-07-22 While at the Asean Summit in the Philippines Marco Rubio defended the nuclear program deal with Saudi, reaffirmed commitment to counter Chinese influence, and discussed the Ukraine and Iran.   
+
+[https://www.aljazeera.com/news/2026/7/22/rubio-says-us-china-must-work-through-big-differences-at-asean-meeting](https://www.aljazeera.com/news/2026/7/22/rubio-says-us-china-must-work-through-big-differences-at-asean-meeting)
+
+[https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/6832740](https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/683274)
+
+[https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd](https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd)

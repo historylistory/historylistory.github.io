@@ -181,3 +181,6 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-05-14 A jury in Chicago ordered Boeing to pay nearly $50M in a lawsuit stemming from a fatal crash.
 
 2026-06-30 Airline fares climbed 26.5%
+
+2026-07-24 A seaplane carrying 11 people crashed off the coast of Washington State. 
+

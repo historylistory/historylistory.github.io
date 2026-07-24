@@ -525,3 +525,14 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 [https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/](https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/)
 
 [https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/](https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/)
+
+2026-07-22 Mamdani urged an ICC arrest warrant on Netanyahu but made it very clear that he does not have authority to arrest him as the Mayor.
+
+[https://www.theguardian.com/us-news/2026/jul/22/zohran-mamdani-netanyahu-arrest-new-york](https://www.theguardian.com/us-news/2026/jul/22/zohran-mamdani-netanyahu-arrest-new-york)
+
+[https://www.politico.com/news/2026/07/24/mamdani-was-urged-during-2025-campaign-to-stop-talking-about-arresting-netanyahu-01010922](https://www.politico.com/news/2026/07/24/mamdani-was-urged-during-2025-campaign-to-stop-talking-about-arresting-netanyahu-01010922)
+
+[https://www.c-span.org/clip/news-conference/mayor-mamdani-says-warrants-from-the-icc-should-be-upheld-no-matter-the-perpetrator/5203288](https://www.c-span.org/clip/news-conference/mayor-mamdani-says-warrants-from-the-icc-should-be-upheld-no-matter-the-perpetrator/5203288)
+
+[https://www.npr.org/2026/07/22/g-s1-134880/mamdani-nyc-netanyahu](https://www.npr.org/2026/07/22/g-s1-134880/mamdani-nyc-netanyahu)
+

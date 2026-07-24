@@ -423,3 +423,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-07-20 Trump’s DOJ targeted the New York Times, seeking phone records from both the journalists and their family members.
 
 2026-07-21 The US appeals court overturned a ruling requiring release of pro-Palestinian activist Mohsen Mahdawi. 
+
+2026-07-21 The Trump administration demanded financial records and internal communications from BreakThrough News after they reported on ICE detention centers, foreign policy, and Palestine. 

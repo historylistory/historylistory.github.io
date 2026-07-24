@@ -1960,3 +1960,13 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 
 [https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces](https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces)
 
+2026-07-22 Trump posted, “From this point forward, any time the Islamic Republic of Iran shoots at a ship in the Strait of Hormuz, whether it be by Missile, Rocket, Drone, or any other device or weapon, the United States will bomb and destroy ONE BRIDGE OR POWER PLANT, including those located next to, or in, the Capital City of Tehran. Thank you for your attention to this matter!”
+
+[https://truthsocial.com/@realDonaldTrump/posts/116963738416841583](https://truthsocial.com/@realDonaldTrump/posts/116963738416841583)
+
+2026-07-22 Iran’s Minister of Foreign Affairs Seyed Abbas Araghchi responded, “Our defense doctrine is clear: eye for an eye. Any aggression against Iran, including our infrastructure, will compel a powerful and decisive response. Those who contribute to such aggression, whatever the kind of support, will also be considered as legitimate targets.”
+
+[https://x.com/araghchi/status/2079997466649448760](https://x.com/araghchi/status/2079997466649448760)
+
+[https://www.middleeasteye.net/live-blog/live-blog-update/irans-araghchi-warns-any-aggression-will-draw-decisive-response](https://www.middleeasteye.net/live-blog/live-blog-update/irans-araghchi-warns-any-aggression-will-draw-decisive-response)
+

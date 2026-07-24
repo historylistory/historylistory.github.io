@@ -109,3 +109,13 @@ permalink: /categories/health/pseudoscience/
 [https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/](https://thehill.com/policy/healthcare/5822769-secretary-kennedy-podcast-launch/)
 
 [https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/](https://www.thedailybeast.com/rfk-jr-desperately-tries-to-rebrand-with-secretary-kennedy-podcast-after-sordid-revelations/)
+
+### 2026 July
+
+2026-07-23 The FDA met to consider lifting a ban and widening access to peptides promoted by wellness influencers. 
+
+[https://www.youtube.com/watch?v=KQJ4KtECGYc&list=WL&index=2](https://www.youtube.com/watch?v=KQJ4KtECGYc&list=WL&index=2)
+
+[https://www.pbs.org/newshour/show/fda-considers-widening-access-to-peptides-promoted-by-wellness-influencers](https://www.pbs.org/newshour/show/fda-considers-widening-access-to-peptides-promoted-by-wellness-influencers)
+
+[https://www.cbsnews.com/news/fda-peptides-review-regulations-unapproved-therapies/](https://www.cbsnews.com/news/fda-peptides-review-regulations-unapproved-therapies/)

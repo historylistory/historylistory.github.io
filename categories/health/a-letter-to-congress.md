@@ -529,3 +529,4 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-07-22 The Trump administration paused billions of dollars in Medicaid funding to California and Minnesota and claimed it was a strategy to “stop the fraud before it happens”. 
 
+2026-07-23 The FDA met to consider lifting a ban and widening access to peptides promoted by wellness influencers. 

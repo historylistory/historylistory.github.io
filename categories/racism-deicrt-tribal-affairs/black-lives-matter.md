@@ -122,3 +122,11 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 [https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html](https://au.news.yahoo.com/delaware-removed-statue-founder-200-220009228.html)
 
 [https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s](https://www.youtube.com/watch?v=FyVzi16maCA&list=WL&index=5&t=6s)
+
+### 2026 July
+
+2026-07-22 Protests erupted in Madison Wisconsin after police killed a Black man. 
+
+[https://wisconsinexaminer.com/briefs/madison-police-kill-man-in-broad-daylight-in-front-of-witnesses/](https://wisconsinexaminer.com/briefs/madison-police-kill-man-in-broad-daylight-in-front-of-witnesses/)
+
+[https://www.nbcnews.com/news/us-news/madison-wisconsin-police-shooting-corey-ruiz-rcna588925](https://www.nbcnews.com/news/us-news/madison-wisconsin-police-shooting-corey-ruiz-rcna588925)

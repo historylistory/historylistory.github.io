@@ -467,3 +467,10 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 
 [https://www.theguardian.com/media/2026/jul/21/trump-phone-records-new-york-times-journalists](https://www.theguardian.com/media/2026/jul/21/trump-phone-records-new-york-times-journalists)
 
+2026-07-21 The Trump administration demanded financial records and internal communications from BreakThrough News after they reported on ICE detention centers, foreign policy, and Palestine. 
+
+[https://www.theguardian.com/us-news/2026/jul/21/trump-financial-details-bbc-lawsuit](https://www.theguardian.com/us-news/2026/jul/21/trump-financial-details-bbc-lawsuit)
+
+[https://freedom.press/issues/house-subpoena-of-breakthrough-news-threatens-press-freedom/](https://freedom.press/issues/house-subpoena-of-breakthrough-news-threatens-press-freedom/)
+
+[https://www.democracynow.org/2026/7/23/headlines/gop_led_house_ways_and_means_committee_subpoenas_breakthrough_news](https://www.democracynow.org/2026/7/23/headlines/gop_led_house_ways_and_means_committee_subpoenas_breakthrough_news)

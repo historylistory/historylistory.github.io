@@ -77,3 +77,11 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://cbsaustin.com/news/local/1-dead-after-netjets-private-plane-crashes-onto-laredo-texas-highway-bursts-into-flames-texas-mexico-border-loop-20-los-cabos-international-airport-aviation-accident](https://cbsaustin.com/news/local/1-dead-after-netjets-private-plane-crashes-onto-laredo-texas-highway-bursts-into-flames-texas-mexico-border-loop-20-los-cabos-international-airport-aviation-accident)
 
 [https://www.cbsnews.com/news/small-plane-crash-dramatic-rescue-efforts-laredo-texas/](https://www.cbsnews.com/news/small-plane-crash-dramatic-rescue-efforts-laredo-texas/)
+
+### 2026 July
+
+2026-07-24 A seaplane carrying 11 people crashed off the coast of Washington State. 
+
+[https://www.youtube.com/watch?v=m_F2hJ435ao&list=WL&index=1](https://www.youtube.com/watch?v=m_F2hJ435ao&list=WL&index=1)
+
+[https://abcnews.com/US/multiple-injured-1-critically-after-seaplane-11-aboard/story?id=135041520](https://abcnews.com/US/multiple-injured-1-critically-after-seaplane-11-aboard/story?id=135041520)

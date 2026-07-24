@@ -196,3 +196,23 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 [https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
 
 [https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)
+
+2026-07-22 Trump gave Saudi a nuclear deal. 
+
+[https://www.politico.com/news/2026/07/22/saudi-nuclear-pact-fears-regional-enrichment-01009142](https://www.politico.com/news/2026/07/22/saudi-nuclear-pact-fears-regional-enrichment-01009142)
+
+[https://www.theatlantic.com/national-security/2026/07/trump-saudi-arabia-nuclear-energy-deal/688040/](https://www.theatlantic.com/national-security/2026/07/trump-saudi-arabia-nuclear-energy-deal/688040/)
+
+[https://www.npr.org/2026/07/23/nx-s1-5904327/us-saudi-arabia-iran](https://www.npr.org/2026/07/23/nx-s1-5904327/us-saudi-arabia-iran)
+
+[https://www.wsj.com/world/middle-east/trump-approves-landmark-nuclear-deal-with-saudi-arabia-in-big-win-for-kingdom-2ed77584](https://www.wsj.com/world/middle-east/trump-approves-landmark-nuclear-deal-with-saudi-arabia-in-big-win-for-kingdom-2ed77584)
+
+
+2026-07-22 While at the Asean Summit in the Philippines Marco Rubio defended the nuclear program deal with Saudi, reaffirmed commitment to counter Chinese influence, and discussed the Ukraine and Iran.   
+
+[https://www.aljazeera.com/news/2026/7/22/rubio-says-us-china-must-work-through-big-differences-at-asean-meeting](https://www.aljazeera.com/news/2026/7/22/rubio-says-us-china-must-work-through-big-differences-at-asean-meeting)
+
+[https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/6832740](https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/683274)
+
+[https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd](https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd)
+

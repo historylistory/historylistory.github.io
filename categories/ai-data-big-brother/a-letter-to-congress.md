@@ -363,6 +363,9 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-22 OpenAI hacked another company during testing. 
 
+2026-07-23 One Michigan community experienced extremely disruptive data center sound. 
+
+
 
 
 

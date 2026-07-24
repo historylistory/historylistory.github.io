@@ -138,3 +138,8 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 
 TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
 
+2026-07-23 One Michigan community experienced extremely disruptive data center sound. 
+
+[https://www.youtube.com/watch?v=9wDr2dec474&list=WL&index=3&t=191s](https://www.youtube.com/watch?v=9wDr2dec474&list=WL&index=3&t=191s)
+
+[https://www.wxyz.com/news/voices/neighbors-say-noise-from-michigan-data-center-is-24-7-and-upending-their-lives\](https://www.wxyz.com/news/voices/neighbors-say-noise-from-michigan-data-center-is-24-7-and-upending-their-lives)
