@@ -1970,3 +1970,18 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 
 [https://www.middleeasteye.net/live-blog/live-blog-update/irans-araghchi-warns-any-aggression-will-draw-decisive-response](https://www.middleeasteye.net/live-blog/live-blog-update/irans-araghchi-warns-any-aggression-will-draw-decisive-response)
 
+2026-07-22 Trump attended a dignified transfer of four fallen soldiers. At the transfer he stated, “All of them said very strongly that we can’t let Iran have a nuclear weapon.” After the transfer he removed their names from the casualty roster. 
+
+[https://www.youtube.com/watch?v=fn1xYVi1h7I&t=1s](https://www.youtube.com/watch?v=fn1xYVi1h7I&t=1s)
+
+[https://www.pbs.org/newshour/world/trump-will-attend-the-dignified-transfer-of-4-u-s-service-members-killed-in-the-middle-east](https://www.pbs.org/newshour/world/trump-will-attend-the-dignified-transfer-of-4-u-s-service-members-killed-in-the-middle-east)
+
+MOST WELL PUT VIDEO ABOUT THIS [https://www.youtube.com/watch?v=Nhsebyx7btk&list=WL&index=1&t=124s](https://www.youtube.com/watch?v=Nhsebyx7btk&list=WL&index=1&t=124s)
+
+[https://abcnews.com/Politics/trump-honor-heroes-attend-dignified-transfer-dover-air/story?id=134979766](https://abcnews.com/Politics/trump-honor-heroes-attend-dignified-transfer-dover-air/story?id=134979766)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-iran-us-soldiers-killed-widow-b3021023.html](https://www.the-independent.com/news/world/americas/us-politics/trump-iran-us-soldiers-killed-widow-b3021023.html)
+
+[https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran](https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran)
+
+SUB WALL [https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html](https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html)
