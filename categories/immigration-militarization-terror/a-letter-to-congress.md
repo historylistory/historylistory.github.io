@@ -752,7 +752,7 @@ Next
 
 2026-07-14 Mexico filed a criminal complaint on the US for migrant deaths in custody. 
 
-2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. 
+2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. The victim, Juan Jairo Coronilla Duran, was here on a tourist visa. 
 
 2026-07-14 ICE suspended vehicle stops after two killings in one week. 
 

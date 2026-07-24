@@ -309,13 +309,15 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.theguardian.com/world/2026/jul/13/mexico-criminal-complaint-migrant-ice-deaths](https://www.theguardian.com/world/2026/jul/13/mexico-criminal-complaint-migrant-ice-deaths)
 
-2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. 
+2026-07-14 Another man died while being detained by ICE. This time he ran and was struck by a semi-truck. The victim, Juan Jairo Coronilla Duran, was here on a tourist visa. 
 
 [https://www.youtube.com/watch?v=INjQHHBNXIM&list=WL&index=5](https://www.youtube.com/watch?v=INjQHHBNXIM&list=WL&index=5)
 
 [https://apnews.com/article/man-killed-semi-truck-ice-florida-8e65b1ca2eab051392afc316972c92eb](https://apnews.com/article/man-killed-semi-truck-ice-florida-8e65b1ca2eab051392afc316972c92eb)
 
 [https://www.kcra.com/article/florida-man-killed-tractor-trailer-immigration-agents/71935147](https://www.kcra.com/article/florida-man-killed-tractor-trailer-immigration-agents/71935147)
+
+[https://www.theguardian.com/us-news/2026/jul/22/man-killed-ice-florida-tourist-visa](https://www.theguardian.com/us-news/2026/jul/22/man-killed-ice-florida-tourist-visa)
 
 2026-07-14 ICE suspended vehicle stops after two killings in one week. 
 
