@@ -1934,6 +1934,14 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 
 [https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war](https://newrepublic.com/post/213156/donald-trump-blow-100-billion-iran-war)
 
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+[https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/](https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/)
+
+[https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
+
+[https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
+
 2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 
 
 [https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain](https://www.democracynow.org/2026/7/17/headlines/iranian_official_claims_kushner_and_witkoff_sought_to_exploit_negotiations_for_personal_gain)

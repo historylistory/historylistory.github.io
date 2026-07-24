@@ -949,6 +949,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-15 “Kalshi’s ‘Segregation Market’ Turns Black Suffering Into a Betting Line”
 
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
 2026-07-16 Karoline Leavitt responded to questions about Trump’s teleprompter entablements with insider trading on the Kalshi market calling them a “disgrace”. 
 
 2026-07-17 France blocked access to Polymarket.

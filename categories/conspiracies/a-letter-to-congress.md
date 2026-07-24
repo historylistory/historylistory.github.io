@@ -68,6 +68,10 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2014-02-04 Facebook rumors claimed Obama ordered $1 billion in disposable coffins for FEMA detention centers in case of an American revolt.
 
+2014-12-14 Alex Jones claimed on air that Sandy Hook was a false flag plot by Democrats over the Second Amendment. He didn’t concede until 2022 the shooting was real. 
+
+2015-01-01 Alex Jones claimed the government is putting chemicals in the water that turn the frogs gay”. 
+
 2015-02-18 Greg Abbott and Ted Cruz questioned Pentagon training exercises amid martial-law rumors; Abbott later ordered the Texas State Guard to monitor U.S. military drills.
 
 2015-05-21 A London Review of Books article suggested the Bin Laden raid was a lie and cover-up.
@@ -83,6 +87,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2017-10-01 QAnon began on 4chan when an anonymous user claimed ‘Q clearance’ and posted cryptic pro-Trump messages and the slogan “Where we go one, we go all.”
 
 2018-02-05 During a speech Trump accused Democrats of treason.
+
+2018-05-23 Parents of the Sandy Hook victims sued Alex Jones for defamation. 
 
 2018-11-01 Marjorie Taylor Greene posted a deleted theory that California wildfires were started by “space solar generators.
 
@@ -106,7 +112,7 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2021-12-01 Conservatives spread the hoax that schools gave litter boxes to students identifying as cats; the claim persisted into 2023 and spread internationally.
 
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
+2022-12-02 Alex Jones filed two chapter 11 bankruptcies. 
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
@@ -241,6 +247,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-10-11 Trump revived January 6 conspiracy claims, “THE BIDEN FBI PLACED 274 AGENTS INTO THE CROWD ON JANUARY 6. If this is so, which it is, a lot of very good people will be owed big apologies. What a SCAM – DO SOMETHING!!! President DJT”.
 
 2025-10-13 Glenn Beck posted on X that the FBI showed up to his house to discuss the so-called “Antifa” network and its funding. 
+
+2025-10-14 Jones appealed the $1.4BN judgement against him and was rejected. 
 
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 

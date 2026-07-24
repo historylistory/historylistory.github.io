@@ -622,6 +622,15 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests
 
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+[https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/](https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/)
+
+[https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
+
+[https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
+
+
 2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
 
 [https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request](https://www.npr.org/2026/07/21/nx-s1-5900838/defense-secretary-pete-hegseth-goes-to-the-hill-with-350b-funding-request)

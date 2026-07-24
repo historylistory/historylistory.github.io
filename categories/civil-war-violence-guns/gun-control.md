@@ -33,6 +33,21 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://www.salon.com/1999/08/16/naacp/](https://www.salon.com/1999/08/16/naacp/)
 
+### 2014
+
+2014-12-14 Alex Jones claimed on air that Sandy Hook was a false flag plot by Democrats over the Second Amendment. He didn’t concede until 2022 the shooting was real. 
+
+[https://www.reuters.com/legal/legal-fallout-alex-jones-false-sandy-hook-claims-2022-09-13/](https://www.reuters.com/legal/legal-fallout-alex-jones-false-sandy-hook-claims-2022-09-13/)
+
+[https://www.pbs.org/newshour/nation/alex-jones-concedes-sandy-hook-attack-was-100-percent-real](https://www.pbs.org/newshour/nation/alex-jones-concedes-sandy-hook-attack-was-100-percent-real)
+
+[https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
+
+[https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories)
+
+[https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case](https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case)
+
+
 ### 2020
 
 2020-08-25 Kyle Rittenhouse shot three protesters during unrest in Kenosha, Wisconsin. He was acquitted on all charges including first-degree intentional homicide and later received support from many conservatives. Reports later stated Kash Patel assisted in efforts to pursue lawsuits on Rittenhouse's behalf. 
@@ -73,13 +88,6 @@ You must pass a test and obtain a license before driving a car, but you don't ne
 
 [https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16](https://apnews.com/article/trump-biden-president-project-2025-33d3fc2999a74f4aa424f1128dca2d16)
 
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
-
-[https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case](https://www.npr.org/2022/08/03/1115414563/alex-jones-sandy-hook-case)
-
-[https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories](https://en.wikipedia.org/wiki/Sandy_Hook_Elementary_School_shooting_conspiracy_theories)
-
-[https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case](https://www.bradyunited.org/resources/podcast/alex-jones-sandy-hook-deniers-court-case)
 
 ### 2023
 

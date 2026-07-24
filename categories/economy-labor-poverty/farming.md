@@ -310,3 +310,11 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 [https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time](https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time)
 
 [https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681](https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681)
+
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+[https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/](https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/)
+
+[https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
+
+[https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)

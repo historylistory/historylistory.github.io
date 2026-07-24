@@ -82,3 +82,11 @@ SAVE TOOL FLAGS THE WRONG PEOPLE [https://www.npr.org/2025/12/10/nx-s1-5588384/s
 [https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/](https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/)
 
 [https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732])https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732
+
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+[https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/](https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/)
+
+[https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
+
+[https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)

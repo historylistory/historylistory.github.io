@@ -136,3 +136,5 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
 
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
+
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 

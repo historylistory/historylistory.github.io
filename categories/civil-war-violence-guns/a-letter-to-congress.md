@@ -65,6 +65,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2011-11-11 Oscar Ramiro Ortega-Hernandez fired a semi-automatic rifle at the White House in effort to assassinate Obama. 
 
+2014-12-14 Alex Jones claimed on air that Sandy Hook was a false flag plot by Democrats over the Second Amendment. He didn’t concede until 2022 the shooting was real. 
+
 2015-01-01 By this year, Obama had been through at least eleven (11) attempted assassinations or plots. 
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
@@ -118,8 +120,6 @@ Below are examples of which events highlight these concerns. Some of the points 
 2022-06-08 Nicholas Roske was arrested for attempting to assassinate Justice Brett Kavanaugh and later pleaded guilty. 
 
 2022-06-23 After NYSRPA v. Bruen, the Federalist Society – a Project 2025 supporter – expanded public-carry rights. 
-
-2022-08-03 Alex Jones pushed the conspiracy that Sandy Hook was a hoax by the Democrats to push for gun control. 
 
 2022-10-01 Following Elon Musk's acquisition of Twitter researchers reported increases in impersonation, misinformation, and hate speech. Elon Musk also allowed users to pay their way for their blue check verification. 
 

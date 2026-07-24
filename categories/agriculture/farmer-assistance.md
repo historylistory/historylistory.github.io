@@ -94,3 +94,10 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 
 [https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s](https://www.youtube.com/watch?v=aPf7HZ_JPFo&list=WL&index=2&t=1s)
 
+2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
+
+[https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/](https://www.cbsnews.com/news/house-iran-war-save-america-act-funding-budget-resolution-vote/)
+
+[https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
+
+[https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
