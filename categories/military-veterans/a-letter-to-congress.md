@@ -342,3 +342,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-18 Two soldiers died and one is missing in Jordan. 
 
 2026-07-22 Trump attended a dignified transfer of four fallen soldiers. At the transfer he stated, “All of them said very strongly that we can’t let Iran have a nuclear weapon.” After the transfer he removed their names from the casualty roster. 
+
+2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 

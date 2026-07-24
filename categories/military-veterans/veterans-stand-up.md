@@ -132,3 +132,14 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims](https://www.ms.now/rachel-maddow-show/maddowblog/survivors-of-deadly-iranian-attack-on-u-s-military-outpost-reject-hegseths-claims)
 
 [https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html](https://www.independent.co.uk/news/world/americas/us-politics/iran-war-soldiers-injuries-kuwait-pentagon-b3002907.html)
+
+2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 
+
+[https://www.youtube.com/watch?v=TWEHxiA4AMo](https://www.youtube.com/watch?v=TWEHxiA4AMo)
+
+[https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+
+[https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/](https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/)
+
+PAY WALL [https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+

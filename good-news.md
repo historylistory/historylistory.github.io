@@ -264,3 +264,13 @@ We are fighting the good fight.
 
 [https://www.ctinsider.com/connecticut/article/trump-connecticut-voter-list-lawsuit-dismissed-22349668.php](https://www.ctinsider.com/connecticut/article/trump-connecticut-voter-list-lawsuit-dismissed-22349668.php)
 
+2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 
+
+[https://www.youtube.com/watch?v=TWEHxiA4AMo](https://www.youtube.com/watch?v=TWEHxiA4AMo)
+
+[https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+
+[https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/](https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/)
+
+PAY WALL [https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+

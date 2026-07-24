@@ -511,3 +511,13 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 [https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk](https://fox17.com/news/local/veterans-speak-out-after-part-of-vietnam-veterans-blvd-renamed-after-charlie-kirk)
 
 [https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/](https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007/)
+
+2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 
+
+[https://www.youtube.com/watch?v=TWEHxiA4AMo](https://www.youtube.com/watch?v=TWEHxiA4AMo)
+
+[https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+
+[https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/](https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/)
+
+PAY WALL [https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
