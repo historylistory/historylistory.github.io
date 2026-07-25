@@ -114,3 +114,15 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 [https://www.techzine.eu/news/infrastructure/142271/ai-agents-take-over-robot-training-at-nvidia/](https://www.techzine.eu/news/infrastructure/142271/ai-agents-take-over-robot-training-at-nvidia/)
 
+### 2026 July
+
+2026-07-21 Anthropic paid authors $1.5BN over pirated books used to train Claude. 
+
+[https://www.reuters.com/world/us-judge-approves-anthropics-15-billion-settlement-copyright-lawsuit-2026-07-20/](https://www.reuters.com/world/us-judge-approves-anthropics-15-billion-settlement-copyright-lawsuit-2026-07-20/)
+
+[https://finance.yahoo.com/technology/ai/articles/rowling-may-receive-share-1-165922266.html](https://finance.yahoo.com/technology/ai/articles/rowling-may-receive-share-1-165922266.html)
+
+2026-07-22 NVIDIA DLSS 5 is “full controllable from the developer”
+
+[https://www.tomsguide.com/computing/dlss-5-is-fully-controllable-from-the-developer-nvidias-upscaler-might-be-better-than-expected](https://www.tomsguide.com/computing/dlss-5-is-fully-controllable-from-the-developer-nvidias-upscaler-might-be-better-than-expected)
+

@@ -433,3 +433,19 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s](https://www.youtube.com/watch?v=zuOT7B7jsWA&list=WL&index=4&t=31s)
 
 [https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/](https://www.wired.com/story/madison-square-garden-celebrity-database-surveillance/)
+
+2026-07-24 Reddit considered cutting off Google’s AI crawler access to billions of human conversations. This is about a deal signed in 2024 allowing Google to train its AI on the platform and crawl it for search. 
+
+[https://thenextweb.com/news/reddit-google-ai-content-deal-publishers-traffic](https://thenextweb.com/news/reddit-google-ai-content-deal-publishers-traffic)
+
+[https://www.reddit.com/r/ArtificialInteligence/comments/1v3ewvq/reddit_might_cut_off_googles_ai_access_and_yes_it/](https://www.reddit.com/r/ArtificialInteligence/comments/1v3ewvq/reddit_might_cut_off_googles_ai_access_and_yes_it/)
+
+2026-07-24 Google rolled out a selfie password. 
+
+[https://www.malwarebytes.com/blog/privacy/2026/07/google-wants-to-store-a-selfie-video-of-your-face](https://www.malwarebytes.com/blog/privacy/2026/07/google-wants-to-store-a-selfie-video-of-your-face)
+
+2026-07-24 Instagram banned users who make creepy content with Meta glasses. 
+
+[https://www.engadget.com/2222008/instagram-is-now-banning-users-who-make-creepy-content-with-meta-glasses/](https://www.engadget.com/2222008/instagram-is-now-banning-users-who-make-creepy-content-with-meta-glasses/)
+
+[https://www.theverge.com/report/970901/instagram-meta-glasses-prank-harassment-ban](https://www.theverge.com/report/970901/instagram-meta-glasses-prank-harassment-ban)

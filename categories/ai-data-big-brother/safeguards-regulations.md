@@ -161,3 +161,13 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://openai.com/index/hugging-face-model-evaluation-security-incident/](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
 
 [https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained](https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained)
+
+2026-07-22 France banned social media for kids under 15. 
+
+[https://www.wdef.com/france-becomes-first-european-union-country-to-ban-social-media-for-kids-under-15/](https://www.wdef.com/france-becomes-first-european-union-country-to-ban-social-media-for-kids-under-15/)
+
+2026-07-24 Twenty-five companies including NVIDIA, Microsoft and Palantir signed a letter urging policymakers against placing premature restrictions on openweight AI.
+
+[https://www.cnbc.com/2026/07/24/nvidia-microsoft-meta-open-weight-ai-models.html](https://www.cnbc.com/2026/07/24/nvidia-microsoft-meta-open-weight-ai-models.html)
+
+TIMESTAMP 5:00 [https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1](https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1)

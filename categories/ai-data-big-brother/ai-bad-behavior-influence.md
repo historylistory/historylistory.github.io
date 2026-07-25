@@ -255,3 +255,11 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 [https://openai.com/index/hugging-face-model-evaluation-security-incident/](https://openai.com/index/hugging-face-model-evaluation-security-incident/)
 
 [https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained](https://mashable.com/tech/hugging-face-openai-rogue-agent-hack-explained)
+
+2026-07-21 Meta’s AI moderation system had been incorrectly flagging accounts for safety violations. 
+
+MOST RECENT [https://thenextweb.com/news/meta-ai-moderation-account-bans](https://thenextweb.com/news/meta-ai-moderation-account-bans)
+
+FROM JUNE 2026 [https://techcrunch.com/2026/06/04/metas-oversight-board-says-account-bans-lack-due-process-transparency/](https://techcrunch.com/2026/06/04/metas-oversight-board-says-account-bans-lack-due-process-transparency/)
+
+FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/en/incidents/2025-08-15-f635)

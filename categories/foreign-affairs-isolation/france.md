@@ -23,3 +23,7 @@ permalink: /categories/foreign-affairs-isolation/france/
 [https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france](https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france)
 
 [https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/](https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/)
+
+2026-07-22 France banned social media for kids under 15. 
+
+[https://www.wdef.com/france-becomes-first-european-union-country-to-ban-social-media-for-kids-under-15/](https://www.wdef.com/france-becomes-first-european-union-country-to-ban-social-media-for-kids-under-15/)

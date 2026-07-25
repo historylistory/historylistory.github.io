@@ -283,3 +283,30 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 
 [https://www.tomshardware.com/software/windows/companies-are-now-using-automatic-windows-installers-to-display-adware-through-the-microsoft-store-when-you-install-new-hardware-customer-immediately-gets-mcafee-ads-on-their-pc-after-connecting-new-lg-monitor-heres-how-to-block-the-new-ads](https://www.tomshardware.com/software/windows/companies-are-now-using-automatic-windows-installers-to-display-adware-through-the-microsoft-store-when-you-install-new-hardware-customer-immediately-gets-mcafee-ads-on-their-pc-after-connecting-new-lg-monitor-heres-how-to-block-the-new-ads)
 
+2026-07-22 Apple teamed up with Klarna on a new Apple upgrade leasing program. Customers will pay a monthly subscription to use devices rather than own them outright. 
+
+[https://finance.yahoo.com/markets/stocks/articles/apple-reportedly-launching-device-leasing-013400947.html](https://finance.yahoo.com/markets/stocks/articles/apple-reportedly-launching-device-leasing-013400947.html)
+
+[https://www.pcmag.com/news/apples-upgrade-leasing-plan-feels-like-a-trap](https://www.pcmag.com/news/apples-upgrade-leasing-plan-feels-like-a-trap)
+
+2026-07-24 Microsoft forced LG  to stop silently installing McAfee bloatware. 
+
+[https://www.theverge.com/tech/970489/lg-mcafee-ads-windows-microsoft-crackdown](https://www.theverge.com/tech/970489/lg-mcafee-ads-windows-microsoft-crackdown)
+
+2026-07-24 Framework doubled memory pricing and downgraded ram on pre-orders. 
+
+[https://www.theverge.com/tech/969819/framework-laptop-13-pro-preorder-ram-price-updates](https://www.theverge.com/tech/969819/framework-laptop-13-pro-preorder-ram-price-updates)
+
+[https://www.pcmag.com/news/800-more-memory-crunch-derails-pricing-for-frameworks-newest-laptop](https://www.pcmag.com/news/800-more-memory-crunch-derails-pricing-for-frameworks-newest-laptop)
+
+[https://www.digitaltrends.com/computing/framework-is-downgrading-some-laptop-13-pro-orders-after-a-massive-ram-cost-spike/](https://www.digitaltrends.com/computing/framework-is-downgrading-some-laptop-13-pro-orders-after-a-massive-ram-cost-spike/)
+
+2026-07-24 NVIDIA raised the price of GPU kits. 
+
+[https://www.pcgamer.com/hardware/graphics-cards/after-months-of-surprising-stability-in-graphics-card-prices-apparently-nvidia-is-now-raising-the-cost-of-its-gpu-kits-for-aib-partners/](https://www.pcgamer.com/hardware/graphics-cards/after-months-of-surprising-stability-in-graphics-card-prices-apparently-nvidia-is-now-raising-the-cost-of-its-gpu-kits-for-aib-partners/)
+
+[https://www.tweaktown.com/news/112801/nvidia-is-reportedly-increasing-the-prices-of-its-geforce-rtx-gpus-due-to-rising-memory-costs/index.html](https://www.tweaktown.com/news/112801/nvidia-is-reportedly-increasing-the-prices-of-its-geforce-rtx-gpus-due-to-rising-memory-costs/index.html)
+
+[https://www.techpowerup.com/351018/nvidia-reportedly-raises-gddr6-and-gddr7-memory-kit-prices-for-rtx-gpus](https://www.techpowerup.com/351018/nvidia-reportedly-raises-gddr6-and-gddr7-memory-kit-prices-for-rtx-gpus)
+
+[https://wccftech.com/nvidia-rtx-5060-spikes-75-overnight-in-china-as-memory-kit-hike-ripples-across-the-entire-gpu-market/](https://wccftech.com/nvidia-rtx-5060-spikes-75-overnight-in-china-as-memory-kit-hike-ripples-across-the-entire-gpu-market/)
