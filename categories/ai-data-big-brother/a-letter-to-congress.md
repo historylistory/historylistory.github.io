@@ -351,6 +351,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
 
+2026-07-15 The AI music generator SUNO cyberattack affected 55M users. 
+
 2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
 
 2026-07-18 Google-backed satellites for wildfire detection launched. This was after Trump defunded wildlife prevention services and dismantled a satellite program intended to track wildfire smoke and pollution.
@@ -361,11 +363,33 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-20 LG monitor owners noticed unwanted pop-up ads and automatic installation of bloatware.
 
+2026-07-21 Anthropic paid authors $1.5BN over pirated books used to train Claude. 
+
+2026-07-21 Meta’s AI moderation system had been incorrectly flagging accounts for safety violations. 
+
 2026-07-22 OpenAI hacked another company during testing. 
+
+2026-07-22 NVIDIA DLSS 5 is “full controllable from the developer”
+
+2026-07-22 Apple teamed up with Klarna on a new Apple upgrade leasing program. Customers will pay a monthly subscription to use devices rather than own them outright. 
+
+2026-07-22 France banned social media for kids under 15. 
 
 2026-07-23 One Michigan community experienced extremely disruptive data center sound. 
 
+2026-07-24 Microsoft forced LG  to stop silently installing McAfee bloatware. 
 
+2026-07-24 Framework doubled memory pricing and downgraded ram on pre-orders. 
+
+2026-07-24 Reddit considered cutting off Google’s AI crawler access to billions of human conversations. This is about a deal signed in 2024 allowing Google to train its AI on the platform and crawl it for search. 
+
+2026-07-24 Twenty-five companies including NVIDIA, Microsoft and Palantir signed a letter urging policymakers against placing premature restrictions on openweight AI.
+
+2026-07-24 NVIDIA raised the price of GPU kits. 
+
+2026-07-24 Google rolled out a selfie password. 
+
+2026-07-24 Instagram banned users who make creepy content with Meta glasses. 
 
 
 

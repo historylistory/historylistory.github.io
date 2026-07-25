@@ -243,6 +243,11 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 
 [https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/](https://www.citizen.org/news/meta-ai-image-generation-feature-is-an-egregious-invasion-of-user-privacy/)
 
+2026-07-15 The AI music generator SUNO cyberattack affected 55M users. 
+
+[https://www.404media.co/hack-reveals-suno-ai-music-generator-scraped-youtube-deezer-and-genius/](https://www.404media.co/hack-reveals-suno-ai-music-generator-scraped-youtube-deezer-and-genius/)
+
+
 2026-07-22 OpenAI hacked another company during testing. 
 
 [https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s](https://www.youtube.com/watch?v=4OgyuUq_cCc&list=WL&index=2&t=60s)
