@@ -13,7 +13,7 @@ Questions will be added over time, with the goal of including reliable sources a
 
 If you want to jump ahead and check them out right now, here they are: 
 
-[AI, Big Brother, Data & DOGE](https://historylistory.com/categories/ai-data-big-brother-doge/30-second-questions)
+[AI, Big Brother & Data](https://historylistory.com/categories/ai-data-big-brother/30-second-questions)
 
 [Agriculture](https://historylistory.com/categories/agriculture/30-second-questions)
 
