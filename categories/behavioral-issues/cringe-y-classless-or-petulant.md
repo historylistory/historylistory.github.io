@@ -776,3 +776,17 @@ PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-st
 
 PAY WALL [https://www.washingtonpost.com/politics/2026/07/19/trump-loomed-over-world-cup-up-until-awkward-trophy-ceremony/](https://www.washingtonpost.com/politics/2026/07/19/trump-loomed-over-world-cup-up-until-awkward-trophy-ceremony/)
 
+
+2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
+
+THE CLIP [https://www.youtube.com/watch?v=sK6tA74tOaE](https://www.youtube.com/watch?v=sK6tA74tOaE)
+
+[https://www.theguardian.com/us-news/live/2026/jul/24/donald-trump-tariffs-white-house-correspondents-dinner-latest-news-updates](https://www.theguardian.com/us-news/live/2026/jul/24/donald-trump-tariffs-white-house-correspondents-dinner-latest-news-updates)
+
+[https://www.c-span.org/clip/public-affairs-event/president-trump-speaks-at-the-rescheduled-white-house-correspondents-association-dinner/5203481](https://www.c-span.org/clip/public-affairs-event/president-trump-speaks-at-the-rescheduled-white-house-correspondents-association-dinner/5203481)
+
+TRANSCRIPT [https://www.realclearpolitics.com/video/2026/07/24/watch_president_donald_trumps_white_house_correspondents_dinner_speech.html](https://www.realclearpolitics.com/video/2026/07/24/watch_president_donald_trumps_white_house_correspondents_dinner_speech.html)
+
+KAITLAN COLLINS [https://www.youtube.com/watch?v=nQjg_TtO71o](https://www.youtube.com/watch?v=nQjg_TtO71o)
+
+KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech](https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech)
