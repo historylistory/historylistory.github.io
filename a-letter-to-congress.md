@@ -34,7 +34,7 @@ Each section has a chapter called **A LETTER TO CONGRESS** where you can find a 
 
 CLICK ANY OF THESE TO JUMP TO THAT SECTION: 
 
-[AI, Data, Big Brother & DOGE](https://historylistory.com/categories/ai-data-big-brother-doge/a-letter-to-congress)
+[AI, Data & Big Brother](https://historylistory.com/categories/ai-data-big-brother/a-letter-to-congress)
 
 [Agriculture](https://historylistory.com/categories/agriculture/a-letter-to-congress)
 
