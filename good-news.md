@@ -181,6 +181,13 @@ We are fighting the good fight.
 
 [https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-unveils-website-tracking-first-100-days-achievemen](https://www.nyc.gov/mayors-office/news/2026/04/mayor-mamdani-unveils-website-tracking-first-100-days-achievemen)
 
+2026-04-20 The Onion finalized acquisition of InfoWars studios (which started back in November 2024) and announced they would use proceeds to pay the parents of Sandy Hook victims, something Alex Jones tried to avoid. 
+
+2024 [https://www.youtube.com/watch?v=x4nrL2C3qIQ&t=3s](https://www.youtube.com/watch?v=x4nrL2C3qIQ&t=3s)
+
+2026 [https://www.pbs.org/newshour/nation/the-onions-new-parody-of-alex-jones-infowars-starts-with-100000-to-sandy-hook-families](https://www.pbs.org/newshour/nation/the-onions-new-parody-of-alex-jones-infowars-starts-with-100000-to-sandy-hook-families)
+
+[https://www.cbsnews.com/chicago/news/the-onion-launches-parody-alex-jones-infowars-sandy-hook-victims/](https://www.cbsnews.com/chicago/news/the-onion-launches-parody-alex-jones-infowars-sandy-hook-victims/)
 
 ### 2026 May
 
