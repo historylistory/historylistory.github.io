@@ -195,3 +195,13 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 [https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing](https://www.npr.org/2026/07/21/nx-s1-5902101/smithsonian-house-hearing)
 
 [https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/](https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/)
+
+2026-07-24 Trump ordered installation of signs outside the Smithsonian warning visitors that exhibits may be inaccurate. The Executive Order reads in part, “Because the museum has failed to appropriately honor the 56 signers of the Declaration of Independence during this 250th anniversary year of the founding of our country, the secretary of the interior…shall install temporary exhibits or signage of NPS-maintained sidewalks, walkways, and land used by the public that corrects inaccurate information presented in the museum”. 
+
+[https://www.youtube.com/watch?v=WxNVdOaY7G4&list=WL&index=6](https://www.youtube.com/watch?v=WxNVdOaY7G4&list=WL&index=6)
+
+[https://abcnews.com/Politics/wireStory/trump-orders-new-signs-smithsonian-exhibits-inaccurate-135069136](https://abcnews.com/Politics/wireStory/trump-orders-new-signs-smithsonian-exhibits-inaccurate-135069136)
+
+[https://www.bbc.com/news/articles/c1w10gwnj74o](https://www.bbc.com/news/articles/c1w10gwnj74o)
+
+[https://www.nbcnews.com/politics/trump-administration/trump-orders-signage-warning-visitors-inaccurate-information-smithsoni-rcna589156](https://www.nbcnews.com/politics/trump-administration/trump-orders-signage-warning-visitors-inaccurate-information-smithsoni-rcna589156)

@@ -395,3 +395,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-07-19 Steve Bannon blasted Fox for not covering Trump’s election-fraud speech. 
 
 2026-07-21 New Jersey Governor said more than 6600 non-citizens were accidentally registered to vote after a software glitch. Fewer than 400 actually ended up voting.
+
+
+2026-07-24 The GOP called for a full audit of Rhode Island voter rolls after what happened in New Jersey. 
+
+2026-07-24 Iowa Democrats lost their first-in-the-nation caucus status after 54 years. 

@@ -206,3 +206,12 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 [https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/](https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/)
 
 [https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/](https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/)
+
+2026-07-24 Iowa Democrats lost their first-in-the-nation caucus status after 54 years. 
+
+[https://www.youtube.com/watch?v=14LfUpg9BnE&list=WL&index=5](https://www.youtube.com/watch?v=14LfUpg9BnE&list=WL&index=5)
+
+[https://www.weareiowa.com/article/news/local/local-politics/iowa-dems-lose-first-caucus-status-after-54-years-south-carolina-2028/524-26faa7c5-755e-4521-8ac3-a1964960b73c](https://www.weareiowa.com/article/news/local/local-politics/iowa-dems-lose-first-caucus-status-after-54-years-south-carolina-2028/524-26faa7c5-755e-4521-8ac3-a1964960b73c)
+
+[https://www.yahoo.com/news/politics/articles/iowa-dems-lose-first-caucus-021712976.html](https://www.yahoo.com/news/politics/articles/iowa-dems-lose-first-caucus-021712976.html)
+

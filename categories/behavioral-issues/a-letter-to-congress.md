@@ -745,3 +745,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-07-19 Trump crashed the 2026 FIFA World Cup in Spain during a trophy moment and was booed. 
 
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
+
+
+2026-07-24 Trump ordered installation of signs outside the Smithsonian warning visitors that exhibits may be inaccurate. The Executive Order reads in part, “Because the museum has failed to appropriately honor the 56 signers of the Declaration of Independence during this 250th anniversary year of the founding of our country, the secretary of the interior…shall install temporary exhibits or signage of NPS-maintained sidewalks, walkways, and land used by the public that corrects inaccurate information presented in the museum”. 

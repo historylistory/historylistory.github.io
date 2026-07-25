@@ -131,3 +131,12 @@ permalink: /categories/immigration-militarization-terror/border-wall-invasion/
 [https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452](https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452)
 
 SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/](https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/)
+
+### 2026 July
+
+2026-07-13 James Talarico campaigned to his State’s border districts, saying both parties have failed us on our borders. 
+
+[https://www.youtube.com/watch?v=KWyHDDBXKNE&list=WL&index=8&t=35s](https://www.youtube.com/watch?v=KWyHDDBXKNE&list=WL&index=8&t=35s)
+
+[https://www.tpr.org/border-immigration/2026-07-13/talarico-unveils-border-security-plan-criticizes-biden-policies-and-trumps-big-bend-wall](https://www.tpr.org/border-immigration/2026-07-13/talarico-unveils-border-security-plan-criticizes-biden-policies-and-trumps-big-bend-wall)
+

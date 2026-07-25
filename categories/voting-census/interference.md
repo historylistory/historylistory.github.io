@@ -407,3 +407,10 @@ FEDERAL INTEL REPORT 2022 [https://drive.google.com/file/d/1aqorZ61AYFqZU-EDQBBz
 FEDERAL INTEL REPORT 2020 [https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf](https://www.dni.gov/files/ODNI/documents/assessments/ICA-declass-16MAR21.pdf)
 
 WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrity/](https://www.whitehouse.gov/election-integrity/)
+
+2026-07-24 The GOP called for a full audit of Rhode Island voter rolls after what happened in New Jersey. 
+
+[https://www.youtube.com/watch?v=mjOXpVdkmXc&list=WL&index=7&t=11s](https://www.youtube.com/watch?v=mjOXpVdkmXc&list=WL&index=7&t=11s)
+
+[https://turnto10.com/politics/republicans-want-audit-rhode-island-voter-rolls-following-new-jersey-mistake-division-motor-vehicles-idemia-july-24-2026](https://turnto10.com/politics/republicans-want-audit-rhode-island-voter-rolls-following-new-jersey-mistake-division-motor-vehicles-idemia-july-24-2026)
+

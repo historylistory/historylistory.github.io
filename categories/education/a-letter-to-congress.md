@@ -286,3 +286,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-07-18 Sex-bot company RealDoll pivoted to Realbotix and wants to market selling adult companion teachers for classrooms. The company is testing the idea out on a Seneca Nation New York township with a median income of $30K. 
 
 2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 
+
+2026-07-24 Trump ordered installation of signs outside the Smithsonian warning visitors that exhibits may be inaccurate. The Executive Order reads in part, “Because the museum has failed to appropriately honor the 56 signers of the Declaration of Independence during this 250th anniversary year of the founding of our country, the secretary of the interior…shall install temporary exhibits or signage of NPS-maintained sidewalks, walkways, and land used by the public that corrects inaccurate information presented in the museum”. 
