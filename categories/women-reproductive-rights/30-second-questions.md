@@ -46,7 +46,7 @@ Response received? Not yet.
 
 ### Question 2 
 
-JD Vance demeans non-parents as “childless cat ladies,” Matt Gaetz told a crowd at Turning Point Action that pro-choice supporters looked like a thumb, Erika Kirk told women to have more babies than they can afford, and Benny Johnson told a crowd at CPAC to “outbreed” liberals. This rhetoric singles out non-parents and treats women like political breeding stock. Do you support this agenda, and what will you do to protect reproductive freedom and families who lack affordable childcare, work-life balance, healthcare, or adequate social programs, such as SNAP, to have children?
+JD Vance demeaned non-parents as “childless cat ladies” and argued that non-parents should have less voting power. Matt Gaetz told a crowd at Turning Point Action that pro-choice supporters looked like a thumb. Doug Wilson called women “people that people come out of,” Dr. Oz labels Americans “under-babied,” Erika Kirk told women to have more children than they can afford, and Benny Johnson urged conservatives to “outbreed” liberals. This rhetoric treats women like political breeding stock. Do you support this agenda, and what will you do to protect reproductive freedom and help families who lack affordable childcare, healthcare, work-life balance, and programs like SNAP?
 
 SOME SOURCES
 
