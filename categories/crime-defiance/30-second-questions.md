@@ -33,7 +33,7 @@ SOME SOURCES
 
 * J6 January 20, 2026: Andrew Paul Johnson sexually abused a child then tried to pay the child off with money [NPR.org](https://www.npr.org/2026/03/05/nx-s1-5725470/trump-jan-6-pardon-sexual-abuse-prison)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Yes, on July 22 2026 I emailed this question to my Governor, 2 Senators, and 2 Congressmen. 
 

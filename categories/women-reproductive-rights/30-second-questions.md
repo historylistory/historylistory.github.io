@@ -36,7 +36,7 @@ SOME SOURCES
 
 * NAVY June 6 2026 Hegseth cut women off from a Naval promotion list [AP News.com](https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -62,3 +62,10 @@ SOME SOURCES
 
 * NO VOTES FOR YOU July 24, 2021 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote. [CA.News.Yahoo.com](https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html)
 
+# Answer 2
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.

@@ -37,7 +37,7 @@ SOME SOURCES
 
 * PRIVATIZATION April 3, 2026: Trump proposed TSA privatization [WFLA.com](https://www.wfla.com/news/privatizing-tsa-on-the-table-as-shutdown-impacts-airport-security/)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -68,7 +68,7 @@ SOME SOURCES
 * INFRASTRUCTURE: Just go down the list in this section: [Transportation: Budget Cuts, Freezing Funds, Reducing Staff](https://historylistory.com/categories/transportation/budget-cuts-freezing-funds-reducing-staff)
 
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 

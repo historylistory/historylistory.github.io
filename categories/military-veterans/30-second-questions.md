@@ -35,7 +35,7 @@ SOME SOURCES
 
 * [FOX News.com article](https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -58,8 +58,8 @@ SOME SOURCES
 * GENEVA CONVENTION November 25, 2024 Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our “own rules” [The Guardian.com](https://www.theguardian.com/us-news/2024/nov/25/pete-hegseth-book-attacks-nato-alliances) or here [Wikipedia.org The War on Warriors](https://en.wikipedia.org/wiki/The_War_on_Warriors)
 
 
-### Q2 ANSWER
-
+# Answer 2 
+s
 Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 

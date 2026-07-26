@@ -39,7 +39,7 @@ SOME SOURCES
 
 * EXEC ORDER March 27 2025: Trump signed EO Restoring Truth and Sanity to American History [White House.gov](https://www.whitehouse.gov/presidential-actions/2025/03/restoring-truth-and-sanity-to-american-history/)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -78,7 +78,7 @@ SOME SOURCES
 * RACIST September 29, 2025 Sombrero video of Hakeem Jeffries [Truth Social @realDonaldTrump](https://truthsocial.com/@realDonaldTrump/posts/115290424560405640)
 
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -110,7 +110,7 @@ SOME SOURCES
 * LEGISLATION May 20, 2021 COVID-19 Hate Crimes Act [GovInfo.gov](https://www.govinfo.gov/app/details/PLAW-117publ13) or here [Congress.gov](https://www.congress.gov/bill/117th-congress/senate-bill/937)
 
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -137,7 +137,7 @@ SOME SOURCES
 * PRAISE August 16, 2017 KKK leader David Duke praised Trump’s “fair condemnation” [Times of Israel.com](https://www.timesofisrael.com/white-supremacists-praise-trumps-fair-honest-condemnation-of-both-sides-in-charlottesville/) or here [CNN.com](https://www.cnn.com/2017/08/15/politics/donald-trump-david-duke-charlottesville)
 
 
-### Q4 ANSWER
+# Answer 4 
 
 Submitted to Congress by HistoryListory: Not yet.
 

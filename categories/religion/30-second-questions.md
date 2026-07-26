@@ -39,7 +39,7 @@ SOME SOURCES
 
 * THREATS July 13, 2026: MAGA pastor Joel Webbon suggested seizing and imprisoning pastors of other faiths [Lincoln Square, YouTube](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s) Lincoln Square YouTube 
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -67,7 +67,7 @@ SOME SOURCES
 
 * SPECIAL TREATMENT May 14, 2026: Taxpayer funded stage at the National Mall [CNN.com](https://www.cnn.com/2026/05/17/politics/national-mall-prayer-event)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -91,7 +91,7 @@ SOME SOURCES
 * JAMES MADISON Rejected government funding of Christian teachers in his Memorial and Remonstrance Against Religious Assessments [Library of Congress.gov](https://www.loc.gov/loc/lcib/9808/rel-symp.html)
 
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -119,7 +119,7 @@ SOME SOURCES
 
 * THREATS July 13, 2026 MAGA Pastor Joel Webbon threatens imprisonment for pastors who don’t follow his faith [Lincoln Square on YouTube](https://www.youtube.com/watch?v=Ldjgvl6tGG4&list=WL&index=6&t=126s)
 
-### Q4 ANSWER
+# Answer 4 
 
 Submitted to Congress by HistoryListory: Not yet.
 

@@ -40,7 +40,7 @@ SOME SOURCES
 
 * THREATS March 31, 2026 Trump threatened to nationalize elections and take control of USPS [NBC News.com](https://www.nbcnews.com/politics/elections/trump-signs-executive-order-create-federal-voter-lists-rcna266092)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -74,7 +74,7 @@ SOME SOURCES
 
 * INTIMIDATION March 27, 2026 Todd Blanche asked why everyone is opposed to sending ICE to polling places [The Daily Beast.com](https://www.thedailybeast.com/top-trump-doj-goon-backs-ice-patrols-at-polling-stations/)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -110,7 +110,7 @@ SOME SOURCES
 
 * SUSPICOUS July 26, 2024 Trump told a TPUSA crowd they would only need to vote “this one time” because the votes would be “fixed”. [Yahoo.com](https://www.yahoo.com/news/trump-admits-lost-2020-leading-192730313.html)
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 

@@ -33,7 +33,7 @@ SOURCES:
 
 * CONGRESS December 30, 2019: A Congressional report that supports all the above claims can be found here: [Congress.gov R45908](https://www.congress.gov/crs-product/R45908)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: PENDING
 
@@ -63,7 +63,7 @@ SOME SOURCES
 
 * TRUMP PETULANCE June 24, 2026 Trump refused to sign the bipartisan housing bill until the SAVE act was passed [CNBC.com](https://www.cnbc.com/2026/06/24/trump-cancels-housing-bill-signing-save-america-act.html)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -107,7 +107,7 @@ SOME SOURCES
 
 * RETIREMENT July 8, 2026 Retirees are trying to return to the workforce just so they can survive [PBS.org](https://www.pbs.org/newshour/show/as-living-costs-soar-more-retirees-head-back-to-work)
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: PENDING
 

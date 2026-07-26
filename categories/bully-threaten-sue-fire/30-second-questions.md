@@ -35,7 +35,7 @@ SOME SOURCES
 
 * THREATS October 31, 2024: Trump suggested putting Liz Cheney in front of a firing squad [Politico.com](https://www.politico.com/live-updates/2024/10/31/2024-elections-live-coverage-updates-analysis/trump-rips-liz-cheney-00186693)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Yes. On July 17, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 

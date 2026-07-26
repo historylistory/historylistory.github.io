@@ -34,7 +34,7 @@ Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turn
 
 * BILLS June 1, 2021: Texas HB 3979 restricts race, slavery, Native American and current event curriculum in public school [IDRA.org PDF file](https://www.idra.org/wp-content/uploads/2021/06/What-does-HB-3979-do-IDRA-reference.pdf)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -58,7 +58,7 @@ SOME SOURCES
 * TPUSA February 10, 2026: Governor Pillen of Nebraska allowed extreme-right TPUSA indoctrination, claiming “I see it as right and wrong, God and 
 Satan” [KETV.com](https://www.ketv.com/article/nebraska-governor-launches-turning-point-usa-initiative/70306328)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -78,7 +78,7 @@ SOME SOURCES
 
 * BIBLE October 10, 2024: Oklahoma teachers noticed only the Trump bible met State requirements [AP News.com](https://apnews.com/article/oklahoma-bible-schools-trump-amend-99bec8ed6b67acd2d836913783c4fe7b)
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 

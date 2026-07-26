@@ -28,7 +28,7 @@ SOME SOURCES
 
 * GENETICS 2020 Trump told supporters “A lot of it is about genes, isn’t it, don’t you believe? The racehorse theory – you think we’re so different? You have good genes in Minnesota”. [The Hastings Center.org](https://www.thehastingscenter.org/the-alarming-history-behind-trumps-bad-genes-comments/) or check it out here [LA Times.com](https://enewspaper.latimes.com/infinity/article_share.aspx?guid=f7927a63-d5b7-4097-a9cb-0c2d910def46)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -65,7 +65,7 @@ SOME SOURCES (just the deaths that were in the news, this doesn’t even include
 * DEATH July 14, 2026 ICE killed 26-year-old man in Maine in front of his little girl. His last words were, “I tried to stop” [PBS.org](https://www.pbs.org/newshour/nation/ice-shot-and-killed-a-colombian-man-in-maine-this-is-the-2nd-time-in-a-week-the-agency-used-deadly-force)
 
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -92,7 +92,7 @@ SOME SOURCES
 
 * BODY CAMS July 14, 2026 Tom Homan blamed lack of body cams on Democrats [CNN.com](https://www.cnn.com/2026/07/14/us/body-cameras-ice-agents-shootings)
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 

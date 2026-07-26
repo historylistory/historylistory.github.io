@@ -46,7 +46,7 @@ SOME SOURCES
 
 * VULCAN ELEMENTS May 28, 2026: The White House intervened to get a $620M business deal for Donald Trump Jr. [ProPublica.org](https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -76,7 +76,7 @@ USE THIS FIRST SOURCE FIRST ^^ The remaining sources are just part of a whole ti
 
 * PAYOUT March 14, 2026 Trump (or the administration?) received a $10BN transactional payout in a deal with Larry Ellison [Mother Jones.com](https://www.motherjones.com/politics/2026/03/donald-trump-tiktok-deal-10-billion-ellison-bytedance-china/)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 

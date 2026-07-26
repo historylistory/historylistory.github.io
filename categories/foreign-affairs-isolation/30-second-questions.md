@@ -30,7 +30,7 @@ Israel’s finance minister called Gaza a “real-estate bonanza,” said the �
 
 * SETTLEMENTS April 9, 2026: Israel approved 34 new settlements in occupied West Bank [Times of Israel.com](https://www.timesofisrael.com/government-formally-approves-34-new-settlements-as-it-acts-to-deepen-hold-on-west-bank/)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 

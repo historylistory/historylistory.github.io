@@ -43,7 +43,7 @@ SOME SOURCES
 
 * BAD AI November 19, 2025: AI enabled Kumma teddy bear teaches kids to find knives and light matches [CNN.com](https://www.cnn.com/2025/11/19/tech/folotoy-kumma-ai-bear-scli-intl)
 
-### Q1 ANSWERS
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Yes, on July 16, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 
@@ -78,7 +78,7 @@ The rest of these sources are just things on my timeline which I found interesti
 * CENSORSHIP January 27, 2026 Users reported censorship of anti-Trump, ICE, and Epstein-related content. [The Guardian.com](https://www.theguardian.com/commentisfree/2026/jan/30/tiktok-us-takeover-new-type-of-censorship)
 
 
-### Q2 ANSWERS
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 

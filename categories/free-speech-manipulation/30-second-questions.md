@@ -43,7 +43,7 @@ SOME SOURCES
 
 * THREATS April 3, 2025: Several Tufts University students’ visas were revoked for protesting [Tufts Daily.com](https://www.tuftsdaily.com/article/2025/04/tufts-confirms-second-student-visa-terminated-by-federal-government) and here [Politico.com](https://www.politico.com/news/2025/03/27/marco-rubio-student-visas-palestine-00005141)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -77,7 +77,7 @@ SOME SOURCES
 
 * THREATS November 3, 2024 Trump encouraged deadly violence, “To get to me someone would have to shoot through the fake news, and I don’t mind that so much”. [Politico.com](https://www.politico.com/news/2024/11/03/donald-trump-rally-fake-news-00186979)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 

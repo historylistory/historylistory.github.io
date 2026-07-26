@@ -30,7 +30,7 @@ SOME SOURCES
 
 * MISINFORMATION February 6, 2026: RFK claimed the keto diet cures schizophrenia [Scientific American.com](https://www.scientificamerican.com/article/rfk-jr-keto-diet-can-cure-schizophrenia-heres-what-the-science-says/)
 
-### Q1 ANSWER
+# Answer 1 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -64,7 +64,7 @@ SOME SOURCES
 
 * DR OZ Selenium for cancer prevention [Washington Post.com](https://www.washingtonpost.com/politics/2022/10/03/mehmet-oz-senate-television-show)
 
-### Q2 ANSWER
+# Answer 2 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -80,7 +80,7 @@ SOME SOURCES
 
 * TOWN HALL July 7, 2026 full document, skip to timestamp 32:44 [https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208](https://www.facebook.com/watch/live/?ref=watch_permalink&v=1365642508780208)
 
-### Q3 ANSWER
+# Answer 3 
 
 Submitted to Congress by HistoryListory: Not yet.
 
@@ -108,7 +108,7 @@ SOME SOURCES
 
 
 
-### Q4 ANSWER
+# Answer 4 
 
 Submitted to Congress by HistoryListory: Not yet.
 

@@ -41,8 +41,8 @@ SIDE NOTE: Under the military’s Disability Evaluation System, medical separati
 
 * MEMO Prioritizing Military Excellence [esd.whs.mil PDF FILE](https://www.esd.whs.mil/Portals/54/Documents/FOID/Reading%20Room/Administration_and_Management/25-F-2299_Prioritizing_military_excellence_readiness.pdf)
 
-Q1 ANSWER
---
+# Answer 1 
+
 Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
@@ -66,8 +66,8 @@ SOME SOURCES
 
 * CONSEQUENCES January 10, 2022 Poll from the Trevor Project [The Trevor Project.org](https://www.thetrevorproject.org/blog/new-poll-illustrates-the-impacts-of-social-political-issues-on-lgbtq-youth/)
 
-Q2 ANSWER
---
+# Answer 2 
+
 Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
@@ -91,8 +91,8 @@ SOME SOURCES
 * BANNING TRANSGENDER January 27, 2025 Trump signed the EO again to ban transgender people from serving [TransEquality.org](https://transequality.org/resources/understanding-trumps-trans-military-ban)
 
 
-Q3 ANSWER
---
+# Answer 3 
+
 Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
