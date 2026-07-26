@@ -34,7 +34,7 @@ SOME SOURCES
 
 * HAY AND FERTILIZER April 30, 2026: Bale of hay cost $23, diesel costs rose 46% [AgWeb.com](https://www.agweb.com/news/business/health/startling-reality-rate-suicide-among-farmers-3-5-times-higher-general-population)
 
-### Q1 ANSWERS
+# Answer 1
 
 Submitted to Congress by HistoryListory: Yes, on July 16, 2026 I submitted this question to 2 Congressmen, 2 Senators, and 1 Governor
 
