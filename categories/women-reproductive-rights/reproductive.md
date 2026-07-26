@@ -299,7 +299,7 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 ### 2024 July
 
-2024-07-26 Vance doubled down on his cat lady remarks, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
+2024-07-26 Vance doubled down on his cat lady remarks, “Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
 
 [https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
 

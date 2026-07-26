@@ -152,7 +152,7 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-07-26 A news article quoted JD Vance, ”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”.
 
-2024-07-26 Vance doubled down on his cat lady remarks, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
+2024-07-26 Vance doubled down on his cat lady remarks, “Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
 
 2024-07-29 Mike Davis wrote on Twitter “We will build a special gulag for leftwing white women. The laundry ward”.
 

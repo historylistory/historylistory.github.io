@@ -43,3 +43,22 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+### Question 2 
+
+JD Vance demeans non-parents as “childless cat ladies,” Matt Gaetz told a crowd at Turning Point Action that pro-choice supporters looked like a thumb, Erika Kirk told women to have more babies than they can afford, and Benny Johnson told a crowd at CPAC to “outbreed” liberals. This rhetoric singles out non-parents and treats women like political breeding stock. Do you support this agenda, and what will you do to protect reproductive freedom and families who lack affordable childcare, work-life balance, healthcare, or adequate social programs, such as SNAP, to have children?
+
+SOME SOURCES
+
+* CAT LADIES July 29, 2021 JD Vance’s redundant “childless cat ladies” remarks made headlines. In 2024 he doubled down on his cat lady remarks, “Obviously, it was a sarcastic comment. I’ve got nothing against cats”. [CNBC.com](https://www.cnbc.com/2024/07/26/trump-running-mate-jd-vance-defends-childless-cat-ladies.html)
+
+* MATT GAETZ July 28, 2022 Matt Gaetz mocked abortion-rights supporters at Turning Point Action, saying, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”. [www.MS.now](https://www.ms.now/rachel-maddow-show/maddowblog/matt-gaetz-ugly-rhetoric-women-abortion-matters-rcna39865)
+
+* BREEDING STOCK July 30, 2025 Christian nationalist pastors and influencers pushed pronatalism, telling women to “have as many babies as you can afford”. As Doug Wilson said, “Women are the kind of people that people come out of”. [MSN.com](https://www.msn.com/en-us/news/us/wife-of-trump-official-sparks-backlash-with-have-more-babies-than-you-can-afford-post/ar-AA1N5uoe)
+
+* OUT BREED LIBS March 26, 2026 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. [Mediaite.com](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
+
+* BREEEDING STOCK May 10, 2026 Erika Kirk and her friends kept pushing “have more babies than you can afford”. [Rolling Stone.com](https://www.rollingstone.com/politics/politics-features/erika-kirk-christian-women-tpusa-1235576963/)
+
+* NO VOTES FOR YOU July 24, 2021 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote. [CA.News.Yahoo.com](https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html)
+

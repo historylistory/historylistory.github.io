@@ -129,7 +129,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2024-06-11 A national poll showed that 4-out-of-5 Americans support protection to contraception access.
 
-2024-07-26 Vance doubled down on his cat lady remarks, ““Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
+2024-07-26 Vance doubled down on his cat lady remarks, “Obviously, it was a sarcastic comment. I’ve got nothing against cats”.
 
 2024-07-26 A news article quoted JD Vance, ”…the rejection of the American family…is perhaps the most pernicious and evil thing the left has done…”.
 
