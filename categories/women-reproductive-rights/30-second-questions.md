@@ -38,7 +38,7 @@ SOME SOURCES
 
 # Answer 1 
 
-Submitted to Congress by HistoryListory: Yes, on July 25 2026 I submitted this question to 2 Senators, 2 Congressmen, and 1 Governor.
+Submitted to Congress by HistoryListory: Yes, on July 25, 2026 I submitted this question to 2 Senators, 2 Congressmen, and 1 Governor.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
@@ -64,6 +64,6 @@ SOME SOURCES
 
 # Answer 2
 
-Submitted to Congress by HistoryListory: Yes, I submitted this to 2 Senators, 2 Congressmen and 1 Governor.
+Submitted to Congress by HistoryListory: Yes, I submitted this to 2 Senators, 2 Congressmen and 1 Governor on July 25, 2026.
 
 Response received? Not yet.
