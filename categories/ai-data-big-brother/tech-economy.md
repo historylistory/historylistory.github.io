@@ -56,12 +56,8 @@ permalink: /categories/ai-data-big-brother/tech-economy/
 [https://x.com/NathanJRobinson/status/1787176314023092727](https://x.com/NathanJRobinson/status/1787176314023092727)
 
 
-### 2025 January
 
 ### 2025 January STARGATE
-
-
-
 
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
 
@@ -236,6 +232,15 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html](https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html)
 
 [https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html](https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html)
+
+
+2026-07-10 The US granted the UAE expanded access to AI chips. 
+
+[https://www.jpost.com/international/article-902621](https://www.jpost.com/international/article-902621)
+
+[https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/](https://www.reuters.com/world/middle-east/us-makes-it-easier-export-certain-military-items-ai-chips-commercial-satellites-2026-07-10/)
+
+SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77)
 
 2026-07-13 Apple sued OpenAI over alleged trade secret theft. 
 
