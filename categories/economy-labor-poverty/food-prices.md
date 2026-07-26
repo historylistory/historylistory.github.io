@@ -174,3 +174,13 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026](https://gov.texas.gov/news/post/governor-abbott-issues-new-world-screwworm-disaster-proclamation-in-june-2026)
 
 [https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states](https://www.aphis.usda.gov/news/agency-announcements/usda-confirms-presence-new-world-screwworm-united-states)
+
+### 2026 July
+
+2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
+
+[https://www.youtube.com/watch?v=xPtBKrT63Gs&list=WL&index=3](https://www.youtube.com/watch?v=xPtBKrT63Gs&list=WL&index=3)
+
+[https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7](https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7)
+
+[https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/](https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/)

@@ -456,3 +456,18 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html](https://www.cnbc.com/2026/07/06/microsoft-cuts-2point1percent-of-employees-as-xbox-unit-plans-to-spin-studios.html)
 
 [https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html](https://finance.yahoo.com/technology/article/microsofts-xbox-cuts-3200-jobs-says-we-lost-64-cents-for-every-dollar-we-invested-145525525.html)
+
+2026-07-25 The Trump administration announced the Bureau of Economic Analysis will be rolling out a new methodology for the Personal Consumer Expenditures Numbers, with the new calculation expected to drop the inflation rate by a quarter percent ahead of mid-terms. 
+
+[https://www.bea.gov/information-updates-national-regional-economic-accounts](https://www.bea.gov/information-updates-national-regional-economic-accounts)
+
+[https://www.aljazeera.com/news/2025/11/21/us-government-to-nix-october-inflation-report-after-history-making-shutdown](https://www.aljazeera.com/news/2025/11/21/us-government-to-nix-october-inflation-report-after-history-making-shutdown)
+
+[https://www.aarp.org/social-security/early-look-cola-increase-2026/](https://www.aarp.org/social-security/early-look-cola-increase-2026/)
+
+[https://401kspecialistmag.com/cola/](https://401kspecialistmag.com/cola/)
+
+[https://www.youtube.com/watch?v=IpOXruRCqp4&list=WL&index=4](https://www.youtube.com/watch?v=IpOXruRCqp4&list=WL&index=4)
+
+INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-low-as-democrat-shutdown-threatens-progress/](https://www.whitehouse.gov/releases/2025/10/inflation-remains-low-as-democrat-shutdown-threatens-progress/)
+

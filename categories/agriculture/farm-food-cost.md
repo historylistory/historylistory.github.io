@@ -124,3 +124,11 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
 
 [https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion](https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion)
+
+2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
+
+[https://www.youtube.com/watch?v=xPtBKrT63Gs&list=WL&index=3](https://www.youtube.com/watch?v=xPtBKrT63Gs&list=WL&index=3)
+
+[https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7](https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7)
+
+[https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/](https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/)

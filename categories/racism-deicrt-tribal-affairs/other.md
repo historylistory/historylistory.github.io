@@ -128,3 +128,10 @@ permalink: /categories/racism-deicrt-tribal-affairs/other/
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
 
 [https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/](https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/)
+
+2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
+
+[https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496](https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496)
+
+[https://loxandloaded.org/](https://loxandloaded.org/)
+

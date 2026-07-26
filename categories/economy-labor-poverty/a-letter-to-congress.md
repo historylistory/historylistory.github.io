@@ -970,3 +970,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
 
 2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 
+
+2026-07-25 The Trump administration announced the Bureau of Economic Analysis will be rolling out a new methodology for the Personal Consumer Expenditures Numbers, with the new calculation expected to drop the inflation rate by a quarter percent ahead of mid-terms. 
+
+2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 

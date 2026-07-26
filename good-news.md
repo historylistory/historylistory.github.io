@@ -292,3 +292,12 @@ PAY WALL [https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-si
 [https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5](https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5)
 
 SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html](https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html)
+
+2026-07-25 An appeals court ruled that Trump cannot enforce mail-in voting restrictions on 23 states. 
+
+[https://www.cnbc.com/2026/07/25/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order.html](https://www.cnbc.com/2026/07/25/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order.html)
+
+[https://www.reuters.com/world/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order-2026-07-25/](https://www.reuters.com/world/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order-2026-07-25/)
+
+[https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2](https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2)
+

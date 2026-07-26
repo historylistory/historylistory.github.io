@@ -403,3 +403,9 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853](https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853)
 
 [https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)
+
+2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
+
+[https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496](https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496)
+
+[https://loxandloaded.org/](https://loxandloaded.org/)

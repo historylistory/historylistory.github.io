@@ -638,3 +638,4 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-22 One of Jeffrey Epstein’s French professional model recruiters was found dead at his home in Paris. 
 
 2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 
+

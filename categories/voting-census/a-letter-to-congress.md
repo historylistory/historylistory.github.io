@@ -400,3 +400,6 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-07-24 The GOP called for a full audit of Rhode Island voter rolls after what happened in New Jersey. 
 
 2026-07-24 Iowa Democrats lost their first-in-the-nation caucus status after 54 years. 
+
+
+2026-07-25 An appeals court ruled that Trump cannot enforce mail-in voting restrictions on 23 states. 

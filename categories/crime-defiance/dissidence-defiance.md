@@ -541,3 +541,5 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt](https://www.piie.com/blogs/realtime-economics/2026/what-supreme-courts-tariff-ruling-changes-and-what-it-doesnt)
 
 [https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/](https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/)
+
+

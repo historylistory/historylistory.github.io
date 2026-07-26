@@ -242,3 +242,8 @@ PAY WALL [https://www.nytimes.com/2022/05/25/world/europe/gun-laws-australia-bri
 
 [https://www.nbcnews.com/politics/justice-department/justice-department-moves-roll-back-gun-regulations-rcna342825](https://www.nbcnews.com/politics/justice-department/justice-department-moves-roll-back-gun-regulations-rcna342825)
 
+2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
+
+[https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496](https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496)
+
+[https://loxandloaded.org/](https://loxandloaded.org/)

@@ -216,3 +216,8 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 
 [https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd](https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd)
 
+2026-07-24 Trump demanded Saudi join the Abraham Accords or he won’t proceed with the nuclear deal. 
+
+[https://www.foxnews.com/politics/trump-says-saudi-nuclear-agreement-wont-move-forward-without-abraham-accords-they-have-to-be-member](https://www.foxnews.com/politics/trump-says-saudi-nuclear-agreement-wont-move-forward-without-abraham-accords-they-have-to-be-member)
+
+[https://www.reuters.com/world/middle-east/trump-says-he-wont-proceed-with-nuclear-deal-unless-saudis-join-abraham-accords-2026-07-24/](https://www.reuters.com/world/middle-east/trump-says-he-wont-proceed-with-nuclear-deal-unless-saudis-join-abraham-accords-2026-07-24/)

@@ -414,3 +414,12 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://turnto10.com/politics/republicans-want-audit-rhode-island-voter-rolls-following-new-jersey-mistake-division-motor-vehicles-idemia-july-24-2026](https://turnto10.com/politics/republicans-want-audit-rhode-island-voter-rolls-following-new-jersey-mistake-division-motor-vehicles-idemia-july-24-2026)
 
+2026-07-25 An appeals court ruled that Trump cannot enforce mail-in voting restrictions on 23 states. 
+
+[https://www.cnbc.com/2026/07/25/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order.html](https://www.cnbc.com/2026/07/25/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order.html)
+
+[https://www.reuters.com/world/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order-2026-07-25/](https://www.reuters.com/world/us-appeals-court-rules-trump-cannot-implement-mail-in-voting-order-2026-07-25/)
+
+[https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2](https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2)
+
+
