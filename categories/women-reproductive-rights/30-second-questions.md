@@ -62,6 +62,11 @@ SOME SOURCES
 
 * NO VOTES FOR YOU July 24, 2021 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote. [CA.News.Yahoo.com](https://ca.news.yahoo.com/jesse-watters-goes-rant-sexist-133356237.html)
 
+* UNDER BABIED May 12, 2026 Dr. Oz said 30% of American women are “under-babied”, saying “You have to get moms healthy enough to do the most creative thing the universe knows, which is making babies”. [People.com](https://people.com/dr-oz-says-americans-under-babied-11972922)
+
+* MAMA January 3, 2017 News stories circulated around, “Make America Mate Again” [Bloomberg.com](https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mate-again)
+
+
 # Answer 2
 
 Submitted to Congress by HistoryListory: Yes, I submitted this to 2 Senators, 2 Congressmen and 1 Governor on July 25, 2026.
