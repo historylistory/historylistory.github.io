@@ -319,6 +319,12 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 
 [https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
 
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
+
+[https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/](https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/)
+
+[https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820](https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820)
+
 2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
 
 [https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion](https://www.democracynow.org/2026/7/24/headlines/iran_war_sends_diesel_prices_soaring_costing_us_farmers_additional_14_billion)

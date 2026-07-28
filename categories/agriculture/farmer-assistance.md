@@ -101,3 +101,9 @@ SUB WALL [https://www.nytimes.com/2026/06/05/us/politics/trump-wisconsin-farmers
 [https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill](https://www.theguardian.com/us-news/2026/jul/22/iran-war-funding-bill)
 
 [https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/](https://federalnewsnetwork.com/congress/2026/07/house-republicans-unveil-95-billion-plan-for-the-iran-war-farm-aid-and-elections/)
+
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
+
+[https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/](https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/)
+
+[https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820](https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820)

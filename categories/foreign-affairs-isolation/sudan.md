@@ -57,3 +57,13 @@ TIMESTAMP 10:12 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=6
 [https://news.un.org/en/story/2026/06/1167792](https://news.un.org/en/story/2026/06/1167792)
 
 [https://www.ohchr.org/en/press-releases/2026/06/un-report-documents-widespread-and-brutal-use-sexual-violence-sudan](https://www.ohchr.org/en/press-releases/2026/06/un-report-documents-widespread-and-brutal-use-sexual-violence-sudan)
+
+### 2026 July
+
+2026-07-27 Sudan faced intensifying attacks, starvation and genocide. 
+
+[https://www.aljazeera.com/where/sudan/](https://www.aljazeera.com/where/sudan/)
+
+[https://www.rescue.org/article/crisis-sudan-what-happening-and-how-help](https://www.rescue.org/article/crisis-sudan-what-happening-and-how-help)
+
+[https://www.uscirf.gov/publications/sudan-issue-update](https://www.uscirf.gov/publications/sudan-issue-update)

@@ -108,6 +108,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-01-23 Trump signed the executive order “Removing Barriers to American Leadership in Artificial Intelligence.”
 
+2025-01-25 Trump handed four big tech giants massive tax breaks. 
+
 2025-02-01 DOGE received extensive access to payroll systems and government code.
 
 2025-02-02 Office of Personnel Management employees were locked out of their computer systems.

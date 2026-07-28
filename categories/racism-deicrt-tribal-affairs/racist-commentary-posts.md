@@ -656,3 +656,13 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html](https://www.phillytrib.com/commentary/kalshis-segregation-market-turns-black-suffering-into-a-betting-line/article_887fcdb3-4a3e-4961-bfde-b6347db31d17.html)
 
 [https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/](https://timesnews.net/news/382161/kalshi-draws-backlash-over-jackie-robinson-prediction-market-ad/)
+
+2026-07-15 Conservatives objected to The Odyssey for casting non-white members as major characters. 
+
+[https://www.salon.com/2026/07/21/the-real-reason-conservatives-hate-nolans-odyssey/](https://www.salon.com/2026/07/21/the-real-reason-conservatives-hate-nolans-odyssey/)
+
+[https://www.vanityfair.com/story/the-odyssey-christopher-nolan-right-wing-backlash](https://www.vanityfair.com/story/the-odyssey-christopher-nolan-right-wing-backlash)
+
+[https://www.thedailybeast.com/obsessed/the-odyssey-lays-bare-the-stupidity-of-magas-uproar/](https://www.thedailybeast.com/obsessed/the-odyssey-lays-bare-the-stupidity-of-magas-uproar/)
+
+[https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1](https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1)

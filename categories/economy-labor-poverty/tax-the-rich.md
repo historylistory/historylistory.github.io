@@ -76,6 +76,19 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 [https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/](https://fortune.com/2024/01/13/how-rich-wealthy-stock-market-investors-inequality-day-traders-record-high/)
 
+### 2025 January
+
+2025-01-25 Trump handed four big tech giants massive tax breaks. 
+
+[https://itep.org/trump-meta-tesla-alphabet-amazon-obbba-taxes/](https://itep.org/trump-meta-tesla-alphabet-amazon-obbba-taxes/)
+
+[https://www.geekwire.com/2025/big-beautiful-tax-benefit-amazon-and-other-tech-giants-reap-the-rewards-of-new-law-for-now/](https://www.geekwire.com/2025/big-beautiful-tax-benefit-amazon-and-other-tech-giants-reap-the-rewards-of-new-law-for-now/)
+
+[https://finance.yahoo.com/news/amazons-tax-bill-plunges-gop-182806826.html](https://finance.yahoo.com/news/amazons-tax-bill-plunges-gop-182806826.html)
+
+[https://www.uscirf.gov/publications/sudan-issue-update](https://www.uscirf.gov/publications/sudan-issue-update)
+
+[https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1](https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1)
 
 ### 2026 April
 

@@ -215,3 +215,9 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 [https://www.yahoo.com/news/politics/articles/iowa-dems-lose-first-caucus-021712976.html](https://www.yahoo.com/news/politics/articles/iowa-dems-lose-first-caucus-021712976.html)
 
+2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
+
+[https://www.nbcnews.com/politics/trump-administration/trump-administration-concedes-canceled-research-grants-blue-states-rcna589129](https://www.nbcnews.com/politics/trump-administration/trump-administration-concedes-canceled-research-grants-blue-states-rcna589129)
+
+[https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states](https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states)
+

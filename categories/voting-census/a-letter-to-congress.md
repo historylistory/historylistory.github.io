@@ -396,10 +396,12 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-07-21 New Jersey Governor said more than 6600 non-citizens were accidentally registered to vote after a software glitch. Fewer than 400 actually ended up voting.
 
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
 
 2026-07-24 The GOP called for a full audit of Rhode Island voter rolls after what happened in New Jersey. 
 
 2026-07-24 Iowa Democrats lost their first-in-the-nation caucus status after 54 years. 
 
+2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
 
 2026-07-25 An appeals court ruled that Trump cannot enforce mail-in voting restrictions on 23 states. 

@@ -1985,3 +1985,23 @@ MOST WELL PUT VIDEO ABOUT THIS [https://www.youtube.com/watch?v=Nhsebyx7btk&list
 [https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran](https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran)
 
 SUB WALL [https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html](https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html)
+
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
+
+[https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/](https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/)
+
+[https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820](https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820)
+
+2026-07-27 The US paused bombing Iran for a third night amidst a dwindling stockpile. 
+
+[https://www.democracynow.org/2026/7/27/headlines/us_pauses_bombing_iran_after_officials_warn_trump_about_dwindling_munitions_stockpiles](https://www.democracynow.org/2026/7/27/headlines/us_pauses_bombing_iran_after_officials_warn_trump_about_dwindling_munitions_stockpiles)
+
+[https://www.cnbc.com/2026/07/27/us-iran-war-trump-hormuz.html](https://www.cnbc.com/2026/07/27/us-iran-war-trump-hormuz.html)
+
+2026-07-27 In an update to the four soldiers the administration removed from the casualty list, they moved the names to a separate generic list labeled “overseas operations casualties”. This came a day after they claimed the removal was due to a glitch in the database.
+
+CLAIMED GLITCH [https://www.cbsnews.com/news/pentagon-website-4-iran-war-killed-names/](https://www.cbsnews.com/news/pentagon-website-4-iran-war-killed-names/)
+
+CLAIMED GLITCH [https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/](https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/)
+
+GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/](https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/)

@@ -139,6 +139,8 @@ Congress must restore agricultural and conservation funding, protect independent
 
 2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
 
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
+
 2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
 
 2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 

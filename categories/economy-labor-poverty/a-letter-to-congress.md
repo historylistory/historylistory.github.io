@@ -221,6 +221,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-01-20 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade.
 
+2025-01-25 Trump handed four big tech giants massive tax breaks. 
+
 2025-02-05 Global economic growth reached its lowest level since the pandemic.
 
 2025-02-06 Egg prices soared due to bird flu. When farmers rebuilt flocks and replaced sick birds, Trump took the credit. 
@@ -962,6 +964,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-21 Hegseth wants $70B more for the war in Iran after already spending roughly $37B.
 
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
+
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
 
 2026-07-24 Landlords in New York are suing to overturn Mamdani’s rent freeze on apartments. 
 

@@ -638,3 +638,9 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting](https://www.aljazeera.com/video/newsfeed/2026/7/22/war-on-iran-hegseth-wants-70b-more-to-keep-fighting)
 
 [https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces](https://www.military.com/hegseth-says-not-giving-dod-15-trillion-funding-greatest-threat-us-faces)
+
+2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
+
+[https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/](https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/)
+
+[https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820](https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820)

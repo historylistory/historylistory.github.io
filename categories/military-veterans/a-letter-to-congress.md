@@ -344,3 +344,6 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-07-22 Trump attended a dignified transfer of four fallen soldiers. At the transfer he stated, “All of them said very strongly that we can’t let Iran have a nuclear weapon.” After the transfer he removed their names from the casualty roster. 
 
 2026-07-23 Charlie Kirk signs were removed from Vietnam Veterans Boulevard after pushback from veterans. 
+
+
+2026-07-27 In an update to the four soldiers the administration removed from the casualty list, they moved the names to a separate generic list labeled “overseas operations casualties”. This came a day after they claimed the removal was due to a glitch in the database.

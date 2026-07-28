@@ -254,3 +254,12 @@ MOST WELL PUT VIDEO ABOUT THIS [https://www.youtube.com/watch?v=Nhsebyx7btk&list
 [https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran](https://www.theguardian.com/us-news/2026/jul/23/pentagon-service-members-killed-iran)
 
 SUB WALL [https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html](https://www.nytimes.com/2026/07/22/us/politics/trump-dignified-transfer-soldiers-iran-war.html)
+
+
+2026-07-27 In an update to the four soldiers the administration removed from the casualty list, they moved the names to a separate generic list labeled “overseas operations casualties”. This came a day after they claimed the removal was due to a glitch in the database.
+
+CLAIMED GLITCH [https://www.cbsnews.com/news/pentagon-website-4-iran-war-killed-names/](https://www.cbsnews.com/news/pentagon-website-4-iran-war-killed-names/)
+
+CLAIMED GLITCH [https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/](https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/)
+
+GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/](https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/)
