@@ -356,3 +356,12 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 
 PAY WALL [https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html](https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-venezuela.html)
 
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
+[https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed](https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed)
+
+[https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/](https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/)
+
+[https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/](https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/)
+
+[https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)

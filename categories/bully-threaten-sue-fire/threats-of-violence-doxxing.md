@@ -326,3 +326,13 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
 
 [https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
+[https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed](https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed)
+
+[https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/](https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/)
+
+[https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/](https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/)
+
+[https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)

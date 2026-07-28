@@ -417,3 +417,29 @@ TIMESTAMP 1:00 [https://www.youtube.com/watch?v=8hR8JDWzrkI&list=WL&index=2&t=9s
 
 [https://www.nbcnews.com/world/middle-east/two-us-service-members-killed-jordan-another-missing-centom-says-rcna588181](https://www.nbcnews.com/world/middle-east/two-us-service-members-killed-jordan-another-missing-centom-says-rcna588181)
 
+
+2026-07-27 Newly released footage of Lindsey Graham cheering on the war in Iran, stating, “Look what we’ve done here! I almost cried. I mean, like, how long have we been pushing this?” Someone else said, “Well, I mean you’ve been pushing this for years, right?”. Graham responded, “Right! (laughs) it’s here! I thought it was the toughest one! Well, he’s jacked! It’s the best thing I’ve ever done! He loves…he loves blowing stuff up! So, you know, there are a lot of people inside didn’t want to do it. So, I’ve had my challenges”. 
+
+TIMESTAMP 3:37 [https://www.youtube.com/watch?v=1DoRWxUsI1A&list=WL&index=4](https://www.youtube.com/watch?v=1DoRWxUsI1A&list=WL&index=4)
+
+[https://www.aljazeera.com/news/2026/7/28/lindsey-graham-almost-cried-tears-of-joy-over-war-on-iran-footage-shows](https://www.aljazeera.com/news/2026/7/28/lindsey-graham-almost-cried-tears-of-joy-over-war-on-iran-footage-shows)
+
+[https://www.aljazeera.com/video/newsfeed/2026/7/27/unreleased-footage-reveals-lindsey-grahams-push-for-war-on-iran](https://www.aljazeera.com/video/newsfeed/2026/7/27/unreleased-footage-reveals-lindsey-grahams-push-for-war-on-iran)
+
+[https://newrepublic.com/post/213550/lindsey-graham-giggles-iran-strikes-new-video](https://newrepublic.com/post/213550/lindsey-graham-giggles-iran-strikes-new-video)
+
+[https://www.wsj.com/video/unreleased-footage-shows-lindsey-graham-cheering-us-strikes-on-iran/C5EAF92C-58A9-4A82-9567-811868BAA1EE](https://www.wsj.com/video/unreleased-footage-shows-lindsey-graham-cheering-us-strikes-on-iran/C5EAF92C-58A9-4A82-9567-811868BAA1EE)
+
+[https://www.yahoo.com/news/politics/articles/trump-says-lindsey-graham-liked-132647194.html](https://www.yahoo.com/news/politics/articles/trump-says-lindsey-graham-liked-132647194.html)
+
+[https://www.commondreams.org/news/lindsey-graham-iran-war-documentary](https://www.commondreams.org/news/lindsey-graham-iran-war-documentary)
+
+[https://www.zerohedge.com/geopolitical/i-almost-cried-documentary-video-trove-shows-lindsey-grahams-joy-start-iran-war](https://www.zerohedge.com/geopolitical/i-almost-cried-documentary-video-trove-shows-lindsey-grahams-joy-start-iran-war)
+
+[https://www.ibtimes.co.uk/lindsey-graham-war-revelations-1810820](https://www.ibtimes.co.uk/lindsey-graham-war-revelations-1810820)
+
+[https://www.usmagazine.com/celebrity-news/news/lindsey-graham-called-iran-war-best-thing-ive-ever-done/](https://www.usmagazine.com/celebrity-news/news/lindsey-graham-called-iran-war-best-thing-ive-ever-done/)
+
+VIDEO WAS TAKEN DOWN 5 HOURS LATER: [https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html](https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html)
+
+PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary](https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary)

@@ -681,3 +681,12 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
 
 [https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor)
+
+2026-07-28 Mayor Mamdani proposed plans to create city-owned grocery stores to help lower grocery costs on staple items like meat, pasta, produce, seafood, bread, yogurt, rice and beans. 
+
+[https://www.youtube.com/watch?v=S7W0kHqCgTk&list=WL&index=2](https://www.youtube.com/watch?v=S7W0kHqCgTk&list=WL&index=2)
+
+[https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-](https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-)
+
+[https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325](https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325)
+

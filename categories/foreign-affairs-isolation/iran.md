@@ -2005,3 +2005,17 @@ CLAIMED GLITCH [https://www.cbsnews.com/news/pentagon-website-4-iran-war-killed-
 CLAIMED GLITCH [https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/](https://www.usatoday.com/story/news/politics/2026/07/24/pentagon-missing-casualties-data-iran-war/91035264007/)
 
 GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/](https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/)
+
+2026-07-27 The Ukraine struck an Iranian ship. The Iranian foreign minister stated the strike “cannot go unanswered”. 
+
+[https://www.youtube.com/watch?v=ob5UxJNCUvA&list=WL&index=5&t=181s](https://www.youtube.com/watch?v=ob5UxJNCUvA&list=WL&index=5&t=181s)
+
+[https://www.bbc.com/news/articles/cwyj7yl0xndo](https://www.bbc.com/news/articles/cwyj7yl0xndo)
+
+[https://www.aljazeera.com/news/2026/7/27/iran-warns-ukraine-of-retaliation-after-deadly-caspian-sea-strike](https://www.aljazeera.com/news/2026/7/27/iran-warns-ukraine-of-retaliation-after-deadly-caspian-sea-strike)
+
+[https://www.cnbc.com/2026/07/28/trump-zelenskyy-ukraine-russia-iran-war.html](https://www.cnbc.com/2026/07/28/trump-zelenskyy-ukraine-russia-iran-war.html)
+
+HISTORY [https://www.lowyinstitute.org/the-interpreter/what-iran-conflict-means-russia](https://www.lowyinstitute.org/the-interpreter/what-iran-conflict-means-russia)
+
+IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruchiv-mzs-vidreaguvati-na-fakti-vikor-77965](https://www.president.gov.ua/en/news/volodimir-zelenskij-doruchiv-mzs-vidreaguvati-na-fakti-vikor-77965)

@@ -289,6 +289,10 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-13 The Trump administration vowed to disable the International Criminal Court. 
 
+2026-07-15 Netanyahu was booed and heckled out of Parliament as people shouted “shame”. 
+
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
 2026-07-16 Stephen Miller told a Washington DC conference that leftists were driven by “envy and hatred” and accused the left of partisan political violence. Marco Rubio claimed at the conference left-wing violence has been ignored. During the international summit Miller and Rubio “formally” recognized “left-wing violence” and referenced the NSPM-7 directive to label leftists as terrorists. 
 
 2026-07-20 Mamdani said Netanyahu should be arrested when he visits New York this fall for the UN General Assembly. 
@@ -296,3 +300,6 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-07-22 Mamdani urged an ICC arrest warrant on Netanyahu but made it very clear that he does not have authority to arrest him as the Mayor.
 
 2026-07-23 Netanyahu backed the GOP to end US military aid, but in the agreement they included a 5-page piece of legislation within HR 8800 Section 224 entitled, “United States-Israel Defense Technology Cooperation Initiative”. This bill includes “facilitating the transition of technologies”, “establishing frameworks”, and “promoting joint training exercises”. This integrates the United States military into the Israeli military. 
+
+
+2026-07-27 Newly released footage of Lindsey Graham cheering on the war in Iran, stating, “Look what we’ve done here! I almost cried. I mean, like, how long have we been pushing this?” Someone else said, “Well, I mean you’ve been pushing this for years, right?”. Graham responded, “Right! (laughs) it’s here! I thought it was the toughest one! Well, he’s jacked! It’s the best thing I’ve ever done! He loves…he loves blowing stuff up! So, you know, there are a lot of people inside didn’t want to do it. So, I’ve had my challenges”. 

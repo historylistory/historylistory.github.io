@@ -597,6 +597,8 @@ Manhattan grand jury in the hush-money case.
 
 2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
 
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
 2026-07-16 Trump fired new US attorney Roger Rogoff in Seattle just hours after he was appointed. 
 
 

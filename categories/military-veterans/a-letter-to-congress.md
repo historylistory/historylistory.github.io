@@ -337,6 +337,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
 
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
 2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
 
 2026-07-18 Two soldiers died and one is missing in Jordan. 
@@ -347,3 +349,6 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 
 2026-07-27 In an update to the four soldiers the administration removed from the casualty list, they moved the names to a separate generic list labeled “overseas operations casualties”. This came a day after they claimed the removal was due to a glitch in the database.
+
+
+2026-07-27 Newly released footage of Lindsey Graham cheering on the war in Iran, stating, “Look what we’ve done here! I almost cried. I mean, like, how long have we been pushing this?” Someone else said, “Well, I mean you’ve been pushing this for years, right?”. Graham responded, “Right! (laughs) it’s here! I thought it was the toughest one! Well, he’s jacked! It’s the best thing I’ve ever done! He loves…he loves blowing stuff up! So, you know, there are a lot of people inside didn’t want to do it. So, I’ve had my challenges”. 

@@ -393,6 +393,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-24 Instagram banned users who make creepy content with Meta glasses. 
 
+2026-07-27 Anthropic became the third AI company whose chatbot conversations with users became accessible in Google search results in 2025. In 2026 the problem continued with Claude. 
 
 
 

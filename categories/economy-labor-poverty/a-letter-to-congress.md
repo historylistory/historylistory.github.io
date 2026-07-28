@@ -978,3 +978,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-25 The Trump administration announced the Bureau of Economic Analysis will be rolling out a new methodology for the Personal Consumer Expenditures Numbers, with the new calculation expected to drop the inflation rate by a quarter percent ahead of mid-terms. 
 
 2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
+
+2026-07-28 Mayor Mamdani proposed plans to create city-owned grocery stores to help lower grocery costs on staple items like meat, pasta, produce, seafood, bread, yogurt, rice and beans. 

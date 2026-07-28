@@ -259,3 +259,13 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 [https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383](https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383)
 
 [https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth](https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth)
+
+2026-07-15 Prosecutor Alexandra Bravo and her sister were murdered by a hitman in Manta. At the time of her murder, she was investigating US strikes on 3 Ecuadorian boats in which 36 passengers survived. The survivors had reported they were abducted then tortured by American gunmen aboard a US flagged patrol ship. 
+
+[https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed](https://www.hrw.org/news/2026/06/16/ecuador-prosecutor-shot-and-killed)
+
+[https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/](https://www.amnesty.org/en/latest/news/2026/07/ecuador-estados-unidos-debe-investigarse-el-papel-de-estados-unidos-en-el-ataque-contra-una-embarcacion-ecuatoriana/)
+
+[https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/](https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/)
+
+[https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)

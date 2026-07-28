@@ -451,3 +451,8 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
 
+2026-07-28 Trump hosted Netanyahu at the White House.
+
+[https://www.theguardian.com/us-news/2026/jul/28/trump-netanyahu-zelenskyy-meetings](https://www.theguardian.com/us-news/2026/jul/28/trump-netanyahu-zelenskyy-meetings)
+
+[https://www.cnn.com/2026/07/28/world/live-news/iran-trump-news](https://www.cnn.com/2026/07/28/world/live-news/iran-trump-news)

@@ -301,3 +301,10 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2](https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2)
 
+2026-07-28 Mayor Mamdani proposed plans to create city-owned grocery stores to help lower grocery costs on staple items like meat, pasta, produce, seafood, bread, yogurt, rice and beans. 
+
+[https://www.youtube.com/watch?v=S7W0kHqCgTk&list=WL&index=2](https://www.youtube.com/watch?v=S7W0kHqCgTk&list=WL&index=2)
+
+[https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-](https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-)
+
+[https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325](https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325)

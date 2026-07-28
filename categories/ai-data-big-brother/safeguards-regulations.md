@@ -171,3 +171,15 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.cnbc.com/2026/07/24/nvidia-microsoft-meta-open-weight-ai-models.html](https://www.cnbc.com/2026/07/24/nvidia-microsoft-meta-open-weight-ai-models.html)
 
 TIMESTAMP 5:00 [https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1](https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1)
+
+2026-07-27 Anthropic became the third AI company whose chatbot conversations with users became accessible in Google search results in 2025. In 2026 the problem continued with Claude. 
+
+[https://fortune.com/2026/07/27/a-trove-of-users-seemingly-private-conversations-with-anthropics-claude-ai-chatbot-showed-up-in-google-search-results/](https://fortune.com/2026/07/27/a-trove-of-users-seemingly-private-conversations-with-anthropics-claude-ai-chatbot-showed-up-in-google-search-results/)
+
+[https://www.pcmag.com/news/claude-chats-popped-up-in-google-search-results-see-if-yours-are-public](https://www.pcmag.com/news/claude-chats-popped-up-in-google-search-results-see-if-yours-are-public)
+
+[https://www.bbc.com/news/articles/cly5qgjk5ywo](https://www.bbc.com/news/articles/cly5qgjk5ywo)
+
+[https://www.axios.com/2026/07/27/anthropic-claude-public-chats-google-search](https://www.axios.com/2026/07/27/anthropic-claude-public-chats-google-search)
+
+[https://www.youtube.com/watch?v=EUPXgeRVP9g&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=EUPXgeRVP9g&list=WL&index=1&t=69s)
