@@ -300,3 +300,16 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/](https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/)
 
+2026-07-28 Tornadoes tore through Wisconsin.
+
+[https://www.nbcnews.com/weather/tornadoes/wisconsin-tornado-causes-extensive-damage-cuts-power-thousands-homes-rcna589572](https://www.nbcnews.com/weather/tornadoes/wisconsin-tornado-causes-extensive-damage-cuts-power-thousands-homes-rcna589572)
+
+[https://www.youtube.com/watch?v=LE_bw3uR4HY&list=WL&index=3](https://www.youtube.com/watch?v=LE_bw3uR4HY&list=WL&index=3)
+
+2026-07-28 A powerful 7.1 earthquake and tsunami warning shook Japan.
+
+[https://apnews.com/article/japan-earthquake-tsunami-09e6f40acbcc96053946c9c104e7a242](https://apnews.com/article/japan-earthquake-tsunami-09e6f40acbcc96053946c9c104e7a242)
+
+[https://www.aljazeera.com/news/2026/7/28/magnitude-7-1-earthquake-shakes-southern-japan-tsunami-warning-issued](https://www.aljazeera.com/news/2026/7/28/magnitude-7-1-earthquake-shakes-southern-japan-tsunami-warning-issued)
+
+[https://www.youtube.com/watch?v=XPDoHnGLSNU&list=WL&index=1](https://www.youtube.com/watch?v=XPDoHnGLSNU&list=WL&index=1)

@@ -133,14 +133,26 @@ Congress must restore agricultural and conservation funding, protect independent
 
 2026-07-10 Texas Ag Commissioner Sid Miller called for a special center to address AI data centers taking over Texas farmland.
 
+2026-07-10 The US had a cyclospora outbreak. 
+
 2026-07-13 The USDA provided an inaccurate report overreporting beef sales by 90%. After they were caught, they reissued a new report, blaming the original report numbers on staffing shortages. 
 
 2026-07-15 The House passed a bill to make Daylight Savings Time permanent. 
 
 2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
 
+2026-07-17 We were reminded that the slow progression to find the source of cyclosporiasis was largely due to Trump’s cuts to the CDC budget and staff. 
+
+2026-07-20 The FDA said the parasite cyclospora was linked to Taylor Farms, then said it was a false positive.
+
+2026-07-21 RFK claimed the cyclospora outbreak was under control. 
+
+2026-07-22 the cyclospora outbreak bloomed in Michigan topping 7000 cases. 
+
 2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
 
 2026-07-24 Farmers spent an addition $1.4 Billion dollars in diesel fuel compared to a year ago since the start of the Iran war. 
 
 2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
+
+2026-07-27 Eggs were recalled over salmonella

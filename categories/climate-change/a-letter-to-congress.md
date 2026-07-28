@@ -328,3 +328,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-18 New York City was hit with flash floods. 
 
 2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
+
+2026-07-28 Tornadoes tore through Wisconsin.
+
+2026-07-28 A powerful 7.1 earthquake and tsunami warning shook Japan.

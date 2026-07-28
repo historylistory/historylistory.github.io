@@ -245,3 +245,14 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 2026-07-22 the cyclospora outbreak bloomed in Michigan topping 7000 cases. 
 
 [https://www.wjr.com/2026/07/22/michigans-cyclosporiasis-outbreak-tops-7000-cases-rfk-jr-claims-outbreak-is-under-control/](https://www.wjr.com/2026/07/22/michigans-cyclosporiasis-outbreak-tops-7000-cases-rfk-jr-claims-outbreak-is-under-control/)
+
+2026-07-27 Eggs were recalled over salmonella
+
+[https://thehill.com/policy/healthcare/5991874-dozens-sickened-across-17-states-in-salmonella-outbreak-linked-to-recalled-eggs-what-to-know/](https://thehill.com/policy/healthcare/5991874-dozens-sickened-across-17-states-in-salmonella-outbreak-linked-to-recalled-eggs-what-to-know/)
+
+[https://www.nbcnews.com/nightly-news/video/millions-of-eggs-recalled-over-possible-salmonella-contamination-267274309782](https://www.nbcnews.com/nightly-news/video/millions-of-eggs-recalled-over-possible-salmonella-contamination-267274309782)
+
+[https://www.prevention.com/food-nutrition/a73257973/egg-recall-fda-midwest-poultry-services/](https://www.prevention.com/food-nutrition/a73257973/egg-recall-fda-midwest-poultry-services/)
+
+TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s](https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s)
+

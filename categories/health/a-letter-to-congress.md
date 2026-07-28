@@ -532,3 +532,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-23 The FDA met to consider lifting a ban and widening access to peptides promoted by wellness influencers. 
 
 2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
+
+2026-07-27 Eggs were recalled over salmonella
