@@ -114,3 +114,19 @@ permalink: /categories/crime-defiance/other/
 [https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/](https://www.usatoday.com/story/news/politics/2026/06/26/john-bolton-trump-classified-documents/90705917007/)
 
 [https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/](https://www.reuters.com/legal/government/trump-adviser-turned-critic-john-bolton-plead-guilty-classified-info-case-2026-06-26/)
+
+### 2026 July
+
+2026-07-28 Reports showed that US boat strikes in international waters as part of “Operation Southern Spear” did not reduce the amount of cocaine flow into the US. 
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-administration-boat-strikes-cocaine-trafficking-hegseth-trump-military](https://www.ms.now/rachel-maddow-show/maddowblog/trump-administration-boat-strikes-cocaine-trafficking-hegseth-trump-military)
+
+[https://www.newsnationnow.com/us-news/immigration/border-coverage/cartels/drug-boat-strikes-operation-southern-spear-trump/](https://www.newsnationnow.com/us-news/immigration/border-coverage/cartels/drug-boat-strikes-operation-southern-spear-trump/)
+
+[https://www.npr.org/2026/07/28/nx-s1-5909297/boat-strikes-have-not-reduced-drug-smuggling-into-the-u-s-dea-finds](https://www.npr.org/2026/07/28/nx-s1-5909297/boat-strikes-have-not-reduced-drug-smuggling-into-the-u-s-dea-finds)
+
+[https://www.cnn.com/2026/07/26/politics/boat-strikes-cocaine-drugs-united-states-military](https://www.cnn.com/2026/07/26/politics/boat-strikes-cocaine-drugs-united-states-military)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html](https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html)
+
+SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/](https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/)
