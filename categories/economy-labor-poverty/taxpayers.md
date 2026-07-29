@@ -419,6 +419,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 
 2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
+
 [https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356](https://abcnews.com/Politics/trump-americans-financial-situation-iran-negotiations/story?id=132891356)
 
 [https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates](https://www.theguardian.com/us-news/live/2026/may/13/donald-trump-china-xi-jinping-beijing-iran-war-us-politics-latest-news-updates)
@@ -620,7 +621,7 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter](https://newrepublic.com/post/213146/jd-vance-secret-service-fed-up-absurd-requests-son-helicopter)
 
-[https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests
+[https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests](https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests)
 
 2026-07-15 The House GOP voted 216 to 214 to advance a $95BN reconciliation bill to fund Iran, aid farmers, and push for the SAVE Act. 
 

@@ -109,7 +109,43 @@ SOME SOURCES
 
 # Answer 3 
 
-Submitted to Congress by HistoryListory: PENDING
+Submitted to Congress by HistoryListory: Not Yet
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
+### Question 4 
+
+Trump’s tax policies gave corporations and the wealthiest Americans enormous tax cuts, while families earning $30,000 or less could eventually pay more. At the same time, ordinary Americans are expected to absorb higher tariff costs, cuts to food, healthcare, childcare, and energy assistance, and billions in aid needed to repair the damage from those tariffs. Why are working families always told to “tough it out” while the wealthy are protected, and what will you do to make them pay their fair share?
+
+SOME SOURCES 
+
+* WEALTHY November 1, 2017 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. It caused a 120% billionaire boom, and it widened the deficit. [IRS.gov](https://www.irs.gov/newsroom/tax-cuts-and-jobs-act-a-comparison-for-businesses)
+
+* WEALTHY January 25, 2025  Trump handed four big tech giants massive tax breaks. [GeekWire.com](https://www.geekwire.com/2025/big-beautiful-tax-benefit-amazon-and-other-tech-giants-reap-the-rewards-of-new-law-for-now/)
+
+* WEALTHY June 1, 2026  Anthropic filed for an initial public offering after it raised $65B and pushed its valuation to $965B. Bernie Sanders announced a new bill that would create a one-time 50% tax on big-tech stock. [Democracy Now.org](https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies)
+
+* WEALTHY May 24, 2023 Diverting taxes towards private schools for the elite. [Southern Education.org](https://southerneducation.org/publications/how-are-public-funds-diverted-to-private-schools)
+
+* WEALTHY January 20, 2025 State government resources outline how the Trump tax cuts will lower taxes for the wealthy while increase taxes for the poor [Gov.CA.Gov](https://www.gov.ca.gov/2025/07/02/heres-how-president-trumps-tax-cuts-for-the-ultra-rich-will-hurt-you)
+
+* WEALTHY January 20, 2025 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade [American Progress.org](https://www.americanprogress.org/article/7-ways-the-big-beautiful-bill-cuts-taxes-for-the-rich)
+
+* POOR May 20, 2025 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded payroll and state taxes. [ITEP.org](https://itep.org/conforming-to-the-no-tax-on-tips-gimmick-just-got-riskier-and-costlier-for-states)
+
+* ARGENTINA October 12, 2025 The Trump Administration bailed Argentina out with $40 BILLION in American taxpayer dollars. In November the Senate refused to vote for a takeback of those funds during the shutdown while millions of American families went hungry [PBS.org](https://www.pbs.org/newshour/show/why-trump-is-giving-argentina-a-20-billion-lifeline-to-help-its-flailing-economy)
+
+* TRUMP SAYS HE CAN’T HELP April 3, 2026 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”. [Detroit Free Press.com](https://www.freep.com/story/news/local/michigan/2026/04/04/president-trump-federal-government-childcare-spending/89436243007)
+
+* FARM AID July 27, 2026 The latest request for farm aid would cost each taxpayer $360. [Ag Web.com](https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier)
+
+
+
+# Answer 4 
+
+Submitted to Congress by HistoryListory: Not Yet
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
