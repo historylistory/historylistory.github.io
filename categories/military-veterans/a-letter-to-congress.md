@@ -52,12 +52,20 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 ### Chronology.
 
+## 1960s 
+
 1964-1968 Trump received five deferments to serving the Army: four student deferments and one medical deferment for bone spurs.
+
+## 2015 
 
 2015-07-18 Trump said about John McCain, “He’s not a war hero. He’s a war hero because he was captured. I like people that weren’t captured”. In March of 
 2019, Trump wrote, “So it was indeed (just proven in court papers) “last in his class” (Annapolis) John McCain that sent the Fake Dossier to the FBI and Media hoping to have it printed BEFORE the Election. He & the Dems, working together, failed (as usual). Even the Fake News refused this garbage!”
 
+## 2017 
+
 2017-08-25 Trump signed a memo to ban transgender people from serving in the U.S. military.
+
+## 2020 
 
 2020-09-04 Trump called fallen soldiers, “suckers” and “losers”.
 
@@ -67,15 +75,23 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2021-01-22 SCOTUS allowed the Trump administration’s ban on transgender in the military to take effect.
 
+## 2021 
+
 2021-01-25 Biden revoked Trump’s transgender military ban.
+
+## 2024 
 
 2024-11-15 During a podcast promoting his book, Pete Hegseth stated “I’m straight up just saying we shouldn’t have women in combat roles”.
 
 2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
+## 2025 January 
+
 2025-01-20 Trump rescinded Executive Order 14004 Enabling All Qualified Americans To Serve Their Country in Uniform.
 
 2025-01-27 Trump signed another executive order banning transgender from serving in the US military. A federal judge blocked the order, but SCOTUS inevitably allowed it to proceed.
+
+## 2025 February 
 
 2025-02-10 Pete Hegseth changed the name of Fort Liberty back to Fort Bragg, claiming this time it was after a PFC from WWII and had no Confederate ties. 
 
@@ -87,6 +103,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2025 March 
+
 2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 
 2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels.
@@ -97,9 +115,13 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website.
 
+## 2025 May 
+
 2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
 
 2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
+## 2025 June 
 
 2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
@@ -117,6 +139,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County.
 
+## 2025 July 
+
 2025-07-03 DeSantis vetoed funds set aside for “Patriot Passport”, a veteran program designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
 2025-07-10 ICE detained Iraq war veteran George Retes while he was on the way to work. Retes was pepper sprayed, strip searched, denied a lawyer or phone call, and kept for three days.
@@ -124,6 +148,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign.
 
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
+
+## 2025 August 
 
 2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling.
 
@@ -138,6 +164,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 2025-08-25 National Guard troops in Washington D.C. were given orders to carry weapons.
 
 2025-08-25 Trump threatened to send military forces into Chicago.
+
+## 2025 September 
 
 2025-09-02 A judge ruled that Trump broke the law by sending National Guard troops to Los Angeles.
 
@@ -161,6 +189,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
 
+## 2025 October 
+
 2025-10-01 By October 2025, Trump only deployed military to cities governed by Democrat mayors. 
 
 2025-10-04 ICE agents knocked down and pepper sprayed 84-year-old Vietnam Veteran Richard Eckman while he was leaning on his walker. Agents also launched a projectile at his wife Laurie who sustained a bleeding head injury from the attack.
@@ -173,6 +203,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-10-27 During his visit to Japan Trump stated he might send full-service military to our cities instead of the National Guard.
 
+## 2025 November
+
 2025-11-11 Trump told an audience he wanted to rename Veteran’s Day.
 
 2025-11-12 During the 4th Annual Northeast Indiana Defense Summit Pete Hegseth criticized DEI initiatives, political correctness, and what he called “climate change worship”.
@@ -183,6 +215,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats.
 
+## 2025 December 
+
 2025-12-12 The Trump administration started collecting data on immigrants affiliated with the VA and the National Interest Waivers program, which still suffers drastic staffing shortages.
 
 2025-12-13 When Kristi Noem claimed DHS had not detained any US citizens or military veterans Representative Seth Magaziner of Rhode Island provided key testimonies from multiple combat veterans who had been detained and were legal citizens.
@@ -191,9 +225,13 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-12-22 Trump announced “Trump-class” battleships (i.e. USS Defiant).
 
+## 2026 January 
+
 2026-01-14 The Congressional Budget Office estimated American taxpayers would spend $125M just to rebrand the DoD as “Department of War”.
 
 2026-01-28 After the US removed flags honoring fallen Danish soldiers who died in Afghanistan on behalf of the US, Trump claimed it was because they “didn’t walk the front line”.
+
+## 2026 February 
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses.
 
@@ -204,6 +242,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.
 
 2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
+
+## 2026 March 
 
 2026-03-01 Pete Hegseth ordered a ban on US troops attending graduate-level programs at Ivy League and other top-tier universities, labelling them “woke breeding grounds of toxic indoctrination”.
 
@@ -256,6 +296,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which would be a war crime. When asked, Karoline Leavitt defended Trump, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists pointed out war-crime concerns, Karoline Leavitt responded, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
 
+## 2026 April 
+
 2026-04-01 Hegseth nullified the Army’s investigation into the pilot who did a low fly-by of Kid Rock’s mansion. Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
 
 2026-04-02 Hegseth fired Army Chief of Chaplains Major General William Green.
@@ -294,6 +336,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-04-30 Former Army Ranger and paratrooper Congressman Jason Crow pressed Hegseth about conflicts of interest surrounding Special Advisor Tim Parlatore.
 
+## 2026 May 
+
 2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 2026-05-05 The Pentagon cut deployment of U.S. combat forces to Poland and Germany.
@@ -303,6 +347,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-05-20 Army veteran Kerry Sheron was assaulted outside his Trump-themed home and later died from his injuries.
 
 2026-05-30 The White House allegedly recruited troops to attend the White House lawn UFC match but required them to 1) pay for the trip themselves and 2) meet a waist-to-height ratio standard.
+
+## 2026 June 
 
 2026-06-01 Federal courts blocked the Pentagon from discharging transgender service members but allowed the Pentagon to continue banning transgender people from entering.
 
@@ -321,6 +367,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
 
 2026-06-15 Edwards Air Base confirmed the crash of a B-52 bomber, killing 8.
+
+## 2026 July 
 
 2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump.
 

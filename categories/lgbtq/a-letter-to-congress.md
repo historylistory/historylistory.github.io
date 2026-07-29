@@ -45,29 +45,47 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 ### Chronology.
 
+## 1950s 
+
 1955-01-01 The anti-LGBTQ Westboro Baptist church was founded. They are known for their picketing, harassment, and slogan “God hates f-gs”.
+
+## 1990s 
 
 1992-01-01 The anti-gay propaganda film “The Gay Agenda” was produced by Christian right-wing fundamentalist group Springs of Life Ministries.
 
+## 2003 
+
 2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”. 
 
+## 2012 
+
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America. 
+
+## 2015 
 
 2015-06-26 In response to the Obergefell v. Hodges same-sex marriage case Justice Samuel Alito wrote “I assume that those who cling to old beliefs will be able to whisper their thoughts in the recesses of their homes, but if they repeat those views in public, they will risk being labeled as bigots and treated as such by governments, employers, and schools”. He repeated what he wrote in 2020 in an address to the Federalist Society. (law.cornell.edu)
 
 2015-07-01 Doug Wilson claimed same-sex marriage was a more serious problem than supporting slavery.
 
+## 2016 
+
 2016-06-12 A gunman murdered 49 people and wounded 53 more at the Pulse LGBTQ nightclub in Orlando.
+
+## 2017 
 
 2017-02-22 Conservative writer Rod Dreher wrote, “LGBT activism is the tip of the spear at our throats in the culture war”.
 
 2017-08-25 Trump signed a memo to ban transgender people from serving in the U.S. military. 
+
+## 2019 
 
 2019-01-01 Tulsi Gabbard touted working for her father’s anti-gay group, backing conversion therapy, and fighting same-sex marriage.
 
 2019-02-01 Republicans launched an anti-gay smear campaign against Pete Buttigieg.
 
 2019-02-28 Fox News published an article claiming that the Trump administration spearheaded an initiative to end criminalization of homosexuality worldwide. They also claimed in that article that LGBTQ+ groups called it a stunt and were skeptical.
+
+## 2021 
 
 2021-01-22 SCOTUS allowed the Trump administration’s ban on transgender in the military to take effect. 
 
@@ -79,7 +97,11 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2021-09-02 China banned “sissy idols” and effeminate men on TV.
 
+## 2022 
+
 2022-06-01 Matt Walsh was featured in the anti-gay propaganda film “What is a Woman”. In the documentary Walsh accused schools of child abuse for allowing gender identity. 
+
+## 2023 
 
 2023-01-16 Conservatives claimed the green M&M is gay.
 
@@ -92,6 +114,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 2023-08-23 Missouri introduced SB134 the “Vulnerable Child Compassion and Protection Act” to prohibit gender identity or acknowledgement and threaten teachers who helped students accept their gender identities.
 
 2023-11-30 The Russian Supreme Court labelled LGBT as a movement and an “extremist organization”.
+
+## 2024 
 
 2024-02-29 Missouri passed HB 2885 to classify teachers as sex offenders for supporting social transition or using preferred pronouns.
 
@@ -113,6 +137,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2024-11-18 Nancy Mace pushed to ban transgender bathrooms.
 
+## 2025 January 
+
 2025-01-20 Trump signed Executive Order “Defending Women from Gender Ideology Extremism and Restoring Biological Truth to the Federal Government”.
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a “disgrace” and an “embarrassment”. Trump demanded an apology from Reverend Mariann Edgar Budde.
@@ -125,25 +151,41 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2025-01-31 The Trump administration purged medical information related to HIV health and LGBTQ.
 
+## 2025 February 
+
 2025-02-05 Trump signed Executive Order “Keeping Men Out of Women’s Sports”.
+
+## 2025 March 
 
 2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team. In July, Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology.
 
+## 2025 April 
+
 2025-04-22 In Mahmood v. Montgomery county, plaintiffs argued that parents should have the right to opt their children out of curriculum that conflicts with their religious beliefs. During the arguments Justice Samuel Alito cited the book Uncle Bobby’s Wedding and his opinion about its moral message. 
+
+## 2025 May 
 
 2025-05-07 Marjorie Taylor Greene repeatedly banged her gavel during a trans-athlete hearing.
 
+## 2025 June 
+
 2025-06-27 During Pride Month Pete Hegseth renamed USNS Harvey Milk to USNS Oscar V Peterson, claiming the original name was political and didn’t align with a warrior ethos. 
+
+## 2025 July 
 
 2025-07-17 The 988 suicide and crisis line for LGBTQ+ was permanently shut down.
 
 2025-07-21 Derek Huffman moved his family from Texas to Russia to avoid “woke” ideology. Once moved, Russia sent him to the front lines of a combat zone. 
 
+## 2025 August 
+
 2025-08-12 MAGA conservatives boycotted the Minnesota Vikings because they had male cheerleaders.
 
 2025-08-27 DeSantis ordered Florida communities to remove rainbow street art and threatened to withhold state transportation funding for noncompliance.
+
+## 2025 September 
 
 2025-09-05 The DOJ considered banning guns specifically from anyone transgender.
 
@@ -159,7 +201,11 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2025-09-18 CSPAN headline, “I’m a woman. Are you a woman?”
 
+## 2025 October
+
 2025-10-28 Texas ruled that judges who refuse to perform gay marriages will not have to face charges of judicial partiality.
+
+## 2025 November
 
 2025-11-12 During the 4th Annual Northeast Indiana Defense Summit Pete Hegseth criticized DEI initiatives, political correctness, and what he called “climate change worship”.
 
@@ -167,9 +213,15 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2025-11-27 After an Oklahoma State University student received an F for not citing facts on an assignment about gender, she reported her grade to TPUSA, and the professor was placed on administrative leave. 
 
+## 2025 December
+
 2025-12-11 Joel Webbon said, “Homosexuality is degenerate. It is bad for the populace. It’s bad for society. It’s been incredibly harmful. We’ve seen a full fullcourt press against our own children as the sacrificial lamb in order to appease older gay men and make them feel better about themselves. It’s wicked, it’s predatory, and I think – yeah – it is appropriate for us to be able to call it what it is and say ‘Wait a second, this is perverse, it’s wicked, it’s faggotry”. This person also allegedly claimed women should not vote and Dr. Martin Luther King Junior is in hell.
 
+## 2026 January 
+
 2026-01-06 Texas A&M directed teachers to ban Plato, citing “gender ideology”.
+
+## 2026 February 
 
 2026-02-11 The White House removed a rainbow Pride Flag from the Stonewall National Monument in New York City.
 
@@ -177,11 +229,15 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
 
+## 2026 March 
+
 2026-03-10 Karoline Leavitt claimed that the SAVE act was “rooted in common sense”, would abolish so-called mail in fraud, and even cited that Jimmy Carter believed mail-in ballots were the “largest source of potential fraud”. In her assertion, she added the SAVE act “permanently bans men from competing in women’s sports” and “bans transgender mutilation surgery for children”.
 
 2026-03-17 Fox News peddled a gay conspiracy about the new Iranian ayatollah
 
 2026-03-31 SCOTUS blocked Colorado’s ban on conversion therapy.
+
+## 2026 April 
 
 2026-04-01 Tabloids exploited leaked information that Kristi Noem’s husband Byron lived an alternative life cross-dressing and paid adult entertainers to role-play with him.
 
@@ -189,11 +245,15 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2026-04-17 Madison Square Garden used facial-recognition systems to track a trans woman’s movements, including bathroom visits.
 
+## 2026 June 
+
 2026-06-01 Federal courts blocked the Pentagon from discharging transgender service members but allowed the Pentagon to continue banning transgender people from entering.
 
 2026-06-02 Ghana’s anti-LGBTQ bill required further scrutiny as it would endanger the lives of the LGBTQ community. The bill places 10-year prison sentences on anyone promoting LGBTQ and critics have called it the “kill the gays bill”.
 
 2026-06-30 SCOTUS ruled 6-to-3 to ban trans athletes from participating in women’s sports.
+
+## 2026 July 
 
 2026-07-09 A Madison Square Garden database leak showed that they tracked and categorized hundreds of celebrities, labeling them “LGBTQIA”, “DO NOT HOST”, and low to high risk. 
 

@@ -48,14 +48,23 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 ### Chronology.
 
+## 1920s
 
 1920-01-01 During the rise of the eugenics movement Charles Davenport proposed building a wall to “keep out the cheaper races”.
 
+## 1950s
+
 1954-05-17 The Supreme Court case Brown v Board of Education desegregated schools. Megachurch founder and televangelist Jerry Falwell stated in a sermon, “If Chief Justice (Earl) Warren and his associates had known God’s word and had desired to do the Lord’s will, I am quite confident that the 1954 decision would have never been made. The facilities should be separate. When God has drawn a line of distinction, we should not attempt to cross that line”.
+
+## 1960s 
 
 1966-01-01 Jerry Falwell founded the whites-only Lynchburg Christian Academy to circumvent the 1954 ruling to ban segregation. He wrote in his book ‘America Can Be Saved’, “I hope I live to see the day when, as in the early days of our country, we won’t have any public schools. The churches will have taken them over again and Christians will be running them”. In 1977 courts ruled that segregated private religious schools could not qualify as charitable organizations or retain tax exempt status. 
 
+## 1980s 
+
 1989-01-01 Trump pushed for the death penalty of five wrongfully convicted Black and Latino men. The men later sued Trump. 
+
+## 1990s
 
 1991-03-03 Four officers brutally beat Rodney King, but two of the officers were later acquitted despite the incident being captured on video by a bystander. This ignited the L.A. riots.
 
@@ -65,15 +74,23 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 1999-08-16 David Horowitz published an article in Salon, writing, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
 
+## 2001 
+
 2001-01-01 Stephen Miller invited David Horowitz to speak at his high school and started a group called “Horowitz’s Students for Academic Freedom”. 
 
 2001-01-01 Stephen Miller reportedly called into Larry Elder’s radio show while in high school. Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote that women knew less about politics than men, and claimed systemic racism was lie.
 
+## 2002 
+
 2002-03-27 Stephen Miller wrote an article in the Santa Monica Lookout, “I suppose then that our country would have been better off if our soldiers never killed anyone, and we watched as our nation was obliterated by the evil in the world, as we sung songs of peace and love. Or, better yet, we could have lived with the Indians, learning how to finger paint and make tepees”. He also ranted about his school translating documents into Spanish or giving attention to Mexican holidays.
+
+## 2006 
 
 2006-06-28 Courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
 
 2006-10-10 Stephen Miller wrote in the Duke Chronicle, “Affirmative action places a false and pernicious label on every black person in our country as being part of a special class of people needing special assistance. It advances students beyond their levels of academic preparation and, in condescendingly lowering the bar for millions of people, so too lowers motivation and achievement”. 
+
+## 2007 
 
 2007-01-01 Stephen Miller accused universities of censorship because they refused to run an ad that claimed “Muslims have problems living peacefully with their neighbors”.
 
@@ -81,19 +98,29 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2007-03-01 According to the book “Hatemonger”, Stephen Miller organized an immigration debate with Richard Spencer, who became a well-known white nationalist and invited editor of VDARE.com Peter Brimelow.
 
+## 2008 
+
 2008-03-11 Democrat Geraldine Ferraro was interviewed on the Daily Breeze (Torrance CA) and stated, “If Obama was a white man, he would not be in this position. And if he was a woman (of any color) he would not be in this position. He happens to be very lucky to be who he is. And the country is caught up in the concept”.
 
 2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
 
 2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
 
+## 2009 
+
 2009-01-01 Twenty-two-year-old Oscar Grant was killed by officers in Oakland CA.
 
+## 2010 
+
 2010-01-01 Discussion of the Great Replacement Theory surfaced a lot more and even showed up later in 2022 during the Buffalo NY massacre when it was mentioned in the manifesto. 
+
+## 2012 
 
 2012-02-26 Trayvon Martin was walking home from a convenience store while visiting a family townhouse when he was fatally shot by George Zimmerman who claimed self-defense and cited Florida’s Stand Your Ground law. Zimmerman was only charged and tried a year later after heavy media coverage and protest rallies. 
 
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America.
+
+## 2013 
 
 2013-06-25 Courts tossed out a rule in the Voting Rights Act that would require states with an extensive history of racial discrimination to submit any changes in their election policies or maps to the federal government for advance review before putting them into effect (see Shelby County, Alabama v. Holder, Attorney General).
 
@@ -101,13 +128,19 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2013-12-11 Fox news host Megyn Kelly insisted both Jesus and Santa Clause are white.
 
+## 2014 
+
 2014-11-02 Twelve-year-old Tamir Rice was killed outside a rec center by a police officer. A grand jury declined to bring criminal charges against the officer.
+
+## 2015 
 
 2015-06-17 A white supremacist opened fire at Charleston church, but only after he spend 45 minutes in worship with the congregation. The suspect waited until everyone was in prayer before he began the massacre, firing approximately 74 rounds, and then told one of the victims “I’m going to leave you here to tell the story”. Dylan Roof remains on death row in Terre Haute Federal Prison in Indiana.
 
 2015-07-01 Doug Wilson claimed same-sex marriage was a more serious problem than supporting slavery.
 
 2015-09-06 Stephen Miller allegedly recommended “The Camp of the Saints” to Breitbart News. This book a French novel about white genocide and the great replacement theory.
+
+## 2016 
 
 2016-03-18 Black Lives Matter co-founder Alicia Garza stated, “We are expected to participate in democracy while receiving conditional citizenship in return”.
 
@@ -119,6 +152,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2016-11-03 David Duke and the KKK expressed their support for Donald Trump.
 
+## 2017 
+
 2017-01-20 Trump proposed budget cuts to the Minority Business Development Agency during his first term.
 
 2017-01-28 Trump placed a travel ban on six Muslim majority countries.
@@ -129,6 +164,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
+## 2018 
+
 2018-01-11 Trump called Haiti, El Salvador, and certain African nations “shithole” countries and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting.
 
 2018-03-08 A Floridian middle-school social studies teacher was pulled after the school learned she had a white supremacist podcast.
@@ -136,6 +173,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2018-10-23 Fox news host Megyn Kelly had to publicly apologize for insensitive comments she made about black face.
 
 2018-12-15 Tucker Carlson said on his show that immigrants make our country “dirtier” and “poorer”.
+
+## 2019 
 
 2019-04-01 Right wing operatives Jacob Wohl and Jack Burkman paid for a robocall campaign in New York to suppress the Black vote.
 
@@ -146,6 +185,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2019-07-15 Trump told four congresswomen of color to “go back” to their countries, even though they’re from this one.
 
 2019-10-25 United Healthcare used racial bias in their healthcare algorithms.
+
+## 2020 
 
 2020-01-01 In the book “Hatemonger” by Jean Guerrero interviewees accounted Stephen Miller bullying Hispanic students, and saying, “it doesn’t matter what the truth is, but how it makes people feel”. 
 
@@ -162,6 +203,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
 2020-08-01 Jacob Wohl and Jack Burkhman continued their robocall campaign in Detroit to suppress Black voters. Both plead no contest to voter intimidation August 2025.
+
+## 2021 
 
 2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
 
@@ -189,6 +232,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2021-10-27 Republicans rallied against teaching Critical Race Theory.
 
+## 2022 
+
 2022-01-01 Stephen Wolfe (who has ties to Doug Wilson) wrote “The Case of Christian Nationalism”. Readers cited messages that ethnicities should not mix, empathy was a sin, women were a threat to the movement, and violence was justified.  
 
 2022-02-01 Nick Fuentes held his first annual America First Political Action Conference which he founded in 2020 as white nationalist alternative to the CPAC. 
@@ -204,6 +249,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2022-11-25 Trump dined with Nick Fuentes.
 
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
+
+## 2023 
 
 2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
@@ -221,9 +268,13 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2023-12-23 Charlie Kirk said Martin Luther King was “awful” and “not a good person”, claiming, “We made a huge mistake when we passed the Civil Rights Act in the 1960s”.
 
+## 2024 January 
+
 2024-01-23 Charlie Kirk said, “If I’m dealing with somebody in customer service who’s a moronic Black woman, I wonder is she there because of her excellence, or is she there because of affirmative action?”
 
 2024-01-23 Charlie Kirk said, “If I see a Black pilot, I’m going to be like, boy, I hope he’s qualified”. 
+
+## 2024 March 
 
 2024-03-01 Reform UK councilor Glen Gibbins posted, “Carnt believe amount of Nigerians in town…should melt them all down and fill in the pot holes!!!”. He was suspended, then won a key seat in Parliament in 2026. He also allegedly wrote, “…an army of Muslims who will in time turn on us…” and, “OUR TOLERANCE IS The MUSLIMS GREATEST WEAPON”.
 
@@ -237,11 +288,17 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2024-03-28 Phil Lyman blamed the Baltimore bridge crash on DEI and targeted Karenthia A. Barber in a repost from the Young Conservatives Federation, “This is what happens when you have Governors who prioritize diversity over the wellbeing and security of citizens”. 
 
+## 2024 April 
+
 2024-04-12 Christian Nationalist Pastor Shane Vaughn said Justice Jackson “talks monkey talk” and “belongs in the jungle”.
+
+## 2024 May 
 
 2024-05-01 Governor Greg Abbott gave a full pardon to Daniel Perry, the former US Army sergeant who murdered Garrett Foster during a Black Lives Matter protest in Austin Texas in July of 2020. Prior to Perry murdering a protester, he posted online “I’m going to go kill a protester”.
 
 2024-05-06 A group of white voters claimed the Louisiana congressional map “racially stigmatizes”, “racially stereotypes”, and “racially maligns” them.
+
+## 2024 June 
 
 2024-06-14 Republican Anthony Hudson posted a deepfake of MLK Jr. endorsing him.
 
@@ -249,11 +306,15 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.
 
+## 2024 July 
+
 2024-07-10 Vance said during a National Conservatism convention, “Look, the thing on immigration is that no one can avoid that it has made our societies poorer, less safe, less prosperous, and less advanced.”
 
 2024-07-19 After the CrowdStrike outage, Elon Musk posted, “Not very “bright” right now, is it?” alongside a reposted Bright Network DEI banner, suggesting the outage was due to DEI. America First Legal filed a civil rights complaint on CrowdStrike for discriminating against white males. Steve Guest posted “Equity is nobody in the world being able to get on an airplane simultaneously. Thanks CrowdStrike”.
 
 2024-07-31 The National Association of Black Journalists interviewed Trump about his racist commentary and attacks on minorities, but it was delayed after Trump allegedly squabbled over their fact-checking process ahead of the interview. 
+
+## 2024 September 
 
 2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
 
@@ -273,11 +334,15 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2024-09-17 During a campaign stop in Eau Claire, JD Vance was quoted by a local newspaper saying, ”We’re bankrupting… a lot of hospitals by forcing [them to] provide care for people who don’t have the legal right to be in our country”.
 
+## 2024 October 
+
 2024-10-01 Representatives in Kendrick Idaho claimed that discrimination doesn’t exist in Idaho. When Nez Perc member Trish Carter Goodheart disagreed, Senator Forman told her to go back to where she came from. 
 
 2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.
 
 2024-10-28 During the Madison Square Garden Trump rally, Kill-Tony called Puerto Rico a floating pile of garbage.
+
+## 2025 January 
 
 2025-01-13 An FBI press release raised alarm about increasing white supremacism. 
 
@@ -311,6 +376,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-01-30 Trump blamed DEI, Biden, disabilities and Pete Buttigieg for the Potomac place crash, and accused the FAA of not properly vetting its employee pool. 
 
+## 2025 February 
+
 2025-02-04 In response to the Potomac crash Senator Roger Marshall said, “Well, I think diversity issues did contribute to this accident, and what we know for sure is that under Joe Biden that they lowered the standards for people getting into air traffic control. And with that, the number of near misses increased 70% a year”. The Senator went on to say, “What I think you’re gonna find out is there were a lot of qualified white men that they were not hiring because they were holding spots for DEI hires”.
 
 2025-02-07 MAGA supporters protested the song “Lift Every Voice and Sing” at the Superbowl, claiming it was divisive.
@@ -321,15 +388,21 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
+## 2025 March 
+
 2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-14 Trump signed EO Continuing the Reduction of the Federal Bureaucracy to dismantle the Minority Business Development Agency. 
 
 2025-03-27 Trump signed EO Restoring Truth and Sanity to American History which is designed to whitewash and sanitize history. 
 
+## 2025 April 
+
 2025-04-11 The Trump administration demanded that Harvard conduct a federal government-approved audit of its student and faculty to determine “viewpoint diversity”. When Harvard refused, the DEO launched an investigation and accused them of discrimination against white males. 
 
 2025-04-30 Charlie Kirk said, “America has freedom of religion, of course, but we should be frank: large dedicated Islamic areas are a threat to America.”
+
+## 2025 May 
 
 2025-05-01 Stephen Miller claimed that Biden imported a “terrorist army”, that the media covers up rape-torture-and-murder, and blamed due process for the killing of a woman.
 
@@ -340,6 +413,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and white genocide claims.
 
 2025-05-21 Trump made baseless accusations of white genocide while meeting with South African president Ramaphosa.
+
+## 2025 June 
 
 2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
@@ -361,6 +436,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-06-25 After Mamdani won, Nancy Mace posted, “After 9/11 we said ‘Never Forget’. I think we sadly have forgotten”.
 
+## 2025 July 
+
 2025-07-01 The American Eagle “good jeans” commercial drew mixed criticism, “Genes are passed down from parents to offspring, often determining traits like hair color, personality, and even eye color. My jeans are blue – Sydney Sweeney has great jeans”.
 
 2025-07-05 Trump used the term “Shylock” during a rally.
@@ -379,6 +456,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
+## 2025 August 
+
 2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
 2025-08-19 Trump pushed back on a court decision to temporarily block the Resolution Copper project, blaming the delay on the “radical left”. The Resolution Copper project aims to develop copper mining upon sacred and protected Native American holy sites.
@@ -386,6 +465,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-08-22 Charlie Kirk said, “America was at its peak when we halted immigration for 40 years and we dropped our foreign-born percentage to its lowest level ever. We should be unafraid to do that.”
 
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
+
+## 2025 September
 
 2025-09-02 Eric Schmitt told a crowd at a National Conservatism meeting the left was “deracinating American tradition into an ideological creed”.
 
@@ -409,6 +490,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-09-29 Trump posted a racist AI-generated sombrero meme targeting Hakeem Jeffries.
 
+## 2025 October 
+
 2025-10-09 Turning Point USA announced they were going to have their own Superbowl halftime show in direct response to Puerto Rican artist Bad Bunny performing at Super Bowl LX.
 
 2025-10-14 ICE posted an immigration-arrest video set to music containing antisemitic slurs. The post had since been taken down but copies were made and shared on X.
@@ -430,6 +513,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-10-22 Anti-Indian posts were leaked during a Diwali celebration, including statements, “Go back home and worship your sand demons” or telling Vivek Ramaswami to “self deport”.
 
 2025-10-29 JD Vance said, “It is totally reasonable and acceptable for American citizens to look at their next-door neighbors and say I want to live next to people who I have something in common with. I don’t want to live next to four families of strangers.”
+
+## 2025 November 
 
 2025-11-03 Right wing podcaster Ben Shapiro criticized Tucker Carlson for featuring Nick Fuentes and normalizing white supremacy.
 
@@ -457,6 +542,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
+## 2025 December 
+
 2025-12-02 Indiana proposed a new redistricting map which some claimed was politically gerrymandered.
 
 2025-12-02 Trump said about Somali immigrants, “We’re going to go the wrong way if we keep taking in garbage into our country”. He also said, “These are people who do nothing but complain. They complain, and from where they came from they got nothing. When they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
@@ -476,6 +563,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
 
 2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter prizes.”
+
+## 2026 January 
 
 2026-01-03 Lobbyist David Hoch allegedly posted, “Even the Blacks have had enough of the demon Muslims”. 
 
@@ -509,6 +598,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
+## 2026 February 
+
 2026-02-04 Elon Musk reposted about the Great Replacement theory.
 
 2026-02-05 The Trump Administration sanitized exhibits at Little Bighorn National Monument. The Northern Cheyenne Tribal Council unanimously voted 11-0 against the changes.
@@ -537,6 +628,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-02-27 The Trump administration aimed to process 4500 white-only refugees per month from South Africa and installed trailers at the U.S. embassy in Pretoria for refugee processing.
 
+## 2026 March 
+
 2026-03-02 Haitian asylum seeker Daphy Michel's body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June.
 
 2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
@@ -554,6 +647,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 
 2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, and Chief of Staff Ricky Buria allegedly told Army Secretary Daniel Driscoll not to assign Major General Antoinette R. Gant command of the Military District of Washington because President Trump wouldn’t want to stand next to a Black female officer at events.
+
+## 2026 April 
 
 2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg.
 
@@ -580,6 +675,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-04-29 SCOTUS struck down a Louisiana redistricting map by a vote of 6-3. SCOTUS also destroyed key voting rights provisions in the Voting Rights Act of 1965 which was originally designed to outlaw discriminatory voting practices that would disenfranchise Black voters.
 
 2026-04-30 Louisiana suspended congressional primaries so they could redraw their maps.
+
+## 2026 May 
 
 2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 
@@ -619,6 +716,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-05-31 Bovino delivered a speech at the neo-fascist Remigration Summit in Portugal (RESUM26).
 
+## 2026 June 
+
 2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
 
 2026-06-03 Vivek Ramaswamy said, “…actually a Black baby is probably safer in the inner street of Chicago – in the inner city of Chicago – than in the womb of his own Black mother…”
@@ -642,6 +741,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-06-25 The Daily Wire released an Islamophobic movie “Infidels”.
 
 2026-06-26 Visitors at Trump’s Great American State Fair were surprised with a confederate flag hanging by an entrance display.
+
+## 2026 July 
 
 2026-07-04 White supremacist group Patriot Front boarded a metro and protested the streets over the weekend. 
 
