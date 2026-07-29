@@ -43,13 +43,21 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 ### Chronology.
 
+## 1990s 
+
 1991–2009 Trump bankrupted at least four casinos
 
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
 
+## 2009 
+
 2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
+## 2019 
+
 2019-09-16 Trump faced numerous allegations of violating the Constitution’s Foreign and Domestic Emoluments Clauses by keeping ownership of businesses while in office, accepting gifts, and business entanglements with foreign officials.
+
+## 2021 
 
 2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”
 
@@ -57,11 +65,17 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2021-02-18 Ted Cruz vacationed in Cancun during the Texas power crisis, later repeating a similar trip during Texas flooding in 2025.
 
+## 2022 
+
 2022-09-01 Karoline Leavitt’s “hoe-bag ad” circulated online.
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
+## 2023 
+
 2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
+
+## 2024 
 
 2024-04-16 A judge admonished Trump for juror intimidation in the hush money trial.
 
@@ -77,11 +91,15 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
+## 2025 January 
+
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 2025-01-28 Bill HR792 was introduced to force U.S. park services to carve Trump’s face into the side of Mount Rushmore.
 
 2025-01-28 The Trump administration froze funds that were already pre-approved by Congress; Eric Schmitt said on video he supported this.
+
+## 2025 February 
 
 2025-02-09 JD Vance claimed on social media that judges cannot direct the executive branch's legitimate exercise of power, “If a judge tried to tell a general how to conduct a military operation, that would be illegal. If a judge tried to command the attorney general in how to use her discretion as a prosecutor, that’s also illegal. Judges aren’t allowed to control the executive’s legitimate power”.
 
@@ -91,6 +109,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2025 Marcy 
+
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 
 2025-03-16 After a court ordered a deportation flight turned around, Tom Homan said, "I don't care what the judges think." Trump called for the judge's impeachment, while El Salvador's President Nayib Bukele mocked the ruling on social media, “oopsie, too late” and a laugh-cry emoji.
@@ -99,11 +119,15 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-03-23 News reports described an “unprecedented degree of resistance” to court rulings and a forceful attack on the American judiciary.
 
+## 2025 April 
+
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
 
 2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
 
 2025-04-29 A leaked memo confirmed Stephen Miller’s intentions to suspend Habeas Corpus. 
+
+## 2025 May 
 
 2025-05-04 When asked whether he was required to uphold the Constitution, Trump replied, "I don't know”.
 
@@ -113,9 +137,13 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
+## 2025 June
+ 
 2025-06-03 FEMA head David Richardson admitted he was unaware hurricane season was approaching.
 
 2025-06-09 Trump paved over the White House Rose Garden.
+
+## 2025 July 
 
 2025-07-01 Trump dismissed the entire Commission of Fine Arts and appointed replacements aligned with his priorities. 
 
@@ -129,7 +157,11 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
+## 2025 August 
+
 2025-08-11 Lawrence Taylor admitted uncertainty about his sports council appointment.
+
+## 2025 September 
 
 2025-09-04 RFK admitted he did not know major COVID statistics during a Senate hearing.
 
@@ -149,6 +181,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
 
+## 2025 October
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 2025-10-02 In two closely timed interviews, Karoline Leavitt told reporters servicemembers were not receiving pay due to the shutdown right after Russell Vought said servicemembers were. 
@@ -163,6 +196,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-10-31 Trump repeatedly posted about a marble White House bathroom renovation during a hunger crisis.
 
+## 2025 November
 2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
 2025-11-04 Reports mocked Mike Johnson for repeatedly claiming ignorance about current events when it suits him. 
@@ -181,6 +215,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-11-29 Trump declared Venezuelan airspace should be closed even though he does not have the authority to close another country’s airspace.
 
+## 2025 Decmeber 
 2025-12-01 Trump posted hundreds of Truth Social messages and conspiracy reposts in a single day.
 
 2025-12-03 The administration renamed the U.S. Institute of Peace after Trump months after DOGE dismantled it. 
@@ -201,6 +236,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-12-24 The White House threatened to bypass DC preservation rules and the General Services Admission to demolish historic federal property. The White House threatened to bypass the preservation staff to demolition the Wilbur J Cohen building and its historic New Deals mural. According to one article, the White House added a long list of government properties to a newly enacted “accelerated disposal” list.
 
+## 2026 January 
+
 2026-01-19 Trump demanded the Nobel Prize in a message to the Norwegian Prime Minister Jonas Gahr Store while insisting on “complete and total control of Greenland.” He added, “I no longer feel an obligation to think purely of Peace”.
 
 2026-01-21 Trump repeatedly confused Greenland with Iceland at Davos. Leavitt insisted he did not, saying, “no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it”. Also at the World Economic Forum, Trump stated, “but sometimes you need a dictator”.
@@ -208,6 +245,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
+
+## 2026 February 
 
 2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
@@ -236,6 +275,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
 
 2026-02-27 Trump tried to push an executive order granting him total emergency federal oversight of upcoming elections, again alleging fraud in the 2020 election and interference by China.
+
+## 2026 March 
 
 2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They told them to find their own way out.
 
@@ -291,6 +332,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
+## 2026 April 
+
 2026-04-01 Hegseth nullified the Army’s investigation into the pilot who did a low fly-by of Kid Rock’s mansion. Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
 
 2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides.
@@ -335,6 +378,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-04-30 GOP leader Tom Kean had been absent from Capitol Hill for weeks.
 
+## 2026 May 
+
 2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 2026-05-05 The White House dumped 37,000 cubic yards of East Wing debris on a municipal golf course.
@@ -362,6 +407,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
 
 2026-05-30 A judge ordered Trump to remove his name from the Kennedy Center, saying, “congress named the John F. Kennedy Center for the Performing Arts for President John F. Kennedy by federal statute…and the Center may not be officially named for anyone else except by an Act of Congress”.  Trump reacted in a social media post, “Unless I am free to do what I do better than anyone else, bring this Institution back, physically, financially, and artistically, I have no interest in continuing what could only be a hopeless journey into "NEVER NEVER LAND."
+
+## 2026 June 
 
 2026-06-02 Trump named housing official Bill Pulte as acting director of national intelligence.
 
@@ -394,6 +441,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
 
 2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
+
+## 2026 July 
 
 2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
 

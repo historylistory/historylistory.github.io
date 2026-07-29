@@ -54,42 +54,63 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 ### Chronology.
 
+## 1960s 
 
 1964-to-1992 Summer institute of Linguistics forced Ecuadorian people onto reservations at the will of oil companies. This was around the same time Brazil’s former dictatorship sought to assimilate and eliminate indigenous peoples in the Amazon for development.
 
 1964-01-01 The US-funded Summer Institute of Linguistics proselytized to indigenous people in remote areas, fostered subservience and compliance, forced people onto reservations at the will of oil companies, and helped Brazil assimilate people of the Amazon. 
 
+## 1970s 
+
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
+
+## 1980s 
 
 1981-08-05 President Ronald Regan fired 11,345 air traffic controllers because they were on strike demanding better pay and conditions.
 
 1987-01-01 Regan warned about the dangers of tariffs. 
 
+## 1990s
+
 1996-06-06 Antitrust Enforcement in the Meat Packing Industry (archived DOJ document)
+
+## 2009 
 
 2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”.
 
 2009-03-13 A study showed that income inequality is directly related to health and social problems, but more importantly that the wider the inequality gap in the country, the more likely those health problems reach the wealthy. Inequality doesn’t just hurt the people at the bottom; it degrades the entire system. 
 
+## 2011 
+
 2011-04-17 Trump said he wanted to seize oil fields in Libya and Iraq.
+
+## 2012 
 
 2012-01-01 Rush Limbaugh mocked food programs for hungry American families, “Now it has to be the best”. Limbaugh called compassion for the poor a “part of a partisan agenda”.
 
+## 2014 
+
 2014-07-17 When returns on capital exceed economic growth, wealth concentrates inevitably. 
+
+## 2015 
 
 2015-07-03 Aetna merged with Humana. Trump killed legislation designed to prevent monopolies. 
 
-2026-01-13 The Clarity Act was introduced to regulate digital assets but has come down to a fight over ethics enforcement, entanglements, and loopholes.
+## 2016 
 
 2016-09-21 Trump said he wanted to take the oil from Iraq, “You’re not stealing anything. We’re reimbursing ourselves”.
 
 2016-09-21 Obama brokered a Memorandum of Understanding with Israel that would run through 2028. The bill would guarantee $3.3BN per year to Israel. 
+
+## 2017 
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
 2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
 
 2017-11-24 Trump attempted to dismantle the Consumer Financial Protection Bureau.
+
+## 2018 
 
 2018-01-17 Apple announced it would invest $350B in the U.S. economy over the next 5 years.
 
@@ -101,9 +122,13 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2018-04-01 The U.S. entered a trade war with China.
 
+## 2019 
+
 2019-02-15 Trump declared a national emergency so he could redirect $8B in military construction and treasury funds into building the border wall***, and the ACLU sued.
 
 2019-07-11 Trump posted “I am not a fan of Bitcoin and other Cryptocurrencies, which are not money, and whose value is highly volatile and based on thin air. Unregulated Crypto Assets can facilitate unlawful behavior, including drug trade and other illegal activity”. Then he launched his own crypto.
+
+## 2020 
 
 2020-03-16 The stock market crashed.
 
@@ -115,11 +140,15 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2020-10-28 Trump handed farmers bailouts after his first trade war.
 
+## 2021 
+
 2021-02-19 Americans were economically “battered” by the pandemic.
 
 2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
 
 2021-10-18 Suppliers blamed supply chain issues for higher prices. 
+
+## 2022 
 
 2022-01-01 Either due to lifestyle choice or financial constraints, many Americans started living in their vans. The number reached 1.9M in 2020, and escalated to 3.1M in 2022. Berkshire Hathaway gained a corner on the market by owning the largest RV manufacturers in the country. 
 
@@ -133,6 +162,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2022-08-22 Amazon workers reported harsh conditions of excessive warehouse heat, no bathroom breaks, and penalties for talking in the aisles. 
 
+## 2023 
+
 2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
@@ -142,6 +173,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2023-05-24 Several States passed legislation forcing Americans to divert their tax money from public schools towards private schools for the elite. 
 
 2023-11-01 After the Hamas attacks on Israel, lawmakers pushed for a TikTok ban over alleged anti-Israel bias; venture capitalist Jeff Morris described a “TikTok War.”
+
+## 2024 
 
 2024-01-10 The top 10% of Americans own 93% of US equities. 
 
@@ -176,6 +209,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2024-12-08 Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
 
 2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.
+
+## 2025 January 
 
 2025-01-01 Larry Ellison, OpenAI Sam Altman, and Masayoshi Son of Softbank announced The Stargate Project to invest $500B in AI infrastructure in the U.S. by 2029.
 
@@ -223,6 +258,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-01-25 Trump handed four big tech giants massive tax breaks. 
 
+## 2025 February 
+
 2025-02-05 Global economic growth reached its lowest level since the pandemic.
 
 2025-02-06 Egg prices soared due to bird flu. When farmers rebuilt flocks and replaced sick birds, Trump took the credit. 
@@ -232,6 +269,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-02-14 Hundreds of videos were removed from the Consumer Financial Protection Bureau YouTube channel.
 
 2025-02-28 Elon Musk claimed social security was a “Ponzi scheme”.
+
+## 2025 March 
 
 2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call center staff.
 
@@ -253,6 +292,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-03-27 Trump signed executive order 14251 “Exclusions from Federal Labor Management Relations Programs”, which removed collective bargaining rights for more than 40 federal agencies.
 
+## 2025 April 
+
 2025-04-01 The Trump administration cut $754M in funding from conservation technical assistance.
 
 2025-04-01 Trump repealed Biden’s Salmonella Framework for Raw Poultry Products. Because of the repeal, poultry products contaminated with Salmonella can legally be sold so long as existing, less stringent, safety standards are met. 
@@ -267,6 +308,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell’s “termination cannot come fast enough.”
 
+## 2025 May 
+
 2025-05-06 After Trump cut after school programs, weaponized SNAP, dismantled mental health programs, fired working moms and dads, diverted taxpayer dollars to vanity projects, enriched his family business with foreign entanglements, and held lavish dinners for his billionaire friends, he told Meet the Press girls don’t need to have thirty dolls; they can have two or three. 
 
 2025-05-10 Congress repealed the CFPB’s overdraft rule which would have capped overdraft fees for consumers.
@@ -276,6 +319,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
 
 2025-05-20 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded  payroll and state taxes. 
+
+## 2025 June
 
 2025-06-01 Inflation surged.
 
@@ -290,6 +335,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-06-26 In response to ghost job postings applicants started using AI to generate blanket resumes. 
 
 2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County.
+
+## 2025 July 
 
 2025-07-03 DeSantis vetoed funds set aside for “Patriot Passport”, a veteran program designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
@@ -322,6 +369,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-07-30 Trump imposed an additional 40% tariff on Brazilian imports after the arrest of Jair Bolsonaro.
 
 2025-07-31 Treasury Secretary Scott Bessent clarified that “Trump Baby Accounts” were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security”.
+
+## 2025 August 
 
 2025-08-01 Donald Trump Jr. is an investor for and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital.
 
@@ -369,6 +418,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-08-29 The federal appeals court ruled that Trump’s tariffs were an overreach.
 
+## 2025 September
+
 2025-09-01 Soybean sales to China plummet compared to $12.6 Billion in sales in September 2024.
 
 2025-09-01 According to the Bureau of Labor Statistics, the annual labor inflation rose to 3% from 2024. Gas rose 4.1%, and groceries rose 2.7%.
@@ -414,6 +465,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-09-24 The Trump administration rehired many DOGE-fired federal workers.
 
 2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
+
+## 2025 October 
 
 2025-10-01 In response to the government shutdown, the Trump administration furloughed 96% of NRCS staff, effectively freezing conservation programs and the processing of financial aid and contracts for farmers.
 
@@ -473,6 +526,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-10-31 Trump repeatedly posted about a marble White House bathroom renovation during a hunger crisis.
 
+## 2025 November
+
 2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
@@ -509,6 +564,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
+## 2025 December
+
 2025-12-02 CNN partnered with Kalshi prediction market. CNN gained access to Kalshi’s data through an API and features a Kalshi ticker.
 
 2025-12-03 Trump rolled back vehicle fuel-efficiency standards, reduced targets from roughly 50 MPG to about 35 MPG and claimed that lowering carbon emissions was the cause for high auto prices.
@@ -524,6 +581,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-12-17 Trump held an 18-minute press conference to fixate on Biden, deflect affordability concerns, and tout a so-called “great economy”. 
 
 2025-12-31 Just 181,000 jobs were added in 2025, compared to 1.46M jobs in 2024 under Biden. 
+
+## 2026 January 
 
 2026-01-01 Three companies control roughly 75% of beer production. Trump revoked EO 14036 limiting monopolies. 
 
@@ -547,6 +606,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-01-13 Jeff Bezos said personal computing will inevitably move to the cloud, so someday people will have to “rent” cloud space just to use their computers. 
 
+2026-01-13 The Clarity Act was introduced to regulate digital assets but has come down to a fight over ethics enforcement, entanglements, and loopholes.
+
 2026-01-14 The Congressional Budget Office estimated American taxpayers would spend $125M just to rebrand the DoD as “Department of War”. 
 
 2026-01-27 Trump said, “I don’t want to drive housing prices down. I want to drive housing prices up for people that own their homes. And they can be assured that’s what’s going to happen”. 
@@ -558,6 +619,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-01-29 Social security is estimated to run dry by 2035. 
 
 2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
+
+## 2026 February 
 
 2026-02-01 Trump family’s World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
 
@@ -600,6 +663,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-02-27 Trump administration officials devised legal strategies to pocket illegal tariffs despite a Supreme Court ruling. 
 
 2026-02-28 The Bureau of Labor Statistics reported a sharp drop of 92,000 jobs and an unemployment rate of 4.4%.
+
+## 2026 March 
 
 2026-03-01 After Trump surprise-attacked Iran oil prices soared. Trump even mused over plans to purchase oil from Russia.
 
@@ -670,6 +735,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-03-27 The proposed funding bill by Democrats to fund TSA workers passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.
 
 2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown.
+
+## 2026 April
 
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
@@ -765,6 +832,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-04-30 The partial government shutdown ended after 75 days.
 
+## 2026 May 
+
 2026-05-01 Money market funds experienced high cash flow as investors parked their money in them, topping assets out at $8TR.
 
 2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements.
@@ -835,6 +904,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-05-31 The aluminum market was caught in between tariffs and the elective Iranian war and faced a supply risk.
 
+## 2026 June 
+
 2026-06-01 The drought crisis forced farmers to navigate water shortages.
 
 2026-06-01 Anthropic filed for an initial public offering after it raised $65B and pushed its valuation to $965B. Bernie Sanders announced a new bill that would create a sovereign wealth fund by imposing a one-time 50% tax on big-tech stock. Sanders wrote in an op-ed it would, “give the public a direct role in determining the future of this technology….not simply to make the richest people in the world even richer…”.
@@ -894,6 +965,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
 
 2026-06-30 Airline fares climbed 26.5%
+
+## 2026 July 
 
 2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
 

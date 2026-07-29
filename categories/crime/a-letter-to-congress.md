@@ -43,14 +43,19 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 ### Chronology.
 
+## 1970s 
 
 1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 
 
 1973-01-01 Wikipedia's overview of Trump states he has been involved in more than 4,000 legal cases.
 
+## 1980s 
+
 1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
 
 1989-01-01 Trump pushed for the death penalty of five wrongfully convicted Black and Latino men. The men later sued Trump. 
+
+## 1990s
 
 1996-01-01 Jeffrey Epstein faced sexual assault allegations dating back to 1996. 
 
@@ -58,19 +63,33 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 1999-01-07 Articles of impeachment were submitted for Clinton for lying under oath about Monica Lewinsky. 
 
+## 2000 
+
 2000-01-01 Trump said Epstein had "stolen" one of his spa employees; Virginia Giuffre would have been 16 at the time.
+
+## 2001
 
 2001-01-01 Stephen Miller reportedly called into Larry Elder’s radio show while in high school. Larry Elder referred to Trump sexual assault allegations as “child’s play”, wrote that women knew less about politics than men, and claimed systemic racism was lie.
 
+## 2003 
+
 2003-01-01 This is the year the Epstein birthday book was compiled, including a letter from Trump of a naked woman’s outline and the following, “Voice Over – There must be more to live than having everything. Donald – Yes, there is, but I won’t tell you what it is. Jeffrey – Nor will I, since I also know what it is. Donald – We have certain things in common, Jeffrey. Jeffrey – Yes, we do, come to think of it. Donald – Enigmas never age, have you noticed that? Jeffrey – As a matter of fact, it was clear to me the last time I saw you. Donald – A pal is a wonderful thing. Happy Birthday – and may every day be another wonderful secret”.
+
+## 2008 
 
 2008-07-01 Justice Samuel Alito – the person who helped overturn Roe v. Wade – took luxury fishing trips with GOP mega donors Leonard Leo and Paul Singer. Alito wrote an opinion article in the Wall Street Journal claiming ProPublica misleads its readers and that he didn’t have to report on the luxury trip. After the trip, Alito did not recuse himself from a case before the Supreme Court involving Paul Singer, or from a 2023 tax case involving an attorney who interviewed him for articles in the Wall Street Journal. It wasn’t until 2026 when Alito did recuse himself from an oil industry case due to a discovered conflict with his ConocoPhillips stock.
 
+## 2009 
+
 2009-05-29 Trump supporter, podcaster, and pastor Shane Vaughn was arrested on bank and insurance fraud.
+
+## 2016 
 
 2016-01-01 Multiple allegations of criminal activity involving Trump properties emerged in 2016.
 
 2016-10-01 Trump’s former attorney Michael Cohen paid Stormy Daniels $130,000 to remain silent about an alleged affair with Trump. In 2018, Cohen plead guilty to campaign finance violations related to the payment.
+
+## 2017 
 
 2017-01-20 Trump ordered 238 pardons and commutations in his first term. In his second year of his first term he ordered 2000.
 
@@ -78,7 +97,11 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
+## 2018 
+
 2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
+
+## 2019 
 
 2019-07-09 Democratic leaders including Lois Frankel and Debbie Wasserman Schultz called for continued investigation into Epstein, including his 2008 plea deal, his death, and the handling of his case. The 2008 plea deal was negotiated by then–U.S. Attorney Alex Acosta, who later became Trump's Labor Secretary.
 
@@ -89,6 +112,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2019-11-04 Approximate start date of E. Jean Carroll's lawsuits against Trump alleging sexual assault and defamation.
 
 2019-12-18 The House of Representatives impeached Trump for abuse of power and obstruction of justice. Trump was acquitted.
+
+## 2020 
 
 2020-01-22 The Attorney General alleged that Trump misused inaugural funds.
 
@@ -105,6 +130,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2020-12-21 The NAACP sued Trump over allegations that the administration is deliberately trying to disenfranchise Black voters in Michigan.
 
 2020-12-22 Dominion employees sued Trump for defamation.
+
+## 2021 
 
 2021-01-06 January 6 riots. Multiple lawsuits were filed seeking damages for injuries and losses related to the insurrection. (Covered separately.)
 
@@ -128,6 +155,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2021-11-05 A Delaware County voting machine warehouse supervisor sued Trump for defamation after receiving threats following election-related claims.
 
+## 2022 
+
 2022-01-31 Approximate start date of the Mar-a-Lago classified documents investigation timeline.
 
 2022-02-15 Prince Andrew settled a sex settlement case of Virginia Giuffre.
@@ -144,6 +173,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2022-12-06 Trump’s company was found guilty of criminal tax fraud.
 
+## 2023 
+
 2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
 
 2023-03-30 A Manhattan grand jury indicted Trump on state charges of falsifying business records.
@@ -151,6 +182,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.
 
 2023-09-15 Multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
+
+## 2024 
 
 2024-02-01 A New York State Supreme Court judge ruled that Trump engaged in a scheme to manipulate his net worth and property valuations.
 
@@ -182,6 +215,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls.
 
+## 2025 January 
 2025-01-14 During his confirmation hearing, Pete Hegseth was questioned about sexual assault allegations and a $50,000 settlement payment.
 
 2025-01-20 Trump rescinded Executive Order 14060 Establishing the United States Council on Transnational Organized Crime.
@@ -202,6 +236,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
+## 2025 February 
+
 2025-02-09 JD Vance claimed on social media that judges cannot direct the executive branch's legitimate exercise of power, “If a judge tried to tell a general how to conduct a military operation, that would be illegal. If a judge tried to command the attorney general in how to use her discretion as a prosecutor, that’s also illegal. Judges aren’t allowed to control the executive’s legitimate power”.
 
 2025-02-10 Trump fired the head of the independent Office of Government Ethics David Huitema.
@@ -209,6 +245,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-02-14 New York US Attorney Danielle Sassoon resigned after refusing to drop corruption charges against Mayor Eric Adams per order of Pam Bondi who wanted Sassoon to quash the federal indictment as a favor to Trump.
 
 2025-02-27 The Trump administration targeted legal oversight of military lawyers, stating their enforcement of law were potential “roadblocks” to Trump’s orders.
+
+## 2025 March 
 
 2025-03-07 The Trump administration fired head of the Office of Professional Responsibility Jeffrey Ragsdale. 
 
@@ -226,6 +264,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-03-28 Trump pardoned Carlos Watson who was convicted of $60M in investor fraud.
 
+## 2025 April 
+
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
 
 2025-04-02 A federal judge dismissed criminal corruption charges against Eric Adams after Trump’s DOJ ordered the charges to be dropped.
@@ -233,6 +273,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-04-23 Trump pardoned Michele Fiore who was convicted of $70M in charity fraud.
 
 2025-04-23 Trump pardoned Paul Walczak who was convicted of $10M in tax fraud.
+
+## 2025 May 
 
 2025-05-04 When asked whether he was required to uphold the Constitution, Trump replied, "I don't know”.
 
@@ -252,9 +294,13 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-05-28 Trump pardoned Lawrence Duran who was convicted of $205M in Medicare fraud.
 
+## 2025 June 
+
 2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
 
 2025-06-18 Trump called attention to the Epstein files a "Democrat hoax" and evaded related questions.
+
+## 2025 July 
 
 2025-07-02 Senator Warren called for an investigation into the $16M Paramount settlement with Trump, calling the settlement “meritless”.
 
@@ -278,6 +324,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-07-29 Trump told the media he had a falling out with Epstein after Epstein “stole” a spa worker from him in 2000. Virginia Giuffre would have been 16 in 2000.
 
+## 2025 August 
+
 2025-08-01 Ghislaine Maxwell was transferred to a lower-security federal prison.
 
 2025-08-06 Florida official Carolina Amesty was charged with fraudulently obtaining more than $100,000 in COVID-19 relief funds. After hiring Brad Bondi, Pam Bondi's brother, the DOJ dropped the charges later that month.
@@ -291,6 +339,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-08-28 Trump withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
 2025-08-30 The U.S. Navy sank a Venezuelan vessel in international waters.
+
+## 2025 September
 
 2025-09-02 Epstein victims met privately with lawmakers; a public press conference followed on September 3.
 
@@ -334,6 +384,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
 
+## 2025 October
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 2025-10-12 Asked about allegations that Tom Homan accepted a $50,000 bribe, JD Vance denied the claim in an ABC interview, “George, you’ve covered the story ad nauseum. Tom Homan did not take a bribe. It’s a ridiculous smear…”.
@@ -349,6 +400,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
 2025-10-27 Trump pardoned Heather Morgan ("Razzlekhan"), who was convicted of laundering billions in cryptocurrency tied to the 2016 Bitfinex hack.
+
+## 2025 November
 
 2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
@@ -390,6 +443,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
+## 2025 December
+
 2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority and reshape federal checks and balances.
 
 2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
@@ -397,6 +452,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-12-19 Trump pardoned Joseph Schwartz, who was convicted in a $38 million nursing home fraud case and orchestrated a $39 million payroll tax scheme. In 2017, conditions at his facilities were so poor that inspectors found maggots on patients’ catheters and cited them for neglect. The pardon allowed Schwartz to avoid paying restitution to victims. Notably, he had donated more than $1 million to right-wing campaigns and Trump-connected lobbyists. Trump then effectively gave him a $5 million break, leaving nursing home victims unpaid.
 
 2025-12-20 The DOJ released only a heavily redacted portion of the Epstein files. Reports alleged some files mentioning Trump appeared then quickly disappeared from the DOJ website. Critics accused the DOJ of repeatedly withholding or redacting relevant documents, including a sexual-assault allegation against Trump involving a 13-year-old girl.
+
+## 2026 January 
 
 2026-01-09 The Mississippi Free Press published an article reminding readers that former director of the Mississippi Department of Human Services was arrested six years prior for diverting millions of federal welfare dollars, giving those fraudulent funds to people like former WWE wrestlers and other athletes for personal use. This article was published shortly after the Trump administration launched its attack on Minnesota for welfare fraud, specifically targeting Somali residents.
 
@@ -423,6 +480,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-01-22 Trump criticized Special Counsel Jack Smith on Truth Social. Smith had prosecuted Trump in cases involving election interference and classified documents at Mar-a-Lago.
 
 2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
+
+## 2026 February 
 
 2026-02-01 Trump family's World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
 
@@ -454,6 +513,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2026 March 
+
 2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
 2026-03-05 Pam Bondi sought to limit ethics investigations involving DOJ attorneys by proposing a regulation which would allow the DOJ to head off state bar investigations. 
@@ -483,6 +544,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout. 
 
 2026-03-31 Several January 6 defendants pardoned by Trump were later charged with new offenses, including assault, harassment, and alleged murder plots.
+
+## 2026 April 
 
 2026-04-01 Hegseth nullified the Army’s investigation into the pilot who did a low fly-by of Kid Rock’s mansion. Hegseth wrote, “Pilots suspension LIFTED. No punishment. No investigation. Carry on patriots”.
 
@@ -544,6 +607,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-04-28 Maurene Comey's wrongful-termination lawsuit continued after Trump fired her in 2025. She was the lead prosecutor in the Epstein Case and secured a conviction against Gislaine Maxwell.
 
+## 2026 May 
+
 2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 2026-05-03 Israel displaced residents from ten Lebanese towns and killed 2,659 civilians in Lebanon since March.
@@ -598,6 +663,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-05-31 On Fox, Ken Paxton responded to being called ‘scandal plagued’, “The reality is they could say the same thing about Donald Trump…”
 
+## 2026 June
+
 2026-06-03 Republicans joined Democrats in a 215–208 House vote to end the Iran conflict. The measure remained largely symbolic because it still required Senate approval and Trump's signature.
 
 2026-06-18 Texas Attorney General Ken Paxton pardoned Adam Hoffman, who was charged with a first-degree felony for repeatedly sexually assaulting an 8-year-old boy. Hoffman did not have to register as a sex offender or stay longer than 29 days in jail. 
@@ -620,6 +687,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-06-30 SCOTUS rejected Trump’s case against E. Jean Carroll. 
 
+## 2026 July 
 
 2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
 
