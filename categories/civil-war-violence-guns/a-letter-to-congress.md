@@ -43,21 +43,30 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 ### Chronology.
 
+## 1980s 
 
 1982-01-01 The Federalist Society was founded by Yale, Harvard, and University of Chicago law students to challenge liberal legal ideas. Many Trump allies have been members or supporters.
+
+## 1990s
 
 1992-08-17 Pat Buchanan declared a cultural and religious war as part of his "Make America First Again" campaign. 
 
 1999-08-16 David Horowitz published an article in Salon, writing, “Guns don’t kill black people, other blacks do… The NAACP’s ludicrous idea to sue gun manufacturers is yet another attempt by the left to avoid personal responsibility for some individuals’ bad behavior…If blacks are oppressed in America, why isn’t there a black exodus? Why do all those black Haitians want to come here? To be oppressed?”.
+
+## 2008 
 
 2008-08-24 Three white supremacists attempted to assassinate Obama. The alleged motive was a belief that an African American should not be elected President. 
 
 
 2008-10-27 Two white supremacists were arrested after plotting to murder Obama and then carry out a racially motivated killing spree. 
 
+## 2010 
+
 2010-03-01 SarahPAC published a map placing crosshairs over Democratic congressional districts with the slogan "Reload”. 
 
 2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.
+
+## 2011
 
 2011-01-08 Representative Gabby Giffords and 18 others were shot at a “Congress On Your Corner” event in Tucson.
 
@@ -65,13 +74,21 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2011-11-11 Oscar Ramiro Ortega-Hernandez fired a semi-automatic rifle at the White House in effort to assassinate Obama. 
 
+## 2014
+
 2014-12-14 Alex Jones claimed on air that Sandy Hook was a false flag plot by Democrats over the Second Amendment. He didn’t concede until 2022 the shooting was real. 
 
+## 2015
+
 2015-01-01 By this year, Obama had been through at least eleven (11) attempted assassinations or plots. 
+
+## 2016
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
 
 2016-08-22 During a speech Trump said, “You could go to war zones in countries we’re fighting and it’s safer than living in some of our inner cities that are run by the Democrats”.
+
+## 2017 
 
 2017-01-20 In his inaugural address, Trump said the political establishment protected itself rather than ordinary citizens. 
 
@@ -81,13 +98,19 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
+## 2018 
+
 2018-02-05 During a speech Trump accused Democrats of treason.
 
 2018-10-01 Bill Clinton survived at least 5 assassination attempts. 
 
+## 2019 
+
 2019-03-01 Marjorie Taylor Greene confronted and harassed Parkland shooting survivor David Hogg and promoted claims that he was funded by George Soros
 
 2019-09-10 Trump publicly criticized former National Security Advisor John Bolton. 
+
+## 2020 
 
 2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
@@ -101,6 +124,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
+## 2021 
+
 2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results.
 
 2021-01-06 After January 6, Republican figures and right-wing influencers falsely blamed Antifa, amplifying “false flag” and “Ray Epps” theories.
@@ -108,6 +133,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2021-01-06 Tucker Carlson allegedly texted a producer about J6, “A couple of weeks ago, I was watching video of people fighting on the street in Washington,” Carlson texted a producer. “A group of Trump guys surrounded an Antifa kid and started pounding the living s**t out of him. It was three against one, at least. Jumping a guy like that is dishonorable obviously. It’s not how white men fight. Yet suddenly I found myself rooting for the mob against the man, hoping they’d hit him harder, kill him. I really wanted them to hurt the kid. I could taste it”. 
 
 2021-06-24 An OAN host repeated election-fraud claims and suggested "traitors" who stole the election should be executed
+
+## 2022 
 
 2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
 
@@ -129,6 +156,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
 
+## 2023 
+
 2023-02-08 Arkansas Governor Sarah Huckabee Sanders framed politics as a choice between "normal or crazy", accused Democrats of promoting "woke fantasies." and asserted that Republicans “are under attack in a left-wing culture war”.
 
 2023-04-05 Charlie Kirk said, “I think it’s worth it to have a cost of, unfortunately, some gun deaths every single year so that we can have the second amendment to protect our other God-given rights. That is a prudent deal. It is rational.”
@@ -142,6 +171,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 2023-09-29 Representative Paul Gosar criticized foreign intervention and spending that conflicted with "America First" agendas.
 
 2023-11-02 Ken Buck broke with Trump-aligned Republicans on fiscal conservatism and rule-of-law issues.
+
+## 2024 
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it."
 
@@ -179,11 +210,17 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2024-11-06 Mike Davis wrote on Twitter “I want to drag their dead political bodies through the streets, burn them, and throw them off the wall”.
 
+## 2025 January
+
 2025-01-10 Lucy Harrison was shot in the chest with a semi-automatic handgun by her father in Prosper Texas after an argument about Trump. The father was never charged, stating the gun went off accidentally.
 
 2025-01-20 The administration eliminated the White House Office of Gun Violence Prevention, repealed the ATF's zero-tolerance dealer policy, reduced community-violence funding, and removed $1 billion for school mental-health programs.
 
+## 2025 February
+
 2025-02-09 Following large federal workforce firings from DOGE a Tesla was set on fire at an Albuquerque showroom 
+
+## 2025 March
 
 2025-03-04 Representative Chip Roy criticized federal spending agreements and insufficient budget cuts 
 
@@ -193,13 +230,19 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-03-18 Arsonists set fire to a Tesla showroom in Las Vegas 
 
+## 2025 April
+
 2025-04-04 Even right-wing hack Ben Shapiro criticized Trump’s tariff policies.
 
 2025-04-13 Arsons set fire to Pennsylvania Democratic Governor Josh Shapiro’s home.
 
 2025-04-30 Charlie Kirk said, “America has freedom of religion, of course, but we should be frank: large dedicated Islamic areas are a threat to America.”
 
+## 2025 May
+
 2025-05-26 Violent rhetoric from posts made by Trump emboldened activists to threaten judges after courts ruled ending the 14th Amendment to the Constitution and tariffs illegal. Judges received death threats, bomb threats, malicious swat calls, doxxing, and they were posted on a wanted poster at the White House entitled “Known Get-Trump Judicial Activists”. See Trump posts May 26, 2025 at 7:22AM (search “SCUM”) and March 18, 2025 at 9:05AM (search “LUNATIC”). 
+
+## 2025 June
 
 2025-06-08 Stephen Miller claimed protests in Los Angeles were  “an insurrection against the laws and sovereignty of the United States”. 
 
@@ -219,9 +262,13 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-06-28 Trump posted on social media, “Republicans must remember that they are fighting against a very evil, corrupt and, in many ways, incompetent (Policywise!) group of people, who would rather see our Country “go down in flames” than do the right thing”. 
 
+## 2025 July 
+
 2025-07-17 The administration proposed restoring a federal process allowing some people with prior convictions to seek restoration of firearm rights 
 
 2025-07-20 Trump posted an AI-generated video depicting Barack Obama being arrested.
+
+## 2025 August 
 
 2025-08-22 After the killing of Iryna Zarutska, several right-wing commentators used the case to argue for National Guard deployment in Charlotte
 
@@ -237,6 +284,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-08-31 Pope Leo called school shootings in America a "pandemic of arms".
 
+## 2025 September
+
 2025-09-03 Trump supporters ousted Representative Thomas Massie after he pushed for release of the Epstein files.
 
 2025-09-05 The DOJ considered banning guns specifically from anyone transgender.
@@ -251,7 +300,7 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2025-09-10 Elon posted on X the left is the “party of murder”
 
-2025-9-10 Elon Musk posted on X “If they won’t leave us in peace, then our choice is fight or die”
+2025-09-10 Elon Musk posted on X “If they won’t leave us in peace, then our choice is fight or die”
 
 2025-09-10 Laura Loomer posted a message on X calling the Left terrorists and asserted “they” sent a trained sniper to assassinate Kirk. 
 
@@ -396,6 +445,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
 
+## 2025 October
+
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
 
 2025-10-08 Florida Representative Kevin Steele introduced legislation threatening state funding for colleges and universities that did not name roads after Charlie Kirk.
@@ -416,6 +467,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2025-10-29 Senator Susan Collins broke with Trump on a vote involving tariff-related emergency powers.
 
+## 2025 November
+
 2025-11-07 Tucker Carlson labeled pro-war Republicans “Israel First” instead of America First, directly rebuking Trump’s framing.
 
 2025-11-10 Tensions emerged between MAGA supporters and Tucker Carlson after Carlson interviewed Nick Fuentes.
@@ -423,6 +476,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2025-11-24 Senator Ron Johnson criticized deficit spending and tariff policies, arguing they threatened long-term fiscal stability.
 
 2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
+
+## 2025 December
 
 2025-12-04 The Justice Department issued a broad domestic-terrorism directive focused on alleged Antifa-related activity.  Remember: this administration accused Alexi Pretti of terrorism, and they shot him in the back 10 times.
 
@@ -433,6 +488,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2025-12-19 Tucker Carlson and Ben Shapiro clashed at a TPUSA event over Israel and foreign policy.
 
 2025-12-22 Megyn Kelly and Ben Shapiro publicly disagreed during AmericaFest.
+
+## 2026 January
 
 2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
@@ -448,9 +505,13 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 
+## 2026 February
+
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses.
 
 2026-02-08 Multiple far-right commentators complained that the Superbowl halftime show was divisive, sexualized, and too Spanish. 
+
+## 2026 March
 
 2026-03-03 Nick Fuentes criticized Trump's pro-Israel and anti-Iran policies as inconsistent with nationalist principles.
 
@@ -485,6 +546,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”.
 
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions.
+
+## 2026 April
 
 2026-04-02 Trump fired Pam Bondi and moved her to the private sector. Trump had not been pleased with Bondi ever since she failed to prosecute Leticia James and James Comey.
 
@@ -522,6 +585,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-04-29 Trump posted an AI image of himself holding an assault rifle.
 
+## 2026 May
+
 2026-05-01 During a speech in Florida, Trump accused political opponents of treason for saying the United States was not winning in Iran.
 
 2026-05-01 MAHA leaders opposed Trump’s Surgeon General nominee switch from Casey Means to Nicole Saphier.
@@ -548,6 +613,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
 
+## 2026 June
+
 2026-06-12 Mike Bost accused the VFW of promoting political violence in their Honor the Contract campaign to oppose reducing disability compensation for veterans by $57B.  
 
 2026-06-22 A suspect was detained at a California library for attempting a “Columbine” style massacre. 
@@ -558,6 +625,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
 
+## 2026 July 
 
 2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
 

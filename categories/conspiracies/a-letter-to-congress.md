@@ -41,6 +41,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 ### Chronology.
 
+## 1990s
+
 1992-03-08 Kenneth Starr led a witch-hunt against the Clintons in the so-called Whitewater scandal, alleging fraud. 
 
 1994-01-01 Televangelist Jerry Falwell promoted The Clinton Chronicles, a mockumentary accusing Bill Clinton of drug use, affairs, harassment, financial crimes, cover-ups, witness murders, and document destruction. 
@@ -49,26 +51,39 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 1999-06-20 Falwell’s National Liberty Journal called the Lilith Fair women’s music festival demonic because it referenced Lilith. 
 
+## 2001 
+
 2001-09-11 Alex Jones decried that 9/11 was a “false flag”. 
 
-
 2001-09-11 Alex Jones decried that 9/11 was a “false flag”. 
+
+## 2005 
 
 2005-01-01 A seven-part series of conspiracy-theory films about 9/11 called Loose Change was released. 
 
 2005-12-06 Stephen Miller published “Attack of the Secularist Scrooges” in The Duke Chronicle, promoting the “war on Christmas” narrative.
 
+## 2008 
+
 2008-01-01 Trump pushed the “birther” conspiracy about Obama, claiming he was ineligible to run for presidency. 
+
+## 2011 
 
 2011-01-01 From 2011 to 2019, Fox News repeatedly mocked “shrimp on a treadmill” research, inflating costs and ignoring its food-safety purpose.
 
 2011-03-28 During an interview with Fox, Trump claimed about Obama, “He doesn’t have a birth certificate. He may have one, but there’s something on that, maybe religion, maybe it says he is a Muslim”.
 
+## 2012 
+
 2012-10-30 Right-wing figures spread claims that Obama manipulated Hurricane Sandy to help his reelection; Trump tweeted several times that the storm benefited Obama politically.
+
+## 2014 
 
 2014-02-04 Facebook rumors claimed Obama ordered $1 billion in disposable coffins for FEMA detention centers in case of an American revolt.
 
 2014-12-14 Alex Jones claimed on air that Sandy Hook was a false flag plot by Democrats over the Second Amendment. He didn’t concede until 2022 the shooting was real. 
+
+## 2015 
 
 2015-01-01 Alex Jones claimed the government is putting chemicals in the water that turn the frogs gay”. 
 
@@ -76,21 +91,29 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2015-05-21 A London Review of Books article suggested the Bin Laden raid was a lie and cover-up.
 
+## 2016 
+
 2016-06-16 Trump promoted the claim that Obama helped found ISIS, telling CNBC, “No, I meant that he’s the founder of ISIS. I do. He was the most valuable player. I gave him the most valuable player award”.
 
 2016-12-02 Pizzagate spread online after leaked Podesta emails were falsely interpreted as code for a Clinton-linked child sex ring.
 
 2017-01-20 Though it originated in 1990, the Deep State conspiracy gained a lot of traction during Trump’s first presidency. The theory alleges a shadow government of unelected officials and corporate elites manipulate and run the country. 
 
+## 2017 
+
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 
 2017-10-01 QAnon began on 4chan when an anonymous user claimed ‘Q clearance’ and posted cryptic pro-Trump messages and the slogan “Where we go one, we go all.”
+
+## 2018 
 
 2018-02-05 During a speech Trump accused Democrats of treason.
 
 2018-05-23 Parents of the Sandy Hook victims sued Alex Jones for defamation. 
 
 2018-11-01 Marjorie Taylor Greene posted a deleted theory that California wildfires were started by “space solar generators.
+
+## 2020 
 
 2020-04-23 During a COVID press conference, Trump mused over injecting disinfectant as treatment. When a reporter told Trump to stop spreading dangerous misinformation Trump lashed out.
 
@@ -99,6 +122,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2020-09-17 Trump posted, “No one has been more wrong, more often than Biden. He voted FOR the Iraq War, he supported the defense sequester that gutted our military, he opposed the mission to take out Osama bin Laden, he opposed killing Soleimani, he oversaw the rise of ISIS, and he cheered the rise of…China as a “positive development” for America and the world. If it were up to Joe, bin Laden and Soleimani would still be alive, ISIS would be still on the rampage, and China would now be the dominant power in the world – not America.”.
 
 2020-10-13 After Trump boosted a QAnon-linked Bin Laden conspiracy, a Navy SEAL from the raid publicly refuted the claim. 
+
+## 2021 
 
 2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
@@ -112,15 +137,21 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2021-12-01 Conservatives spread the hoax that schools gave litter boxes to students identifying as cats; the claim persisted into 2023 and spread internationally.
 
+## 2022 
+
 2022-12-02 Alex Jones filed two chapter 11 bankruptcies. 
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+
+## 2023 
 
 2023-01-16 Conservatives claimed the green M&M is gay. 
 
 2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
 2023-11-13 Social media conspiracy claims spread that Bill Gates bioengineered, and then released, genetically modified ticks to release the alpha-gal virus. 
+
+## 2024 
 
 2024-01-08 Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.
 
@@ -184,17 +215,23 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2024-12-24 Elon Musk attacked Wikipedia as “Wokepedia” and later launched “Grokipedia,” drawing comparisons to the conservative alternative encyclopedia Conservapedia.
 
+## 2025 January 
+
 2025-01-16 Social media rumors claimed California wildfires were caused by a “Directed Energy Weapon” (DEW).
 
 2025-01-30 Trump blamed DEI, Biden, and Pete Buttigieg for the Potomac plane crash and signed an executive order ending federal DEI hiring practices.
 
 2025-01-30 White House Press Secretary Karoline Leavitt claimed U.S. taxpayers spent $50 million on condoms for Gaza.
 
+## 2025 February 
+
 2025-02-03 Elon Musk revived criticism of “shrimp treadmill” research, calling it an “insane” waste of taxpayer money”. 
 
 2025-02-04 In response to the Potomac crash Senator Roger Marshall said, “Well, I think diversity issues did contribute to this accident, and what we know for sure is that under Joe Biden that they lowered the standards for people getting into air traffic control. And with that, the number of near misses increased 70% a year”. The Senator went on to say, “What I think you’re gonna find out is there were a lot of qualified white men that they were not hiring because they were holding spots for DEI hires”.
 
 2025-02-20 After a viral post claimed Fort Knox gold was missing, Trump announced in a press conference they “might be going to Fort Knox” to verify.
+
+## 2025 March 
 
 2025-03-04 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security.
 
@@ -204,13 +241,21 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-03-25 Minnesota introduced SF 2589 to study what they call “Trump Derangement Syndrome”.
 
+## 2025 April 
+
 2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
 
+## 2025 May 
+
 2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced Bill HR3432 the so-called “Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn’t aligned with the Trump agenda must be suffering from a mental illness. This was not the first use of this phraseology - it was also found in an opinion article in 2023 “Bari Weiss Derangement Syndrome”.
+
+## 2025 June
 
 2025-06-06 News Talk WRNO posted "Mike Howell, President of the Oversight Project and the leading figure in uncovering the autopen scandal, is now weighing in on the Trump Administration's news that they officially opened an investigation into whether Joe Biden was competent when he used an autopen". On the 23rd of June, Mike Howell wrote, “Now may I please direct your attention back to the autopen scandal”.
 
 2025-06-22 Trump posted about the autopen, “In other words, Joe Biden did not sign them but, more importantly, he did not know anything about them!” referencing both pardons and staff on the team investigating the January 6 riots.
+
+## 2025 July 
 
 2025-07-01 Kristi Noem claimed an immigrant attempted to eat their own arm during a deportation flight.
 
@@ -220,7 +265,11 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-07-23 Tulsi Gabbard claimed in a conspiracy-board post that newly released intelligence documents showed the Obama administration manufactured evidence of Russian election interference in 2016
 
+## 2025 August 
+
 2025-08-25 During an interview with Sean Hannity, Stephen Miller claimed that Democrats are a domestic extremist group. 
+
+## 2025 September
 
 2025-09-08 Trump posted “THE BIDEN AUTOPEN SCANDAL IS BIG, NOT AS BIG AS THE RUSSIA, RUSSIA, RUSSIA HOAX, OR THE RIGGED 2020 PRESIDENTIAL ELECTION, BUT, NEVERTHELESS, ONE OF THE BIGGEST, EVER!!!”
 
@@ -235,6 +284,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-09-29 Trump briefly shared and then deleted an AI-generated video featuring Lara Trump promoting “Medbeds.”
 
 2025-09-29 Fox News used viral riot footage from 2020 to report on current protests in Portland.
+
+## 2025 October
 
 2025-10-05 Mike Johnson posted, “as a condition for ending the Democrat shutdown, Democrats want hospitals (to be) paid MORE to treat illegal aliens than American citizens”.
 
@@ -252,6 +303,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-10-25 Portland resident Chandler Patey was labeled "Antifa" and his home an "Antifa safe house" after helping protesters affected by pepper spray.
 
+## 2025 November
+
 2025-11-03 Conservative activist Laura Loomer received Pentagon press credentials.
 
 2025-11-09 Trump claimed Obama collected royalties from Obamacare.
@@ -259,6 +312,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-11-14 Mike Johnson used the government shutdown to claim multiple times that the Democrats “broke the American healthcare system”.
 
 2025-11-20 The CDC website was altered to promote claims linking vaccines and autism.
+
+## 2025 December
 
 2025-12-04 The Justice Department issued a broad domestic-terrorism directive focused on alleged Antifa-related activity. Remember: this administration accused Alexi Pretti of terrorism, and they shot him in the back 10 times. 
 
@@ -272,26 +327,39 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2025-12-27 JD Vance praised Nick Shirley “This dude has done far more useful journalism than any of the winners of the 2024 @pulitzercenter  prizes.”
 
+## 2026 January 
+
 2026-01-09 Laura Ingraham peddled claims that anti-ICE protesters were being paid rather than acting independently.
 
 2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
 
 2026-01-27 Representative Ilhan Omar was attacked by a far-right activist during a town hall. Trump later claimed the incident had been staged.
 
+## 2026 February 
+
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 
+
+## 2026 March 
 
 2026-03-06 Trump accused Bill Maher of having “Trump Derangement Syndrome” after Maher criticized Trump. Bill Maher responded, “I go by what George Bush said to Obama on the day he was inaugurated: ‘We want you to succeed’. I always want the American president to succeed, and I do give credit when you have. But there’s lots of stuff you do that is not my idea of success and I have every right to say so in a democracy…it’s not derangement for me to be always calling out the election denying obsession you have, or the pardons from my friends and punishment for my enemies mode of governing, or the side deals for your family that always seem to be part of everything. We see how rich you’ve all become, but the people of West Virginia don’t seem to be feeling the winning.”
 
 2026-03-20 FEMA official George Phillips claimed his truck levitated 40 miles and he was teleported to a Waffle House. Phillips promoted voter fraud allegations in 2016. 
 
+## 2026 April 
+
 2026-04-18 Trump’s former press secretary Kayleigh McEnany posted, “Trump Derangement Syndrome (TDS) is driving several blue states to enable fraud!”. In 2020 she pushed election fraud claims and tried to have all Pennsylvanian ballots thrown out.  After disclosure of her financial statements showing she received funds from both Trump and TPUSA, Fox news fired her. 
 
 2026-04-20 The Onion obtained Alex Jones’ InfoWars. Alex Jones accused some of the owners of being “satanic pedophiles”.
 
+## 2026 May 
 
 2026-05-23 Licensed psychiatrist Carole Lieberman and RFK are out designate Trump Derangement Syndrome a real diagnosis and assign it an International Classification of Diseases code.
 
+## 2026 June
+
 2026-06-24 Eight protesters received decades-long sentences and declared terrorists for demonstrating outside detention centers, with former Marine reserivst Benjaimin Song receiving a 100-year sentence for participating.
+
+## 2026 July 
 
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
 

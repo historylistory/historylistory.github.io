@@ -46,12 +46,19 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 ### Chronology.
 
+## 2012
 
 2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
 
+## 2015 
+
 2015-08-03 After the Paris Climate Agreement conference, Obama launched the Clean Power Plan. The U.S. is responsible for nearly 20% of historical cumulative emissions. 
 
+## 2016
+
 2016-12-31 On his podcast, RFK Jr. warned that Trump would attempt to dismantle environmental protections, including safe-water safeguards.
+
+## 2017 
 
 2017-01-01 Trump proposed a 16% cut to NOAA and deeper cuts to the Office of Oceanic and Atmospheric Research. Congress rejected both. 
 
@@ -61,19 +68,29 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2017-06-01 Trump withdrew the United States from the Paris Climate Accord.
 
+## 2018 
+
 2018-01-01 The Trump administration tried to eliminate the Joint Fire Science Program, which funds wildfire prevention and management research.
 
 2018-03-14 The Heritage Foundation called for repealing NEPA, arguing environmental reviews slow and increase the cost of infrastructure projects.
+
+## 2019 
 
 2019-06-27 Ohio House Bill 6’s “Clean Air Program” was viewed as a bailout benefiting specific companies, including FirstEnergy, which had dumped arsenic-laden coal waste in 2013.
 
 2019-11-25 Fox commentator Tomi Lahren dismissed environmental protests as “tantrums,” saying, “I’m sick and tired of the crybabies.”
 
+## 2023 
+
 2023-09-08 Reports raised concerns about Nebraska Governor Jim Pillen’s family farm and nitrate contamination in local drinking water.
+
+## 2024 
 
 2024-04-01 Climate-related cocoa shortages drove prices to record highs. Some manufacturers reduced cocoa content, substituted palm kernel oil for cocoa butter, and relabeled products under FDA rules. Some estimates suggest chocolate production could become severely threatened by 2050.
 
 2024-07-02 On Breaking Points, RFK Jr. said, “When a regulatory agency becomes captured by corporations, it also functions to widen corporate power”.
+
+## 2025 January 
 
 2025-01-20 Project 2025 (pp. 366, 709) advocates withdrawing from the Paris Agreement and UN climate framework while criticizing clean-energy subsidies.
 
@@ -99,6 +116,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-01-20 Trump rescinded Executive Order 14082 Implementation of the Energy and Infrastructure Provisions of the Inflation Reduction Act of 2022.
 
+## 2025 February
+
 2025-02-01 DOGE terminated hundreds of NOAA probationary employees, affecting weather forecasting, weather balloon launches, leadership positions, and around-the-clock operations. 
 
 2025-02-01 The Trump administration froze congressionally approved funding for wildfire prevention programs.
@@ -107,9 +126,13 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-02-21 FEMA began layoffs, grant freezes, and reductions in disaster funding. Central Texas later struggled to secure flood-response assistance. 
 
+## 2025 March 
+
 2025-03-12 The EPA announced major cuts affecting cleanup projects, recycling programs, and anti-dumping efforts while reconsidering regulations on power plants, oil, gas, greenhouse-gas reporting, and toxic emissions.
 
 2025-03-21 The Trump administration dismantled the Office of Environmental Justice and External Civil Rights.
+
+## 2025 April 
 
 2025-04-01 The administration proposed a $1.7 billion (27%) cut to NOAA’s 2026 budget, eliminating most climate and coastal research programs.
 
@@ -123,7 +146,11 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-04-28 Following Project 2025 recommendations (page 59), all authors working on the National Climate Assessment were fired.
 
+## 2025 May 
+
 2025-05-08 Trump fired FEMA Acting Administrator Cameron Hamilton one day after he testified against dismantling the agency.
+
+## 2025 June
 
 2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 
@@ -134,6 +161,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2025-06-26 Peter Thiel suggested in a New York Times interview that climate activists, including Greta Thunberg, could serve as “legionnaires of the Antichrist.”
 
 2025-06-29 The EPA lowered appliance-efficiency standards, consistent with goals outlined in Project 2025 (page 378).
+
+## 2025 July 
 
 2025-07-01 The administration erased climate-change reports and the website GlobalChange.gov.
 
@@ -159,6 +188,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-07-29 The Trump administration attempted to repeal a 2009 EPA endangerment finding that greenhouse gas emissions are air pollutants that endanger public health and welfare.
 
+## 2025 August 
+
 2025-08-04 Trump pushed to end two NASA satellite missions monitoring atmospheric CO₂ and plant health. NASA considered relocating the instruments to the ISS with private funding.
 
 2025-08-12 The Union of Concerned Scientists filed a lawsuit against Trump, alleging that Energy Secretary Chris Wright “quietly arranged for five hand-picked skeptics of the effects of climate change” to compile the government’s climate report and violated the law by creating the report with “only one point of view”.
@@ -170,6 +201,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2025-08-27 FEMA members were placed on administrative leave after signing a Katrina Declaration warning on the effects of funding cuts.
 
 2025-08-31 Reports of flash flooding, rip currents, heat waves, and wildfires surged nationwide.
+
+## 2025 September
 
 2025-09-01 Residents near data centers reported infrasound-related illnesses, headaches, seizures, and forced relocations.
 
@@ -183,6 +216,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-09-30 The administration announced plans to cut one-third of remaining EPA staff by year’s end, in addition to earlier reductions.
 
+## 2025 October
+
 2025-10-02 In response to the shutdown Trump pulled $8 billion in clean-energy funding from Democratic-led states.
 
 2025-10-18 Reports from both parties alleged politically motivated FEMA funding decisions under multiple administrations
@@ -192,6 +227,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2025-10-24 Trump removed protections from Alaska’s National Wildlife Refuge for oil and gas drilling.
 
 2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
+
+## 2025 November
 
 2025-11-07 The Guardian reported on “Atlas,” an alleged ExxonMobil-backed climate-change denial campaign.
 
@@ -203,17 +240,23 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-11-26 The Trump administration reduced air pollution reduction requirements.
 
+## 2025 December
+
 2025-12-03 Trump rolled back vehicle fuel-efficiency standards, reduced targets from roughly 50 MPG to about 35 MPG and claimed that lowering carbon emissions was the cause for high auto prices.
 
 2025-12-19 The administration proposed dismantling the National Center for Atmospheric Research, an agency that Russ Vought accused of being “a source of climate alarmism”.
 
 2025-12-19 U.S. Representative Bruce Westerman of Arkansas and Representative Jared Golden of Maine introduced the SPEED Act (Standardizing Permitting and Expediting Economic Development – HR 4776) to overhaul the National Environmental Policy Act. For context, NEPA was enacted in 1970 to force businesses to disclose their environmental impacts before they can receive funding and permits.
 
+## 2026 January 
+
 2026-01-07 Trump eliminated the White House Office of Domestic Climate Policy.
 
 2026-01-14 The EPA stated they would stop calculating how much money is saved in health care costs and how many deaths were prevented by air pollution reduction measures.
 
 2026-01-22 The U.S. experienced record cold across parts of the South and severe rain and ice storms in the Northeast. 
+
+## 2026 February 
 
 2026-02-03 Interior Secretary Doug Burgum introduced “Coalie” as a child-friendly mascot for Trump’s drilling campaign.
 
@@ -226,6 +269,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-02-27 North Dakota judge ordered Greenpeace to pay $345 million in damages related to Dakota Access Pipeline protests.
 
 2026-02-27 The Colorado River is drying up.
+
+## 2026 March 
 
 2026-03-01 NOAA reported that March 2026 was the hottest March recorded in 132 years of recordkeeping.
 
@@ -244,6 +289,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-03-25 Bernie Sanders and AOC proposed an AI data-center moratorium addressing environmental harm, energy costs, job displacement, and hardware exports.
 
 2026-03-31 Forest Service Chief Tom Schultz announced additional cuts that would eliminate 75% of research, reduce wildlife and climate monitoring, shrink oversight of mining and logging, close nine regional offices, and relocate headquarters from Washington, D.C.
+
+## 2026 April 
 
 2026-04-02 The Artemis crew released a side-by-side comparison of Earth from 1972 and 2026, highlighting visible environmental changes.
 
@@ -267,6 +314,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-04-29 The Trump administration attempted to weaken the Endangered Species Act to expand drilling and mining but the vote was delayed over bipartisan concern. 
 
+## 2026 May 
+
 2026-05-05 Ukrainian strikes reportedly produced “black rain” conditions in parts of Russia.
 
 2026-05-18 The White House passed legislation for a national annual $130 registration fee for electric vehicles.
@@ -278,6 +327,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-05-21 Trump rolled back refrigerant regulations intended to reduce emissions, arguing the move would lower grocery costs.
 
 2026-05-27 West Virginia communities have repeatedly had to battle water contamination from mining runoff.
+
+## 2026 June
 
 2026-06-02 The Trump administration cut $386M from an ocean observatory project. 
 
@@ -296,6 +347,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-06-26 A judge declared a mistrial in the Palisades fire arson case against Jonathan Rinderkecht. The DOJ said they will continue to pursue. 
 
 2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
+## 2026 July 
 
 2026-07-01 The European Union Marine Environment Monitor report showed this is the ocean’s hottest June in history. 
 
