@@ -389,3 +389,10 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://cw39.com/news/local/houston-ice-shooting-day-action/](https://cw39.com/news/local/houston-ice-shooting-day-action/)
 
+2026-07-28 A judge ordered ICE to release one of the witnesses to the murder of Lorenzo Salgado Arajo. 
+
+[https://abc7chicago.com/post/federal-judge-orders-release-witness-jose-trinidad-rojas-pliego-houston-ice-shooting-lorenzo-salgado-araujo/19592899/](https://abc7chicago.com/post/federal-judge-orders-release-witness-jose-trinidad-rojas-pliego-houston-ice-shooting-lorenzo-salgado-araujo/19592899/)
+
+[https://thehill.com/regulation/court-battles/5995138-judge-orders-dhs-release-witness/](https://thehill.com/regulation/court-battles/5995138-judge-orders-dhs-release-witness/)
+
+[https://www.nbcdfw.com/news/local/texas-news/judge-orders-immigration-officials-to-release-key-witness-in-texas-ice-shooting/4055600/](https://www.nbcdfw.com/news/local/texas-news/judge-orders-immigration-officials-to-release-key-witness-in-texas-ice-shooting/4055600/)

@@ -548,3 +548,7 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat](https://www.democracynow.org/2026/7/20/headlines/israel_strips_crocodiles_of_protected_status_to_pave_way_for_crocodile_infested_moat)
 
 [https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center](https://13wham.com/news/nation-world/israeli-officials-plan-to-add-crocodiles-around-prison-holding-palestinians-florida-alligator-alcatraz-immigration-detention-center)
+
+2026-07-28 Israels defense minister Israel Katz ordered the IDF to take over a fourth refugee camp and “expel” its Palestinian residents. 
+
+[https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000](https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000)

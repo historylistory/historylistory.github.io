@@ -174,3 +174,21 @@ Great Barrington Declaration links:
 [https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/](https://thehill.com/homenews/senate/5841737-gop-armed-services-chair-warns-ending-mandatory-military-flu-shots-a-mistake/)
 
 [https://theweek.com/politics/hegseth-military-flu-vaccine-requirement](https://theweek.com/politics/hegseth-military-flu-vaccine-requirement)
+
+### 2026 July
+
+2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 
+
+[https://www.theguardian.com/us-news/2026/jul/28/trump-rfk-jr-cutting-vaccines](https://www.theguardian.com/us-news/2026/jul/28/trump-rfk-jr-cutting-vaccines)
+
+[https://www.cnn.com/2026/07/16/health/rfk-vaccine-dismantle](https://www.cnn.com/2026/07/16/health/rfk-vaccine-dismantle)
+
+[https://www.rollingstone.com/politics/politics-news/trump-pressured-rfk-jr-vaccine-autism-conspiracy-1235599789/](https://www.rollingstone.com/politics/politics-news/trump-pressured-rfk-jr-vaccine-autism-conspiracy-1235599789/)
+
+[https://arstechnica.com/health/2026/07/report-trump-mad-rfk-jr-hasnt-cut-more-vaccines-or-proven-autism-link/](https://arstechnica.com/health/2026/07/report-trump-mad-rfk-jr-hasnt-cut-more-vaccines-or-proven-autism-link/)
+
+[https://www.cnn.com/2026/07/28/us/video/ebof-liz-essley-whyte-wsj-report](https://www.cnn.com/2026/07/28/us/video/ebof-liz-essley-whyte-wsj-report)
+
+[https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html](https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html)
+
+SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411](https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411)

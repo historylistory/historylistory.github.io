@@ -86,3 +86,12 @@ permalink: /categories/foreign-affairs-isolation/world-health-organization/
 [https://www.cidrap.umn.edu/ebola/ebola-outbreak-dr-congo-tops-1000-cases-least-254-dead](https://www.cidrap.umn.edu/ebola/ebola-outbreak-dr-congo-tops-1000-cases-least-254-dead)
 
 [https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases](https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases)
+
+### 2026 July
+
+
+2026-07-28 The health ministry of Uganda declared the nation Ebola free.
+
+[https://x.com/MinofHealthUG/status/2082029801326465174](https://x.com/MinofHealthUG/status/2082029801326465174)
+
+[https://www.rfi.fr/en/africa/20260729-uganda-declares-end-to-latest-ebola-outbreak-on-its-soil](https://www.rfi.fr/en/africa/20260729-uganda-declares-end-to-latest-ebola-outbreak-on-its-soil)

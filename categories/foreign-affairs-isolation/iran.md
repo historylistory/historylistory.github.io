@@ -2027,3 +2027,15 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/](https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/)
 
 [https://www.youtube.com/watch?v=2WToJYU46W0](https://www.youtube.com/watch?v=2WToJYU46W0)
+
+2026-07-28 Two protestors were publicly hanged in Iran for protesting the government. 
+
+[https://abc7.com/post/iran-publicly-executes-abdolfazl-sepahi-badjani-amir-hossein-safari-hosseinabadi-accused-killing-police-during-protests/19591752/](https://abc7.com/post/iran-publicly-executes-abdolfazl-sepahi-badjani-amir-hossein-safari-hosseinabadi-accused-killing-police-during-protests/19591752/)
+
+[https://www.democracynow.org/2026/7/29/headlines/human_rights_groups_say_iranian_authorities_hanged_two_anti_govt_protesters](https://www.democracynow.org/2026/7/29/headlines/human_rights_groups_say_iranian_authorities_hanged_two_anti_govt_protesters)
+
+2026-07-28 Saudi Arabia joined the US in strikes in Iraq against so-called Iranian proxies. 
+
+[https://www.bbc.com/news/articles/c70g6y24d76o](https://www.bbc.com/news/articles/c70g6y24d76o)
+
+[https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/](https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/)

@@ -314,3 +314,4 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-07-28 After visiting with Netanyahu, Trump told Fox, “I don’t need Bibi to tell me that. Bibi is telling me that because he wants me to stay involved,” in the war in Iran. 
 
+2026-07-28 The US walked out of a UN Security Council meeting in protest after French ambassador remarks blasting the US for voting against extending Volker Turk’s term for high commissioner of human rights. After the vote France ONU Geneve wrote, “The US used to be a beacon of human rights. Not anymore. Today, it stands alongside North Korea, Nicaragua, Mali & Russia, isolated. And the world no longer listens to it.”

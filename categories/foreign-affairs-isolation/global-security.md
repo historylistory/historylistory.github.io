@@ -79,3 +79,12 @@ permalink: /categories/foreign-affairs-isolation/global-security/
 [https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security](https://www.cnn.com/2026/07/09/politics/plane-trump-air-force-one-security)
 
 [https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement](https://www.nbcpalmsprings.com/2026/07/15/white-house-launches-leak-probe-over-security-concerns-involving-air-force-one-replacement)
+
+2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 
+
+[https://www.cnbc.com/2026/07/28/jay-clayton-bill-pulte-senate-vote-trump-spy-chief.html](https://www.cnbc.com/2026/07/28/jay-clayton-bill-pulte-senate-vote-trump-spy-chief.html)
+
+[https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/](https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/)
+
+[https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020](https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020)
+

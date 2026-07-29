@@ -405,3 +405,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
 
 2026-07-25 An appeals court ruled that Trump cannot enforce mail-in voting restrictions on 23 states. 
+
+2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 

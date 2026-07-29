@@ -534,3 +534,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
 
 2026-07-27 Eggs were recalled over salmonella
+
+2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 

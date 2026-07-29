@@ -417,3 +417,11 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 [https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/](https://www.njspotlightnews.org/2026/07/thousands-of-non-citizens-registered-to-vote-in-nj-sherrill-says/)
 
 [https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/](https://abc7.com/post/new-jersey-gov-mikie-sherrill-reveals-mvc-mistake-registered-6600-citizens-vote/19557471/)
+
+2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 
+
+[https://www.cnbc.com/2026/07/28/jay-clayton-bill-pulte-senate-vote-trump-spy-chief.html](https://www.cnbc.com/2026/07/28/jay-clayton-bill-pulte-senate-vote-trump-spy-chief.html)
+
+[https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/](https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/)
+
+[https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020](https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020)

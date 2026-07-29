@@ -467,3 +467,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 
 
 2026-07-28 Reports showed that US boat strikes in international waters as part of “Operation Southern Spear” did not reduce the amount of cocaine flow into the US. 
+
+2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 
+
+2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 

@@ -127,3 +127,16 @@ One of Trump’s first pledges of the Board’s mission is “looking over the U
 [https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/](https://www.nbcnewyork.com/news/local/donald-trump-benjamin-netanyahu-arrest-zohran-mamdani/6527958/)
 
 [https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/](https://thehill.com/homenews/state-watch/5976307-mamdani-floats-arresting-netanyahu-if-he-visits-nyc-for-un-general-assembly/)
+
+2026-07-28 The US walked out of a UN Security Council meeting in protest after French ambassador remarks blasting the US for voting against extending Volker Turk’s term for high commissioner of human rights. After the vote France ONU Geneve wrote, “The US used to be a beacon of human rights. Not anymore. Today, it stands alongside North Korea, Nicaragua, Mali & Russia, isolated. And the world no longer listens to it.”
+
+[https://www.theguardian.com/us-news/2026/jul/28/diplomats-un-walkout-france-human-rights-trump-record](https://www.theguardian.com/us-news/2026/jul/28/diplomats-un-walkout-france-human-rights-trump-record)
+
+[https://time.com/article/2026/07/28/us-walks-out-protest-france-united-nations-address-europe-rift/](https://time.com/article/2026/07/28/us-walks-out-protest-france-united-nations-address-europe-rift/)
+
+[https://www.democracynow.org/2026/7/29/headlines/us_walks_out_of_unsc_meeting_during_french_ambassadors_remarks](https://www.democracynow.org/2026/7/29/headlines/us_walks_out_of_unsc_meeting_during_french_ambassadors_remarks)
+
+[https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/](https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/)
+
+[https://x.com/FranceONUGeneve/status/2081064968586232263](https://x.com/FranceONUGeneve/status/2081064968586232263)
+

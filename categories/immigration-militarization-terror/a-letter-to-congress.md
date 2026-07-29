@@ -784,3 +784,7 @@ Next
 2026-07-20 Allegedly the Trump Administration told FBI agents that going forward they would no longer investigate ICE confrontations. 
 
 2026-07-24 Dozens of businesses in Houston participated in an economic boycott demanding justice for the killing of Lorenzo Salgado Araujo. 
+
+2026-07-28 A judge ordered ICE to release one of the witnesses to the murder of Lorenzo Salgado Arajo. 
+
+2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 

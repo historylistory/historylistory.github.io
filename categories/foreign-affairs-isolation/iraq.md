@@ -33,5 +33,12 @@ permalink: /categories/foreign-affairs-isolation/iraq/
 
 [https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary](https://www.theguardian.com/us-news/2017/feb/20/james-mattis-surprise-iraq-visit-oil-defense-secretary)
 
+### 2026 July 
+
+2026-07-28 Saudi Arabia joined the US in strikes in Iraq against so-called Iranian proxies. 
+
+[https://www.bbc.com/news/articles/c70g6y24d76o](https://www.bbc.com/news/articles/c70g6y24d76o)
+
+[https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/](https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/)
 
 

@@ -464,3 +464,8 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/](https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/)
 
 [https://www.youtube.com/watch?v=2WToJYU46W0](https://www.youtube.com/watch?v=2WToJYU46W0)
+
+2026-07-28 Israels defense minister Israel Katz ordered the IDF to take over a fourth refugee camp and “expel” its Palestinian residents. 
+
+[https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000](https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000)
+

@@ -255,3 +255,8 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 [https://www.youtube.com/watch?v=MNi0gW843T8&list=WL&index=1](https://www.youtube.com/watch?v=MNi0gW843T8&list=WL&index=1)
 
+### 2026 July
+
+2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
+
+[https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)

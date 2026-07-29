@@ -197,3 +197,9 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039](https://apnews.com/article/immigration-trump-family-separation-ice-71a610d15af5207a68f989fcafb55039)
 
 [https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time](https://www.democracynow.org/2026/6/10/headlines/ap_trump_admin_separated_dozens_of_immigrant_children_from_their_parents_for_a_second_time)
+
+### 2026 July
+
+2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
+
+[https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)

@@ -143,3 +143,9 @@ permalink: /categories/immigration-militarization-terror/deport-disappear/
 [https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk](https://www.cnn.com/2026/06/30/world/venezuela-earthquakes-deportations-ice-intl-hnk)
 
 SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees](https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthquake-deportees)
+
+### 2026 July 
+
+2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
+
+[https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)

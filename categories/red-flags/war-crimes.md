@@ -573,3 +573,7 @@ TIMESTAMP 3:37 [https://www.youtube.com/watch?v=1DoRWxUsI1A&list=WL&index=4](htt
 VIDEO WAS TAKEN DOWN 5 HOURS LATER: [https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html](https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html)
 
 PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary](https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary)
+
+2026-07-28 Israels defense minister Israel Katz ordered the IDF to take over a fourth refugee camp and “expel” its Palestinian residents. 
+
+[https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000](https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000)
