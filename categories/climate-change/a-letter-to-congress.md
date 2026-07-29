@@ -82,6 +82,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 ## 2023 
 
+2023-01-01 The concept of “15-minute cities” caused controversy. 
+
 2023-09-08 Reports raised concerns about Nebraska Governor Jim Pillen’s family farm and nitrate contamination in local drinking water.
 
 ## 2024 
@@ -382,6 +384,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
 
+2026-07-26 Lakes Mead and Powell along the Colorado River have fallen to their lowest levels on record. 
 
 2026-07-28 Tornadoes tore through Wisconsin.
 

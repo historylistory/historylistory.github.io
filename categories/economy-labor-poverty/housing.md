@@ -20,6 +20,19 @@ permalink: /categories/economy-labor-poverty/housing/
 
 [https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/](https://livevanlifefreedom.com/van-life-by-the-numbers-shocking-stats-you-wont-believe/)
 
+### 2023 
+
+2023-01-01 The concept of “15-minute cities” caused controversy. 
+
+[https://www.15minutecity.com/](https://www.15minutecity.com/)
+
+[https://www.ube.ac.uk/whats-happening/articles/15-minute-city/](https://www.ube.ac.uk/whats-happening/articles/15-minute-city/)
+
+[https://www.nlc.org/article/2023/06/13/exploring-the-15-minute-city-concept-and-its-potential-for-communities-of-all-sizes/](https://www.nlc.org/article/2023/06/13/exploring-the-15-minute-city-concept-and-its-potential-for-communities-of-all-sizes/)
+
+[https://www.npr.org/2023/10/08/1203950823/15-minute-cities-climate-solution](https://www.npr.org/2023/10/08/1203950823/15-minute-cities-climate-solution)
+
+
 ### 2024
 
 2024-10-02 Vance claimed, ”Illegal aliens competing with Americans for scarce homes is one of the most significant drivers of home prices in the country”.

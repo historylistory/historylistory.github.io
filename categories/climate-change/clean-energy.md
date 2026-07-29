@@ -23,6 +23,19 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 [https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit](https://lawandcrime.com/high-profile/scottish-government-says-trump-org-refuses-to-pay-legal-bills-after-losing-wind-farm-lawsuit)
 
+### 2023 
+
+2023-01-01 The concept of “15-minute cities” caused controversy. 
+
+[https://www.15minutecity.com/](https://www.15minutecity.com/)
+
+[https://www.ube.ac.uk/whats-happening/articles/15-minute-city/](https://www.ube.ac.uk/whats-happening/articles/15-minute-city/)
+
+[https://www.nlc.org/article/2023/06/13/exploring-the-15-minute-city-concept-and-its-potential-for-communities-of-all-sizes/](https://www.nlc.org/article/2023/06/13/exploring-the-15-minute-city-concept-and-its-potential-for-communities-of-all-sizes/)
+
+[https://www.npr.org/2023/10/08/1203950823/15-minute-cities-climate-solution](https://www.npr.org/2023/10/08/1203950823/15-minute-cities-climate-solution)
+
+
 ### 2025 January
 
 2025-01-20 Project 2025, page 709 outlines intentions to withdraw from the UN Paris Agreement and UN Framework Convention on Climate Change. On page 366 the mandate – written by the Heritage Foundation – complains about subsidies for clean energy.

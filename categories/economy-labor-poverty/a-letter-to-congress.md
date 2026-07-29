@@ -166,6 +166,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2023-01-01 Food prices remained inflated post pandemic in what some reports called “price setting”. 
 
+2023-01-01 The concept of “15-minute cities” caused controversy. 
+
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
 
 2023-05-07 HP introduced printer subscription tiers charging monthly fees, print limits, overage fees, and cancellation penalties.

@@ -6,6 +6,13 @@ subcategory_slug: teachers
 permalink: /categories/education/teachers/
 ---
 
+### 1859 
+
+1859-01-01 "Be ashamed to die until you have won some victory for humanity" ~ Horace Mann 
+
+[https://www.youtube.com/watch?v=yMZphcqKX_c&list=WL&index=2](https://www.youtube.com/watch?v=yMZphcqKX_c&list=WL&index=2)
+
+
 ### 2023 
 
 2023-06-06 The nation faced a teacher shortage and severe burnout. 

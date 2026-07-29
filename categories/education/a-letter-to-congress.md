@@ -52,6 +52,10 @@ Taken together, these actions represent an effort to politicize education, restr
 
 ### Chronology.
 
+## 1859 Just a quote.
+
+1859-01-01 "Be ashamed to die until you have won some victory for humanity" ~ Horace Mann 
+
 ## 1960s 
 
 1966-01-01 Jerry Falwell founded the whites-only Lynchburg Christian Academy to circumvent the 1954 ruling to ban segregation. He wrote in his book ‘America Can Be Saved’, “I hope I live to see the day when, as in the early days of our country, we won’t have any public schools. The churches will have taken them over again and Christians will be running them”. In 1977 courts ruled that segregated private religious schools could not qualify as charitable organizations or retain tax exempt status. 
