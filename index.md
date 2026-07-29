@@ -31,61 +31,15 @@ This is a personal project maintained by a single individual. Content compiles a
 
 I am currently testing out social media to see if it is helpful or necessary.  
 
-[https://youtube.com/@historylistorydotcom](https://youtube.com/@historylistorydotcom)
+LANDING PAGE [https://youtube.com/@historylistorydotcom](https://youtube.com/@historylistorydotcom)
 
-## Videos ~ Agriculture 
+PLAYLIST: 30-Second Questions [https://www.youtube.com/playlist?list=PLf6MqARTpCDk](https://www.youtube.com/playlist?list=PLf6MqARTpCDk)
 
-{% include youtubePlayer.html id="MnHGE60YQqM" %}
+PLAYLIST: A List [https://www.youtube.com/playlist?list=PLRAZ44QJ1xN4](https://www.youtube.com/playlist?list=PLRAZ44QJ1xN4)
 
-## Videos ~ AI
+PLAYLIST: Senator & Congress "Non-Answers" [https://www.youtube.com/playlist?list=PLKWk8FYCfqfs](https://www.youtube.com/playlist?list=PLKWk8FYCfqfs)
 
-{% include youtubePlayer.html id="_z4bVfRBxdI" %}
-
-## Videos ~ Behavioral 
-
-{% include youtubePlayer.html id="RV0fcp2t4Ak" %}
-
-{% include youtubePlayer.html id="teRFaKy0ugI" %}
-
-## Videos ~ Bullying & Threats
-
-{% include youtubePlayer.html id="DwW5IvLjxMw" %}
-
-{% include youtubePlayer.html id="1_5U22glN7U" %}
-
-## Videos ~ Economy
-
-{% include youtubePlayer.html id="F4GFEjohgHI" %}
-
-## Videos ~ Free Speech
-
-{% include youtubePlayer.html id="Hcs0bqRky44" %}
-
-## Videos ~ Health 
-
-{% include youtubePlayer.html id="QZwWmKnhE5c" %}
-
-## Videos ~ Religion
-
-{% include youtubePlayer.html id="NOrRF1c1RoQ" %}
-
-## Videos ~ Voting 
-
-{% include youtubePlayer.html id="fjK2LxE14w4" %}
-
-{% include youtubePlayer.html id="EDo0kEMZ8fA" %}
-
-{% include youtubePlayer.html id="KKyhwOpZd0I" %}
-
-## Videos ~ Women
-
-{% include youtubePlayer.html id="dxCLMiK1tnI" %}
-
-{% include youtubePlayer.html id="WTU1mEj6crg" %}
-
-## Videos ~ Rants & Opinions
-
-{% include youtubePlayer.html id="OdRtjBV2gCg" %}
+PLAYLIST: Opinions & Rants [https://www.youtube.com/playlist?list=PLERANWlKEdZg](https://www.youtube.com/playlist?list=PLERANWlKEdZg)
 
 
 
