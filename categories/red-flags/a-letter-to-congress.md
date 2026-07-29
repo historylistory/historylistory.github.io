@@ -50,6 +50,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 1955-05-04 The CIA trained torturers serving Fulgencio Batista’s regime in Cuba.
 
+1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
+
 1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
 
 1982-03-23 Self-proclaimed born-again Pentecostal Efrain Rios Montt carried out one of the largest genocides against the Maya, with financial backing from the US. He was convicted of genocide in 2013. Ronald Regan called him “a man of great personal integrity”. Jerry Falwell supported him, and Pat Robinson interviewed him on the 700 Club. Christianity Today’s Luis Palau said, “It’s great to have a Christian president as a model…the hand of God appears to be on him”. 
@@ -116,6 +118,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-01-27 Elon Musk attended a far-right rally in Germany.
 
+2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
+
 2025-04-04 Irish residents say the US is slipping into fascism.
 
 2025-04-14 Trump praised Vladimir Putin numerous times (article).
@@ -159,6 +163,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
 
 2025-11-08 Trump met with Viktor Orbán to discuss exempting Hungary from Russian oil and gas sanctions.
+
+2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
 
 2025-12-08 The Supreme Court heard arguments in a case that could significantly expand presidential firing authority and reshape federal checks and balances.
 

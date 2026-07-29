@@ -348,7 +348,7 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 December
 
-2025-12-07 Alex Karp gave a widely discussed jittery interview.
+2025-12-07 Alex Karp widely discussed jittery interview.
 
 [https://www.instagram.com/reels/DR-SKY6Eh39/](https://www.instagram.com/reels/DR-SKY6Eh39/)
 

@@ -40,31 +40,14 @@ At a time when Americans are struggling with healthcare costs, food insecurity, 
 Congress must not normalize this behavior. I urge you to defend constitutional limits, investigate abuses of power and public funds, protect inspectors general and whistleblowers, enforce ethics laws, and demand professional conduct from every public official.
 
 The American people deserve leadership focused on service, competence, compassion, and the rule of law—not spectacle, intimidation, personal enrichment, and political revenge.
+
 ### Chronology.
-
-1952-01-01 The US put support behind Cuban dictator Fulgencio Batista.
-
-1955-05-04 The CIA trained torturers serving Fulgencio Batista's regime in Cuba.
-
-1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
-
-1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
-
-1982-03-23 Self-proclaimed born-again Pentecostal Efrain Rios Montt carried out one of the largest genocides against the Maya, with financial backing from the US. He was convicted of genocide in 2013. Ronald Regan called him “a man of great personal integrity”. Jerry Falwell supported him, and Pat Robinson interviewed him on the 700 Club. Christianity Today’s Luis Palau said, “It’s great to have a Christian president as a model…the hand of God appears to be on him”. 
-
-1991–2009 Trump bankrupted at least four casinos
 
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
 
-1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
-
 2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
 
-2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
-
 2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
-
-2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
@@ -91,8 +74,6 @@ The American people deserve leadership focused on service, competence, compassio
 2021-01-06 “Jesus is my Savior — Trump is my President” signs appeared during January 6 events.
 
 2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
-
-2021-02-18 Ted Cruz vacationed in Cancun during the Texas power crisis, later repeating a similar trip during Texas flooding in 2025.
 
 2021-09-01 JD Vance praised Alex Jones and Peter Thiel as unconventional truth-tellers during a Teneo Retreat event presented by the Venverloh Family Foundation. 
 
@@ -135,8 +116,6 @@ The American people deserve leadership focused on service, competence, compassio
 2024-08-05 RFK Jr. admitted leaving a dead bear in Central Park for amusement.
 
 2024-09-01 Laura Loomer claimed on social media that Marjorie Taylor Greene had “Arby’s in [her] pants”. The slander didn’t come out until August 2025 during a deposition against Bill Maher.
-
-2024-09-05 During a campaign rally in Mesa Arizona, JD Vance said, ”…one of the ways that you might be able to relieve a little bit of pressure on people who are paying so much for daycare is make it so that, you know, maybe, like, Grandma or Grandpa wants to help out a little bit more, or maybe there’s an aunt or uncle that wants to help out a little bit more…”. 
 
 2024-09-09 Ted Cruz posted a meme of two cats hugging, captioned “Please vote for Trump so Haitian immigrants don’t eat us”.
 
@@ -182,16 +161,7 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
-2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
-
-
-2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
-
-2025-03-18 Personal information was exposed during the JFK files release.
-
 2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
-
-2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
 
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
 
@@ -201,17 +171,11 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-05-07 Marjorie Taylor Greene repeatedly banged her gavel during a trans-athlete hearing.
 
-2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
-
 2025-05-28 Trump posted “He’s on a mission from God & nothing can stop what is coming.”
 
 2025-05-29 Rep. Greg Steube introduced the “Make Autorail Great Again Act.”
 
 2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
-
-2025-06-03 FEMA head David Richardson admitted he was unaware hurricane season was approaching.
-
-2025-06-09 Trump paved over the White House Rose Garden.
 
 2025-06-14 Trump’s embarrassing birthday parade.
 
@@ -225,11 +189,7 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-07-01 Trump floated holding a UFC event on the White House lawn and confirmed later in October they will be having it in June 2026.
 
-2025-07-10 Kristi Noem allegedly delayed FEMA rescue authorization after Texas flooding by 72 hours. 
-
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
-
-2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
 
 2025-08-01 Viewers speculated Jeanine Pirro appeared to be intoxicated publicly.
 
@@ -241,8 +201,6 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-08-10 Trump posted an AI-generated Cracker Barrel dance video. Jesse Watters of Fox News put it best when he commented that “Cracker Barrel should take a page out of Fox News’ book at give the people what they’re used to”.
 
-2025-08-11 Lawrence Taylor admitted uncertainty about his sports council appointment.
-
 2025-08-13 Jeanine Pirro posted a smug rant about a man throwing a sandwich at ICE agents with, “stick your subway sandwich somewhere else”. 
 
 2025-08-13 Trump allies proposed renaming the Kennedy Center after Melania or Trump himself.
@@ -251,22 +209,11 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-08-26 Trump hung a banner of himself across from the Labor Department.
 
-2025-09-04 RFK admitted he did not know major COVID statistics during a Senate hearing.
-
-2025-09-05 Trump ordered the Department of Defense be renamed to the Department of War without Congressional approval. 
-
 2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
 2025-09-08 Scott Bessent reportedly threatened Bill Pulte during a MAGA dinner.
 
 2025-09-09 When asked about the Kirk assassination, Trump instead responded with remodeling updates to his ballroom. 
-
-2025-09-10 Kash Patel prematurely announced a suspect was in custody after the Charlie Kirk shooting.
-
-2025-09-11 Trump appointed NFL player Herschel Walker ambassador to the Bahamas. On February 19th of the following year, during a press conference Trump 
-couldn’t remember where he assigned Walker, stating, “…and now he’s going to be the ambassador of…come on, name the country, Herschel…”.
-
-2025-09-17 Jasmine Crockett grilled Kash Patel over his handling of the Kirk investigation.
 
 2025-09-18 Kristi Noem released an ICE raid montage set to Nirvana’s “Smells Like Teen Spirit”. 
 
@@ -313,8 +260,6 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-24 The White House added trolling political imagery to a historical website timeline.
 
-2025-10-24 Trump demolished the White House East Wing for ballroom construction despite earlier assurances.
-
 2025-10-27 ICE used Halo imagery and memes for recruitment campaigns.
 
 2025-10-27 DHS posted “DESTROY THE FLOOD” recruitment messaging on X.
@@ -329,8 +274,6 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
-2025-11-04 Reports mocked Mike Johnson for repeatedly claiming ignorance about current events when it suits him. 
-
 2025-11-04 Nancy Mace defended her airport confrontation in a video, “if you’re not man enough to take my feedback – my constructive feedback for you not 
 doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airport”.
 
@@ -338,15 +281,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-11-07 FIFA announced a new “peace prize” after Trump again missed the Nobel Prize.
 
-2025-11-16 Preservation groups sued Trump over plans to repaint the Eisenhower Executive Office.
-
-2025-11-11 Trump told an audience he wanted to rename Veteran’s Day. 
-
 2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
-
-2025-11-28 Trump announced he would revoke all executive orders Biden signed with an autopen.
-
-2025-11-29 Trump declared Venezuelan airspace should be closed even though he does not have the authority to close another country’s airspace.
 
 2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
@@ -356,11 +291,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-12-03 The administration renamed the U.S. Institute of Peace after Trump months after DOGE dismantled it. 
 
-2025-12-04 The Pentagon Inspector General released a report stating Hegseth endangered servicemembers through Signal leaks.
-
-2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
-
-2025-12-07 Alex Karp gave a widely discussed jittery interview.
+2025-12-07 Alex Karp widely discussed jittery interview.
 
 2025-12-10 DHS released a video of a Venezuelan oil tanker seizure to “Momma Said Knock You Out” by LL Cool J.
 
