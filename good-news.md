@@ -197,6 +197,16 @@ We are fighting the good fight.
 
 ### 2026 June
 
+2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
+
+[https://www.forbes.com/sites/conormurray/2026/06/15/a-tarp-still-blocks-the-kennedy-centers-sign-days-after-trumps-name-was-removed/](https://www.forbes.com/sites/conormurray/2026/06/15/a-tarp-still-blocks-the-kennedy-centers-sign-days-after-trumps-name-was-removed/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-kennedy-center-name-removed-cover-up](https://www.ms.now/rachel-maddow-show/maddowblog/trump-kennedy-center-name-removed-cover-up)
+
+[https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/](https://www.usatoday.com/story/news/politics/2026/06/15/trump-name-removed-kennedy-center-tarp/90557455007/)
+
+[https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/](https://www.snopes.com/fact-check/double-rainbow-kennedy-center-trump/)
+
 2026-06-18 Senator Alyssa Slotkin introduced the Protect our Polls Act.
 
 [https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s](https://www.youtube.com/watch?v=vdTAlcArXiQ&list=WL&index=4&t=1s)

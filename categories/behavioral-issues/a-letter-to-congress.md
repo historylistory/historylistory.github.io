@@ -509,8 +509,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 
-2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
-
 2026-05-15 Trump announced a sculpture garden project in D.C.
 
 2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
@@ -521,33 +519,13 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
 
-2026-06-11 Reports indicate Pediatrician Dr. Hussam Abu Safia was abducted from Gaza and is now being tortured in Israel. 
-
 2026-06-11 Trump claimed Italian Prime Minister Giorgia Meloni begged for a photo op with him. The Prime Minister refuted the claim, so Trump chastised her for not supporting the war in Iran. 
-
-2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
 
 2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
 
 2026-06-14 UFC heavyweight Josh Hokit disparaged Michelle Obama after the White House UFC fight “Michelle Obama is a man – Am I right America?”
 
-2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
-
-2026-06-15 Trump said he may or may not personally show up to sign the Memorandum of Understanding. 
- 
-2026-06-16 After Trump had it painted blue, the Reflecting Pool turned green.
-
-2026-06-17 Kash Patel prematurely disclosed investigation on social media about an ongoing criminal investigation and nearly compromised the entire mission. 
-
-2026-06-19 The Trump administration postponed the signing ceremony in Switzerland. 
-
-2026-06-21 Trump blamed the Reflecting Pool algae bloom on vandals and ordered officials to make arrests. 
-
 2026-06-22 A report raised questions about whether Tulsi Gabbard used a spiritual guide to shape her political career.
-
-2026-06-22 Trump’s UFC stunt destroyed the White House front lawn. Taxpayer cost to repair: pending. 
-
-2026-06-23 Trump’s botched reflection pool project is estimated to cost taxpayers $16M. 
 
 2026-06-23 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care. 
 
@@ -555,45 +533,17 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
 
-2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
-
-2026-07-08 The DOJ prosecuted several more people for the Reflecting Pool without evidence that they caused any damage, including three-time US Olympic canoeist David Hearn who was charged with a felony for property destruction after he reached into the water to touch a piece of loose, peeling sealant. 
-
 2026-07-09 Trump had the Palm Beach Airport renamed the Donald J. Trump International Airport. 
-
-2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 
-
-2026-07-09 The White House is quietly remodeling or changing the columns behind tarps. No information at this time how much that will cost taxpayers.
-
-2026-07-10 Trump again drained the Reflecting Pool to try again. No information at this time how much that will cost taxpayers.
-
-2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
 
 2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. Trump said, “He was a worker; he was really a worker. But he sounded great, actually, but he actually said he was tired. But he wanted to pass the SAVE America Act, and I said, ‘We’re going to get it done, Lindsey, we’re going to get it done, I’ll see you, like soon. We might even meet today.'”
 
-
-2026-07-12 Survivors of the Iranian attack that killed 6 US troops in Kuwait confirmed that the Pentagon ignored intelligence. 
-
-2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
-
-2026-07-13 Texas sold 87 acres of land that was originally donated by a farmer for public recreation to AI data centers for $10M. 
-
 2026-07-15 Tom Homan issued a threat, “I said if the hateful rhetoric didn’t stop, there will be more bloodshed. And I’m saying it right now. There’s still going to be more bloodshed, unless they shut their mouth and let ICE enforce the laws that they enacted”. 
 
-2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 
-
 2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
-
-2026-07-16 Palestinian pediatrician Dr. Hussam Abu Safiya is still detained by Israel and still being subjected to torture. 
 
 2026-07-16 Trump’s Truth Social platform is now offering paid-only early access to presidential posts. Richard Blumenthal wrote, “The President’s social media posts – covering war & peace & government regulations – move markets. Truth Social selling preferential access is yet another example of flagrant corruption, trading access to the White House for Trump’s self-enrichment”. 
 
 2026-07-16 George Santos’ next gig was as a reality TV show contestant. 
-
-2026-07-17 In a statement, the widow of Johan Sebastian Duran Guerrero said, “That Monday afternoon was supposed to be her day with her dad. But he never came home, and now my daughter is asking about her father, and I don’t have the strength to tell her that he’s not coming, that she can’t hug him anymore, or say daddy I love you”. The Trump administration has not reached out to the family. 
-
-2026-07-17 Israel planned to surround prisons for Palestinians with crocodile infested moats. 
-
 
 2026-07-19 A Fox journalist Johnny Belisario publicly mocked homeless people for media as he went digging through their personal belongings. 
 
@@ -601,12 +551,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
 
-
 2026-07-24 Trump ordered installation of signs outside the Smithsonian warning visitors that exhibits may be inaccurate. The Executive Order reads in part, “Because the museum has failed to appropriately honor the 56 signers of the Declaration of Independence during this 250th anniversary year of the founding of our country, the secretary of the interior…shall install temporary exhibits or signage of NPS-maintained sidewalks, walkways, and land used by the public that corrects inaccurate information presented in the museum”. 
-
 
 2026-07-27 Newly released footage of Lindsey Graham cheering on the war in Iran, stating, “Look what we’ve done here! I almost cried. I mean, like, how long have we been pushing this?” Someone else said, “Well, I mean you’ve been pushing this for years, right?”. Graham responded, “Right! (laughs) it’s here! I thought it was the toughest one! Well, he’s jacked! It’s the best thing I’ve ever done! He loves…he loves blowing stuff up! So, you know, there are a lot of people inside didn’t want to do it. So, I’ve had my challenges”. 
 
 2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 
 
-2026-07-28 Reports showed that US boat strikes in international waters as part of “Operation Southern Spear” did not reduce the amount of cocaine flow into the US. 

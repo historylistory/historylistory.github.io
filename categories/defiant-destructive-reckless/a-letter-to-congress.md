@@ -348,8 +348,6 @@ PENDING
 
 2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 
-2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
-
 2026-05-14 The House failed to advance an Iran war-powers resolution after a 212–212 tie vote.
 
 2026-05-15 Trump announced a sculpture garden project in D.C.
@@ -397,6 +395,8 @@ PENDING
 2026-07-08 The DOJ prosecuted several more people for the Reflecting Pool without evidence that they caused any damage, including three-time US Olympic canoeist David Hearn who was charged with a felony for property destruction after he reached into the water to touch a piece of loose, peeling sealant. 
 
 2026-07-09 The White House is quietly remodeling or changing the columns behind tarps. No information at this time how much that will cost taxpayers.
+
+2026-07-09 Trump had the Palm Beach Airport renamed the Donald J. Trump International Airport. 
 
 2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
 
