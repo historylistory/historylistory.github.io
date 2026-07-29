@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Destructive
-category_slug: destructive-incompetent-reckless
+category_slug: defiant-destructive-reckless
 subcategory_slug: destructive
-permalink: /categories/destructive-incompetent-reckless/destructive/
+permalink: /categories/defiant-destructive-reckless/destructive/
 ---
 
 ### 2021

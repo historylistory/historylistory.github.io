@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Dissidence & Defiance"
-category_slug: crime
-subcategory_slug: dissidence-defiance
-permalink: /categories/crime/dissidence-defiance/
+title: Defiant
+category_slug: defiant-destructive-reckless
+subcategory_slug: defiant
+permalink: /categories/defiant-destructive-reckless/defiant/
 ---
 
 ### 2019

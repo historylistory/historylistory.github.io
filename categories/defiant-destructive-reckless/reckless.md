@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Incompetent
-category_slug: destructive-incompetent-reckless
-subcategory_slug: incompetent
-permalink: /categories/destructive-incompetent-reckless/incompetent/
+title: Reckless
+category_slug: defiant-destructive-reckless
+subcategory_slug: reckless
+permalink: /categories/defiant-destructive-reckless/reckless/
 ---
 
 ### SHADOW DOCKET ABUSE
