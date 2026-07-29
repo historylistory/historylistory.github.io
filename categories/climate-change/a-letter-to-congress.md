@@ -88,9 +88,17 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 ## 2024 
 
+2024-03-08 Excessive heat has caused maple production in parts of the Americas to tap trees earlier than usual, risking missed seasons, additional production expenses, and lower quality sap. 
+
+2024-03-27 Extreme climate change has caused successive poor harvests of cocoa production. Cocoa farming households are confronted with unstable income while consumers face higher costs. 
+
 2024-04-01 Climate-related cocoa shortages drove prices to record highs. Some manufacturers reduced cocoa content, substituted palm kernel oil for cocoa butter, and relabeled products under FDA rules. Some estimates suggest chocolate production could become severely threatened by 2050.
 
+2024-04-15 NOAA declared the fourth global coral-bleaching event after extreme ocean temperatures affected 84% of the world’s reef areas. 
+
 2024-07-02 On Breaking Points, RFK Jr. said, “When a regulatory agency becomes captured by corporations, it also functions to widen corporate power”.
+
+2024-10-08 Severe drought and heat have sharply reduced olive harvests in the Mediterranean, causing unaffordable olive oil prices for consumers and reduced income for growers. 
 
 ## 2025 January 
 
@@ -118,6 +126,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-01-20 Trump rescinded Executive Order 14082 Implementation of the Energy and Infrastructure Provisions of the Inflation Reduction Act of 2022.
 
+
 ## 2025 February
 
 2025-02-01 DOGE terminated hundreds of NOAA probationary employees, affecting weather forecasting, weather balloon launches, leadership positions, and around-the-clock operations. 
@@ -125,6 +134,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2025-02-01 The Trump administration froze congressionally approved funding for wildfire prevention programs.
 
 2025-02-14 Approximately 3,400 Forest Service employees were fired. Remaining workers were encouraged to resign or take early retirement through the “Fork in the Road” program.
+
+2025-02-20 A global assessment reported that mountain glaciers have lost approximately 7 trillion metric tons of ice since 2000. 
 
 2025-02-21 FEMA began layoffs, grant freezes, and reductions in disaster funding. Central Texas later struggled to secure flood-response assistance. 
 
@@ -218,6 +229,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-09-30 The administration announced plans to cut one-third of remaining EPA staff by year’s end, in addition to earlier reductions.
 
+2025-09-30 Scientists warned that “flying rivers” or invisible streams of moisture in the Amazon were weakened with deforestation. This causes intensified drought, crop failures, increased fires, undermines drinking water systems, and weakens the forests ability to recycle rainfall.  
+
 ## 2025 October
 
 2025-10-02 In response to the shutdown Trump pulled $8 billion in clean-energy funding from Democratic-led states.
@@ -308,6 +321,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-04-20 Japan experienced a 7.4 earthquake followed by massive tsunamis.
 
+2026-04-22 A FAO-WMO assessment reported marine heat waves affected 91% of the global ocean during 2024 and have now significantly damaged fisheries and aquaculture. This leads to smaller catches, longer and more dangerous fish trips and higher costs.
+
 2026-04-28 The National Drought Mitigation Center reported the highest level of drought since they started recording 25+ years ago. The Palmer drought severity index (by NOAA) showed that from 1895 to current, 2026 holds the worst March on record, and the third worst drought since the 1934 Dust Bowl.
 
 2026-04-29 The Forest Service expanded the use of glyphosate-based herbicides, including Roundup, in public forests, particularly in California.
@@ -372,6 +387,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-07-11 A foot of rain caused record flash floods in Missouri to West Virginia.
 
+2026-07-13 Heat and irregular rain have reduced coffee bean crops, reducing them by 15-20% and sending retail prices soaring. 
+
 2026-07-14 Elon Musk’s company XAI installed more gas turbines without federal permits. The pollution is primarily affecting Black neighborhoods.
 
 2026-07-16 Texas governor Abbot declared flood related disaster in Texas across 59 counties 
@@ -381,6 +398,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-17 The Trump administration cut funding for targeted wildfire research. 
 
 2026-07-18 New York City was hit with flash floods. 
+
+2026-07-22 A climate analysis found that extreme heat has greatly worsened farming conditions, creating dry soil, reduced grian and maize yields, increased irrigation demand, wildfire dangers, lost harvests, livestock feed shortages, and higher food prices. 
 
 2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
 
