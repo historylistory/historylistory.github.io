@@ -285,6 +285,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.miamiherald.com/news/local/community/miami-dade/article314415845.html](https://www.miamiherald.com/news/local/community/miami-dade/article314415845.html)
 
+2026-01-23 In response to Nick Fuentes/Sneako/Andrew Tate controversy over playing Heil Hitler while out on the town, Rebecca Hargraves reacted by saying, “Browns have usurped the white nationalist movement”, stating, “We’re totally infiltrated here, okay? That’s the problem I have with this. I don’t want to be represented by Andrew Tate who’s half black. I don’t want to be represented by Sneako, who’s some like mystery meat guy. They’re representing us to the general public right now because they’re affiliated with Nick. And Nick is the so-called leader of the white nationalist movement. Like, that’s the problem I have with this. Are we a white movement, or are we not?”
+
+[https://pipewrenchmag.com/sisters-in-hate-book-excerpt/](https://pipewrenchmag.com/sisters-in-hate-book-excerpt/)
+
+[https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9](https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9)
+
+[https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves](https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves)
+
 ### 2026 April
 
 2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 

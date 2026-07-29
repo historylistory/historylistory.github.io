@@ -336,3 +336,19 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 [https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7](https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7)
 
 [https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/](https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/)
+
+
+2026-07-27 The USDA announced a plan to open the southern border for two select areas of Mexico in August for cattle ranchers. 
+
+[https://www.youtube.com/watch?v=p9SrgsyyL4A&list=WL&index=1](https://www.youtube.com/watch?v=p9SrgsyyL4A&list=WL&index=1)
+
+[https://www.usda.gov/about-usda/news/press-releases/2026/07/24/usda-announces-phased-reopening-southern-ports-livestock-trade](https://www.usda.gov/about-usda/news/press-releases/2026/07/24/usda-announces-phased-reopening-southern-ports-livestock-trade)
+
+[https://www.cpac.org/post/usda-announces-plan-to-re-open-southern-border-for-cattle-trade](https://www.cpac.org/post/usda-announces-plan-to-re-open-southern-border-for-cattle-trade)
+
+2026-07-27 The latest request for farm aid would cost each taxpayer $360. 
+
+[https://www.youtube.com/watch?v=HEH3zX0wnlg&list=WL&index=2](https://www.youtube.com/watch?v=HEH3zX0wnlg&list=WL&index=2)
+
+[https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier](https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier)
+

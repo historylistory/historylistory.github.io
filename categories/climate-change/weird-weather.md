@@ -300,6 +300,15 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/](https://abc7ny.com/live-updates/nyc-weather-storms-bring-flash-flooding-tornado-watch-nj-tri-state-area/19533854/)
 
+2026-07-28 Wildfires in France and Spain intensified so much they created “fire clouds”. 
+
+[https://www.youtube.com/watch?v=SFLfWBSOP14&list=WL&index=6](https://www.youtube.com/watch?v=SFLfWBSOP14&list=WL&index=6)
+
+[https://www.bbc.com/news/articles/c2350xnl4j5o](https://www.bbc.com/news/articles/c2350xnl4j5o)
+
+[https://www.reuters.com/business/environment/france-has-seen-its-first-fire-cloud-what-is-it-2026-07-28/](https://www.reuters.com/business/environment/france-has-seen-its-first-fire-cloud-what-is-it-2026-07-28/)
+
+
 2026-07-28 Tornadoes tore through Wisconsin.
 
 [https://www.nbcnews.com/weather/tornadoes/wisconsin-tornado-causes-extensive-damage-cuts-power-thousands-homes-rcna589572](https://www.nbcnews.com/weather/tornadoes/wisconsin-tornado-causes-extensive-damage-cuts-power-thousands-homes-rcna589572)

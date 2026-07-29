@@ -979,4 +979,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
 
+2026-07-27 The USDA announced a plan to open the southern border for two select areas of Mexico in August for cattle ranchers. 
+
+
+2026-07-27 The latest request for farm aid would cost each taxpayer $360. 
+
 2026-07-28 Mayor Mamdani proposed plans to create city-owned grocery stores to help lower grocery costs on staple items like meat, pasta, produce, seafood, bread, yogurt, rice and beans. 

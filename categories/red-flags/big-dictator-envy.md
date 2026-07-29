@@ -275,4 +275,11 @@ Citizens of France
 
 [https://apnorc.org/projects/few-jewish-adults-feel-supported-by-the-major-political-parties-or-the-president/](https://apnorc.org/projects/few-jewish-adults-feel-supported-by-the-major-political-parties-or-the-president/)
 
+2026-07-28 After visiting with Netanyahu, Trump told Fox, “I don’t need Bibi to tell me that. Bibi is telling me that because he wants me to stay involved,” in the war in Iran. 
+
+[https://www.politico.com/newsletters/national-security-daily/2026/07/28/bibi-gets-his-meeting-but-not-much-else-01013729 ](https://www.politico.com/newsletters/national-security-daily/2026/07/28/bibi-gets-his-meeting-but-not-much-else-01013729 )
+
+[https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/](https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/)
+
+[https://www.youtube.com/watch?v=2WToJYU46W0](https://www.youtube.com/watch?v=2WToJYU46W0)
 

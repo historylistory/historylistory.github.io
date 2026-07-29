@@ -476,6 +476,13 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html](https://www.wsws.org/en/articles/2026/01/05/jhqm-j05.html)
 
+2026-01-23 In response to Nick Fuentes/Sneako/Andrew Tate controversy over playing Heil Hitler while out on the town, Rebecca Hargraves reacted by saying, “Browns have usurped the white nationalist movement”, stating, “We’re totally infiltrated here, okay? That’s the problem I have with this. I don’t want to be represented by Andrew Tate who’s half black. I don’t want to be represented by Sneako, who’s some like mystery meat guy. They’re representing us to the general public right now because they’re affiliated with Nick. And Nick is the so-called leader of the white nationalist movement. Like, that’s the problem I have with this. Are we a white movement, or are we not?”
+
+[https://pipewrenchmag.com/sisters-in-hate-book-excerpt/](https://pipewrenchmag.com/sisters-in-hate-book-excerpt/)
+
+[https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9](https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9)
+
+[https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves](https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves)
 
 2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
 

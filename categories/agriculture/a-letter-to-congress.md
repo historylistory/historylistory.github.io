@@ -156,3 +156,7 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-07-25 Ranchers in Colorado reported the need for water hauling amidst droughts. 
 
 2026-07-27 Eggs were recalled over salmonella
+
+2026-07-27 The USDA announced a plan to open the southern border for two select areas of Mexico in August for cattle ranchers. 
+
+2026-07-27 The latest request for farm aid would cost each taxpayer $360. 

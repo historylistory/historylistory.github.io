@@ -2019,3 +2019,11 @@ GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-o
 HISTORY [https://www.lowyinstitute.org/the-interpreter/what-iran-conflict-means-russia](https://www.lowyinstitute.org/the-interpreter/what-iran-conflict-means-russia)
 
 IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruchiv-mzs-vidreaguvati-na-fakti-vikor-77965](https://www.president.gov.ua/en/news/volodimir-zelenskij-doruchiv-mzs-vidreaguvati-na-fakti-vikor-77965)
+
+2026-07-28 After visiting with Netanyahu, Trump told Fox, “I don’t need Bibi to tell me that. Bibi is telling me that because he wants me to stay involved,” in the war in Iran. 
+
+[https://www.politico.com/newsletters/national-security-daily/2026/07/28/bibi-gets-his-meeting-but-not-much-else-01013729 ](https://www.politico.com/newsletters/national-security-daily/2026/07/28/bibi-gets-his-meeting-but-not-much-else-01013729 )
+
+[https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/](https://www.timesofisrael.com/trump-ahead-of-meet-with-netanyahu-i-dont-need-bibi-for-intel-on-pickaxe-mountain/)
+
+[https://www.youtube.com/watch?v=2WToJYU46W0](https://www.youtube.com/watch?v=2WToJYU46W0)

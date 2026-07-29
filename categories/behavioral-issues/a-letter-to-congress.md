@@ -751,3 +751,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 
 2026-07-27 Newly released footage of Lindsey Graham cheering on the war in Iran, stating, “Look what we’ve done here! I almost cried. I mean, like, how long have we been pushing this?” Someone else said, “Well, I mean you’ve been pushing this for years, right?”. Graham responded, “Right! (laughs) it’s here! I thought it was the toughest one! Well, he’s jacked! It’s the best thing I’ve ever done! He loves…he loves blowing stuff up! So, you know, there are a lot of people inside didn’t want to do it. So, I’ve had my challenges”. 
+
+2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 

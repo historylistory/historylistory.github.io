@@ -644,3 +644,10 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/](https://thehill.com/homenews/senate/5985916-thune-senate-budget-resolution-reconciliation/)
 
 [https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820](https://www.politico.com/news/2026/07/23/thune-scalise-trump-reconciliation-01009820)
+
+
+2026-07-27 The latest request for farm aid would cost each taxpayer $360. 
+
+[https://www.youtube.com/watch?v=HEH3zX0wnlg&list=WL&index=2](https://www.youtube.com/watch?v=HEH3zX0wnlg&list=WL&index=2)
+
+[https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier](https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier)

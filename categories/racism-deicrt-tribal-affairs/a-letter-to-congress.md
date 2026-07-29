@@ -503,6 +503,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-01-23 The Trump administration ordered the National Park Service to remove a slavery exhibit from a park in Philadelphia. 
 
+2026-01-23 In response to Nick Fuentes/Sneako/Andrew Tate controversy over playing Heil Hitler while out on the town, Rebecca Hargraves reacted by saying, “Browns have usurped the white nationalist movement”, stating, “We’re totally infiltrated here, okay? That’s the problem I have with this. I don’t want to be represented by Andrew Tate who’s half black. I don’t want to be represented by Sneako, who’s some like mystery meat guy. They’re representing us to the general public right now because they’re affiliated with Nick. And Nick is the so-called leader of the white nationalist movement. Like, that’s the problem I have with this. Are we a white movement, or are we not?”
+
 2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program.
 
 2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.

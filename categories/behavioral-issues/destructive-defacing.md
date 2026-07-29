@@ -328,3 +328,11 @@ permalink: /categories/behavioral-issues/destructive-defacing/
 
 [https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs](https://www.foxnews.com/politics/lincoln-memorial-reflecting-pool-drained-trump-administration-resumes-repairs)
 
+2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 
+
+[https://www.youtube.com/watch?v=pF3h0u-ayC0&list=WL&index=8&t=14s](https://www.youtube.com/watch?v=pF3h0u-ayC0&list=WL&index=8&t=14s)
+
+[https://www.pbs.org/newshour/show/board-packed-with-trump-allies-votes-to-weaken-protections-for-historic-sites](https://www.pbs.org/newshour/show/board-packed-with-trump-allies-votes-to-weaken-protections-for-historic-sites)
+
+[https://www.npr.org/2026/07/26/nx-s1-5906719/trump-allies-approve-new-rules-that-will-weaken-protections-for-historic-sites](https://www.npr.org/2026/07/26/nx-s1-5906719/trump-allies-approve-new-rules-that-will-weaken-protections-for-historic-sites)
+

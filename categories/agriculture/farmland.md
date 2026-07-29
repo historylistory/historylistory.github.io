@@ -56,3 +56,11 @@ permalink: /categories/agriculture/farmland/
 
 [https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef](https://texasagriculture.gov/News-Events/Article/11984/Commissioner-Sid-Miller-Calls-on-Governor-Abbott-to-Convene-Special-Session-Bef)
 
+2026-07-27 The USDA announced a plan to open the southern border for two select areas of Mexico in August for cattle ranchers. 
+
+[https://www.youtube.com/watch?v=p9SrgsyyL4A&list=WL&index=1](https://www.youtube.com/watch?v=p9SrgsyyL4A&list=WL&index=1)
+
+[https://www.usda.gov/about-usda/news/press-releases/2026/07/24/usda-announces-phased-reopening-southern-ports-livestock-trade](https://www.usda.gov/about-usda/news/press-releases/2026/07/24/usda-announces-phased-reopening-southern-ports-livestock-trade)
+
+[https://www.cpac.org/post/usda-announces-plan-to-re-open-southern-border-for-cattle-trade](https://www.cpac.org/post/usda-announces-plan-to-re-open-southern-border-for-cattle-trade)
+
