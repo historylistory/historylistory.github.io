@@ -49,26 +49,45 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 ### Chronology.
 
+## 1970s
 
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
 
 1972-01-01 Nixon said, “The press is the enemy…the establishment is the enemy…the professors are the enemy…write that on a blackboard 100 times and never forget it”.
 
+## 1980s 
+
 1988-01-01 Canon Press founder Doug Wilson tried to buy Christianity Today. 
+
+## 1990s 
 
 1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square. 
 
+## 2004 
+
 2004-10-28 The Center for Public Integrity reported that more than 95% of Sinclair Broadcasting Group’s contributions go to Republicans. 
+
+## 2006 
 
 2006-04-01 A research study found that Republicans gain points in districts that broadcast Fox News.
 
+## 2010 
+
 2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.
+
+## 2014 
 
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
+## 2016 
+
 2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
+## 2017 
+
 2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
+
+## 2018 
 
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
@@ -76,13 +95,21 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2018-03-08 An MIT study concluded that social media was designed to spread lies six times faster and is incentivized to go viral when laced with anger, fear or hate.
 
+## 2019 
+
 2019-01-01 Alt-right women's magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
+
+## 2020 
 
 2020-05-27 Trump wrote, “Republicans feel that Social Media Platforms totally silence conservatives voices. We will strongly regulate, or close them down, before we can ever allow this to happen. We saw what they attempted to do, and failed, in 2016. We can’t let a more sophisticated version of that…happen again. Just like we can’t let large scale Mail-in Ballots take root in our country. It would be a free for all on cheating, forgery, and theft of Ballots. Whoever cheated the most would win. Likewise, Social Media. Clean up your act, NOW!!!”.
 
 2020-06-01 Law enforcement used excessive force to remove racial justice protestors from Lafayette Square. Trump asked if he could order law enforcement to “just shoot” the protestors. 
 
+## 2021 
+
 2021-09-01 JD Vance praised Alex Jones and Peter Thiel as unconventional truth-tellers during a Teneo Retreat event presented by the Venverloh Family Foundation.
+
+## 2022 
 
 2022-01-01 Blue Check verification can be bought on X, and since then research has shown a significant increase in hate speech. 
 
@@ -96,6 +123,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump. 
 
+## 2023 
+
 2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways.
 
 2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign.
@@ -106,13 +135,19 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2023-12-30 Brendan Carr posted on X, “Free speech is the counterweight - it is democracy’s check on government control. That’s why censorship is the authoritarian’s dream…”
 
+## 2024 March 
+
 2024-03-27 Governor Greg Abbott ordered colleges to revise free speech policies to target pro-Palestinian groups.
+
+## 2024 April 
 
 2024-04-01 In all fairness, there were multiple anti-war protests condemning the genocide in Gaza while Biden was still in office. 
 
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
 
 2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
+
+## 2024 May 
 
 2024-05-01 During a rally in Waukesha Wisconsin, Trump referred to protestors as “radicals” and told his crowd to “save the universities for normal people”.
 
@@ -122,9 +157,15 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2024-05-30 A nurse from New York was fired after referring to the war in Gaza a genocide during her acceptance speech for the compassion award.
 
+## 2024 June 
+
 2024-06-03 Columbia Law refused to take down a Palestine article, so the board of directors took down the entire website.
 
+## 2024 September 
+
 2024-09-11 Trump was recorded on Fox News requesting preferred anchors for the debate.
+
+## 2024 October 
 
 2024-10-07 Pro Israel groups including Canary Mission peddled conspiracies on social media that Columbia University student and pro-Palestinian activist Mahmoud Khalil helped plan Hamas attacks. White House press secretary Karoline Leavitt also alleged Khalil distributed fliers with a Hamas logo. On March 8 2025 the Trump administration arrested him and shipped him to Louisiana.
 
@@ -132,13 +173,19 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2024-10-20 Bari Weiss said about Columbia University protests, "Those students were holding these janitors hostage at [Columbia University].” Weiss said. “How can that be construed as being on the side of social justice, I will never know. But first, what I would say is to enforce the law on all of the students … that destroyed property.” Her media company Free Press also features articles claiming the starvation in Gaza isn’t really happening.
 
+## 2024 November 
+
 2024-11-02 Brendan Carr accused SNL of evading the FCC Equal Time rule in an X post following the announcement that Kamala Harris will be appearing on SNL in the last episode before the presidential election.
 
 2024-11-03 During a rally, Trump encouraged deadly violence, “to get me someone would have to shoot through the fake news, and I don’t mind that so much”.
 
 2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
 
+## 2024 December 
+
 2024-12-12 Trump named Kari Lake director of Voice of America.
+
+## 2025 January 
 
 2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor. 
 
@@ -152,11 +199,15 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2025-01-30 Brendan Carr ordered an investigation into NPR and PBS. A headline for TechDirt reads, “Trump’s FCC just used a fake ‘investigation’ to shower AT&T and Elon Musk with billions in valuable spectrum”.
 
+## 2025 February 
+
 2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025.
 
 2025-02-15 The White House imposed bans on specific media outlets they deem biased or not aligned with the Trump agenda. As an example, any news outlet that refused to refer to the gulf as Gulf of America was banned from the White House press pool.
 
 2025-02-22 Lara Trump scored her own opinion segment on Fox. 
+
+## 2025 March 
 
 2025-03-04 Trump claimed protests were illegal and threatened funding from any college which allowed them. 
 
@@ -168,13 +219,19 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
+## 2025 April 
+
 2025-04-03 Tufts University confirmed that a second student’s visa was terminated without notification.
 
 2025-04-24 Governor Kim Reynolds signed House File 472 SLAPP  (Strategic Lawsuits Against Public Participation) which targets cases meant to intimidate a person from exercising their First Amendment rights.
 
+## 2025 May 
+
 2025-05-08 Cameron Hamilton was fired from FEMA just one day after he told lawmakers the agency should not be dismantled.  
 
 2025-05-31 Trump withdrew Jared Isaacman’s nomination to be the NASA administrator for a “misalignment” with the administration’s “America First” agenda.
+
+## 2025 June 
 
 2025-06-02 Leaked emails exposed DHS use of the face-scanning app Mobile Fortify to add protestors to ICE databases.
 
@@ -187,6 +244,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 2025-06-11 A federal judge blocked Trump from deporting Mahmoud Khalil, ruling that it was unconstitutional to detain or deport someone based on their political advocacy.
 
 2025-06-25 Trump posted, “FAKE NEWS CNN IS SO DISGUSTING AND INCOMPETENT. SOME OF THE DUMBEST ANCHORS IN THE BUSINESS!”. 
+
+## 2025 July 
 
 2025-07-07 Paramount and Skydance announced a merger.
 
@@ -206,11 +265,15 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2025-07-24 Senators requested an investigation into corruption and bribery related to the Paramount megamerger.
 
+## 2025 August 
+
 2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
 
 2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
+
+## 2025 September 
 
 2025-09-05 Paramount announced its intent to buy Free Press for $100M and make its founder Bari Weiss editor in chief of CBS.
 
@@ -271,21 +334,29 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2025-09-26 Trump joked he would make TikTok’s algorithm “100% MAGA.”
 
+## 2025 October 
+
 2025-10-15 All media outlets except OAN refused to sign Pete Hegseth’s journalist pledge. 
 
 2025-10-28 A Tennessee man was arrested in Perry County and jailed for over 30 days for posting an online meme of President Trump. He wasn’t released until his arrest made headlines. 
 
 2025-10-29 Kat Abughazaleh was indicted for protesting. She called the charges “yet another attempt by the Trump administration to criminalize protest and punish those who dare to speak up”.
 
+## 2025 November
+
 2025-11-03 Conservative activist Laura Loomer received Pentagon press credentials.
 
 2025-11-19 Sixteen-year veteran of the FBI David Maltinsky was fired for displaying a Pride flag.
+
+## 2025 December 
 
 2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
 
 2025-12-21 Bari Weiss pulled an airing of a 60 Minutes episode covering an investigation into the CECOT detention center in El Salvador.
 
 2025-12-25 Trump made more than 100 Christmas Day posts, including calls to revoke broadcast licenses from critical news outlets.
+
+## 2026 January 
 
 2026-01-05 The Corporation for Public Broadcasting announced it would dissolve itself.
 
@@ -302,6 +373,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 
 2026-01-30 Florida Republican James Fishback said that Don Lemon was “lucky that he’s not getting executed in the public square”.
+
+## 2026 February 
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses.
 
@@ -321,6 +394,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-02-25 Paramount Skydance outbid Netflix to buy all of Warner Brothers Discovery.
 
+## 2026 March 
+
 2026-03-11 The Pentagon banned reporters from taking “unflattering” photos of Hegseth.
 
 2026-03-14 Defense Secretary Pete Hegseth criticized media coverage of the Iran conflict and accused reporters of misrepresenting events. One article quoted Hegseth as saying, “The sooner David Ellison takes over that network, the better” in reference to CNN.
@@ -332,6 +407,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 2026-03-28 The White House responded to a third No Kings protest in a statement, “The only people who care about these Trump Derangement therapy sessions are the reporters who are paid to cover them”.
+
+## 2026 April  
 
 2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
@@ -369,6 +446,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
+## 2026 May 
+
 2026-05-02 Police arrested 8 protesters in New York for protesting the violent arrest of a Nigerian man.
 
 2026-05-03 Bay Bridge takeover by several vehicles. At least nine people were arrested and 77 vehicles were impounded. 
@@ -384,6 +463,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-05-29 Bari Weiss and Larry Ellison hollowed out 60-Minutes.
 
 2026-05-31 The British government banned two political commentators from entering the U.K. “on the grounds that their presence in the UK may not be conducive to the public good”. Both figures are outspoken in their criticism of Israel. Cenk Uygur posted, “I’ve been banned for criticizing Israel. Are we free anymore?”. Hasan Piker posted, “the uk has revoked my visa as well. All at the behest of israel.”
+
+## 2026 June 
 
 2026-06-02 Hegseth classified the Pentagon press office and physically barred journalists from entering. Reporters Without Borders said, “No matter how petulant Pete gets, journalists will continue their tenacious reporting and hold the Pentagon accountable for the money, operations, and lives they impact every day”.
 
@@ -409,8 +490,9 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
 
-2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
+## 2026 July 
 
+2026-07-01 Air Force Major Jason Watson was arrested at the Capitol for holding a sign up calling for the impeachment of Trump. 
 
 2026-07-02 Seven more people were arrested and given harsh sentences and convicted of terrorism for protesting the year prior. One person received a 50 year sentence.
 

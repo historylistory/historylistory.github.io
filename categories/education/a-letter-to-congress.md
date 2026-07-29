@@ -52,24 +52,39 @@ Taken together, these actions represent an effort to politicize education, restr
 
 ### Chronology.
 
+## 1960s 
 
 1966-01-01 Jerry Falwell founded the whites-only Lynchburg Christian Academy to circumvent the 1954 ruling to ban segregation. He wrote in his book ‘America Can Be Saved’, “I hope I live to see the day when, as in the early days of our country, we won’t have any public schools. The churches will have taken them over again and Christians will be running them”. In 1977 courts ruled that segregated private religious schools could not qualify as charitable organizations or retain tax exempt status. 
 
 1967-01-01 Interesting FYI: Project Rebound was founded, offering hope and higher education opportunities for formerly incarcerated individuals. Project Rebound Metrics from 2016 to 2016 had an astounding recidivism rate of 0%, meaning all students enrolled in their program did not re-offend, which also by that metric means the project has a 100% success rate. It assisted with books, school supplies, and help with childcare during school.
 
+## 2007 
+
 2007-01-01 Stephen Miller accused universities of censorship because they refused to run an ad that claimed “Muslims have problems living peacefully with their neighbors”.
+
+## 2009 
 
 2009-01-01 Linda McMahon holds limited credentials in education. She only served one year on the Connecticut Board of Education and holds a degree in French.
 
+## 2011
+
 2011-01-01 From 2011 to 2019, Fox News repeatedly mocked “shrimp on a treadmill” research, inflating costs and ignoring its food-safety purpose.
+
+## 2016 
 
 2016-02-24 During a speech in Las Vegas, Trump told the crowd, “I love the poorly educated”.
 
 2016-11-21 Turning Point’s Charlie Kirk created the “Professor Watchlist” so his followers could outwardly dox any teacher they felt was “woke”.
 
+## 2018 
+
 2018-03-08 A Floridian middle-school social studies teacher was pulled after the school learned she had a white supremacist podcast. 
 
+## 2019 
+
 2019-11-08 Rebecca Friedrichs asserted that teachers’ unions promoted socialism. She claimed during a Tucker Carlson interview that pushing for free lunch programs, healthcare, and emotional support is an attempt to replace the family with indoctrination and communism.
+
+## 2021 
 
 2021-06-01 Texas House Bill 3979 restricts race, slavery and current event curriculum in public schools by removing material pertaining to Native American history, Cesar Chavez, Susan B. Anthony, Frederick Douglas and Martin Luther King Jr. 
 
@@ -81,8 +96,11 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2021-11-02 During a National Conservatism conference, JD Vance told the crowd, “we are giving our children over to our enemies” in the education system. He also referred to taking the “red pill” like in the Matrix movie, complained about subsidizing universities to “control” how we think, called Richard Nixon a great prophet, and proclaimed National Conservatism as a movement.
 
+## 2022 
+
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content. 
 
+## 2023
 
 2023-03-29 Governor Ron DeSantis and his allies initiated a “hostile takeover” of New College of Florida as part of a political campaign.
 
@@ -94,6 +112,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2023-10-23 Republicans increasingly ban books. 
 
+## 2024 
+
 2024-03-26 Trump rebranded the Lee Greenwood Bible as his own, produced them China for $3, sold them for a 2000% and up profit, and forced a mandate requiring public schools to carry only those versions of the bible. 
 
 2024-04-05 Governor Greg Abbott threatened Texas college students with expulsion for protesting the genocide in Gaza.
@@ -101,6 +121,8 @@ Taken together, these actions represent an effort to politicize education, restr
 2024-04-24 Mike Johnson called pro-Palestinian protestors “antisemitic”, threatened retaliatory measures to cut funding, and demanded the Columbia University president resign.
 
 2024-06-03 Billions of taxpayers’ dollars are diverted from public schools to fund exclusive private religious schools. 
+
+## 2025 January 
 
 2025-01-01 Key space programs at risk now include active missions New Horizons, Juno, Mars Odyssey and Maven, observatories Chandra Xray, future developments for Davinci and Veritas, and new space telescopes like the Nancy Grace Roman Space Telescope and the Habitable Worlds Observatory.
 
@@ -118,11 +140,15 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-01-29 Trump issued Executive Order Ending Racial Indoctrination in K-12 Schooling.
 
+## 2025 February 
+
 2025-02-03 Elon Musk revived criticism of “shrimp treadmill” research, calling it an “insane” waste of taxpayer money”.
 
 2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025. 
 
 2025-02-19 Republican lawmakers in both Indiana and Washington removed state funding for Dolly Parton’s Imagination Library, a program which provided free books to schoolchildren.
+
+## 2025 March 
 
 2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
@@ -142,6 +168,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-03-27 Trump signed EO Restoring Truth and Sanity to American History which is designed to whitewash and sanitize history. 
 
+## 2025 April 
+
 2025-04-08 The Trump administration froze $1B in funding to Cornell University and $790M to Northwestern, accusing both schools of antisemitism and discrimination. According to online sources, the funding freeze impacted contracts for the Department of Agriculture, defense, education, Health & Human Services, and cybersecurity.
 
 2025-04-09 Princeton lost federal funding for climate research because the Trump administration accused them of promoting “exaggerated and implausible climate threats.”
@@ -158,6 +186,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-04-29 Religious charter schools in Oklahoma requested taxpayer money grants to fund their schools, draining funds that should go to public education.
 
+## 2025 May 
+
 2025-05-02 The Trump administration cut funding to after-school care programs, leaving increased strain on working families, gaps in learning and support since it also affects summer school programs, and disrupted partnerships between cities and nonprofits. 
 
 2025-05-21 Senate Bill SB10 was introduced to require display of the Ten Commandments in classrooms. Representative James Talarico argued against the measure, “forcing religion down throats is not love”.
@@ -172,6 +202,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-05-28 In a White House press conference Trump stated that Harvard “has to behave themselves” and demanded a list of foreign students from the school, stating Harvard should cap foreign attendees to 15%.
 
+## 2025 June 
+
 2025-06-01 Pete Hegseth renamed several U.S. Naval Ships that were named after prominent women or civil rights leaders because they did not meet his criteria for a “warrior ethos”
 
 2025-06-01 During an interview with Face the Nation, Wesleyan president Michael Roth said, “…this is really an act of intimidation to scare schools into towing the line of the current administration. It really has nothing to do with national security or with antisemitism. This heightened scrutiny is meant to instill fear on college campuses, and I am afraid it is working”.
@@ -181,6 +213,8 @@ Taken together, these actions represent an effort to politicize education, restr
 2025-06-10 National parks were instructed to post QR codes so visitors could report exhibits with content about slavery, Native American history, pollution or climate change. 
 
 2025-06-18 The Trump administration froze Columbia University funds again.
+
+## 2025 July 
 
 2025-07-01 Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology
 
@@ -193,6 +227,8 @@ Taken together, these actions represent an effort to politicize education, restr
 2025-07-31 The Trump administration cut UCLA research grants, impacting things like Parkinson’s disease treatment. A judge ordered the restoration of some of these grants because the government failed to provide sufficient justification for terminating them. 
 
 2025-07-31 The Trump administration cut funding to Brown University and forced them to pay a $50M settlement to the Rhode Island workforce development in a deal with Trump. They were also forced to adopt the government definition of male and female and remove any consideration of race from the admissions process.
+
+## 2025 August 
 
 2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
 1. Who’s behind the anti-ICE riots 
@@ -209,6 +245,8 @@ Taken together, these actions represent an effort to politicize education, restr
 2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
 2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
+
+## 2025 September 
 
 2025-09-03 A judge ruled that the Trump administration illegally cancelled Harvard funding.
 
@@ -230,9 +268,15 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
+## 2025 November 
+
 2025-11-20 The Department of Education declassified nursing careers as professional, thereby restricting their student loan limits.
 
+## 2025 December
+ 
 2025-12-03 A Colorado Springs teacher was indefinitely suspended after she disclosed upcoming revisions to limit teaching about anti-slavery activism or contributions of Frederick Douglass.
+
+## 2026 January 
 
 2026-01-01 Trump’s IRS is going to consider student loans as income and start taxing them.
 
@@ -243,6 +287,8 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-01-23 The Trump administration ordered the National Park Service to remove a slavery exhibit from a park in Philadelphia. 
 
 2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program. 
+
+## 2026 February 
 
 2026-02-02 Texas A&M cut Women’s Studies due to policy on race and gender topics.
 
@@ -256,6 +302,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.
 
+## 2026 March 
+
 2026-03-01 Pete Hegseth ordered a ban on US troops attending graduate-level programs at Ivy League and other top-tier universities, labelling them “woke breeding grounds of toxic indoctrination”.
 
 2026-03-11 The Arkansas Governor and TPUSA announced TPUSA indoctrination in their schools. 
@@ -266,18 +314,25 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
+## 2026 April 
+
 2026-04-28 After the DOE declassified nursing careers as “professional”, Senator Merkley pressed Linda McMahon on why she gutted TRIO, a program designed to encourage nursing careers. McMahon said declassifying nursing jobs would make tuition more affordable. What really has happened is students who can’t get a sufficient federal loan with low interest now will have to seek out a privatized loan with higher interest rates. 
 
 2026-04-28 Trump fired all 22 members of the National Science Board.
+
+## 2026 May 
 
 2026-05-22 Teachers revolted against I-Ready; a private-equity-backed software used in education.
 
 2026-05-26 NASA announced plans to build a moon base.
 
+## 2026 June 
+
 2026-06-16 Trump administration moved two high-profile functions out of the Department of Education: Civil Rights Education will now be under the Department of Justice, and Special Education will now be under the Department of Health and Human Services.
 
 2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools. 
 
+## 2026 July 
 
 2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
 

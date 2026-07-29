@@ -49,7 +49,11 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 ### Chronology.
 
+## 1970s 
+
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.
+
+## 1980s
 
 1982-01-01 Financier of Project 2025 Leonard Leo also helped found the Federalist Society to select and groom law students.  
 
@@ -57,31 +61,53 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 1989-06-12 Megachurch founder and televangelist Jerry Falwell campaigned for a so-called “moral majority”, calling Regan “God’s instrument”, labeling Democrats as radicals, and weaponizing religion for political power. He stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”. 
 
+## 1990s
+
 1995-01-01 Trump launched his own bottled water. 
+
+## 2007 
 
 2007-05-01 Trump launched his own Trump Steaks. 
 
+## 2008 
+
 2008-07-01 Justice Samuel Alito – the person who helped overturn Roe v. Wade – took luxury fishing trips with GOP mega donors Leonard Leo and Paul Singer. Alito wrote an opinion article in the Wall Street Journal claiming ProPublica misleads its readers and that he didn’t have to report on the luxury trip. After the trip, Alito did not recuse himself from a case before the Supreme Court involving Paul Singer, or from a 2023 tax case involving an attorney who interviewed him for articles in the Wall Street Journal. It wasn’t until 2026 when Alito did recuse himself from an oil industry case due to a discovered conflict with his ConocoPhillips stock.
+
+## 2009 
 
 2009-02-23 “Buy when there’s blood in the streets, even if the blood is your own”.
 
 2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
 
+## 2010 
+
 2010-01-21 The Supreme Court ruled 5-to-4 to strike down restrictions on independent political spending by corporations and labor unions (see Citizens United). By allowing unlimited independent spending, “Super PACs” can raise and spend vast sums of money in pay-to-play schemes and even hide donations behind 501(c)(4) companies (for example, Turning Point USA is a 501(c)(4) nonprofit which can participate in partisan political campaigns). 
+
+## 2013 
 
 2013-01-01 JD Vance was a former venture capitalist with investors like Peter Thiel (Palantir, PayPal, Facebook), Eric Schmidt (Google), and Marc Andreessen (Silicon Valley Investor). 
 
+## 2015 
+
 2015-01-01 McMahon was a megadonor for the 2016 Republican nomination process, donating $5M to the Donald J. Trump Foundation. Between 2015 and 2016, McMahon donated $1.2M to Future-45, a SuperPac which funded anti-Bernie Sanders advertisements.
+
+## 2016 
 
 2016-01-01 Linda McMahon donated $6M to Trump-supporting SuperPAC Rebuilding America Now. 
 
+## 2019 
+
 2019-07-11 Trump posted “I am not a fan of Bitcoin and other Cryptocurrencies, which are not money, and whose value is highly volatile and based on thin air. Unregulated Crypto Assets can facilitate unlawful behavior, including drug trade and other illegal activity”. Then he launched his own crypto.
+
+## 2020 
 
 2020-04-01 Karoline Leavitt leveraged “blue-collar roots,” though reports said her family business received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
 
 2020-12-15 After Biden won Trump posted, “This Fake election can no longer stand. Get moving Republicans”.
 
 2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
+
+## 2021 
 
 2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.
 
@@ -91,6 +117,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2021-08-29 JD Vance was quoted as attributing his entire career to Peter Thiel. Thiel invested in JD Vance’s venture capital firm and backed Vance’s 2022 Senate campaign as the ‘largest amount given to a single candidate in congressional history’.
 
+## 2022 
+
 2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs.
 
 2022-04-10 The House Oversight Committee investigated a $2 billion Saudi investment in Jared Kushner’s firm and Trump’s receipt of more than $250,000 in foreign gifts. In an article with CBS, Kushner stated he was not interested in rejoining the White House if Trump won the 2024 presidential election. In 
@@ -98,9 +126,13 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2022-12-15 Trump launched his own NFT.
 
+## 2023 
+
 2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways.
 
 2023-09-15 Multiple reports alleged an ongoing affair between Kristi Noem and Corey Lewandowski.
+
+## 2024 
 
 2024-02-15 During an interview at Harvard University, Trump’s son-in-law Jared Kushner called Gaza’s waterfront property very valuable, stating he believed declaring Palestine as a State would be rewarding terrorism.
 
@@ -134,6 +166,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls.
 
+## 2025 January 
+
 2025-01-13 Prediction market Kalshi named Donald Trump Jr. as their paid advisor.
 
 2025-01-17 JBS, the world’s largest meatpacker, made a $5m donation to Trump’s inauguration.
@@ -148,15 +182,23 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: “Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
+## 2025 February 
+
 2025-02-10 Trump fired the head of the independent Office of Government Ethics David Huitema.
 
 2025-02-14 New York US Attorney Danielle Sassoon resigned after refusing to drop corruption charges against Mayor Eric Adams per order of Pam Bondi who wanted Sassoon to quash the federal indictment as a favor to Trump.
+
+## 2025 March
 
 2025-03-04 Trump hosted one of multiple millionaire dinners at Mar-a-Lago, “MAGA Inc. Candlelight Finance Dinner”. 
 
 2025-03-07 The Trump administration fired head of the Office of Professional Responsibility Jeffrey Ragsdale.
 
+## 2025 April 
+
 2025-04-09 Democrats called for an investigation into insider trading after Trump used his Truth Social posts in correlation with stock surges. For example, Trump posted, “THIS IS A GREAT TIME TO BUY!!! DJT”.
+
+## 2025 May 
 
 2025-05-01 A United Arab Emirates family invested $2B (billion) into Trump & Witcoff family cryptocurrencies through World Financial Liberty.
 
@@ -166,17 +208,23 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2025-05-22 Trump hosted his meme coin dinner. While some experts expressed concern over conflict of interest, Karoline Leavitt asserted Trump was “doing this in his personal time”.
 
+## 2025 June
+
 2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
 
 2025-06-16 Eric Trump launched Trump Mobile and offered a pre-order of the phone. When customers later asked in 2026 why they still hadn’t received their phones, customer service representatives told callers it was the government shutdown’s fault.
 
 2025-06-30 Trump launched his own perfume line. 
 
+## 2025 July 
+
 2025-07-11 Pam Bondi fired Justice Department ethics chief Joseph Tirrell. Tirrell had sought to investigate Kash Patel over luxury gifts allegedly received from Conor McGregor which violated the FBI ethics codes.
 
 2025-07-16 Several senators proposed the Presidential Library Anti-Corruption Act to prevent presidents from using their presidential library as a tool for corruption and bribery.
 
 2025-07-31 The White House announced they would be constructing a 90,000 square foot ballroom, which they said would be paid for through private donations. They also promised the construction would not interfere with or cut into the East Wing.
+
+## 2025 August 
 
 2025-08-01 Donald Trump Jr. is an investor for and sits on the advisory board of Polymarket through his venture capital firm 1789 Capital.
 
@@ -190,6 +238,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2025-08-28 Trump withdrew the U.S. from the UN Review of Human Rights Record, stating it would not participate in the upcoming Universal Periodic Review. The ACLU issued a press release calling this an attempt to evade accountability.
 
+## 2025 September
+
 2025-09-05 Tesla introduced a new pay package to make Elon Musk the first trillionaire in history. 
 
 2025-09-05 The White House hosted a big-tech dinner party to carve up the country amongst themselves.
@@ -199,6 +249,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2025-09-20 Footage from 2024 showed Tom Homan accepting a $50K bribe from FBI agents in exchange for securing government contracts. The Trump administration shut down the investigation. As MAGA loyalist Megyn Kelly put it on a Truth Social post, MAGA does not care if Tom Homan took a bribe or not.
 
 2025-09-29 Trump submitted a video on social media to display layouts of the gold inlays purchased to decorate the Oval Office. Tacky.
+
+## 2025 October 
 
 2025-10-01 When asked why Trump’s son-in-law Jared Kushner is allowed to indulge in huge financial involvements overseas, Leavitt accused the reporter of being despicable for trying to suggest that behavior was inappropriate.
 
@@ -210,6 +262,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2025-10-24 Open AI announced plans to sell erotica to boost sales. AI has a massive environmental impact and is vastly unregulated. 
 
+## 2025 November
+
 2025-11-03 Despite court orders, Trump continued delaying SNAP funding, at times proposing partial or no release of funds
 
 2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency’s aircraft fleet.
@@ -220,7 +274,11 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2025-11-18 The White House hosted Saudi Crown Prince Mohammed bin Salman for talks involving Trump family investments, AI chips, nuclear energy, and the Abraham Accords. The crown prince had previously faced scrutiny over the brutal dismemberment and killing of journalist Jamal Khashoggi. Jared Kushner has business ties with Saudi Arabia, has helped broker the Abraham Accords, and is a close friend with Salman.
 
+## 2026 January 
+
 2026-01-28 New York city comptroller Mark Levine encouraged people to reinvest the city’s pension funds in Israeli bonds. In response, protestors stated, “Levine says it’s profitable to invest in the Israeli bonds. He says that they are solid investments with high returns. It’s not surprising that a war economy is profitable. That’s what Israel’s economy is. It’s a war economy. That’s why there is high yields. But buying these bonds only ensures the injustice and the system of occupation continues”.
+
+## 2026 February 
 
 2026-02-01 Trump family’s World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
 
@@ -233,6 +291,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster.
 
 2026-02-27 Trump administration officials devised legal strategies to pocket illegal tariffs despite a Supreme Court ruling. 
+
+## 2026 March
 
 2026-03-01 Trump peddled a veteran’s edition of his Trump bible for $99.99 on his website and on eBay.
 
@@ -256,6 +316,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-03-27 Trump attended a Saudi investor meeting in Miami.
 
+## 2026 April 
+
 2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
 2026-04-14 Two members of Congress resigned, and two others faced expulsion proceedings in an unprecedented series of ethics scandals. Eric Swalwell resigned amid sexual-assault allegations, while Tony Gonzales resigned after acknowledging an affair with an aide who later died by suicide.
@@ -275,6 +337,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-04-26 Foundation Robotics secured a Pentagon contract to build robots to replace human soldiers. The company’s chief strategy adviser is Eric Trump. 
 
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
+
+## 2026 May 
 
 2026-05-05 Howard Lutnick was forced to testify for his involvement with Epstein.
 
@@ -308,6 +372,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-05-31 On Fox, Ken Paxton responded to being called ‘scandal plagued’, “The reality is they could say the same thing about Donald Trump…”
 
+## 2026 June 
+
 2026-06-13 Protesters in Albania tore down fences surrounding Jared Kushner’s luxury development site.
 
 2026-06-16 An investigation was launched into allegations that Kash Patel created a $1M personal slush fund of taxpayer money to pay off MAGA loyalists.
@@ -319,6 +385,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-06-30 Mamdani announced the permanent closure of Rikers Island, stating, “For decades, Rikers Island has represented one of the deepest failures of our City government…this milestone brings us closer to ending that chapter. We are replacing a system built around neglect with one centered on rehabilitation”. 
 
+## 2026 July 
 
 2026-07-02 The House voted to pass a legislation forcing public disclosure of congressmember use of taxpayer dollars to fund sexual misconduct payouts. 
 
