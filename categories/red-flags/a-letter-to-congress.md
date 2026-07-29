@@ -45,22 +45,33 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 ### Chronology.
 
+## 1950s
 
 1952-01-01 The US put support behind Cuban dictator Fulgencio Batista. 
 
 1955-05-04 The CIA trained torturers serving Fulgencio Batista’s regime in Cuba.
 
+## 1970s 
+
 1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 
+
+## 1980s 
 
 1980-12-02 In El Salvador groups of U.S. troops assaulted and killed Catholic nuns and priests. 
 
 1982-03-23 Self-proclaimed born-again Pentecostal Efrain Rios Montt carried out one of the largest genocides against the Maya, with financial backing from the US. He was convicted of genocide in 2013. Ronald Regan called him “a man of great personal integrity”. Jerry Falwell supported him, and Pat Robinson interviewed him on the 700 Club. Christianity Today’s Luis Palau said, “It’s great to have a Christian president as a model…the hand of God appears to be on him”. 
 
+## 1990s
+
 1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square.
+
+## 2014 
 
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.
 
 2014-07-23 In 2014 JD Vance wrote, “But I’m not surprised by Trump’s rise, and I think the entire party has only itself to blame. We are, whether we like it or not, the party of lower-income, lower-education white people, and I have been saying for a long time that we need to offer those people SOMETHING (and hell, maybe even expand our appeal to working class black people in the process) or a demagogue would. We are now at that point. Trump is the fruit of the party’s collective neglect. I go back and forth between thinking Trump is a cynical asshole like Nixon who wouldn’t be that bad (and might even prove useful) or that he’s America’s Hitler. How’s that for discouraging?”.
+
+## 2016 
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
@@ -70,23 +81,29 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2016-10-22 RFK compared Trump to Hitler on his podcast.
 
+## 2017
+
 2017-04-29 Snake Poem
 
 2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
 
+## 2018 
+
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
-2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil “The Great Liar”. Pope Francis issued a second warning in 
-
-2020, telling people not to have dialogue with the devil, adding that Jesus himself does not enter dialogue with the devil. In 2023 Pope Francis issued a third and final warning not to enter dialogue with the devil. Pope Francis then rebuked the Trump administration for their immigration policy and cruelty, and for JD Vance’s sudden switch to Christianity. He passed away on April 21, 2025 after a visit from JD Vance.
+2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil “The Great Liar”. Pope Francis issued a second warning in 2020, telling people not to have dialogue with the devil, adding that Jesus himself does not enter dialogue with the devil. In 2023 Pope Francis issued a third and final warning not to enter dialogue with the devil. Pope Francis then rebuked the Trump administration for their immigration policy and cruelty, and for JD Vance’s sudden switch to Christianity. He passed away on April 21, 2025 after a visit from JD Vance.
 
 2018-06-19 Under the first Trump administration the U.S. withdrew from the UN Human Rights Council. Secretary Pompeo called the council “a poor defender of human rights”, accused it of allowing authoritarian government in its membership, claimed unfair election processes, and claimed bias against Israel. The UN representative at the time Nikki Haley also made her remarks.
+
+## 2022 
 
 2022-04-19 JD Vance compared Trump to Hitler.
 
 2022-11-24 Russia suppressed the media, same as the US started doing in 2025.
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+
+## 2023 
 
 2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
 
@@ -95,6 +112,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2023-12-05 Trump joked about being a dictator “on day one” during a speech in Davenport, Iowa.
 
 2023-12-06 In an interview with Hannity, Trump repeated his “dictator on day one” remark and referred to January 6 prisoners as “hostages.”
+
+## 2024 
 
 2024-03-08 Trump hosted Hungarian Prime Minister Viktor Orbán at Mar-a-Lago and called him “fantastic.”
 
@@ -116,17 +135,29 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later. 
 
+## 2025 January 
+
 2025-01-27 Elon Musk attended a far-right rally in Germany.
 
+## 2025 February 
+
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
+
+## 2025 April 
 
 2025-04-04 Irish residents say the US is slipping into fascism.
 
 2025-04-14 Trump praised Vladimir Putin numerous times (article).
 
+## 2025 May 
+
 2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
 
+## 2025 June 
+
 2025-06-03 Allegedly Trump kept a copy of Adolf Hitler speeches next to his bedside.
+
+## 2025 July 
 
 2025-07-04 After a fallout with Trump, Musk wrote “Independence Day is the perfect time to ask if you want independence from the two-party (some would say uniparty) system! Should we create the America Party?” and he offered a poll. The next day he wrote, “By a factor of 2 to 1, you want a new political party and you shall have it! When it comes to bankrupting our country with waste & graft, we live in a one-party system, not a democracy. Today, the America Party is formed to give you back your freedom”.
 
@@ -134,11 +165,15 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-07-13 The United States and Israel pursued joint efforts to relocate Palestinians to Sudan or Libya.
 
+## 2025 August 
+
 2025-08-25 During an interview Trump quipped “maybe they want a dictator”.
 
 2025-08-26 Trump had a banner of himself mounted upon the building across from the US Labor Department.
 
 2025-08-30 The U.S. Navy sank a Venezuelan vessel in international waters.
+
+## 2025 September 
 
 2025-09-06 JD Vance posted on social media, “killing cartel members who poison our fellow citizens is the highest and best use of our military”. Brian Krassenstein replied, “killing the citizens of another nation who are civilians without any due process is called a war crime”. JD Vance responded, “I don’t give a shit what you call it”. Vance also wrote, “Democrats:let’s send your kids to die in Russia…Republicans:actually let’s protect our people from the scum of the earth”.
 
@@ -158,11 +193,17 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-09-29 Trump posted a warm welcome for Netanyahu on Truth Social.
 
+## 2025 October 
+
 2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
 
 2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
 
+## 2025 November
+
 2025-11-08 Trump met with Viktor Orbán to discuss exempting Hungary from Russian oil and gas sanctions.
+
+## 2025 December
 
 2025-12-04 Amnesty International reported on torture at ICE facilities Krome and Alligator Alcatraz where ICE had been placing people in 2x2 foot cage-like structures for hours at a time. 
 
@@ -172,11 +213,15 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
+## 2026 January 
+
 2026-01-14 The Dutch say Trump is more dangerous than Adolf Hitler.
 
 2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
 
 2026-01-21 Trump stated again during the summit in Davos “Sometimes you need a dictator”.
+
+## 2026 February 
 
 2026-02-13 Trump endorsed Viktor Orbán ahead of Hungary’s April elections and sent Marco Rubio and JD Vance to visit him.
 
@@ -186,6 +231,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2026 March 
 
 2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism.
 
@@ -196,6 +242,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which would be a war crime. When asked, Karoline Leavitt defended Trump, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists pointed out war-crime concerns, Karoline Leavitt responded, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
+
+## 2026 April 
 
 2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
@@ -245,6 +293,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-04-29 Trump added his image to U.S. passports.
 
+## 2026 May 
+
 2026-05-01 After Trump falsely claimed he didn’t need Congressional approval to continue the war in Iran the Pentagon renamed Operation Epic Fury to Operation Sledgehammer to circumvent the 60-day limit under the War Powers Act.
 
 2026-05-03 Iran executed 3 protestors. According to some reports, Iran carried out over 600 executions within the first three months of 2026.
@@ -267,6 +317,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “These chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
+## 2026 June 
+
 2026-06-01 Section 224 of the 2027 Defense Bill aims to merge the U.S. and Israeli militaries. 
 
 2026-06-03 Republicans joined Democrats in a 215–208 House vote to end the Iran conflict. The measure remained largely symbolic because it still required Senate approval and Trump's signature.
@@ -286,6 +338,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-06-25 JD Vance said at the Nixon library, “If Watergate happened tomorrow, it would be like a 12-hour news story…”.
 
 2026-06-28 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”.
+
+## 2026 July 
 
 2026-07-02 The largest Presbyterian denomination in the US denounced Israel, declared Israel’s assault on Gaza a genocide, and divested from Palantir and GE for funding the genocide.
 

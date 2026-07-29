@@ -51,6 +51,7 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 ### Chronology.
 
+## 1960s
 
 1964-01-01 The US-funded Summer Institute of Linguistics proselytized to indigenous people in remote areas, fostered subservience and compliance, forced people onto reservations at the will of oil companies, and helped Brazil assimilate people of the Amazon.
 
@@ -58,11 +59,15 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 1969-07-12 The National Security Council characterized progressive Catholic clergy as an “increasingly disruptive force”, writing that “sermons and writings have already aroused the concern of Conservative church officials and military leaders” .
 
+## 1970s 
+
 1971-03-05 Nixon stated in a directorate that they were threatened because priests were working with the peasants and workers “against the oligarchs and the armies”.
 
 1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured. In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”.
 
 1975-01-01 The Banzer Plan was developed to deliberately discredit liberation theology and suppress left-wing Roman Catholic dissent. Bolivian intelligence joined with the U.S. CIA to plant literature and shut down any progressive church publications.
+
+## 1980s 
 
 1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
@@ -70,29 +75,47 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 1989-06-12 Megachurch founder and televangelist Jerry Falwell campaigned for a so-called “moral majority”, calling Regan “God’s instrument”, labeling Democrats as radicals, and weaponizing religion for political power. He stated, “Our goal has been achieved. The religious right is solidly in place and religious conservatives in America are now in for the duration”.
 
+## 1990s 
+
 1992-08-17 Pat Buchanan declared a cultural and religious war as part of his “Make America First Again” campaign.
 
 1996-01-01 Peter Wagner started the New Apostolic Reformation. Context: They follow the Seven Mountain Mandate, dominion theology, and they make up approximately 41% of America.
 
+## 2003 
+
 2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”.
+
+## 2005 
 
 2005-01-30 Evangelical Christian Nationalist and political activist David Barton was named by Time Magazine in 2005 as one of the nations “25 Most Influential Evangelicals”. He believes the separation of church and state is a myth, is a founder of WallBuilders, and is an author.
 
+## 2015 
+
 2015-08-27 Trump said the Bible was his favorite book but couldn’t recite or share one passage.
 
+## 2016 
+
 2016-11-08 Michele Bachmann and David Barton hosted “Election Coverage in the Spirit of Faith”, which was organized by Kenneth Copeland ministries. Weaponizing faith for control in politics might be a sin.
+
+## 2018 
 
 2018-05-08 Pope Francis warned people not to enter dialogue with the devil, calling the devil “The Great Liar”. Pope Francis issued a second warning in 2020, telling people not to have dialogue with the devil, adding that Jesus himself does not enter dialogue with the devil. In 2023 Pope Francis issued a third and final warning not to enter dialogue with the devil. Pope Francis then rebuked the Trump administration for their immigration policy and cruelty, and for JD Vance’s sudden switch to Christianity. He passed away on April 21, 2025 after a visit from JD Vance.
 
 2018-10-02 The Christian drama film The Trump Prophecy was released. Funded by Liberty University for $2M, it is a drama based on the book The Trump Prophecies which pushes the narrative that Trump was ordained by God to save America.
 
+## 2019 
+
 2019-08-21 Trump referred to himself as “the chosen one”.
+
+## 2020 
 
 2020-01-03 Religious leaders held a prayer circle during a rally in 2020.
 
 2020-11-06 Trump supporters made a spectacle of themselves outside Clark County Election Department in Nevada.
 
 2020-11-09 Trump megadonor Kenneth Copeland performed an unsettling fit of maniacal laughter during a political sermon about the elections. 
+
+## 2021 
 
 2021-01-06 People carried “Jesus is my Savior – Trump is my President” signs, even during the J6 riots.
 
@@ -104,15 +127,21 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2021-11-11 Heritage Foundation’s Scott Yenor said, “Every effort must be made not to recruit women into engineering, but rather to recruit and demand more of men who become engineers. Ditto for med school and the law and every trade…If every Nobel Prize winner is a man, that’s not a failure. It’s kind of a cause for celebration. Why can’t our celebration of male excellence in sports be translated into all facets of life? More successful men will mean more happy citizenry and a stronger nation…Such medicated, quarrelsome, and meddlesome women gain their meaning through the seeming participation in the global project. They are agents of the new world – but not new life. Such women are now the backbone of every left-wing cosmopolitan party in the Western world. From the Greens in Germany to the Democratic party in America. And if our ideal woman is a childless media scold or a barren bureaucratic apparatchik, there is no question whether we can have a future. We can’t. There is a question of whether we deserve one”.
 
+## 2022 
+
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
 2022-07-06 Charlie Kirk said, “There is no separation of church and state. It’s a fabrication, it’s a fiction, it’s not in the constitution. It’s made up by secular humanists.”
 
 2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump.
 
+## 2023 
+
 2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
 2023-09-09 OPINION: Christian Nationalism is not Christianity – it is a polarizing extremist group bent on pushing political agendas and greed and promotes political violence.
+
+## 2024 
 
 2024-02-01 Minister Brad Onishi observed the religious extremism of Christian nationalism.
 
@@ -130,9 +159,13 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
 
+## 2025 January 
+
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a “disgrace” and an “embarrassment”. Trump demanded an apology from Reverend Mariann Edgar Budde.
 
 2025-01-20 Project 2025 page 589 mandates additional pay in observance of Sundays but completely bypasses all other religious observances. If you do for one, you must do for everybody.
+
+## 2025 February 
 
 2025-02-07 Trump signed an executive order creating a task force to eradicate so-called anti-Christian bias.
 
@@ -142,15 +175,21 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2025-02-26 Trump posted an AI-generated video depicting Gaza as a luxury resort and himself as a golden idol.
 
+## 2025 March 
+
 2025-03-13 Jewish protesters flooded Trump Tower to lobby against the arrest of a pro-Palestinian activist.
 
 2025-03-20 Another prayer circle…
+
+## 2025 April 
 
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
 
 2025-04-29 Religious charter schools in Oklahoma requested taxpayer money grants to fund their schools, draining funds that should go to public education.
 
 2025-04-30 Polls from Interfaith Alliance show most Americans oppose focus against Christian discrimination rather than discrimination against all religions.
+
+## 2025 May 
 
 2025-05-01 On National Prayer day, Trump said, “They say separation between Church and State – they told me – I said alright let’s forget about that for a – one time”. Another media source quoted him as saying, “We’re bringing back religion in our country and we’re bringing it back quickly and strongly because for America to be a great nation”.
 
@@ -160,9 +199,13 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2025-05-28 Trump posted “He’s on a mission from God & nothing can stop what is coming.”
 
+## 2025 June 
+
 2025-06-01 Religious leaders vehemently condemned GOP members and the Big Beautiful Bill for hurting the most vulnerable.
 
 2025-06-30 Trump posted on social media about a faith leaders conference he was supposed to attend, claiming the meeting was postponed for issues with AT&T.
+
+## 2025 August 
 
 2025-08-07 CNN Pamela Brown interviewed Project 2025 co-author and Christ Church leader Doug Wilson where he commented, “women are people other people come out of”, having babies doesn’t take skill, women should not vote, women should not hold leadership positions.  Reposted by Pete Hegseth on X, “All of Christ for All of Life”. 
 
@@ -180,6 +223,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 
+## 2025 September 
+
 2025-09-02 Several senators and Trump administrators such as Tulsi Gabbard, Pete Hegseth, and Doug Wilson attended one of the National Conservatism meetings in DC as keynote speakers. During the event Eric Schmitt promoted ideals of manifest destiny, claiming foreigners are “diluting” what he claims is “rightfully ours”. 
 
 2025-09-10 Emma Waters of the Heritage Foundation addressed pro-life views, saying outsourcing IVF could invite birthright citizenship.
@@ -194,21 +239,31 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
+## 2025 October 
+
 2025-10-14 Eric Trump claimed Donald Trump was “saving God” and religion during a Benny Johnson podcast interview.
 
 2025-10-20 Republican Representative Chip Roy of Texas made the exclusive assertion that Jesus is King in the United States.
 
+## 2025 November
+
 2025-11-13 The United States Conference of Catholic Bishops rebuked the mass deportations, calling it “dehumanizing rhetoric and violence”.
+
+## 2026 January 
 
 2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program.
 
 2026-01-28 A Christian Nationalist painted over a World’s Last Chance billboard in Los Angeles to read Jesus is God. 
+
+## 2026 February 
 
 2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt status if leaders “say something bad about” him. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
 
 2026-02-09 A group of multifaith organizations sued Trump’s “Religious Liberty Commission” for a lack of diversity.
 
 2026-02-10 Buddhist monks walked 108 days from Texas to Washington DC in a walk for peace.
+
+## 2026 March 
 
 2026-03-03 The Military Religious Freedom Foundation received hundreds of complaints across all branches of the military after commanders told subordinates that the war in Iran was a biblical mandate and that Trump was anointed by God to light the signal fire in Iran to cause Armageddon.
 
@@ -235,6 +290,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-03-31 JD Vance published his own religious-based book “Communion”.
 
 2026-03-31 Trump proposed a massive gold-themed presidential library featuring his heckling “walk of fame”, the gifted Saudi jetliner, and a gold statue of himself.
+
+## 2026 April 
 
 2026-04-01 Franklin Graham framed the Iran conflict in biblical terms and likened Trump to Queen Esther.
 
@@ -276,6 +333,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-04-29 Trump added his image to U.S. passports.
 
+## 2026 May 
+
 2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”.
 
 2026-05-07 Marco Rubio met privately with Pope Leo XIV at the Vatican after months of public disagreements between the administration and the Pope
@@ -287,6 +346,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
 
 2026-05-19 Mark Meckler claimed Trump was touched or ordained by God.
+
+## 2026 June 
 
 2026-06-04 A few companies released Christian-themed energy drinks to capitalize on current events.
 
@@ -300,8 +361,9 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-06-22 The Texas Board of Education voted to force biblical curriculum in schools.
 
-2026-07-01 A group of traditionalist Catholics gathered in Switzerland to break away from the Catholic church, ordain its own bishops and condemn Pope Leo XIV’s authority.
+## 2026 July 
 
+2026-07-01 A group of traditionalist Catholics gathered in Switzerland to break away from the Catholic church, ordain its own bishops and condemn Pope Leo XIV’s authority.
 
 2026-07-01 During a bible school session for Mount Olivet Baptist Church in Lexington Kentucky students watched as the pastors put on an “Antifa execution” skit in front of little kids and mocked an execution. 
 
