@@ -219,6 +219,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 
+2026-04-16 Peter Theil funded Objection, an AI tribunal judge designed to investigate media claims.
+
 2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
 2026-04-19 Trump wrote, “the United States is going to knock out every single Power Plant, and every single Bridge, in Iran. NO MORE MR. NICE GUY! They’ll come down fast, they’ll come down easy and, if they don’t take the DEAL, it will be my Honor to do what has to be done”.

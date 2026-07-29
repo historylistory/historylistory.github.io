@@ -307,8 +307,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-12-22 Trump announced “Trump-class” battleships (i.e. USS Defiant). 
 
-2025-12-24 The White House threatened to bypass DC preservation rules and the General Services Admission to demolish historic federal property. The White House threatened to bypass the preservation staff to demolition the Wilbur J Cohen building and its historic New Deals mural. According to one article, the White House added a long list of government properties to a newly enacted “accelerated disposal” list.
-
 2025-12-30 Netanyahu awarded Trump the “Israel Prize.”
 
 2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
@@ -341,17 +339,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-02-10 Andy Ogles requested an investigation into the Super Bowl halftime show.
 
-2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized".
-
-2026-02-12 GEO Group profited from ICE detention centers and private prisons.
-
 2026-02-13 Corey Lewandowski and Kristi Noem reportedly tried to fire a Coast Guard pilot after an incident involving a forgotten blanket
 
 2026-02-17 DHS repeated partisan shutdown messaging on official websites, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
 
 2026-02-17 RFK and Kid Rock made a shirtless workout video together.
-
-2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.
 
 2026-02-19 Trump hung another banner of himself, this time over the Department of Justice.
 
@@ -361,31 +353,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
 
-2026-02-25 Trump proposed turning the East Potomac into a golf course.
-
-2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles on an all-girls school, killing 170 schoolchildren.
-
 2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
-
-2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
 2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
 
-2026-02-27 During an interview with Piers Morgan, Lauren Boebert couldn’t answer what inflation was.
-
-2026-03-01 After the US bombed Iran, the US State Department had made no plans on how to evacuate American citizens from the region. They told them to find their own way out.
-
-2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
-
-2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
-
-2026-03-06 Trump minimized dangers in the Strait of Hormuz to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Afterwards, six tankers were struck. 
-
 2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
-
-2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
-
-2026-03-08 Hegseth refused to rule out ground troops in Iran during a 60 Minutes interview. The interviewer asked, “Will there be boots on the ground in Iran”. Hegseth replied, “I wouldn’t tell you that if we did”, and, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
 
 2026-03-09 The White House launched meme-heavy propaganda campaigns celebrating the Iran war, splicing real war images with action-movie clips, tv shows, and video games. They used Braveheart, Superman, Top Gun, Breaking Bad, Iron Man, songs from Toby Keith about 9/11, NFL college football tackles, Major League Baseball home runs, Call of Duty, Grand Theft Auto, Mortal Kombat, Halo, and fire emojis, among several other things. One actor was quoted as saying he had, “no interest in being part of your propaganda machine”. 
 
@@ -395,8 +367,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-09 Congressman Michael Cloud argued charity should not be government-compelled through taxes. 
 
-2026-03-09 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021.
-
 2026-03-09 Trump bought cabinet members oversized Florsheim shoes. One person in the White House reportedly stated recipients were “afraid not to wear them”.
 
 2026-03-10 Pete Hegseth used taxpayer money for a lavish spending spree while SNAP expired: $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts.
@@ -405,17 +375,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-11 Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
 
-2026-03-12 Kash Patel said FBI agents would train with UFC fighters.
-
-2026-03-13 Pete Hegseth threatened no quarter, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona clarified, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill, which violates the law of armed conflict.
-
 2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
 2026-03-16 Trump publicly revealed Florida Representative Neal Dunn’s terminal diagnosis.
-
-2026-03-16 Leaks revealed that DOGE used ChatGPT to decide who and what to cut.
-
-2026-03-16 The White House arts commission proposed removing White House columns.
 
 2026-03-16 Michael Savage proposed homeless internment camps during a Newsmax interview. 
 
@@ -439,8 +401,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-22 Trump ordered a commemorative Trump coin.
 
-2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
-
 2026-03-25 Mike Johnson announced a special “America First” award for Trump.
 
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. 
@@ -452,8 +412,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-03-26 Melania Trump presented humanoid “educator” robots as teacher replacements.
 
 2026-03-27 Hollywood actor Rob Schneider publicly expressed his support for reinstating the military draft.
-
-2026-03-28 Trump frequently golfed during the Iran war.
 
 2026-03-28 JD Vance said he believed UFOs and aliens were demons.
 
@@ -477,19 +435,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-02 Trump proudly posted the U.S. bombing of a civilian suspension bridge in Tehran, which killed 8 people and wounded 95.
 
-2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides.
-
 2026-04-05 Trump wrote on TruthSocial, “Tuesday will be Power Plant Day, and Bridge Day, all wrapped up in one, in Iran. There will be nothing like it!!! Open the Fuckin’ Strait, you crazy bastards, or you’ll be living in Hell – JUST WATCH! Praise be to Allah. President DONALD J. TRUMP”. 
 
 2026-04-07 Roger Stone and Laura Loomer publicly feuded over the Iran war.
 
-2026-04-07 Trump and Hegseth declared victory over Iran with a so-called 10-point deal. 
-
 2026-04-08 RFK received backlash for being “another podcaster” after launching a podcast to “expose” alleged “lies” about health.
-
-2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after Trump tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
-
-2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
 
 2026-04-09 Pam Bondi refused to comply with a subpoena requiring testimony about the Epstein investigation because she was no longer serving as Attorney General.
 
@@ -523,25 +473,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
-2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
-
-2026-04-21 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict 
-
-2026-04-22 Marco Rubio falsely claimed detained women named Soleimani were related to Qassem Soleimani.
-
 2026-04-23 Trump urged FIFA to replace Iran in the World Cup with Italy.
-
-2026-04-23 Trump claimed U.S. missile supplies were stronger despite reports of shortages.
 
 2026-04-24 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo.
 
-2026-04-26 The Trump administration threatened the preservation group National Trust for Historic Preservation to drop lawsuits against the White House ballroom project.
-
 2026-04-26 Trump claimed the White House Correspondents’ Dinner shooting justified faster ballroom construction.
-
-2026-04-26 Trump canceled peace-talk travel involving Pakistan and Iran.
-
-2026-04-27 Four Democratic senators investigated the Kuwait bombing that killed six U.S. servicemembers and left more than 20 injured. 
 
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 
@@ -551,25 +487,13 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-29 Trump added his image to U.S. passports.
 
-2026-04-29 ICE agent Jonathan Ross returned to duty after Renee Nicole Good's killing.
-
-2026-04-29 The Trump administration attempted to weaken the Endangered Species Act to expand drilling and mining but the vote was delayed over bipartisan concern. 
-
-2026-05-04 Border-wall crews destroyed a Native American archaeological site in the Sonoran Desert.
-
-2026-05-05 The White House dumped 37,000 cubic yards of East Wing debris on a municipal golf course.
-
 2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 2026-05-05 Trump rambled about nuclear weapons during a Youth Sports & Fitness event.
 
 2026-05-06 Kash Patel reportedly maintained a personalized bourbon stash.
 
-2026-05-06 Republicans proposed spending $1B in taxpayer funds on ballroom “security features.”
-
 2026-05-06 National Economic Council Director Kevin Hasset told Fox news “In fact, I had the head of one of the big five banks in my office yesterday going through the credit card data. And just as Secretary Bessent said, credit card spending is through the roof. They’re spending more on gasoline, but they’re spending more on everything else too”.
-
-2026-05-07 An Arizona judge ordered the expedited deportation of the parents of 18-year-old Kimma Gonzalez who has terminal stage-4 colon cancer and had been pleading for months to be reunited with their parents. The parents have been held in ICE custody since mid-April.
 
 2026-05-07 Border czar Tom Homan responded to New York's proposed ban on masked ICE agents by promising expanded immigration enforcement operations in the state. During a border security expo in Arizona he said, “So what’s going to happen to places like New York and these other people that want to pass this ridiculous legislation not to work with us? We’re going to flood the zone. You’re going to see more ICE agents you ever seen before. So congratulations, because when we send these teams out there, we’ll find a bad guy. Most times we do. And when we find a bad guy, he’s with others. Others who may not be a priority target, but they’re in the country illegally. They weren’t people we’re looking for,. But we found them during these operations. Well guess what? They’re coming too”.
 
@@ -581,7 +505,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 
-2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool blue.
 
 2026-05-12 Trump said, “I don’t think about Americans’ financial situation – I don’t think about anybody”. Two days later JD Vance denied Trump ever said this. 
 

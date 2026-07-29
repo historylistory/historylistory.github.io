@@ -186,11 +186,19 @@ PENDING
 
 2025-12-10 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused.
 
+2025-12-10 Trump put his face on national park passes. 
+
+2025-12-18 The Kennedy Center was renamed to include Trump’s name and had himself named the head of the board. Then he announced the center would close in February 2026. 
+
+2025-12-22 Trump announced “Trump-class” battleships (i.e. USS Defiant). 
+
 2025-12-20 The DOJ released only a heavily redacted portion of the Epstein files. Reports alleged some files mentioning Trump appeared then quickly disappeared from the DOJ website. Critics accused the DOJ of repeatedly withholding or redacting relevant documents, including a sexual-assault allegation against Trump involving a 13-year-old girl.
 
 2025-12-24 The White House threatened to bypass DC preservation rules and the General Services Admission to demolish historic federal property. The White House threatened to bypass the preservation staff to demolition the Wilbur J Cohen building and its historic New Deals mural. According to one article, the White House added a long list of government properties to a newly enacted “accelerated disposal” list.
 
 2026-01-19 Trump demanded the Nobel Prize in a message to the Norwegian Prime Minister Jonas Gahr Store while insisting on “complete and total control of Greenland.” He added, “I no longer feel an obligation to think purely of Peace”.
+
+2026-01-21 Trump repeatedly confused Greenland with Iceland at Davos. Leavitt insisted he did not, saying, “no, he didn’t Libby. His written remarks referred to Greenland as a “piece of ice” because that’s what it is. You’re the only one mixing anything up here”. Later, a very confused Trump told reporters that NATO leadership loved him. He stated “They called me ‘daddy’ right? A very smart man said – He’s our daddy, he’s running it”. Also at the World Economic Forum, Trump stated, “but sometimes you need a dictator”.
 
 2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
@@ -200,9 +208,13 @@ PENDING
 
 2026-02-03 Trump urged Republicans to pursue nationalized elections.
 
+2026-02-05 Trump proposed renaming Penn Station and Dulles Airport after himself in exchange for releasing federal funds for reconstruction.
+
 2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized".
 
 2026-02-17 DHS repeated partisan shutdown messaging on official websites, “Another Democrat Government Shutdown Dramatically Hurts America’s National Security”.
+
+2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.
 
 2026-02-20 After the Supreme Court struck down his tariffs in a 6–3 ruling, Trump criticized the Court as disloyal to the Constitution and unpatriotic. The following day, he raised global tariffs to 15% in retaliation.
 
@@ -211,6 +223,8 @@ PENDING
 2026-02-25 Trump proposed turning the East Potomac into a golf course.
 
 2026-02-26 Trump sent two corrupt real-estate brokers – Steve Witkoff and Jared Kushner – to Geneva to discuss nuclear talks with Iran. This came two days before the US and Israel surprise-attacked Iran and launched missiles, including killing 170 schoolchildren.
+
+2026-02-26 ICE detained then released blind Nurul Amim Shah Alam miles away from home and didn’t notify his family. The family reported him missing and then found him dead outside in the cold.
 
 2026-02-27 During an interview with Piers Morgan, Lauren Boebert couldn’t answer what inflation was.
 
@@ -222,15 +236,19 @@ PENDING
 
 2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
 
-2026-03-02 Defense Secretary Pete Hegseth said there would be no "stupid" rules of engagement governing military operations against Iran.
-
 2026-03-05 Trump fired Kristi Noem and replaced her with Markwayne Mullin after her unauthorized $250M ad campaign. 
 
 2026-03-06 Trump minimized dangers in the Strait of Hormuz to Brian Kilmeade on Fox news, “There’s nothing to be afraid of” and quipped that the oil tanker crews should “show some guts”. Afterwards, six tankers were struck. 
 
 2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
+2026-03-08 Hegseth refused to rule out ground troops in Iran during a 60 Minutes interview. The interviewer asked, “Will there be boots on the ground in Iran”. Hegseth replied, “I wouldn’t tell you that if we did”, and, “Yes, but we reserve the right and we would be completely unwise if we did not reserve the right to take any particular option, whether it included boots on the ground or no boots on the ground”.
+
+2026-03-09 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021.
+
 2026-03-10 Sources uncovered that Pete Hegseth went on a spending spree with taxpayer money from September 2025 on, spending $9M on crab legs, $6.9M on lobster tail, $98,000 for a grand piano, $5.3M on Apple devices, $15.1M for steak, $124,000 on ice cream machines, $139,000 on doughnut orders, $225M on furniture, $12,000 for fruit basket stands, and $50.1B on grants and contracts. This all came just before the Trump administration decided to withhold SNAP benefits for American families and their children.
+
+2026-03-12 Kash Patel said FBI agents would train with UFC fighters.
 
 2026-03-13 Pete Hegseth threatened no quarter, “We will keep pressing. We will keep pushing, keep advancing. No quarter, no mercy for our enemies”. Senator Mark Kelly of Arizona clarified, “No quarter isn’t some wannabe tough guy line. It means something”. To give ‘no quarter’ means to take no prisoners and kill, which violates the law of armed conflict.
 
@@ -246,9 +264,23 @@ PENDING
 
 2026-03-26 More mysterious trading patterns emerged on Polymarket. 
 
+2026-03-26 Treasury announced Trump’s signature would appear on U.S. currency.
+
 2026-03-27 At CPAC, Franklin Graham said Trump should be reelected for a third term before later stating he misspoke and meant Trump's policies should continue.
 
+2026-03-28 Trump frequently golfed during the Iran war.
+
+2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown.
+
 2026-03-30 Reports revealed Trump’s ballroom project included a military bunker complex.
+
+2026-03-30 Trump responded to Iran-war questions by discussing ballroom designs.
+
+2026-03-30 Reports revealed Trump’s ballroom project included a military bunker complex.
+
+2026-03-31 A judge temporarily blocked Trump’s White House ballroom project, writing, “The President of the United States is the steward of the White House for future generations of First Families. He is not, however, the owner”.
+
+2026-03-31 Trump proposed a massive gold-themed presidential library featuring his heckling “walk of fame”, the gifted Saudi jetliner, and a gold statue of himself. 
 
 2026-03-31 A judge temporarily blocked Trump’s White House ballroom project, writing, “The President of the United States is the steward of the White House for future generations of First Families. He is not, however, the owner”. 
 
@@ -260,11 +292,15 @@ PENDING
 
 2026-04-07 Trump and Hegseth declared victory over Iran with a so-called 10-point deal. 
 
+2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after Trump tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
+
 2026-04-09 In defense of Trump’s “whole civilization will die” tweet, Karoline Leavitt told the press, “The President absolutely has the moral high ground over the Iranian terrorist regime, and for you to even suggest otherwise is frankly insulting,” and “..so it was a very strong threat that led to results, and as the Secretary of War stated at the Pentagon this morning, it was not an empty threat by any means. The Pentagon had a target list that they were ready to hit go on at 8PM last night…”.
 
 2026-04-09 Pam Bondi refused to comply with a subpoena requiring testimony about the Epstein investigation because she was no longer serving as Attorney General.
 
 2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after he tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
+
+2026-04-15 The White House submitted plans for a $125M Triumphal Arch to overshadow Arlington Cemetery.
 
 2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.
 
@@ -273,6 +309,8 @@ PENDING
 2026-04-20 Labor Secretary Lori Chavez Dreamer resigned amid allegations of abusing public funds, drinking on duty, and misconduct involving staff and her husband.
 
 2026-04-21 Senator Roger Wicker of the Senate Armed Services Committee criticized the Pentagon for getting rid of flu shot mandates for military readiness.
+
+2026-04-22 Marco Rubio falsely claimed detained women named Soleimani were related to Qassem Soleimani.
 
 2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
 
@@ -304,7 +342,7 @@ PENDING
 
 2026-05-12 The Pentagon considered renaming Operation Epic Fury, Operation Sledgehammer to circumvent the 60-day limit on war without Congressional approval.
 
-2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool blue.
 
 2026-05-12 Trump posted AI-generated sewage memes attacking Democrats. Trump posted, “Dumacrats love sewage”.
 

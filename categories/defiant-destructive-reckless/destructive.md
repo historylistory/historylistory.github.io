@@ -235,7 +235,7 @@ permalink: /categories/defiant-destructive-reckless/destructive/
 
 [https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8](https://www.msn.com/en-us/news/insight/trump-s-reflecting-pool-project-cost-soars-to-13-1m-amid-lawsuit/gm-GM7888CCB8?gemSnapshotKey=GM7888CCB8-snapshot-8)
 
-2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool blue.
 
 [https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841](https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841)
 

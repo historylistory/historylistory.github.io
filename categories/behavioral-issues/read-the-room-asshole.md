@@ -262,7 +262,7 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 
 [https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s](https://www.youtube.com/watch?v=E8ofisyS9MA&list=WL&index=9&t=41s)
 
-2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool swimming-pool blue.
+2026-05-12 Trump ordered contractors to paint the Lincoln Memorial Reflecting Pool blue.
 
 [https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841](https://people.com/trump-administration-sued-for-painting-lincoln-memorial-reflecting-pool-11972841)
 
