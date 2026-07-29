@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Pardons
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: pardons
-permalink: /categories/crime-defiance/pardons/
+permalink: /categories/crime/pardons/
 ---
 
 ### ABOUT PARDONS

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Legal Trouble - Trump
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: legal-trouble-trump
-permalink: /categories/crime-defiance/legal-trouble-trump/
+permalink: /categories/crime/legal-trouble-trump/
 ---
 
 ### 1973 Multiple (a list)

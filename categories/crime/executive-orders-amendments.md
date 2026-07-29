@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Executive Orders & Amendments"
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: executive-orders-amendments
-permalink: /categories/crime-defiance/executive-orders-amendments/
+permalink: /categories/crime/executive-orders-amendments/
 ---
 
 ### 2025 January

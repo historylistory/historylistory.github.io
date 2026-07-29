@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: OTHER
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: other
-permalink: /categories/crime-defiance/other/
+permalink: /categories/crime/other/
 ---
 
 ### 2009 

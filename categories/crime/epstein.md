@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Sexual Assault & Trafficking - Epstein"
-category_slug: crime-defiance
-subcategory_slug: sexual-assault-trafficking-epstein
-permalink: /categories/crime-defiance/sexual-assault-trafficking-epstein/
+title: Epstein
+category_slug: crime
+subcategory_slug: epstein
+permalink: /categories/crime/epstein/
 ---
 
 ### 1996

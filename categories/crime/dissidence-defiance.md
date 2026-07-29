@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Dissidence & Defiance"
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: dissidence-defiance
-permalink: /categories/crime-defiance/dissidence-defiance/
+permalink: /categories/crime/dissidence-defiance/
 ---
 
 ### 2019

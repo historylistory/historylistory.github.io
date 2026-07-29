@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Sexual Assault & Trafficking - Other"
-category_slug: crime-defiance
-subcategory_slug: sexual-assault-trafficking-other
-permalink: /categories/crime-defiance/sexual-assault-trafficking-other/
+title: Sex Crimes - Other
+category_slug: crime
+subcategory_slug: sex-crimes-other
+permalink: /categories/crime/sex-crimes-other/
 ---
 
 ### 1970

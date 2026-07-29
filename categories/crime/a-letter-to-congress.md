@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: A LETTER TO CONGRESS
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: a-letter-to-congress
-permalink: /categories/crime-defiance/a-letter-to-congress/
+permalink: /categories/crime/a-letter-to-congress/
 ---
 
 ### How to contact

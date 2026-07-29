@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Destructive Defacing
-category_slug: behavioral-issues
-subcategory_slug: destructive-defacing
-permalink: /categories/behavioral-issues/destructive-defacing/
+title: Destructive
+category_slug: destructive-incompetent-reckless
+subcategory_slug: destructive
+permalink: /categories/destructive-incompetent-reckless/destructive/
 ---
 
 ### 2021

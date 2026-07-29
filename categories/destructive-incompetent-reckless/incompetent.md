@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Derelict, Incompetent or Wreckless
-category_slug: behavioral-issues
-subcategory_slug: derelict-incompetent-or-wreckless
-permalink: /categories/behavioral-issues/derelict-incompetent-or-wreckless/
+title: Incompetent
+category_slug: destructive-incompetent-reckless
+subcategory_slug: incompetent
+permalink: /categories/destructive-incompetent-reckless/incompetent/
 ---
 
 ### SHADOW DOCKET ABUSE

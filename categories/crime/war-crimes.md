@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: War Crimes
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: war-crimes
-permalink: /categories/crime-defiance/war-crimes/
+permalink: /categories/crime/war-crimes/
 ---
 
 ### COMMENT

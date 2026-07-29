@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: 30-SECOND QUESTIONS
-category_slug: crime-defiance
+category_slug: crime
 subcategory_slug: 30-second-questions
-permalink: /categories/crime-defiance/30-second-questions/
+permalink: /categories/crime/30-second-questions/
 ---
 
 ### WHAT AM I
