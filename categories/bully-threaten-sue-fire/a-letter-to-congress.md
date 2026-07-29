@@ -43,10 +43,15 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 ### Chronology.
 
+## 2000
+
 2000-01-01 Trump frequently used derogatory nicknames and insults against political opponents. 
+
+## 2012
 
 2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
 
+## 2016
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
@@ -56,7 +61,11 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2016-11-21 Turning Point’s Charlie Kirk created the “Professor Watchlist” so his followers could outwardly dox any teacher they felt was “woke”.
 
+## 2017
+
 2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
+
+## 2018 
 
 2018-02-05 During a speech Trump accused Democrats of treason.
 
@@ -68,11 +77,15 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2018-11-07 Trump again clashed with ABC reporters. 
 
+## 2019
+
 2019-02-01 Republicans launched an anti-gay smear campaign against Pete Buttigieg.
 
 2019-10-18 Trump sued CNN for perceived bias about Russia’s role in the 2016 election.
 
 2019-11-12 Republicans launched a smear campaign against Elizabeth Warren.
+
+## 2020
 
 2020-02-27 Trump sued the New York Times for defamation in an opinion piece.
 
@@ -88,9 +101,13 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2020-11-16 Trump sued a Wisconsin television station over a political advertisement funded by a liberal super PAC. 
 
+## 2021 
+
 2021-01-04 Nick Fuentes said on his podcast, “What can you and I do to a State legislator – besides kill them? We should not do that. I’m not advising that, but I mean, what else can you do, right?”. This comment was made while talking about officials who refused to overturn 2020 election results. 
 
 2021-07-07 Trump sued Twitter, YouTube, and Facebook for banning him on their platforms.
+
+## 2022 
 
 2021-09-21 Trump sued his niece and The New York Times over disclosure of his tax records.
 
@@ -101,6 +118,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2022-10-04 Trump sued CNN for defamation.
 
 2022-11-05 A pastor at Stuarts Draft Baptist Church was fired for delivering a sermon in opposition to Trump.
+
+## 2023 
 
 2023-01-30 Trump sued the publisher of Simon & Schuster and Paramount Global for selling an audiobook containing tapes of Trump interviews.
 
@@ -118,6 +137,8 @@ Manhattan grand jury in the hush-money case.
 2023-12-12 Georgia election worker Wandrea "Shaye" Moss reported receiving threats against herself and her child after being targeted by voter-fraud allegations promoted by Rudy Giuliani and other Trump allies, including threats of being hanged.
 
 2023-12-13 Ruby Freeman, a Georgia election worker, testified to receiving violent and racist threats against her after Rudy Giuliani and other Republicans spread false claims about her. She stated she received threats of hanging and even had to flee her home for her own safety.
+
+## 2024 
 
 2024-01-08 Trump wrote “In @NikkiHaley’s situation, reports indicate that her parents were not U.S. citizens at the time of her birth in 1972…” and asserted that she was disqualified from candidacy.
 
@@ -151,9 +172,13 @@ Manhattan grand jury in the hush-money case.
 
 2024-12-22 Trump threatened to seize the Panama Canal by force in social media posts and at a Phoenix rally, repeating the threat in February 2025.
 
+## 2025 January
+
 2025-01-07 Trump said he was willing to use military force to acquire Greenland and vowed to obtain it "one way or the other." He later enlisted Charlie Kirk and Donald Trump Jr. to promote the effort and reiterated the threat in May.
 
 2025-01-07 Trump threatened to use "economic force" to annex Canada, prompting Canadian officials to take the comments more seriously
+
+## 2025 February
 
 2025-02-03 Courts delayed White House efforts to freeze roughly $3 trillion in federal spending and identify FBI personnel involved in the January 6 investigations
 
@@ -164,6 +189,8 @@ Manhattan grand jury in the hush-money case.
 2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
+
+## 2025 March
 
 2025-03-04 Trump claimed protests were illegal and threatened funding from any college which allowed them. 
 
@@ -177,11 +204,15 @@ Manhattan grand jury in the hush-money case.
 
 2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
+## 2025 April
+
 2025-04-01 Kathleen Sgamma withdrew from consideration to lead the Bureau of Land Management after criticism resurfaced from a 2021 memo about January 6.
 
 2025-04-01 Two Yale professors left the United States for Canada after receiving death threats. 
 
 2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell's "termination cannot come fast enough." 
+
+## 2025 May
 
 2025-05-08 Trump fired FEMA Acting Administrator Cameron Hamilton one day after he testified against dismantling the agency.
 
@@ -203,6 +234,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-05-31 Trump withdrew Jared Isaacman’s nomination to be the NASA administrator for a “misalignment” with the administration’s “America First” agenda.
 
+## 2025 June
+
 2025-06-02 Iraqi war vet Hagan Scotten resigned rather than follow an order from Bondi to drop corruption charges against Mayor Eric Adams. He wrote, “If no lawyer within earshot of the President is willing to give him that advice, then I expect you will eventually find someone who is enough of a fool, or enough of a coward, to file your motion. But it was never going to be me”.
 
 2025-06-02 Paramount Global paid Trump $16M to settle a lawsuit.
@@ -222,6 +255,8 @@ Manhattan grand jury in the hush-money case.
 2025-06-25 Andy Ogles posted, “Zohran little muhammad Mamdani is an antisemitic, socialist, communist who will destroy the great City of New York”. 
 
 2025-06-25 In response to Mamdani’s win, MJT posted a picture of the Statue of Liberty covered in a burqa captioned, “This Hits Hard”.
+
+## 2025 July
 
 2025-07-01 Trump dismissed the entire Commission of Fine Arts and appointed replacements aligned with his priorities. 
 
@@ -253,6 +288,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-07-30 Trump imposed an additional 40% tariff on Brazilian imports after the arrest of Jair Bolsonaro. 
 
+## 2025 August
+
 2025-08-01 Trump fired Bureau of Labor Statistics Commissioner Erika McEntarfer following an unfavorable jobs report. He named William Wiatrowski as replacement and later nominated Heritage Foundation economist E.J. Antoni. 
 
 2025-08-05 Trump claimed Washington, D.C. was "out of control" and suggested federal intervention after an assault involving DOGE staffer Edward "Big Balls" Coristine. 
@@ -274,6 +311,8 @@ Manhattan grand jury in the hush-money case.
 2025-08-27 Trump attempted to fire Lisa Cook, who sits on the rate-setting committee. Trump accused Cook of mortgage fraud, but Reuters posted an analysis of documents some analysts claim refute the claims.
 
 2025-08-27 RFK fired Susan Monarez from the CDC after she refused to “rubber-stamp unscientific, reckless directives”. RFK appointed biotechnology investor Jim O’Neill to head the CDC. According to AI overview, O’Neill is a long-time advocate of deregulation and support for unproven therapies.
+
+## 2025 September
 
 2025-09-03 Ted Cruz called the Chicago mayor a disgusting, racist bigot and poked fun of his weight during Newsmax interview.
 
@@ -339,6 +378,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-09-29 Trump again threatened to withhold funding from New York if Zohran Mamdani were elected
 
+## 2025 October
+
 2025-10-02 Trump posted an AI-generated "Fear the Reaper" music video on Truth Social featuring himself as the Grim Reaper. 
 
 2025-10-02 Trump pulled $8B in clean energy products from Democratic states as a retaliatory measure for the government shutdown standoff.
@@ -383,6 +424,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-10-30 Trump threatened to use a "nuclear option" to reopen the government. 
 
+## 2025 November
+
 2025-11-03 Kash Patel used a government jet to visit his girlfriend. After the story surfaced, Patel fired FBI veteran Steven Palmer, whose unit oversaw the agency's aircraft fleet.
 
 2025-11-04 Trump continued to weaponize SNAP benefits posting on his social media account he would continue to leverage food for millions of Americans until the “Radical Left Democrats open up government”. 
@@ -394,6 +437,8 @@ Manhattan grand jury in the hush-money case.
 2025-11-20 After four lawmakers and military veterans urged servicemembers to refuse illegal orders, Trump accused them of “seditious behavior” and called for their execution. Afterwards the lawmakers and veterans received death threats. 
 
 2025-11-27 Trump used a derogatory slur for Tim Walz in a Thanksgiving Truth Social post
+
+## 2025 December
 
 2025-12-04 Tim Walz reported harassment outside his home, including people shouting slurs. 
 
@@ -415,6 +460,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
 
+## 2026 January
+
 2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 
 2026-01-13 Trump linked immigration enforcement in Minnesota to election outcomes and accused the state of election manipulation
@@ -435,6 +482,8 @@ Manhattan grand jury in the hush-money case.
 
 2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
 
+## 2026 February
+
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 
 
 2026-02-02 Trump threatened to sue Harvard University for $1 billion. 
@@ -446,6 +495,8 @@ Manhattan grand jury in the hush-money case.
 2026-02-22 Trump threatened Netflix with consequences unless it removed board member Susan Rice. 
 
 2026-02-27 Anthropic said it refused Pentagon demands involving domestic surveillance and autonomous weapons after being threatened with “supply chain risk” designation. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
+
+## 2026 March
 
 2026-03-05 Trump suggested Cuba could become a future target of U.S. pressure, saying it was "going to fall.”
 
@@ -480,6 +531,8 @@ Manhattan grand jury in the hush-money case.
 2026-03-28 The White House responded to a third No Kings protest in a statement, “The only people who care about these Trump Derangement therapy sessions are the reporters who are paid to cover them”.
 
 2026-03-30 Trump publicly threatened to bomb desalination plants, electric plants and oil wells in Iran, which would be a war crime. When asked, Karoline Leavitt defended Trump, “Um, look – the president has made it quite clear to the Iranian regime at this moment in time as evidenced by the statement that you just read, that their best move is to make a deal – or else the United States armed forces has capabilities beyond their wildest imagination and the president is not afraid to use them…” When journalists pointed out war-crime concerns, Karoline Leavitt responded, “That’s not what I said, Garrett, and you’re saying the word potential for a reason, ‘cuz I’m sure some experts are telling you that in your ear to try to ask me that question. Of course, this administration and the United States armed forces will always act within the confines of the law, but with respect to achieving the full objectives of Operation Epic Fury, President Trump is going to move forward unabated, and he expected – expects – the Iranian regime to make a deal with the administration”.
+
+## 2026 April
 
 2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.” 
 
@@ -535,6 +588,8 @@ Manhattan grand jury in the hush-money case.
 
 2026-04-30 Trump withdrew Casey Means’ nomination for Surgeon General and replaced her with a Fox News contributor. Even MAHA leaders opposed the decision.
 
+## 2026 May
+
 2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 
 2026-05-01 During a speech in Florida, Trump accused political opponents of treason for saying the United States was not winning in Iran. 
@@ -557,10 +612,11 @@ Manhattan grand jury in the hush-money case.
 
 2026-05-19 After Thomas Massie's primary defeat, Trump called him the "worst congressman in the history of our country." White House Communications Director Steven Cheung celebrated the result on social media. White House Communications Director Steven Cheung wrote on social media, “Do not ever doubt President Trump and his political power. Fuck around, find out”. 
 
-
 2026-05-19 Trump sued Minnesota for banning Kalshi prediction markets. 
 
 2026-05-25 Trump used a Memorial Day message to trash Democrats and anyone who questioned his plans in Iran.
+
+## 2026 June
 
 2026-06-12 The State Department opened an investigation into Trita Parsi for reporting on the war in Iran, and now he faces deportation.
 
@@ -570,8 +626,6 @@ Manhattan grand jury in the hush-money case.
 
 
 2026-06-21 Trump allegedly threatened Iranian officials, “You close it and you won’t have a country…you won’t even make it back to your fucking country…”
-
-
 
 2026-06-22 A federal judge quashed subpoenas to Minnesota officials, writing, “Initiating a criminal investigation in order to harass political opponents or to coerce them into taking official action – particularly official action that the federal government cannot directly require those political opponents to take – is a blatantly unlawful and unethical use of the grand jury process…”
 
@@ -583,11 +637,9 @@ Manhattan grand jury in the hush-money case.
 
 2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
 
-
+## 2026 July
 
 2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 
-
-
 
 2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors. 
 

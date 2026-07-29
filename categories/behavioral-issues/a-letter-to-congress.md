@@ -43,15 +43,25 @@ The American people deserve leadership focused on service, competence, compassio
 
 ### Chronology.
 
+## 1990s
+
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules. 
+
+## 2001
 
 2001-09-11 On 9/11, Trump remarked that 40 Wall St. would now be the tallest building.
 
+## 2009
+
 2009-05-30 In 2009 Republicans lost their minds when the Obamas attended a Broadway play. 
+
+## 2016
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
+
+## 2018
 
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
 
@@ -59,15 +69,21 @@ The American people deserve leadership focused on service, competence, compassio
 
 2018-07-15 After a group of rescuers rejected Elon Musk’s mini sub to help rescue children from a cave, Elon Musk lashed out and called their leader a pedo on social media.  
 
+## 2019
+
 2019-05-06 Laura Loomer cried and screamed on InfoWars over her Facebook ban.
 
 2019-08-21 Trump referred to himself as “the chosen one.”
+
+## 2020
 
 2020-04-01 Karoline Leavitt leveraged “blue-collar roots,” though reports said her family business received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
 
 2020-09-11 The first Trump administration withheld healthcare funds for FDNY’s 9/11 responders. GOP members frequently post "Never Forget", but then they turn around and forget our heroes. 
 
 2020-11-07 Trump posted “I WON THIS ELECTION, BY A LOT!” and, “this election is far from over”.
+
+## 2021
 
 2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”
 
@@ -79,6 +95,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2021-11-01 Doug Wilson flamethrower videos.
 
+## 2022
+
 2022-07-28 Matt Gaetz mocked abortion-rights supporters at Turning Point Action, saying, “Why is it that the women with the least likelihood of getting pregnant are the ones most worried about having abortions? Nobody wants to impregnate you if you look like a thumb”.
 
 2022-08-13 Dan Bongino spread anti-FBI rhetoric and conspiracy claims on his podcast.
@@ -89,11 +107,15 @@ The American people deserve leadership focused on service, competence, compassio
 
 2022-12-31 News outlets questioned Pete Hegseth’s drinking habits and temperament.
 
+## 2023
+
 2023-09-15 Lauren Boebert was removed from a Beetlejuice performance after vaping, filming, and disruptive behavior including flipping off the staff.
 
 2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
 
 2023-11-02 Lauren Boebert sarcastically mocked the federal bicycle subsidy program.
+
+## 2024
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 
@@ -133,11 +155,15 @@ The American people deserve leadership focused on service, competence, compassio
 
 2024-12-02 Once she ran for Congress, Karoline Leavitt allegedly deleted old posts condemning January 6.
 
+## 2025 January
+
 2025-01-20 Mike Johnson temporarily raised flags during Jimmy Carter’s mourning period at Trump’s request.
 
 2025-01-23 Bill HR691 was introduced to rename Dulles Airport after Trump.
 
 2025-01-25 A Florida lawmaker proposed Bill HR792 carving Trump into Mount Rushmore.
+
+## 2025 February
 
 2025-02-03 Elon Musk joked online about feeding USAID “into the wood chipper.”
 
@@ -161,9 +187,15 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-02-28 During a White House meeting, Trump and Vice President Vance sharply criticized Ukrainian President Volodymyr Zelenskyy, questioning his gratitude and accusing him of partisan behavior. 
 
+## 2025 March
+
 2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
 
+## 2025 April
+
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.
+
+## 2025 May
 
 2025-05-02 Trump posted an AI-generated image of himself as the Pope.
 
@@ -177,6 +209,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
+## 2025 June
+
 2025-06-14 Trump’s embarrassing birthday parade.
 
 2025-06-16 European Council leadership coddled Trump, gifting him a signed jersey, praising him for “playing for peace.”
@@ -187,9 +221,13 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-06-30 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
 
+## 2025 July
+
 2025-07-01 Trump floated holding a UFC event on the White House lawn and confirmed later in October they will be having it in June 2026.
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
+
+## 2025 August
 
 2025-08-01 Viewers speculated Jeanine Pirro appeared to be intoxicated publicly.
 
@@ -208,6 +246,8 @@ The American people deserve leadership focused on service, competence, compassio
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 2025-08-26 Trump hung a banner of himself across from the Labor Department.
+
+## 2025 September
 
 2025-09-06 Trump posted an AI-generated “Chipocalypse now” meme targeting Chicago's mayor.
 
@@ -228,6 +268,8 @@ The American people deserve leadership focused on service, competence, compassio
 2025-09-29 YouTube agreed to pay Trump $24.5 million to settle litigation related to his post–January 6 suspension. Trump celebrated the YouTube settlement and encouraged reposts supporting compensation for banned conservatives. 
 
 2025-09-30 Pete Hegseth gathered military leaders in Quantico to listen to his anti-DEI and FAFO rhetoric while he promoted his book. 
+
+## 2025 October
 
 2025-10-01 The White House posted partisan anti-Democrat shutdown messaging across federal websites (research the Hatch Act and violating it). Messages 
 included “Democrats Have Shut Down the Government” and “The Radical Left are going to shut down the government and inflict massive pain on the American people unless they get their $1.5 trillion wish list of demands. The Trump administration wants to keep the government open for the American people”.
@@ -272,6 +314,8 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
 
+## 2025 November
+
 2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
 2025-11-04 Nancy Mace defended her airport confrontation in a video, “if you’re not man enough to take my feedback – my constructive feedback for you not 
@@ -286,6 +330,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
 2025-11-30 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat, captioned, “For your Christmas wish list”. 
+
+## 2025 December
 
 2025-12-01 Trump posted hundreds of Truth Social messages and conspiracy reposts in a single day.
 
@@ -309,6 +355,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-12-30 Netanyahu awarded Trump the “Israel Prize.”
 
+## 2026 January
+
 2026-01-12 Leaked audio captured Karoline Leavitt threatening CBS with lawsuits over interview edits.  After a 13-minute interview with CBS anchor Tony Dokoupil, leaked audio of Karoline Leavitt recorded her saying to CBS news after an interview, “He said, ‘Make sure you guys don’t cut the tape, make sure the interview is out in full.’ He said if it’s not out in full we’ll sue your ass off”.
 
 2026-01-12 Leavitt defended ICE after the Renee Nicole Good murder, “This administration will continue to stand wholeheartedly by the brave men and women of ICE, including that officer in Minneapolis who was absolutely justified in using self-defense against a lunatic who was part of a group – an organized group – to interject and to impede on law enforcement operations.
@@ -328,6 +376,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
+
+## 2026 February
 
 2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 
 
@@ -356,6 +406,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-02-26 Lauren Boebert leaked a Hillary Clinton deposition photo to a podcaster. 
 
 2026-02-27 In a second incident, the Pentagon shot down a border patrol drone over Fort Hancock outside El Paso Texas.
+
+## 2026 March
 
 2026-03-07 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email which read, “This is President Donald J. Trump. I made a special announcement to the public an hour ago. For the very first time ever, I’m opening up spots on the National Security Briefing membership. Claim your spot”. Then it offers a link to donate.
 
@@ -427,6 +479,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-31 Trump proposed a massive gold-themed presidential library featuring his heckling “walk of fame”, the gifted Saudi jetliner, and a gold statue of himself. 
 
+## 2026 April
+
 2026-04-01 Trump’s spiritual adviser Paula White compared Trump to Jesus during a White House Easter event.
 
 2026-04-01 Franklin Graham framed the Iran conflict in biblical terms and likened Trump to Queen Esther.
@@ -487,6 +541,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-04-29 Trump added his image to U.S. passports.
 
+## 2026 May
+
 2026-05-05 Met Gala protestors criticized Jeff Bezos and Amazon labor conditions.
 
 2026-05-05 Trump rambled about nuclear weapons during a Youth Sports & Fitness event.
@@ -519,6 +575,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
 
+## 2026 June
+
 2026-06-11 Trump claimed Italian Prime Minister Giorgia Meloni begged for a photo op with him. The Prime Minister refuted the claim, so Trump chastised her for not supporting the war in Iran. 
 
 2026-06-13 New Yorkers celebrated in unity after the Knicks won the NBA championship. Meanwhile, fan brawls broke out at the White House UFC event. 
@@ -532,6 +590,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-06-29 Elon Musk chastised MacKenzie Scott for donating $26 billion of her fortune, claiming generosity makes the world a worse place. 
 
 2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
+
+## 2026 July
 
 2026-07-09 Trump had the Palm Beach Airport renamed the Donald J. Trump International Airport. 
 

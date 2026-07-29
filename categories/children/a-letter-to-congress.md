@@ -49,6 +49,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 ### Chronology.
 
+## 1990s
 
 1969-01-01 The Black Panther Party launched its Free Breakfast for Children Program to combat student hunger. 
 
@@ -56,11 +57,17 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 1997-05-07 Alan Dershowitz argued in an article that statutory-rape laws were outdated and that the age of consent should be lowered to 15. Dershowitz later served on Jeffrey Epstein's legal team and got Epstein a plea deal. 
 
+## 2017 
+
 2017-01-20 The Trump administration used child separation as a deterrent to asylum seekers. 
 
 2017-05-01 The Criminal Consequence Initiative in Yuma, Arizona prosecuted first-time border crossers and enabled family separations involving children as young as 10 months old. 
 
+## 2019 
+
 2019-11-08 Rebecca Friedrichs asserted that teachers’ unions promoted socialism. She claimed during a Tucker Carlson interview that pushing for free lunch programs, healthcare, and emotional support is an attempt to replace the family with indoctrination and communism.
+
+## 2021
 
 2021-04-29 JD Vance posted, “Universal day care is class war against normal people”. He also tweeted, “It turns out that normal Americans care more about their families than their jobs and want a family policy that doesn’t shunt their kids into crap daycare so they can enjoy more “freedom” in the paid labor force”. 
 
@@ -68,15 +75,21 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2021-06-17 The Supreme Court ruled in favor of a Catholic foster-care agency that excluded same-sex couples in Fulton v. City of Philadelphia. Justice Samuel Alito argued the ruling did not go far enough, writing, “This decision might as well be written on dissolving paper sold in magic shops”.
 
+## 2022 
+
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.
 
 2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs. 
 
 2022-05-25 Beto O'Rourke was physically removed from Governor Greg Abbott's Uvalde shooting press conference after criticizing state gun policies. 
 
+## 2023 
+
 2023-09-29 During the Benny Show, Mike Davis said, “We’re gonna put kids in cages, it’s going to be glorious. We’re gonna detain a lotta people, Seig Gulag.” 
 
 2023-10-16 The Daily Wire launched Bentkey, a children’s streaming service offering explicitly conservative indoctrination to children.
+
+## 2024 
 
 2024-01-04 After the Perry, Iowa school shooting, Trump told the community they would "have to get over it.”
 
@@ -87,6 +100,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later. 
 
 2024-12-23 A House Ethics Committee report concluded Matt Gaetz had engaged in illicit drug use and sex with underage girls. 
+
+## 2025 January
 
 2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing) https://www.youtube.com/watch?v=n_S5sYC1nKw
 
@@ -106,6 +121,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs. 
 
+## 2025 February
+
 2025-02-01 Democratic Representative Lori Trahan of Massachusetts reintroduced the Accelerating Kids Access to Care Act to improve Medicaid access for children with cancer
 
 2025-02-03 Congress passed the bipartisan Give Kids a Chance Act to speed development of pediatric cancer drug combinations. 
@@ -114,7 +131,15 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-02-14 Immigration-enforcement priorities reportedly diverted agents AWAY from drug trafficking, weapons trafficking, and child-trafficking investigations
 
+## 2025 March
+
+2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
+
+## 2025 April
+
 2025-04-08 The Fairness for Stay-at-Home Parents Act was introduced
+
+## 2025 May
 
 2025-05-02 The administration reduced funding for after-school and summer-learning programs, affecting working families and nonprofit partnerships. 
 
@@ -122,11 +147,15 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-05-21 Senate Bill SB10 was introduced to require display of the Ten Commandments in classrooms. Representative James Talarico argued against the measure, “forcing religion down throats is not love”.
 
+## 2025 July
+
 2025-07-04 The "Big Beautiful Bill" sharply reduced eligibility for food assistance and other aid programs serving low-income families. 
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
 2025-07-31 Treasury Secretary Scott Bessent clarified that "Trump Baby Accounts" were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security”. 
+
+## 2025 August
 
 2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
 1. Who’s behind the anti-ICE riots 
@@ -151,6 +180,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2025-08-31 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation. 
 
 2025-08-31 Pope Leo described school shootings in America as a "pandemic of arms.”
+
+## 2025 September
 
 2025-09-03 PragerU installed an AI-generated John Adams exhibit for children featuring the phrase "Facts do not care about your feelings.” 
 
@@ -184,6 +215,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-09-28 Trump reposted TPUSA propaganda calling for action to incorporate Turning Point USA content into school curricula.
 
+## 2025 October
+
 2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
 
 2025-10-25 PBS reported on Ugandan nurse Agnes Nambozo, who climbed a 1,000-foot ladder daily to provide vaccines and medical care. Following USAID cuts, she also assumed duties previously handled by other aid workers. 
@@ -191,6 +224,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2025-10-28 Rob Schmitt commented on both Newsmax and X that there should be a weight limit for SNAP recipients, claiming benefits were going to people who “weigh 300 pounds” and were “selling their benefits to get their nails done and buy weaves”. 
 
 2025-10-31 Trump hosted a lavish Halloween party for his billionaire friends, hours before SNAP benefits expired.
+
+## 2025 November
 
 2025-11-02 Agriculture Secretary Brooke Rollins perpetuated SNAP fraud claims on social media and praised Trump for withholding food assistance.
 
@@ -208,17 +243,21 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-11-24 By the end of 2025, ICE placed a record 600 immigrant kids into detention shelters.
 
+## 2025 December
+
 2025-12-02 Reports described "Trump Accounts" funded in part by major private donations (i.e. Michael and Susan Dell donated $6.25B) and designed to provide investment accounts for children born on certain years and within certain zip codes. 
 
-2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 
-
 2025-12-26 Right-wing vlogger Nick Shirley alleged widespread childcare fraud involving Somali communities. The claims prompted investigations, funding freezes, and harassment directed at Minnesota childcare centers. Both JD Vance and Pam Bondi publicly praised Shirley. Did You Know? The Heritage Foundation’s Project 2025 page 482 and 486 mandate defunding and dismantling childcare? 
+
+## 2026 January
 
 2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
 2026-01-16 Israeli soldiers shot and killed a 2-year-old Palestinian baby in the head outside Jenin.
 
 2026-01-29 ICE detained 5-year-old Liam Ramos and his father at the Dilley, Texas detention center. The child stopped eating, was lethargic, and was going through depression. Reports described poor conditions, medical concerns, and a later measles outbreak. A judge ordered their release in February. The Trump administration said they planned to appeal the release.  
+
+## 2026 February
 
 2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
@@ -236,6 +275,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2026 March
+
 2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
 
 2026-03-04 Media outlets published the names of the children killed by the U.S. TOMAHAWK MISSILE in Minab, Iran. When questioned, Trump claimed Iran had hit itself with its own missile, while other administration officials said the incident remained under investigation. 
@@ -252,6 +293,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-03-27 Israeli soldiers fatally shot 15-year-old Adma Dahman in the abdomen south of Bethlehem.
 
+## 2026 April
+
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 2026-04-09 Israeli soldiers shot and killed 9-year-old girl Ritaj Rihan in the head in front of her classmates in Bethlehia.
@@ -261,6 +304,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-04-21 An Israeli convoy killed a 16-year-old Palestinian child near Hebron in the West Bank as he was riding his bicycle to school.
 
 2026-04-23 Israeli soldiers shot and killed 15-year-old Yousef Sameh Ishtayyeh during a raid in Nablus West Bank.
+
+## 2026 May
 
 2026-05-07 ICE had arrested the parents of at least 27,000 children during the first seven months of expanded immigration operations, raising concerns about renewed family separation.
 
@@ -284,6 +329,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
 
+## 2026 June
+
 2026-06-06 Overnight Israel killed 9 civilians including 4 children.
 
 2026-06-10 An investigation by AP found the Trump administration separated children from their families again in violation of a landmark settlement meant to unite children with their parents. 
@@ -299,6 +346,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-06-29 Israel continued strikes in Gaza in designated safe zones including the killing of 13-year-old Eileen Al-Farra and several other children. 
 
 2026-06-29 Israeli soldiers shot 15-year-old Amir Ahmad Jawad Jaber in the head.
+
+## 2026 July
 
 2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
 
