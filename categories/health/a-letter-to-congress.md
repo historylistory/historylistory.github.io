@@ -42,30 +42,51 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 ### Chronology.
 
+## 1970s 
 
 1973-01-22 Roe v. Wade legalized abortion. 
 
+## 1980s 
+
 1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
+
+## 1990s
 
 1994-01-01 Evangelicals pushed a national “purity” movement containing distorted and misleading information, racist stereotypes and anti-LGBTQ+ rhetoric. 
 
+## 2001 
+
 2001-09-09 Republicans restricted federal funding for STEM cell research, limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure.  
+
+## 2005 
 
 2005-01-01 RFK Jr. published, “Deadly Immunity”, claiming government health agencies colluded with big pharma to hide the dangers of vaccines.
 
+## 2012 
+
 2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.
+
+## 2014 
 
 2014-01-01 The Affordable Care Act was fully implemented. This legislation was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans.
 
 2014-06-24 The GOP repeatedly attacked Michelle Obama for her efforts to introduce a nutrition program in schools that leaned heavily towards fresh fruits and vegetables.
 
+## 2016 
+
 2016-10-26 Parents were told to administer bleach-based pills and injections to autistic children. Look up the brand-name “Miracle Mineral Solution”. 
+
+## 2017 
 
 2017-01-03 News stories circulated around, “Make America Mate Again”.
 
 2017-01-11 Scientific American published a story about how RFK distorted vaccine science. 
 
+## 2019 
+
 2019-01-01 Alt-right women’s magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
+
+## 2020 
 
 2020-03-24 Trump falsely claimed that COVID would “disappear” by Easter.
 
@@ -83,6 +104,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2020-11-24 Vance said on The Chris Buskirk Show, “There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people, especially in America’s leadership class, just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable”.
 
+## 2021 
+
 2021-01-01 RFK Jr.’s Children’s Health Defense published The Measles Book; Thirty-Give Secrets the Government and the Media Aren’t Telling You, to push the conspiracy that the government and media are hiding vaccine information.
 
 2021-04-15 Sixty-three Republicans voted against the COVID 19 Hate Crimes Act, also called the Anti-Asian Hate Crime Bill. 
@@ -99,6 +122,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He didn’t say no.
 
+## 2022 
+
 2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
 
 2022-06-24 After the Trump administration overturned Roe v. Wade, the ability to ban contraception was returned to the States. This left several health organizations afraid to offer contraception for fear of breaking the law. One Attorney General nominee even compared birth control to fentanyl. 
@@ -109,11 +134,15 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2022-08-19 Amber Thurman died after delayed abortion-related care under restrictive state laws. Trump later dismissed questions about the case during a Fox forum. Amber passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment because her State had made performing the procedure a felony. Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”*
 
+## 2023 
+
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
 
 2023-04-24 The Florida Surgeon General allegedly altered key findings of a COVID study.
 
 2023-11-14 Due to anti-abortion laws in Texas Ciji Graham was refused treatment for a severe episode of atrial fibrillation and died. She was pregnant and doctors wouldn’t treat her. 
+
+## 2024 
 
 2024-02-15 The Creating Hope Reauthorization Act, intended to encourage development of treatments for rare pediatric diseases, faced expiration without action from the administration.
 
@@ -152,6 +181,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2024-12-06 The U.S. saw an increase in the push for raw milk products.
 
 2024-12-08 Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
+
+## 2025 January 
 
 2025-01-01 Measles vaccine rates dropped, herd immunity was lost, and outbreaks popped up all over Texas. 
 
@@ -203,6 +234,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-01-31 The administration removed federal health-web resources related to LGBTQ health, adolescent health, HIV, STDs, tuberculosis, civil-rights research, and youth-health monitoring programs.
 
+## 2025 February 
+
 2025-02-01 The Trump administration cancelled Charting My Path, which was designed to help students with disabilities prepare for life after high school.
 
 2025-02-03 Congress passed the bipartisan Give Kids a Chance Act to speed development of pediatric cancer drug combinations. 
@@ -215,6 +248,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-02-28 Elon Musk claimed social security was a “Ponzi scheme”.
 
+## 2025 March 
+
 2025-03-01 A leaked email from the Social Security Commissioner warned about privatizing social security and adding AI automation to replace call center staff.
 
 2025-03-01 The Trump administration terminated 22 federal contracts to develop mRNA vaccines, cut research grants into vaccine improvements, fired the entire Advisory Committee on Immunization Practices, and fired CDC Director Dr. Susan Manares for resisting anti-vaccine directives.
@@ -226,6 +261,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
 
 2025-03-26 The Trump administration cut COVID research grants, particularly any documents that mentioned gender identity, DEI, or environmental justice.
+
+## 2025 April 
 
 2025-04-01 The Trump administration made cuts to Meals on Wheels, the Low-Income Home Energy Assistance Program, and crisis assistance to the elderly and disabled.
 
@@ -243,6 +280,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-04-22 RFK advised the FDA to phase out petroleum-based synthetic dyes like Red-40 from cereal. 
 
+## 2025 May 
+
 2025-05-12 Trump signed an executive order saying he will reduce drug prices.
 
 2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 
@@ -255,6 +294,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-05-31 Joni Ernst filmed herself mocking critics of Medicaid cuts, “I made an incorrect assumption that everyone in the auditorium understood that, yes we are all going to perish from this earth. So, I apologize, and I’m really really glad that I didn’t have to bring up the subject of the tooth fairy as well…” and then ended it with, “…for those that would like to see eternal and everlasting life, I encourage you to embrace my Lord and Savior, Jesus Christ”.
 
+## 2025 June 
+
 2025-06-06 Unite4Veterans rallied in Washington DC to protest Trump’s VA cuts.
 
 2025-06-09 RFK fired all 17 members of the CDC’s vaccine panel and backfilled the advisory committee with ant-vaxxers.
@@ -266,6 +307,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-06-29 During an interview, cancer researcher and Oncologist Dr. Elizabeth Jafee reported a loss of optimism in pancreatic cancer research due to funding cuts.
 
 2025-06-30 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County.
+
+## 2025 July 
 
 2025-07-01 Protein was the new diet trend after RFK released his upside-down food pyramid. Protein was added to everything marketable, even coffee. 
 
@@ -286,6 +329,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-07-31 The Trump administration cut UCLA research grants, impacting things like Parkinson’s disease treatment. A judge ordered the restoration of some of these grants because the government failed to provide sufficient justification for terminating them. 
 
 2025-07-31 Treasury Secretary Scott Bessent clarified that “Trump Baby Accounts” were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security”.
+
+## 2025 August 
 
 2025-08-01 A raw milk producer failed health tests that detected high levels of coliform bacteria, which can include E.coli.
 
@@ -310,6 +355,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-08-28 RFK Jr. blamed antidepressants for school shootings. RFK told Fox SSRI drugs may contribute to violence.
 
 2025-08-28 In response to the firing of Susan Monarez, several employees from the CDC participated in a mass walkout.
+
+## 2025 September 
 
 2025-09-01 Nine former CDC directors accused RFK of jeopardizing health by severely weakening programs.
 
@@ -343,6 +390,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-09-26 A Fox  headline read, “appeals court hears Medicaid fraud case that could cost Planned Parenthood $1.8 billion”.
 
+## 2025 October
+
 2025-10-01 During the shutdown Republicans falsely claimed Democrats were trying to give free Medicare to immigrants.
 
 2025-10-02 Republicans allowed the American Rescue Plan Act to expire. 
@@ -352,6 +401,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-10-21 Americans received letters saying their health insurance prices would double or quadruple.
 
 2025-10-25 PBS reported on Ugandan nurse Agnes Nambozo, who climbed a 1,000-foot ladder daily to provide vaccines and medical care. Following USAID cuts, she also assumed duties previously handled by other aid workers.
+
+## 2025 November
 
 2025-11-01 Injecting peptides became the newest health trend.
 
@@ -367,6 +418,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-11-27 The State Department directed its employees and grant-recipients to not commemorate World Aids Day.
 
+## 2025 December
+ 
 2025-12-01 The Biden administration enforced a rule lowering the amount of formaldehyde it is safe for humans to be around. In December of 2025, the Trump administration not only rolled those safety standards back, but they also increased the amount of formaldehyde that is “safe” for humans to be around. Iowa AG Brenna Bird asked the Trump administration in 2026 to further loosen formaldehyde restrictions for farmers.
 
 2025-12-04 The CDC advisory panel voted to reverse newborn hepatitis B vaccine recommendations.
@@ -386,6 +439,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-12-18 Trump signed an Executive Order reclassifying marijuana from a schedule one to a schedule three drug.
 
 2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
+
+## 2026 January 
 
 2026-01-04 The Canadian Medical Association issued a warning that U.S. health and science institutions can no longer be relied upon for accurate guidance.
 
@@ -409,6 +464,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-01-29 Social security is estimated to run dry by 2035. 
 
+## 2026 February 
+
 2026-02-01 The FDA blocked review of a flu vaccine developed by Moderna.
 
 2026-02-06 Trump launched TrumpRX.
@@ -429,6 +486,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-02-25 Dr. Oz and JD Vance placed a 6-month moratorium on enrollments for medical equipment, prosthetics, orthotics, and supplies, claiming it was all too subject to fraudulent activity. Governor Tim Walz responded, “This has nothing to do with fraud. This is a campaign of retribution. Trump is weaponizing the entirety of the federal government to punish blue states like Minnesota”.
 
+## 2026 March 
+
 2026-03-03 RFK challenged Dunkin and Starbucks, demanding proof that their iced beverages were safe to drink.
 
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.
@@ -442,6 +501,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”.
 
 2026-03-27 A new COVID variant Cicada – which was discovered originally in November 2024 in South Africa – had now hit 23 countries. According to some sources, this is the virus’ 75th mutation.
+
+## 2026 April 
 
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
@@ -464,6 +525,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-04-22 A Senate finance committee hearing revealed TrumpRX is not more affordable as advertised. For example, TrumpRX offers Protonix for $200, but Costco offers it for $16. TrumpRX offers heart medication for $336 while CostPlus sells it for $12.
 
 2026-04-30 Headline in Men’s Health “Inside the Battle for Bigger and Bigger Balls”.
+
+## 2026 May
 
 2026-05-01 Nebraska was the first red state to roll out Medicaid work requirements.
 
@@ -491,6 +554,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-05-28 Cases of GLP-1 weight loss drug overdoses rose from 1366 in 2021 to 15,102 in 2025.
 
+## 2026 June 
+
 2026-06-10 Congress proposed more cuts to VA benefits. 
 
 2026-06-16 The Ebola outbreak in Africa is the worst in history.
@@ -506,6 +571,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-06-23 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care. 
 
 2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
+## 2026 July 
 
 2026-07-01 The EPA quit monitoring and testing for microplastics and pesticides in drinking water. 
 

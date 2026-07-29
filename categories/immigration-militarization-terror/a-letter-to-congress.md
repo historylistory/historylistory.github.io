@@ -48,19 +48,33 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 ### Chronology.
 
+## 1920s
+
 1920-01-01 During the rise of the eugenics movement Charles Davenport proposed building a wall to “keep out the cheaper races”.
+
+## 1940s 
 
 1942-01-01 America built Japanese internment camps. 
 
+## 1990s 
+
 1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square.
 
+## 2001 
+
 2001-01-01 Trump helped Melania Trump obtain an Einstein Visa to enter the United States. This type of Visa is generally reserved for individuals with extraordinary ability in science, art, education, business or athletics requiring sustained national or international acclaim.
+
+## 2015 
 
 2015-06-16 Trump first pitched building a wall and promised Mexico would pay for it.
 
 2015-08-19 Trump called for an end to birthright citizenship.
 
+## 2016 
+
 2016-09-01 During an election speech in Phoenix AZ Trump promised the crowd Mexico would pay to build the wall.
+
+## 2017 
 
 2017-01-20 The Trump administration used child separation as a deterrent to asylum seekers.
 
@@ -76,6 +90,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2017-05-01 The Criminal Consequence Initiative in Yuma, Arizona prosecuted first-time border crossers and enabled family separations involving children as young as 10 months old.
 
+## 2018 
+
 2018-01-01 Trump instituted a multitude of bans, including for asylum, transit, safe third-country arrangements, and return to Mexico - blocking all migrants from US protection.
 
 2018-01-11 Trump called Haiti, El Salvador, and certain African nations “shithole” countries and complained that the US didn’t receive more immigrants from what he considered better countries like Norway. Trump also claimed Haitian immigrants “all have AIDS” during an Oval Office meeting.
@@ -88,6 +104,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2018-12-15 Tucker Carlson said on his show that immigrants make our country “dirtier” and “poorer”.
 
+## 2019 
+
 2019-01-08 Trump claimed again his $5.7B border wall project would be paid for by Mexico. 
 
 2019-02-15 Trump declared a national emergency so he could redirect $8 billion dollars away from military construction and treasury funds towards building the border wall, and the ACLU sued.
@@ -96,13 +114,21 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2019-07-23 DOH issued a notice enabling DHS to expedite removal of immigrants, making it further impossible for immigrants to know their rights before they are shipped back out.
 
+## 2021 
+
 2021-07-26 JD Vance said, ”You can’t have so many people coming to the country at a time when our own families aren’t replicating themselves”.
+
+## 2022 
 
 2022-03-17 JD Vance claimed immigration was an invasion on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
 
 2022-04-05 Vance campaigned as an America First Conservative. He said in his ad, “Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.” [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
 
+## 2023 
+
 2023-11-16 Mike Davis said on the Benny Show, “We’re gonna put kids in cages, it’s going to be glorious. Sieg gulag”.
+
+## 2024 
 
 2024-02-22 Republicans used Laken Riley’s tragedy to demonize immigrants. 
 
@@ -140,6 +166,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2024-12-16 A Human Rights Watch report examined the use of family-separation as a deterrent and cited that 1,360 children remained separated from their parents six years later.
 
+## 2025 January 
+
 2025-01-20 Trump rescinded Executive Order 14010 Creating a Comprehensive Regional Framework To Address the Causes of Migration, To Manage Migration Throughout North and Central America, and To Provide Safe and Orderly Processing of Asylum Seekers at the United States Border.
 
 2025-01-20 Trump rescinded Executive Order 14006 Reforming Our Incarceration System To Eliminate the Use of Privately Operated Criminal Detention Facilities.
@@ -160,6 +188,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-01-29 The Laken Riley Act was introduced to give power to DHS to prioritize the detention of noncitizens who commit lower-level offenses.
 
+## 2025 February 
+
 2025-02-14 The Trump administration rerouted agents from child sex trafficking, drug trafficking, weapon trafficking investigations to focus on immigration enforcement. 
 
 2025-02-14 The White House posted a Valentine’s Day deportation poem on X, “Roses are red, violets are blue. Come here illegally and we’ll deport you”.
@@ -167,6 +197,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-02-17 Kristi Noem created a public DHS video warning immigrants to “self deport now”.
 
 2025-02-18 The White House released “ASMR: Illegal alien deportation flight.”
+
+## 2025 March 
 
 2025-03-01 Although the bodycam footage wasn’t discovered until March of 2026, DPS released footage of a fatal ICE shooting on South Padre island where ICE agents shot and killed 23-year-old Ruben Ray Martinez. The footage contradicted what the ICE officers initially reported when they claimed the man tried to hit them with his car.
 
@@ -182,6 +214,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-03-27 Marco Rubio revoked over 300 student visas in retaliation for protests, saying, “Every time I find one of these lunatics I take away their visa”.
 
+## 2025 April 
+
 2025-04-01 Stephen Miller wrote on X, “If you illegally invaded our country the only “process” you are entitled to is deportation”.
 
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
@@ -195,6 +229,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-04-29 A leaked memo confirmed Stephen Miller’s intentions to suspend Habeas Corpus.
 
 2025-04-30 The White House peddled an altered image of the alpha-numeric “M-S-1-3” across Abrego Garcia’s hand and claimed it was a tattoo.  Trump insisted during an interview that the image was authentic.
+
+## 2025 May 
 
 2025-05-01 Stephen Miller claimed that Biden imported a “terrorist army”, that the media covers up rape-torture-and-murder, and blamed due process for the killing of a woman.
 
@@ -216,6 +252,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-05-29 Tom Homan confirmed a Fox host inquiry about a 3000 per day arrest quota, stating they were increasing their efforts tenfold.
 
+## 2025 June 
+
 2025-06-07 National Guard troops were deployed to Los Angeles in response to anti-ICE raids.
 
 2025-06-11 The DOJ issued a memorandum making it possible to strip citizenship from naturalized Americans.
@@ -235,6 +273,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.
 
 2025-06-30 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”.
+
+## 2025 July 
 
 2025-07-01 The Senate passed an unprecedented $170 billion in spending for immigration enforcement.
 
@@ -259,6 +299,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
 
 2025-07-30 In a court document, the White House denied that there was a 3000-per-day arrest quota, stating that it was more of a goal.
+
+## 2025 August
 
 2025-08-05 Trump threatened federal control of Washington D.C. after Edward “Big Balls” Coristine was attacked.
 
@@ -297,6 +339,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-08-31 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation.
 
 2025-08-31 Kristi Noem confirmed plans to extend ICE into Chicago.
+
+## 2025 September
 
 2025-09-02 A judge ruled that Trump broke the law by sending National Guard troops to Los Angeles.
 
@@ -362,6 +406,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-09-30 Senator Tammy Duckworth said, “Our troops did not sign up to be on the streets to intimidate our neighbors”.
 
+## 2025 October
+
 2025-10-01 Illinois investigated ICE for numerous allegations of feuding with residents and endangering first responders.
 
 2025-10-01 By October 2025, Trump only deployed military to cities governed by Democrat mayors. 
@@ -418,6 +464,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-10-30 Federal ICE agents shot Carlos Jimenez after he asked federal agents to move away from an area where schoolchildren were gathering. The victim, a father of three, called 911, was transported to the hospital, and then was arrested and detained by federal officers at the hospital.
 
+## 2025 November
+
 2025-11-05 A federal judge had to step in and order authorities to improve conditions at the Broadview ICE detention center where there have been reports of overcrowding, people sleeping on floors, and undrinkable water.
 
 2025-11-06 The Trump administration gave Sudanese immigrants only 60 days to leave the US despite warnings from the UN of starvation and war escalations in the region.
@@ -456,6 +504,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-11-28 Elaine Miles, a member of the Confederated Tribes of the Umatilla Indian Reservation and known for her acting role in Northern Exposure, was detained and questioned by ICE. When she provided her tribal identification card ICE accused her of providing a fake ID.
 
+## 2025 December 
+
 2025-12-02 Trump said about Somali immigrants, “We’re going to go the wrong way if we keep taking in garbage into our country”. He also said, “These are people who do nothing but complain. They complain, and from where they came from they got nothing. When they come from hell and they complain and do nothing but bitch, we don’t want them in our country”.
 
 2025-12-03 The Trump administration announced Operation Metro Surge, a task force designed to specifically target Somali immigrants in Minnesota. 
@@ -477,6 +527,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-12-31 ICE fatally shot 43-year-old Keith Porter on New Year’s Eve. DHS alleged Porter was firing an AR 15 at ICE agents, while citizens and family reported that Porter was firing celebratory shots into the air to ring in the New Year.
 
 2025-12-31 ICE used online influencer and geo-targeting to recruit a specific type of ICE candidate; anyone who followed UFC fights or NASCAR, lived near military bases, or exhibit conservative values.
+
+## 2026 January 
 
 2026-01-03 Lobbyist David Hoch allegedly posted, “Even the Blacks have had enough of the demon Muslims”. 
 
@@ -557,6 +609,8 @@ protocol.
 
 2026-01-31 Alberto Castaneda Mondragon was detained by ICE and then later brought to a hospital with at least eight skull fractures and several life-threatening brain bleeds. ICE maintains that he ran himself into a wall.
 
+## 2026 February 
+
 2026-02-03 Trump and Republican figures like Jeanine Pirro, Dan Bongino, Kristi Noem and Kash Patel admonished Alex Pretti for carrying a concealed weapon, stating nobody should be bringing guns to a protest. For context, Kash Patel tried to help Rittenhouse sue Biden and the media for character assassination even though he brought guns across state lines to a protest. In August 2020 Kyle Rittenhouse, a 17-year-old at the time, drove from Illinois to Wisconsin with an AR-15 and shot three protesters in the wake of the Jacob Blake shooting. He was hailed by Conservatives as a defender of Second Amendment rights and was acquitted on all charges including first-degree intentional homicide.
 
 2026-02-03 JD Vance refused to apologize for amplifying claims about Alex Pretti as an assassin.
@@ -591,6 +645,8 @@ protocol.
 
 2026-02-27 The Trump administration aimed to process 4500 white-only refugees per month from South Africa and installed trailers at the U.S. embassy in Pretoria for refugee processing.
 
+## 2026 March 
+
 2026-03-02 Tennessee moved to pass HB793 and SB 836 to force students to show their papers before enrolling.
 
 2026-03-02 Haitian asylum seeker Daphy Michel's body was found in a Pittsburg bus stop where ICE had left her. Allegheny County Medical Examiners wrote, “The opinion of the forensic pathologist in this case is that Ms. Michel was a vulnerable adult, suffering from untreated severe mental health issues and a significant language barrier when she was released from federal custody on Federal 27.” It was deemed a homicide in June.
@@ -620,6 +676,8 @@ protocol.
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions.
 
 2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
+
+## 2026 April 
 
 2026-04-01 Trump loomed over Supreme Court hearings on birthright citizenship as a “silent observer.”
 
@@ -665,6 +723,8 @@ protocol.
 
 2026-04-29 ICE agent Jonathan Ross returned to duty after Renee Nicole Goode’s killing.
 
+## 2026 May 
+
 2026-05-01 Another person died in ICE custody, this time a suspected suicide at the Stewart Detention Center in Georgia.
 
 2026-05-02 Police arrested 8 protesters in New York for protesting the violent arrest of a Nigerian man.
@@ -701,6 +761,8 @@ Next
 2026-05-28 The White House launched an alien-themed website Aliens.gov as part of a political campaign against immigrants. 
 
 2026-05-31 Bovino delivered a speech at the neo-fascist Remigration Summit in Portugal (RESUM26).
+
+## 2026 June 
 
 2026-06-01 The mayor of Newark, New Jersey announced it would push to shut down the Delaney Hall ICE facility.
 
@@ -739,6 +801,9 @@ Next
 2026-06-30 Federal agents showed up to a man’s house in Rochester New York with threats and a letter demanding he remain silent after he emailed the ICE director in condemnation of harsh immigration policies.
 
 2026-06-30 US Immigration sent detainees to Venezuela in the aftermath of the earthquake. 
+
+## 2026 July 
+
 
 2026-07-01 Sister Leticia Ugboaja was detained by ICE while walking to mass. 
 
