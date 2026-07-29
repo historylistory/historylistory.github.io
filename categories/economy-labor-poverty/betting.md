@@ -178,6 +178,17 @@ SUB WALL [https://www.nytimes.com/2026/01/15/us/politics/donald-trump-jr-predict
 
 [https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/](https://thehill.com/homenews/media/5820864-fox-corporation-integrates-kalshi-markets/)
 
+2026-04-10 The Commodity Futures Trading Commission under Trump stops states from regulating prediction markets and permits certain loopholes tied to elections. 
+
+[https://www.businessinsider.com/judge-grants-trump-administration-regulator-tro-arizona-kalshi-case-2026-4](https://www.businessinsider.com/judge-grants-trump-administration-regulator-tro-arizona-kalshi-case-2026-4)
+
+[https://stateline.org/2026/06/10/trump-administration-proposes-new-rules-for-prediction-markets/](https://stateline.org/2026/06/10/trump-administration-proposes-new-rules-for-prediction-markets/)
+
+[https://www.houstonpublicmedia.org/articles/news/texas/2026/05/01/550672/texas-prediction-market-regulations-kalshi-gambling-sports-betting/](https://www.houstonpublicmedia.org/articles/news/texas/2026/05/01/550672/texas-prediction-market-regulations-kalshi-gambling-sports-betting/)
+
+[https://www.cnbc.com/2026/06/10/regulators-proposed-prediction-markets-rules-ban-trading-on-terrorism-assassinations.html](https://www.cnbc.com/2026/06/10/regulators-proposed-prediction-markets-rules-ban-trading-on-terrorism-assassinations.html)
+
+
 2026-04-22 Trump Media fired Truth Social CEO Devin Nunes after stock dropped 67%, and TMTG pivoted to crypto and prediction markets. 
 
 [https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social](https://www.cnn.com/2026/04/22/politics/devin-nunes-trump-media-truth-social)

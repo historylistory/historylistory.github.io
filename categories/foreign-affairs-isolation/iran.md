@@ -2039,3 +2039,12 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.bbc.com/news/articles/c70g6y24d76o](https://www.bbc.com/news/articles/c70g6y24d76o)
 
 [https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/](https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/)
+
+
+2026-07-29 Trump claimed he would “beat the fucking shit” out of Iran. 
+
+[https://www.timesofisrael.com/trump-says-us-to-beat-the-fcking-sht-out-of-iran-after-attack-on-bases-in-jordan/](https://www.timesofisrael.com/trump-says-us-to-beat-the-fcking-sht-out-of-iran-after-attack-on-bases-in-jordan/)
+
+[https://x.com/foxandfriends/status/2082441121368604811](https://x.com/foxandfriends/status/2082441121368604811)
+
+[https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989](https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989)

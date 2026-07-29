@@ -404,6 +404,16 @@ permalink: /categories/defiant-destructive-reckless/defiant/
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-25th-georgia-wisconsin-elections-congress-dhs-live-updates-rcna267214)
 
+2026-04-10 The Commodity Futures Trading Commission under Trump stops states from regulating prediction markets and permits certain loopholes tied to elections. 
+
+[https://www.businessinsider.com/judge-grants-trump-administration-regulator-tro-arizona-kalshi-case-2026-4](https://www.businessinsider.com/judge-grants-trump-administration-regulator-tro-arizona-kalshi-case-2026-4)
+
+[https://stateline.org/2026/06/10/trump-administration-proposes-new-rules-for-prediction-markets/](https://stateline.org/2026/06/10/trump-administration-proposes-new-rules-for-prediction-markets/)
+
+[https://www.houstonpublicmedia.org/articles/news/texas/2026/05/01/550672/texas-prediction-market-regulations-kalshi-gambling-sports-betting/](https://www.houstonpublicmedia.org/articles/news/texas/2026/05/01/550672/texas-prediction-market-regulations-kalshi-gambling-sports-betting/)
+
+[https://www.cnbc.com/2026/06/10/regulators-proposed-prediction-markets-rules-ban-trading-on-terrorism-assassinations.html](https://www.cnbc.com/2026/06/10/regulators-proposed-prediction-markets-rules-ban-trading-on-terrorism-assassinations.html)
+
 2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
 
 [https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445](https://www.nbcnews.com/politics/congress/senate-republican-budget-funding-ice-border-patrol-democrats-rcna341445)

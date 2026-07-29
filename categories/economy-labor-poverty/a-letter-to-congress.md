@@ -752,6 +752,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-04-08 The House Freedom Caucus posted “We cannot leave ICE and CBP hanging with nothing but hopes and prayers that reconciliation 2.0 comes together. That’s why we must use reconciliation to fully fund all of the Department of Homeland Security. We can tightly control this process with strict instructions to the various committees involved so no one can sneak in unrelated garbage and distract us from our mission”.
 
+2026-04-10 The Commodity Futures Trading Commission under Trump stops states from regulating prediction markets and permits certain loopholes tied to elections. 
+
 2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
 
 2026-04-13 Hollywood actors, writers and directors signed an open letter to voice opposition for the Paramount-Warner Brothers-Discovery merger. Part of the letter reads, “The integrity, independence, and diversity of our industry would be grievously compromised. Competition is essential for a healthy economy and a healthy democracy. So is thoughtful regulation and enforcement”.

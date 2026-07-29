@@ -603,3 +603,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-27 Eggs were recalled over salmonella
 
 2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 
+
+2026-07-29 Anthony Fauci invoked the 5th Amendment not to answer questions at the GOP-led COVID hearing.
+

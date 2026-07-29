@@ -229,3 +229,11 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
 
 TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
+
+2026-07-29 Trump claimed UK’s Prime Minister Andy Burnham told him the North Sea was open for drilling. 
+
+[https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html](https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html)
+
+[https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
+
+[https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)

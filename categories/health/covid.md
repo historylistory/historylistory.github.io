@@ -211,3 +211,16 @@ Great Barrington Declaration links:
 [https://www.c-span.org/clip/senate-committee/cia-whistleblower-says-government-circulated-scientific-papers-on-covid-lab-leak-theory-in-2020/5200269](https://www.c-span.org/clip/senate-committee/cia-whistleblower-says-government-circulated-scientific-papers-on-covid-lab-leak-theory-in-2020/5200269)
 
 [https://www.hsgac.senate.gov/wp-content/uploads/letter-and-testimomy.pdf](https://www.hsgac.senate.gov/wp-content/uploads/letter-and-testimomy.pdf)
+
+### 2026 July
+
+2026-07-29 Anthony Fauci invoked the 5th Amendment not to answer questions at the GOP-led COVID hearing.
+
+[https://www.nbcnews.com/politics/congress/anthony-fauci-5th-amendment-testify-covid-hearing-rand-paul-rcna589793](https://www.nbcnews.com/politics/congress/anthony-fauci-5th-amendment-testify-covid-hearing-rand-paul-rcna589793)
+
+[https://fortune.com/2026/07/29/fauci-rand-paul-unhinged-obsession-pleads-fifth-covid-origins/](https://fortune.com/2026/07/29/fauci-rand-paul-unhinged-obsession-pleads-fifth-covid-origins/)
+
+[https://www.pbs.org/newshour/politics/watch-sen-paul-says-he-will-hold-a-contempt-vote-after-fauci-invokes-5th-amendment](https://www.pbs.org/newshour/politics/watch-sen-paul-says-he-will-hold-a-contempt-vote-after-fauci-invokes-5th-amendment)
+
+
+

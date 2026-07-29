@@ -618,3 +618,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 
 
 2026-07-28 The US walked out of a UN Security Council meeting in protest after French ambassador remarks blasting the US for voting against extending Volker Turk’s term for high commissioner of human rights. After the vote France ONU Geneve wrote, “The US used to be a beacon of human rights. Not anymore. Today, it stands alongside North Korea, Nicaragua, Mali & Russia, isolated. And the world no longer listens to it.”
+
+
+2026-07-29 Trump claimed he would “beat the fucking shit” out of Iran. 

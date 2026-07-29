@@ -376,6 +376,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-03-09 John Solomon claimed on his far-right outlet Just the News that the FBI was “secretly obtaining a large tranche of voting records” from Maricopa County (Arizona). 
 
+2026-03-09 During a GOP conference in Florida Trump told the crowd the SAVE act “will guarantee the midterms. If you don’t get it, big trouble”. 
+
 2026-03-18 Trump posted, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 2026-03-23 Steve Bannon described ICE deployments at airports as a potential “test run” for future election-related operations. He allegedly stated, “We can use this as a test run, as a test case, to really perfect ICE’s involvement in the 2026 midterms”.

@@ -345,6 +345,9 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2026-03-20 FEMA official George Phillips claimed his truck levitated 40 miles and he was teleported to a Waffle House. Phillips promoted voter fraud allegations in 2016. 
 
+2026-03-25 A chemtrails conspiracy gripped the US.
+
+
 ## 2026 April 
 
 2026-04-18 Trump’s former press secretary Kayleigh McEnany posted, “Trump Derangement Syndrome (TDS) is driving several blue states to enable fraud!”. In 2020 she pushed election fraud claims and tried to have all Pennsylvanian ballots thrown out.  After disclosure of her financial statements showing she received funds from both Trump and TPUSA, Fox news fired her. 

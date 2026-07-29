@@ -348,6 +348,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-04-09 The GOP blocked another warpower resolution to rein in Trump’s Iran war powers after he tweeted out his intent to destroy an entire civilization. New Jersey Republican Representative Chris Smith persisted over a “pro forma” session and banged his gavel to end the session before Democrats could seek to pass resolution to end the U.S. military operation.
 
+2026-04-10 The Commodity Futures Trading Commission under Trump stops states from regulating prediction markets and permits certain loopholes tied to elections. 
+
 2026-04-15 The White House submitted plans for a $125M Triumphal Arch to overshadow Arlington Cemetery.
 
 2026-04-17 Former officials told The Atlantic that Kash Patel was erratic, frequently absent, and difficult to manage. Patel threatened legal action against the magazine and filed a $250M defamation lawsuit.

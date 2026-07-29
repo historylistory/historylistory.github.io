@@ -411,5 +411,6 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-07-28 Wildfires in France and Spain intensified so much they created “fire clouds”. 
 
+2026-07-29 Trump claimed UK’s Prime Minister Andy Burnham told him the North Sea was open for drilling. 
 
 

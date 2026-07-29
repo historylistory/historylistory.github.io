@@ -812,3 +812,11 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/](https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/)
 
 [https://x.com/FranceONUGeneve/status/2081064968586232263](https://x.com/FranceONUGeneve/status/2081064968586232263)
+
+2026-07-29 Trump claimed he would “beat the fucking shit” out of Iran. 
+
+[https://www.timesofisrael.com/trump-says-us-to-beat-the-fcking-sht-out-of-iran-after-attack-on-bases-in-jordan/](https://www.timesofisrael.com/trump-says-us-to-beat-the-fcking-sht-out-of-iran-after-attack-on-bases-in-jordan/)
+
+[https://x.com/foxandfriends/status/2082441121368604811](https://x.com/foxandfriends/status/2082441121368604811)
+
+[https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989](https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989)

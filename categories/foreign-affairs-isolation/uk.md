@@ -51,3 +51,11 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 [https://www.npr.org/2026/07/19/nx-s1-5895993/andy-burnham-prime-minister-keir-starmer](https://www.npr.org/2026/07/19/nx-s1-5895993/andy-burnham-prime-minister-keir-starmer)
 
 [https://www.nbcnews.com/world/united-kingdom/andy-burnham-british-prime-minister-keir-starmer-labour-king-charles-rcna588324](https://www.nbcnews.com/world/united-kingdom/andy-burnham-british-prime-minister-keir-starmer-labour-king-charles-rcna588324)
+
+2026-07-29 Trump claimed UK’s Prime Minister Andy Burnham told him the North Sea was open for drilling. 
+
+[https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html](https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html)
+
+[https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
+
+[https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)

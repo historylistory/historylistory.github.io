@@ -123,3 +123,13 @@ PAY WALL [https://www.nytimes.com/2026/04/16/climate/boundary-waters-senate-vote
 [https://thehill.com/policy/energy-environment/5935238-public-lands-drilling-interior/](https://thehill.com/policy/energy-environment/5935238-public-lands-drilling-interior/)
 
 SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html](https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands.html)
+
+### 2026 July
+
+2026-07-29 Trump claimed UK’s Prime Minister Andy Burnham told him the North Sea was open for drilling. 
+
+[https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html](https://www.the-independent.com/news/uk/politics/trump-andy-burnham-north-sea-oil-drilling-b3024122.html)
+
+[https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
+
+[https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)

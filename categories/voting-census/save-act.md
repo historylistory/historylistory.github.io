@@ -51,6 +51,17 @@ SAVE TOOL FLAGS THE WRONG PEOPLE [https://www.npr.org/2025/12/10/nx-s1-5588384/s
 
 [https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting](https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting)
 
+2026-03-09 During a GOP conference in Florida Trump told the crowd the SAVE act “will guarantee the midterms. If you don’t get it, big trouble”. 
+
+[https://thehill.com/homenews/house/5776058-trump-republicans-save-america-act-midterms/](https://thehill.com/homenews/house/5776058-trump-republicans-save-america-act-midterms/)
+
+[https://www.nytimes.com/live/2026/03/09/us/trump-news](https://www.nytimes.com/live/2026/03/09/us/trump-news)
+
+[https://www.ksat.com/news/politics/2026/03/10/trump-pushes-gop-on-voting-bill-demanding-an-end-to-most-mail-balloting/](https://www.ksat.com/news/politics/2026/03/10/trump-pushes-gop-on-voting-bill-demanding-an-end-to-most-mail-balloting/)
+
+[https://fortune.com/2026/03/11/republicans-want-trump-focused-on-affordability-but-his-mind-is-on-voter-suppression/](https://fortune.com/2026/03/11/republicans-want-trump-focused-on-affordability-but-his-mind-is-on-voter-suppression/)
+
+
 2026-03-18 Trump posted, “For all of the Fake News out there, it’s called the SAVE AMERICA ACT, not the SAVE ACT. Nobody knows what the Save Act means!!!”.
 
 [https://truthsocial.com/@realDonaldTrump/posts/116250143939100110](https://truthsocial.com/@realDonaldTrump/posts/116250143939100110)
