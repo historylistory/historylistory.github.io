@@ -46,41 +46,71 @@ Technology should serve the public—not become a tool for political retaliation
 
 ### Chronology.
 
+## 2001 
+
 2001-09-18 The Patriot Act under Obama was introduced a week after 9/11 and also had issues with mass surveillance because it involved the bulk collection of Americans’ telephone records. 
+
+## 2003
 
 2003-05-06 Palantir was founded by Peter Thiel after 9/11 for defense intelligence. Critics warned that its surveillance and AI capabilities could enable predictive policing, warfare, and civilian targeting. In 2025, the DOD added a $113M contract to Palantir’s existing $795M contracts, while ICE paid $30M for immigrant tracking tools.
 
+## 2008
+
 2008-01-01 Many people don’t know the Waze Navigation App was bought by Google but managed by a team in Israel where they monitor US traffic and record personal data. According to Terms and Services, If customers file complaints or sue they must travel to Tel Aviv to handle cases. 
+
+## 2009
 
 2009-04-13 Peter Thiel wrote in The Education of a Libertarian that expanded welfare and women’s suffrage made “capitalist democracy” an oxymoron, adding that he no longer believed “freedom and democracy are compatible.”
 
+## 2010
+
 2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 
+
+## 2014
 
 2014-02-19 Google launched smart glasses.
 
+## 2015
+
 2015-10-04 Google dropped their “Don’t Be Evil” motto. 
+
+## 2016
 
 2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
 
+## 2017
+
 2017-04-01 Project Maven, run by Palantir, helped the Pentagon identify bomb targets.
+
+## 2018
 
 2018-01-17 Apple announced a $350B investment in the U.S. economy over 5 years.
 
 2018-01-31 Amazon used wristbands to track worker productivity.
 
+## 2020
+
 2020-09-19 Trump backed a TikTok deal where Oracle and Walmart partnered with ByteDance; Walmart would hold 7.5% and ByteDance 80%.
 
+## 2021
+
 2021-06-04 Legislation under the HALT Drunk Driving Act required new vehicles to include “kill switch” technology, sparking privacy and government overreach concerns. Ron DeSantis posted to X, “The idea that the federal government would require auto manufacturers to equip cars with a ‘kill switch’ that can be controlled by the government is something you’d expect in Orwell’s 1984”.
+
+## 2022
 
 2022-01-01 AI-driven dynamic pricing expanded across airlines, groceries, travel, and retail, using algorithms to maximize what consumers would pay. The Iran war, Trump’s tariffs, and emerging “K” economy of 2026 may have exacerbated it.
 
 2022-08-11 Biden signed the $53B CHIPS Act after pandemic-era chip shortages.
+
+## 2023
 
 2023-05-07 HP introduced printer subscription tiers charging monthly fees, print limits, overage fees, and cancellation penalties.
 
 2023-11-01 After the Hamas attacks on Israel, lawmakers pushed for a TikTok ban over alleged anti-Israel bias; venture capitalist Jeff Morris described a “TikTok War.”
 
 2023-11-09 Peter Thiel called the pursuit of democracy “very evil.”
+
+## 2024
 
 2024-05-06 Reports claimed lawmakers admitted TikTok ban efforts were tied to pro-Palestinian content. 
 
@@ -90,15 +120,15 @@ Technology should serve the public—not become a tool for political retaliation
 
 2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.
 
+## 2025 January
+
 2025-01-01 People increasingly formed emotional relationships with AI chatbots.
 
 2025-01-01 Larry Ellison, Sam Altman, and Masayoshi Son announced the $500B Stargate Project for U.S. AI infrastructure by 2029.
 
 2025-01-21 Trump announced a $500 billion private sector investment for AI infrastructure by Stargate
 
-
 2025-01-14 Biden signed Executive Order 14141 on AI infrastructure and environmental impacts.
-
 
 2025-01-18 TikTok shut itself down for about 15 hours as Trump's ban law took effect. 
 
@@ -110,6 +140,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-01-25 Trump handed four big tech giants massive tax breaks. 
 
+## 2025 February
+
 2025-02-01 DOGE received extensive access to payroll systems and government code.
 
 2025-02-02 Office of Personnel Management employees were locked out of their computer systems.
@@ -118,15 +150,21 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-02-17 The Trump administration stated Elon Musk was not DOGE’s leader, calling him a “Special Government Employee” without formal authority.
 
+## 2025 April
+
 2025-04-08 Companies increasingly used AI to scan resumes, rank candidates, and reject applicants before human review.
 
 2025-04-12 Apple received retroactive exemptions from certain Chinese tariffs on smartphones.
 
 2025-04-23 Trump signed an executive order encouraging greater AI use in schools.
 
+## 2025 May
+
 2025-05-14 The Trump administration removed a CFPB rule designed to shield Americans from data brokers and limit the sale of personal information such as credit history, financial data and social security number. 
 
 2025-05-19 Elon Musk’s Grok spread Holocaust misinformation and white genocide claims.
+
+## 2025 June
 
 2025-06-02 Leaked emails exposed DHS use of the face-scanning app Mobile Fortify to add protestors to ICE databases.
 
@@ -140,6 +178,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-06-26 In response to ghost job postings applicants started using AI to generate blanket resumes. 
 
+## 2025 July
+
 2025-07-01 The Senate moved to remove an AI regulation moratorium from Trump’s agenda bill.
 
 2025-07-09 A report claimed Grok provided instructions for rape and breaking into homes.
@@ -149,6 +189,8 @@ Technology should serve the public—not become a tool for political retaliation
 2025-07-17 Grok malfunctioned, called itself “MechaHitler,” and posted antisemitic content.
 
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
+
+## 2025 August
 
 2025-08-03 Companies used AI to conduct job interviews. 
 
@@ -163,6 +205,8 @@ Technology should serve the public—not become a tool for political retaliation
 2025-08-11 Trump reversed course on Intel’s CEO after a meeting, praising his “success and rise”, writing on Truth Social “The meeting was a very interesting one. His success and rise is an amazing story. Mr. Tan and my Cabinet members are going to spend time together and bring suggestions to me during the next week”.
 
 2025-08-22 The federal government announced a 10% stake in Intel, purchasing 433.3M primary shares.
+
+## 2025 September
 
 2025-09-01 Multiple lawsuits alleged AI chatbots encouraged suicide.
 
@@ -182,6 +226,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-09-30 Meta launched Ray-Ban Display smart glasses.
 
+## 2025 October
+
 2025-10-01 Flock Safety partnered with Amazon Ring to expand its surveillance network. 
 
 2025-10-10 Peter Thiel reportedly called critics of AI and technology “legionnaires of the Antichrist.”
@@ -192,17 +238,23 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-10-24 News outlets increasingly warned about AI’s environmental impact.
 
+## 2025 November
+
 2025-11-11 A Louisiana girl was expelled after hitting a boy who repeatedly shared AI-generated deepfake nudes of her.
 
 2025-11-19 Sales of the AI-enabled Kumma teddy bear were suspended after it gave children sexual and dangerous advice such as how to light matches or find knives. 
 
 2025-11-24 The open-source AI agent framework OpenClaw launched, enabling shell commands, file management, and browser automation on behalf of the user. 
 
+## 2025 December
+
 2025-12-10 Reports alleged Instacart and other retailers experimented with AI pricing that charged different customers different prices.
 
 2025-12-11 Trump signed an executive order preventing states from restricting or regulating AI.
 
 2025-12-17 AOC criticized Trump’s executive order blocking state AI regulation.
+
+## 2026 January 
 
 2026-01-01 California introduced the Delete Request and Opt-out Platform (DROP) which allows residents to completely delete personal information from data mining sites. 
 
@@ -219,6 +271,8 @@ Technology should serve the public—not become a tool for political retaliation
 2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 
 2026-01-27 A whistleblower alleged DOGE mishandled sensitive personal data and violated security protocols.
+
+## 2026 February
 
 2026-02-03 French prosecutors raided X offices over allegations Grok generated CSAM material.
 
@@ -248,6 +302,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-02-27 Anthropic said it refused Pentagon demands involving domestic surveillance and autonomous weapons after being threatened with “supply chain risk” designation. The CEO of Anthropic stated they could not – in good conscience – agree to the terms the Pentagon was asking for.
 
+## 2026 March
+
 2026-03-01 OpenAI replaced Anthropic in the Pentagon deal.
 
 2026-03-06 Anthropic sued the Pentagon after being labeled a supply chain risk for refusing military AI demands.
@@ -269,6 +325,8 @@ Technology should serve the public—not become a tool for political retaliation
 2026-03-26 Judge Rita Lin rejected the Pentagon’s retribution against Anthropic, writing, “Nothing in the governing statute supports the Orwellian notion that an American company may be branded a potential adversary and saboteur of the U.S. for expressing disagreement with the government”.
 
 2026-03-27 Sony raised PlayStation 5 prices globally due to chip shortages.
+
+## 2026 April
 
 2026-04-06 The New Yorker published “Can Sam Altman be Trusted?”
 
@@ -292,6 +350,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-04-30 Congress passed a 45-day extension of FISA Section 702 despite surveillance concerns.
 
+## 2026 May
+
 2026-05-05 Coinbase cut 14% of its workforce due to AI.
 
 2026-05-05 The Associated Press won a Pulitzer Prize for reporting on U.S. companies enabling surveillance and detention in China.
@@ -310,6 +370,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-05-26 Trump rescinded a proposed AI safety-vetting executive order, prompting criticism from Senator Mark Kelly about billionaire influence over AI policy. In a post, Senator Mark Kelly wrote, “America cannot lead in AI if our policy is determined by whichever billionaire gets the President on the phone last. We need a strategy that supports innovation, protects workers, strengthens national security, and makes sure this technology benefits the country, not just a handful of big tech companies”.
 
+## 2026 June
+
 2026-06-02 Citizens increasingly criticized Flock surveillance for its misuse and scope creep.
 
 2026-06-10 Data centers are seizing Georgian residents’ homes and contaminating the drinking water. 
@@ -322,7 +384,6 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-06-16 Snap Inc. released SPECS augmented reality glasses. 
 
-
 2026-06-17 Anthropic’s Dario Amodei, Google Deepmind’s Demis Hassabis and OpenAI’s Sam Altman attended the G7 summit with Trump and were treated like heads of nation states. 
 
 2026-06-18 SanDisk drives prices soared to almost $3000.
@@ -334,6 +395,8 @@ Technology should serve the public—not become a tool for political retaliation
 2026-06-29 Elon Musk chastised MacKenzie Scott for donating $26 billion of her fortune, claiming generosity makes the world a worse place. 
 
 2026-06-30 SCOTUS ruled that geofence warrants are subject to Fourth Amendment protections. Justice Elena Kagan wrote, “An individual has a reasonable expectation of privacy in records about his cell phone’s location, and police intrude on that constitutionally protected interest when they demand the information”. 
+
+## 2026 July
 
 2026-07-06 Microsoft cut 4800 more jobs, citing a loss of 64 cents for every dollar the company invested. 
 

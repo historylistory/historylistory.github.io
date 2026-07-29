@@ -43,19 +43,33 @@ Congress must restore agricultural and conservation funding, protect independent
 
 ### Chronology.
 
+## 1990s
+
 1996-06-06 Antitrust Enforcement in the Meat Packing Industry (archived DOJ document)
 
+## 2018
+
 2018-02-01 Trump proposed $183M in cuts to Conservation Technical Assistance, which was designed to help farmers implement conservation practices.
+
+## 2020
 
 2020-05-26 America invested $15M to prevent screwworm and saved farmers an estimated $796M in damages.
 
 2020-10-28 Trump handed farmers bailouts after his first trade war.
 
+## 2021
+
 2021-08-13 JD Vance promoted an indoor farming company that faced allegations of misleading regulators and investors.
+
+## 2022
 
 2022-03-02 Biden openly criticized the “Big Four” for manipulating the meat market.
 
+## 2024
+
 2024-09-18 JD Vance funded AcreTrader, which led to consolidation of farmland and reduced competition. Allegedly, JD Vance’s firm bought up American farmland and resold it to foreign investors.
+
+## 2025
 
 2025-01-20 The Trump administration froze funds to USAID. By March USAID was 83% gutted. By July 24, 2025 Trump signed the Rescissions Act of 2025 to claw back $8B in funding from USAID. Aside from foreign aid, dismantling USAID can negatively impact farm subsidies. 
 
@@ -97,7 +111,11 @@ Congress must restore agricultural and conservation funding, protect independent
 
 2025-12-14 Trump announced a $12B bailout for farmers using tariff revenue.
 
+## 2026 February
+
 2026-02-08 Florida studies show increased glyphosate in bread products, and Florida first lady Casey DeSantis said the Healthy Florida First initiative found triple-digit levels. 
+
+## 2026 March
 
 2026-03-08 Billion-dollar farm subsidies for the top 2% of farmers.
 
@@ -107,15 +125,21 @@ Congress must restore agricultural and conservation funding, protect independent
 
 2026-03-27 Idaho lawmakers Glenneda Zuiderveld and Stephanie Mickelson reported pressure and retaliation over their immigration-policy positions.
 
+## 2026 April
+
 2026-04-21 The DOJ opened an investigation into whether meat packers were colluding with fixed prices or manipulating the market. See 2022 when the Biden Administration often publicly criticized the “Big Four” for manipulating the markets.
 
 2026-04-30 A bale of hay costs $23, diesel costs rose up over 46%, screwworms were an issue in the Southern border, and additional cuts to SNAP benefits were made. Meanwhile farming families are under duress and the rate of farmer suicide is increasing.
+
+## 2026 May
 
 2026-05-09 The U.S. obligated millions of dollars in soybean, corn and vegetable oil trade from Argentina.
 
 2026-05-13 The fertilizer shortage hit home for farmers in Michigan.
 
 2026-05-17 China committed to buy $17B in US farm goods each year from 2026 to 2028.
+
+## 2026 June
 
 2026-06-01 The drought crisis forced farmers to navigate water shortages.
 
@@ -128,6 +152,8 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-06-11 Trump further advocated on Fox that he wanted the Chinese Communist Party to continue buying up American farmland.
 
 2026-06-25 MAHA moms said they felt betrayed after SCOTUS ruled that Bayer did not have to warn consumers about cancer risks associated with Roundup, and that Trump invoked the Defense Production Act to boost glyphosate production. 
+
+## 2026 July
 
 2026-07-09 The Trump administration is changing the rules on applying and receiving grants for farmers that will make the process more burdensome and less reliable.
 

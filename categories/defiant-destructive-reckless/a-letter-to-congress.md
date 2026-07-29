@@ -33,8 +33,13 @@ For U.S. Senators
 
 Dear Sir or Madam,
 
-PENDING
+The events of the past several years reveal more than isolated scandals or routine political dysfunction. They show a sustained pattern of executive overreach, contempt for judicial authority, reckless use of military power, political interference in federal agencies, misuse of taxpayer funds, attacks on constitutional safeguards, and open indifference to basic competence and accountability.
 
+Congress has the power to investigate misconduct, restrict funding, enforce subpoenas, authorize war, and hold officials accountable. Yet these abuses continue with little meaningful resistance.
+
+Why has Congress allowed this to happen? What specific investigations, funding restrictions, war-powers measures, and legal safeguards will you support to stop further abuses?
+
+Please do not respond with slogans or partisan deflection. The American people deserve a clear explanation of what you will do to defend the Constitution, enforce the rule of law, protect taxpayers, and hold public officials accountable regardless of party.
 
 ### Chronology.
 
