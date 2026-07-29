@@ -70,6 +70,13 @@ permalink: /categories/lgbtq/military/
 
 [https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/](https://www.usatoday.com/story/news/politics/2026/06/01/pentagon-transgender-service-members/90359601007/)
 
+[https://transequality.org/resources/understanding-trumps-trans-military-ban](https://transequality.org/resources/understanding-trumps-trans-military-ban)
+
+[https://abcnews.com/US/appeals-court-blocks-removal-transgender-troops-allows-restrictions/story?id=133491160](https://abcnews.com/US/appeals-court-blocks-removal-transgender-troops-allows-restrictions/story?id=133491160)
+
+[https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/](https://www.reuters.com/legal/government/us-court-blocks-pentagon-removing-transgender-troops-now-2026-06-01/)
+
+
 ### 2026 July
 
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
