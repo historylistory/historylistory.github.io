@@ -54,19 +54,33 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 ### Chronology.
 
+## 1990s 
+
 1993-05-20 Clinton signed the “Motor Voter Act” or National Voter Registration Act to help register voters. The GOP used this bill to demonize women, minority and immigrant voters and claim voter fraud. 
+
+## 2000 
 
 2000-01-01 Larry Elder wrote, “Women know less than men about political issues, economics, and current events”. 
 
 2000-11-07 George Bush lost the national popular vote to Al Gore, but he won because he secured 271 electoral votes to Gore’s 266. 
 
+## 2006 
+
 2006-06-28 Courts ruled that States can redistrict as many times as they want (see Leage of United Latin American Citizens v Perry, Governor of Texas).
+
+## 2010 
 
 2010-01-01 During a Libertopia conference, Peter Thiel said, “The basic idea was that we could never win an election on getting certain things because we were in such a small minority. But maybe you could actually unilaterally change the world without having to constantly convince people and beg people and plead with people who are never going to agree with you through technological means. And this is where I think technology is this incredible alternative to politics”. 
 
+## 2012 
+
 2012-10-18 Trump called the 2012 vote a “total sham”.
 
+## 2013 
+
 2013-06-25 Courts tossed out a rule in the Voting Rights Act that would require states with an extensive history of racial discrimination to submit any changes in their election policies or maps to the federal government for advance review before putting them into effect (see Shelby County, Alabama v. Holder, Attorney General).
+
+## 2016 
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
@@ -74,15 +88,23 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2016-11-27 Trump posted, “In addition to winning the Electoral College in a landslide, I won the popular vote if you deduct the millions of people who voted illegally” the posted accusations of voter fraud in  Virginia, New Hampshire, and California. 
 
+## 2017 
+
 2017-01-25 Allegedly Steve Bannon, Tiffany Trump and Steven Mnuchin were all registered to vote in more than one state.
 
 2017-05-11 Trump signed executive order “Presidential Advisory Commission on Election Integrity”. Trump tweeted out in July, calling the board of this executive order his “VOTER FRAUD PANEL”.
 
+## 2018 
+
 2018-11-05 Just before the midterms Trump posted, “Law Enforcement has been strongly notified to watch closely for any ILLEGAL VOTING which may take place in Tuesday’s Election (or Early Voting). Anyone caught will be subject to the Maximum Criminal Penalties allowed by law”.
+
+## 2019 
 
 2019-04-01 Right wing operatives Jacob Wohl and Jack Burkman paid for a robocall campaign in New York to suppress the Black vote.
 
 2019-06-17 SCOTUS ruled that federal courts couldn’t stop states from drawing lines on a partisan basis and had no authority to resolve partisan gerrymandering claims (see Rucho v. Common Cause).
+
+## 2020 
 
 2020-04-20 Trump threatened to send law enforcement officials to polling locations.
 
@@ -106,53 +128,87 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2020-12-19 Trump posted, “Big protest in D.C on january 6th Be there, will be wild!”
 
+## 2021 January 
+
 2021-01-02 Just prior to the J6 insurrection, Ted Cruz and a group of Republican senators publicly announced their intention to vote against accepting the electoral college results.
 
 2021-01-02 During a phone call, Trump pressured Georgia Secretary of State Brad Raffensberger to find him 11,780 more votes.
 
 2021-01-04 Democrats introduced the For The People/Freedom to Vote Act, but it was blocked by a filibuster in June. The bill included anti-gerrymandering provisions.
 
+## 2021 February 
+
 2021-02-20 Fulton County DA investigated election interference involving Trump, Rudy Giuliani, and others.
 
 2021-02-22 Dominion filed a suit against My Pillow CEO Mike Lindell for libel.
 
+## 2021 March 
+
 2021-03-01 Dominion Voting Systems filed a suit against the Fox News Channel and Fox Corporation for broadcasting false statements about their voting machines being rigged. Fox argued it was reporting “pure opinion”.
+
+## 2021 June 
 
 2021-06-21 Following false claims of voter fraud in 2020, multiple states enacted bills to make it harder to vote.
 
 2021-06-24 An OAN host repeated election-fraud claims and suggested “traitors” who stole the election should be executed
 
+## 2021 July 
 2021-07-24 During The Future of American Political Economy conference in Alexandria Virginia JD Vance asserted that non-parents should not vote.
 
+## 2021 September 
 2021-09-14 Nancy Pelosi introduced the John Lewis Voting Rights Advancement Act which would require states with a history of voting rights violations to seek federal approval before enacting changes to their voting laws.
+
+## 2022 April 
 
 2022-04-22 Kari Lake and Mark Finchem demanded that Arizona stop using accessible voting and electronic ballot tabulation machines for the 2022 midterms. They requested Arizona instead count ballots by hand. In October 2022, Kari Lake told reporters, “I’m going to be your worst f-ing nightmare”.
 
+## 2022 May 
+
 2022-05-01 Allegedly Larry Ellison participated in a conference call after the 2020 election focusing on strategies for challenging the legitimacy of the vote. The call included members such as Sean Hannity, Lindsey Graham, Jay Sekulow, James Bopp. 
+
+## 2022 October 
 
 2022-10-12 Charlie Kirk told his listeners to not support the rank-choice voting system. He also told his viewers that empathy is a “new age term” and does a “lot of damage”.
 
+## 2022 December 
+
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
+
+## 2023 February 
 
 2023-02-16 In a $1.6B defamation lawsuit between U.S. Dominion v. Fox News Network, Sean Hannity, Rupert Murdoch and Tucker Carlson allegedly did not find election fraud claims fully credible or found them “crazy” but reported election fraud claims anyways.
 
+## 2023 June 
+
 2023-06-09 SCOTUS ruled that Alabama discriminated against Black voters.
 
+## 2023 July 
+
 2023-07-18 Michigan charged 16 fake electors for Donald Trump. The charges were dismissed September 9, 2025.
+
+## 2023 August 
 
 2023-08-14 Trump and 18 co-defendants were charged in Georgia’s election interference case.
 
 2023-08-24 Mark Meadows turned himself in after a Georgia election interference indictment.
 
+## 2023 September 
+
 2023-09-17 Trump again claimed in an NBC interview that the 2020 election was rigged.
 
 2023-09-29 One of the Georgia election interference co-defendants plead guilty.
+
+## 2023 December 
 
 2023-12-12 Georgia election worker Wandrea “Shaye” Moss reported receiving threats against herself and her child after being targeted by voter-fraud allegations promoted by Rudy Giuliani and other Trump allies, including threats of being hanged.
 
 2023-12-13 Ruby Freeman, a Georgia election worker, testified to receiving violent and racist threats against her after Rudy Giuliani and other Republicans spread false claims about her. She stated she received threats of hanging and even had to flee her home for her own safety.
 
+## 2024 March 
+
 2024-03-16 Trump said during a campaign rally in Vandalia Ohio, “If I don’t get elected, it’s going to be a blood bath for the whole – that’s going to be the least of it. It’s going to be a blood bath for the country. That’ll be the least of it. But they’re not going to sell those cars”.
+
+## 2024 April 
 
 2024-04-05 An article reads “You have imprisoned our democracy: inside Republican’s domination of Tennessee”.
 
@@ -160,17 +216,27 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2024-04-27 Of the 84 fake electors charged across multiple states, 36 were criminally charged, 10 faced a civil lawsuit, and 7 remained in office. A small number of them gained public offices or were appointed to positions of power since the scheme. 
 
+## 2024 May 
+
 2024-05-03 MAGA paster Joel Webbon called for the repeal of the 19th Amendment, Women’s right to vote. 
 
 2024-05-06 A group of white voters claimed the Louisiana congressional map “racially stigmatizes”, “racially stereotypes”, and “racially maligns” them.
 
+## 2024 June 
+
 2024-06-19 Trump falsely claimed Joan Rivers voted for him in 2016 despite her 2014 death.
+
+## 2024 July 
 
 2024-07-10 The Safeguard American Voter Eligibility Act blocks married women from voting unless they can provide a passport in their married name or proof of citizenship. It complicates voting for women and increases the likelihood of being purged from state voter rolls. Believe it or not, this has happened before in Virginia. 
 
 2024-07-26 At a Turning Point rally, Trump told supporters they would only need to vote “this one time” because the votes would be “fixed.”
 
+## 2024 September
+ 
 2024-09-05 Vance claimed during a rally, “There is a logic to what the Democrats are trying to do. It’s disgusting, but there’s a logic to it. They want illegal aliens to steal everybody’s job, and now they want illegal aliens to steal everybody’s vote.”
+
+## 2024 October 
 
 2024-10-02 Special Counsel Jack Smith released 165 pages outlining Trump’s efforts to overturn the 2020 elections, involvement with the January 6 insurrection, and proof that Trump knew he had lost the 2020 elections.
 
@@ -179,6 +245,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2024-10-19 Musk hired people to canvas. Canvassers reported they had not been paid and were tricked into coming to Michigan by Blitz Canvassing. They also reported having to ride in the back of moving trucks.
 
 2024-10-30 Elon Musk was investigated for sending out partially prefilled absentee ballot applications from America PAC.
+
+## 2024 November 
 
 2024-11-05 Lara Trump shared on a Fox interview that her committee used lawyers to gain access to polling sites. 
 
@@ -190,7 +258,11 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2024-11-15 Republicans rejected a ballot measure to strip lawmakers from being able to manipulate electoral districts with partisan gerrymandering tactics.
 
+## 2024 December 
+
 2024-12-17 Trump filed a lawsuit against Des Moines Register Poll, alleging interference.
+
+## 2025 January 
 
 2025-01-20 Trump rescinded Executive Order 13986 Ensuring a Lawful and Accurate Enumeration and Apportionment Pursuant to the Decennial Census
 
@@ -198,7 +270,11 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-01-29 During a presidential rally at the Capital One Arena in Washington DC, Trump stated “…but then they rigged the election, and now we won, so I’m gonna be your president for the Olympics…”
 
+## 2025 March 
+
 2025-03-25 Trump issued EO 14248 to assert presidential control over federal elections. 
+
+## 2025 August 
 
 2025-08-05 Republicans started redistricting to gain more Republican seats ahead of the midterms. 
 
@@ -220,6 +296,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-08-31 The Trump administration announced their plan to eliminate mail-in ballots and issue a mandatory voter ID for every voter in the U.S.
 
+## 2025 September 
+
 2025-09-03 Allegedly Trump offered Eric Adams a job to drop his candidacy so they could leave Cuomo more opportunity to defeat Momdani, but Adams later denied this claim. 
 
 2025-09-03 Republicans proposed a “nuclear option” to speed up confirmation on multiple Trump nominees, so they don’t have to go through the standard voting system. This way they could appoint their nominees all at once.
@@ -236,11 +314,15 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-09-27 Teachers in Oklahoma pointed out that Trump bibles include the Constitution but leaves out Amendments 11 through 27. Those Amendments include protections for states from being sued in federal court, MULTIPLE voting rights, two term limits, presidential succession, citizenship laws, equal right laws, abolition of slavery, women’s rights, and more.
 
+## 2025 October 
+
 2025-10-09 Former Republican director for the St. Louis City Board of Elections Scott Leindecker bought the Dominion Voting Systems for an undisclosed amount. The voting machines are now owned by Liberty Now and allegedly would be pushing paper ballots. 
 
 2025-10-13 A Rolling Stone news article headline reads, “The Right’s secret plan to help billionaires buy elections”.
 
 2025-10-15 A group of 12 self-described non-African American voters claimed that the Louisiana congressional map “injured” their “personal dignity”.
+
+## 2025 November 
 
 2025-11-04 Trump ranted on Truth Social about voting, swampthevoteusa.com, terminating the filibuster, terminating mail in ballots, ratings, and so on. 
 
@@ -251,6 +333,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2025-11-17 A federal judge ruled that Texas substantially racially gerrymandered in their redistricting efforts.
 
 2025-12-02 Indiana proposed a new redistricting map which some claimed was politically gerrymandered.
+
+## 2025 December 
 
 2025-12-04 The Supreme Court decided to grant a stay in Texas to allow Texas to use the redrawn congressional map for the 2026 mid-term elections.
 
@@ -264,6 +348,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2025-12-30 In a retaliatory move for Tina Peters’ incarceration, Trump vetoed a bill to fund a pipeline project that would bring clean drinking water to the Eastern Plains of Colorado. 
 
+## 2026 January 
+
 2026-01-12 Trump said he was sorry he did not sign an Executive Order he wrote to tell the National Guard to seize voting machines and ballots. 
 
 2026-01-15 Trump said, “We shouldn’t even have an election”. Karoline Leavitt claimed Trump was “just joking”.
@@ -271,6 +357,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
 2026-01-29 The FBI, led by Tulsi Gabbard, raided the Georgia election office and removed 700 boxes of ballots and voter data.
+
+## 2026 February 
 
 2026-02-03 Trump urged Republicans to pursue nationalized elections.
 
@@ -281,6 +369,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-02-11 Gallup announced that after 88 years, it would no longer track presidential approval ratings.
 
 2026-02-27 Trump tried to push an executive order granting him total emergency federal oversight of upcoming elections, again alleging fraud in the 2020 election and interference by China.
+
+## 2026 March 
 
 2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
@@ -293,6 +383,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-03-27 Todd Blanche asked, “Why is there objection to sending ICE officers to polling places”.
 
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout.
+
+## 2026 April 
 
 2026-04-01 American Action Network mailed out misleading fliers in Nebraska saying Democrat Cavanaugh supports the Trump agenda.
 
@@ -309,6 +401,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-04-30 Trump urged Tennessee to redistrict to gain more Republican seats.
 
 2026-04-30 Louisiana suspended congressional primaries so they could redraw their maps.
+
+## 2026 May 
 
 2026-05-01 Louisiana Governor Jeff Landry signed legislation preventing Calvin Duncan from taking office as criminal court clerk after Duncan had been exonerated, earned a law degree, and won election to the position.
 
@@ -340,6 +434,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-05-29 Louisiana lawmakers approved a map to eliminate a majority Black district.
 
+## 2026 June 
+
 2026-06-02 Despite being missing for several months, Republican Tom Kean won the election in New Jersey’s 12 district after receiving Trump’s endorsement.
 
 2026-06-03 Bill Pulte was tasked with reopening election investigations pertaining to alleged voter fraud.
@@ -357,6 +453,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-06-23 Elissa Slotkin introduced legislation to prevent troops from poll intimidation.
 
 2026-06-24 Trump publicly admitted he asked a prosecutor to launch an election fraud investigation in California without any actual evidence.
+
+## 2026 July 
 
 2026-07-07 The DOJ sent threatening letters to election officials warning they will face criminal prosecution over noncitizen voting. Hermeet Dhillon warned that she will be sending election monitors.
 

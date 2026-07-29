@@ -46,17 +46,27 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 ### Chronology.
 
+## 1980s 
+
 1981-08-05 President Ronald Regan fired 11,345 air traffic controllers because they were on strike demanding better pay and conditions.
 
+## 1990s
+
 1997-01-01 Transportation Secretary Sean Duffy was a reality TV star on MTV’s The Real World and Road Rules.
+
+## 2017 
 
 2017-01-20 During his first term, Trump repeatedly proposed budget cuts to the CDC, OSHA and the NIOSH (National Institute for Occupational Safety and Health).
 
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
+## 2019 
+
 2019-03-12 Trump cut $1B in budget grants to USDOT transit during his first term.
 
 2019-11-01 Sean Duffy was a lobbyist for Partnership for Fair and Open Skies.
+
+## 2025 January 
 
 2025-01-20 Trump froze billions of dollars in federal funding for various infrastructure projects in Rhode Island. 
 
@@ -64,8 +74,9 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-01-30 Trump blamed DEI, Biden, disabilities and Pete Buttigieg for the Potomac place crash, and accused the FAA of not properly vetting its employee pool.
 
-2025-02-01 A medical transport Learjet 55 crashed in Northeast Philadelphia.
+## 2025 February 
 
+2025-02-01 A medical transport Learjet 55 crashed in Northeast Philadelphia.
 
 2025-02-02 A United Airlines plane caught fire before takeoff in Houston.
 
@@ -89,6 +100,8 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-02-27 A helicopter crashed in Uvalde Texas.
 
+## 2025 March 
+
 2025-03-01 A FedEx plane engine fire started after a bird strike in Newark.
 
 2025-03-10 Medical transport helicopter AirCare-3 crashed in Mississippi.
@@ -98,6 +111,8 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2025-03-13 A small plane crashed at Mesquite Texas airport.
 
 2025-03-29 A small plane crashed into a house in Minnesota
+
+## 2025 April 
 
 2025-04-01 The Trump administration announced cuts to the National Institute for Occupational Safety and Health to reduce the workforce from 1400 staff to less than 150. They also dismantled the NIOSH Education and Research Center at Harvard.
 
@@ -111,6 +126,7 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-04-29 The Trump administration terminated a $63.9M Amtrak grant for the Dallas-Houston corridor. 
 
+## 2025 May 
 
 2025-05-01 The Trump administration cut the National Highway Traffic Safety Administration workforce by 25%, cut $10M in funding, and rescinded $78M in supplemental funds for infrastructure.
 
@@ -120,13 +136,19 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-05-22 The Trump administration paused federal EV-charging funds, which the Government Accountability Office concluded violated the Impoundment Control Act. 
 
+## 2025 June 
+
 2025-06-20 Florida Air Traffic Control lost their radar after a fiber optic line was cut.
 
 2025-06-25 An American Airlines plane engine caught fire and had an emergency landing in Las Vegas.
 
+## 2025 July 
+
 2025-07-01 The Trump administration terminated $4BN in unspent federal grants for the California high speed rail. 
 
 2025-07-27 A Boeing plane experienced a brake fire in Denver. 
+
+## 2025 August 
 
 2025-08-24 After a dispute with Maryland Governor Wes Moore, Trump suggested reconsidering federal funding for the Francis Scott Key Bridge and later accused Moore of manipulating crime statistics.
 
@@ -134,9 +156,13 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-08-28 Newark Air Traffic Control experienced yet another outage.
 
+## 2025 September 
+
 2025-09-26 The Trump administration withdrew grants for bike lanes, pedestrian-safety improvements and recreation trails. 
 
 2025-09-30 The Trump administration froze thousands of transportation grants solely for containing climate or equity provisions. 
+
+## 2025 October 
 
 2025-10-01 Two Delta jets were involved in a low-speed collision at the La Guardia taxiway in New York.
 
@@ -148,6 +174,8 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-10-09 Trump suggested some federal employees affected by the shutdown might not get their back pay, “I would say it depends on who we’re talking about. We’re gonna take care of our people, there are some people that really don’t deserve to be taken care of, and we’ll take care of them in a different way”.
 
+## 2025 November
+
 2025-11-04 There was a deadly plane crash in Louisville KY that killed at least 7 people and injured at least 11 more.
 
 2025-11-07 Trump cut 10% of air traffic on 40 major airports.
@@ -156,11 +184,17 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2025-11-19 Department of Transportation Sean Duffy announced a campaign to urge travelers to dress up when flying and be in a better mood.
 
+## 2025 December
+
 2025-12-18 The U.S. government announced some responsibility for the fatal midair collision between an Army helicopter and American Airlines over the Potomac in January.
+
+## 2026 February 
 
 2026-02-11 The Pentagon abruptly shut down El Paso Airport over a mistaken “cartel drone” scare involving a party balloon. First they said the shutdown was due to a “Mexican cartel drone”, then Sean Duffy posted “the threat has been neutralized”.
 
 2026-02-20 Transportation Secretary Sean Duffy announced CDL drivers would have to take their commercial drivers tests in English, citing it would increase safety. 
+
+## 2026 March 
 
 2026-03-17 Trump requested an addition $200B for his elective war in Iran, claiming it, “would be over soon”. Meanwhile hundreds of TSA workers quit their jobs due to no pay while Trump ensured DHS received their paychecks. For contrast, the war in Iraq cost $815B over the course of 13 years. Fast-forward, the US entered a deal with Iran in June to give them $300B for reconstruction.
 
@@ -168,9 +202,13 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2026-03-27 The proposed funding bill by Democrats to fund TSA workers passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.
 
+## 2026 April 
+
 2026-04-03 Trump’s new budget seeks TSA privatization.
 
 2026-04-17 Transportation Secretary Sean Duffy announced he will advocate for a hiring campaign to attract video gamers to become Air Traffic Controllers.
+
+## 2026 May 
 
 2026-05-03 Spirit Airlines liquidated all its assets.
 
@@ -180,7 +218,11 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2026-05-14 A jury in Chicago ordered Boeing to pay nearly $50M in a lawsuit stemming from a fatal crash.
 
+## 2026 June 
+
 2026-06-30 Airline fares climbed 26.5%
+
+## 2026 July 
 
 2026-07-24 A seaplane carrying 11 people crashed off the coast of Washington State. 
 

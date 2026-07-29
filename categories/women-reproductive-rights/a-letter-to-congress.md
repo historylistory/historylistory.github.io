@@ -51,14 +51,19 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ### Chronology.
 
+## 1970s 
 
 1970-01-01 Donald J. Trump has faced numerous sexual assault allegations dating back to the 1970s. 
 
 1973-01-22 Roe v. Wade legalized abortion. 
 
+## 1980s 
+
 1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
 1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
+
+## 1990s 
 
 1992-05-02 Vice President Dan Quayle criticized the TV show Murphy Brown for portraying single motherhood, accusing the show of “mocking the importance of fathers” and citing a lack of values.
 
@@ -66,25 +71,41 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 1998-01-01 Peter Thiel wrote “The purpose of the rape crisis movement seems as much about vilifying men as about raising ‘awareness’.” He also wrote in his book “The Diversity Myth: Multiculturalism and political Intolerance on Campus” that the definition of rape had been expanded to include “seductions that are later regretted”. He later gave a statement to Forbes magazine saying he wish he had never written those things and admitted that rape in all forms is a crime.
 
+## 2000 
+
 2000-01-01 Larry Elder wrote, “Women know less than men about political issues, economics, and current events”.
 
 2001-09-04 Then, in 2001, Larry Elder published “Ten Things You Can’t Say in America” where he wrote, “Smart women simply overlook some boorish behavior by men. Off-color jokes and stupid remarks may be irritating, but a smart woman deals with this”.
 
+## 2001 
+
 2001-09-09 Republicans restricted federal funding for STEM cell research, limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure.
+
+## 2003 
 
 2003-01-01 Janet Porter founded the conservative Christian ministry Faith 2 Action, which was classified as a hate group in 2018. She authored HB493 Ohio “Heartbeat Bill”, claimed gay marriage caused Noah’s floods, and was the director of the Center for Reclaiming America which is a far-right organization bent on returning society to a “biblical worldview”.
 
+## 2006 
+
 2006-10-10 Stephen Miller wrote, “Women’s Studies…seems to be an effort to indoctrinate students in radical feminism”. He wrote a lot of racist stuff too.
+
+## 2012 
 
 2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.
 
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America.
 
+## 2013 
+
 2013-02-28 Multiple GOP members voted against the Violence Against Women Act which was established in 1994.
 
 2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
 
+## 2016 
+
 2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.
+
+## 2017 
 
 2017-01-03 News stories circulated around, “Make America Mate Again”.
 
@@ -92,13 +113,21 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2017-10-01 Larry Elder said on Fox & Friends, “Harvey Weinstein has had now – I think it’s over 30 accusations of sexual assault, including five accusations of rape. Whatever Donald Trump has done is child’s play compared to this”.
 
+## 2018 
+
 2018-10-06 Brett Kavanaugh faced multiple public accusations of sexual assault and misconduct.
 
+## 2019 
+
 2019-01-01 Alt-right women’s magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
+
+## 2020 
 
 2020-01-01 The TradWife movement took off on social media - predominantly among white, conservative women with money.
 
 2020-11-24 Vance said on The Chris Buskirk Show, “There’s just these basic cadences of life that I think are really powerful and really valuable when you have kids in your life. And the fact that so many people, especially in America’s leadership class, just don’t have that in their lives, you know, I worry that it makes people more sociopathic and ultimately our whole country a little bit less…less mentally stable”.
+
+## 2021  
 
 2021-01-01 The author of “It’s Good to Be a Man” wrote, “Men were made to rule. They always have and always will”.
 
@@ -116,6 +145,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2021-11-11 Heritage Foundation’s Scott Yenor said, “Every effort must be made not to recruit women into engineering, but rather to recruit and demand more of men who become engineers. Ditto for med school and the law and every trade…If every Nobel Prize winner is a man, that’s not a failure. It’s kind of a cause for celebration. Why can’t our celebration of male excellence in sports be translated into all facets of life? More successful men will mean more happy citizenry and a stronger nation…Such medicated, quarrelsome, and meddlesome women gain their meaning through the seeming participation in the global project. They are agents of the new world – but not new life. Such women are now the backbone of every left-wing cosmopolitan party in the Western world. From the Greens in Germany to the Democratic party in America. And if our ideal woman is a childless media scold or a barren bureaucratic apparatchik, there is no question whether we can have a future. We can’t. There is a question of whether we deserve one”.
 
+## 2022  
+
 2022-01-01 Andrew Tate started “Hustlers University” and amassed followers of a right-wing anti-feminist pro-patriarchal movement.
 
 2022-06-24 After the Trump administration overturned Roe v. Wade, the ability to ban contraception was returned to the States. This left several health organizations afraid to offer contraception for fear of breaking the law. One Attorney General nominee even compared birth control to fentanyl. 
@@ -132,7 +163,11 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2022-11-21 Elon Musk reinstated Andrew and Tristan Tate social media accounts from which they were previously banned for hate speech. One article explains how the Tate  brothers face charges of rape, human trafficking, trafficking of minors, and sex with a minor. Another article cites comments made by Andrew Tate where he said women should “bear responsibility” for being sexually assaulted.
 
+## 2023 
+
 2023-11-14 Due to anti-abortion laws in Texas Ciji Graham was refused treatment for a severe episode of atrial fibrillation and died. She was pregnant and doctors wouldn’t treat her.
+
+## 2024 
 
 2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
 
@@ -176,6 +211,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-11-25 Porsha Ngumezi died after being refused a life-saving D&C procedure due to anti-abortion laws.
 
+## 2025 January 
+
 2025-01-14 During his confirmation hearing, Pete Hegseth was questioned about sexual assault allegations and a $50,000 settlement payment.
 
 2025-01-20 The Trump administration removed websites offering reproductive health information.
@@ -196,13 +233,19 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2025-01-24 Trump signed an executive order entitled “Enforcing the Hyde Amendment” to dismantle reproductive healthcare, end efforts to protect patient/provider privacy, cease abortion access, block data and research, and stop public education and awareness. 
 
+## 2025 March 
+
 2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website.
 
+## 2025 July 
+
 2025-07-23 Trump forced Muir Woods National Monument to remove displays about Native American history, women, and climate change.
 
 2025-07-30 Christian nationalist pastors and influencers pushed pronatalism, telling women to “have as many babies as you can afford”. As Doug Wilson said, “Women are the kind of people that people come out of”.
+
+## 2025 August 
 
 2025-08-01 The Trump administration banned veterans from accessing abortion care or counseling.
 
@@ -218,6 +261,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2025-08-26 Charlie Kirk said about Taylor Swift, “Reject feminism. Submit to your husband, Taylor. You’re not in charge.”
 
+## 2025 September 
+
 2025-09-08 Charlie Kirk told Laura Ingraham, “Young women, they don’t value having children”, “Young women who voted for Kamala Harris, they want careerism, consumerism, and loneliness”.
 
 2025-09-10 Emma Waters of the Heritage Foundation addressed pro-life views, saying outsourcing IVF could invite birthright citizenship.
@@ -230,15 +275,23 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2025-09-26 A Fox headline read, “appeals court hears Medicaid fraud case that could cost Planned Parenthood $1.8 billion”.
 
+## 2025 October 
+
 2025-10-01 In a Movember Foundation report 60% of young men interact with content from men and masculinity influencers.
+
+## 2025 November 
 
 2025-11-13 A new Gallup survey showed a record number of women want to leave the United States.
 
 2025-11-18 Anti-abortion bill SB323 Unborn Child Protection Act was presented on the Senate floor which aims to make abortions a felony homicide carrying a 30-year prison sentence, make it a felony to share information where to get an abortion, remove exceptions for rape, incest and fatal fetal abnormalities, and reclassify birth control pills, IUDs and IVF illegal.
 
+## 2025 December
+
 2025-12-17 During a confirmation hearing Justin Olson was asked to explain his former statements that disabled people should not marry and that wives should be subject to their husbands. He stated, “I was describing our church’s understanding of what Christian marriage ought to look like”.
 
 2025-12-26 Karoline Leavitt announced she’s pregnant.
+
+## 2026 January 
 
 2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
@@ -247,6 +300,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-01-14 The Heritage Foundation Project 2026 agenda plans eliminate no-fault divorce, removing agency and rights to leave an abusive or unwanted marriage. Their website reads, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”, “These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home”.
 
 2026-01-22 Republicans banned the use of fetal tissue in research, further limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure
+
+## 2026 February 
 
 2026-02-02 Texas A&M cut Women’s Studies due to policy on race and gender topics.
 
@@ -262,6 +317,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-02-25 Reports show the current global population is over 8 billion, compared to 1.4 billion in 1900.
 
+## 2026 March 
+
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.
 
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat. It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
@@ -270,11 +327,15 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, and Chief of Staff Ricky Buria allegedly told Army Secretary Daniel Driscoll not to assign Major General Antoinette R. Gant command of the Military District of Washington because President Trump wouldn’t want to stand next to a Black female officer at events.
 
+## 2026 April 
+
 2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg.
 
 2026-04-09 Melania Trump called for a surprise press conference to address so-called rumors about the Epstein files, where she claimed she had no knowledge of Epstein’s abuses.
 
 2026-04-16 An online “rape academy” was exposed by CNN where abusers feature sleeping or medically incapacitated women and unthinkable acts. Most of the victims are married, and the abusers are their own husbands.
+
+## 2026 May 
 
 2026-05-02 The Supreme Court banned, then temporarily lifted the ban on, mifepristone.
 
@@ -288,15 +349,18 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-05-15 Jesse Watters said on The Five, “I did some research on the Blacks – as Judge Janine so eloquently would say – um. The solution to Hakeem’s problem, the (ske?) Obama, is baby making. Blacks for 150 years have only represented 10 to 15% of the American population. Okay? That’s not that much. So, if they wanna have more seats, they gotta get in between the sheets. Spanish – they’re comin’ North, they’re havin’ tons of kids, and at this point they have the same – almost – the same amount of house seats as Blacks! The Hispanic caucus is almost as big as the – the Black caucus. So, if you guys need to solve that problem you know what you need to do”.
 
+## 2026 June 
+
 2026-06-02 Hegseth again struck several female and Black Navy officers from a promotion list. This list was released by the Pentagon May 22. He did this in March to the Army
 
 2026-06-10 The Southern Baptist Convention voted to formally ban women from serving as pastors.
 
 2026-06-22 Texas resident Lynn Callaway was denied critical medical care during a miscarriage due to anti-abortion laws.
 
+## 2026 July 
+
 2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
 
 2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
-
 
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
