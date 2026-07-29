@@ -103,3 +103,12 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 [https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/](https://www.reuters.com/world/ontario-buy-new-11-new-aircraft-very-difficult-wildfire-fight-2026-07-17/)
 
+2026-07-24 Canada didn’t invite the US to the opening ceremony of the Gordie Howe International Bridge after Trump announced a 50% tariff on Canadian goods. 
+
+[https://www.youtube.com/watch?v=JkYpuYoFeI4](https://www.youtube.com/watch?v=JkYpuYoFeI4)
+
+[https://www.nbcnews.com/world/canada/canada-cancels-joint-bridge-celebration-us-citing-trump-trade-threats-rcna588665](https://www.nbcnews.com/world/canada/canada-cancels-joint-bridge-celebration-us-citing-trump-trade-threats-rcna588665)
+
+[https://www.reuters.com/business/canada-mark-gordie-howe-bridge-opening-without-us-after-trade-war-deepens-2026-07-24/](https://www.reuters.com/business/canada-mark-gordie-howe-bridge-opening-without-us-after-trade-war-deepens-2026-07-24/)
+
+[https://www.cbc.ca/news/canada/windsor/livestory/gordie-howe-international-bridge-2026-live-updates-9.7172299](https://www.cbc.ca/news/canada/windsor/livestory/gordie-howe-international-bridge-2026-live-updates-9.7172299)

@@ -256,15 +256,18 @@ permalink: /links/
 ---
 
 
-[LGBTQ: ACLU Legislation Tracker for LGBTQ Rights](https://www.aclu.org/legislative-attacks-on-lgbtq-rights-2026)
+[LGBTQ: ACLU Legislation Tracker for Attacks on LGBTQ Rights](https://www.aclu.org/legislative-attacks-on-lgbtq-rights-2026)
 
-[LGBTQ: Gender Affirming Care Tracker](https://www.hrc.org/resources/attacks-on-gender-affirming-care-by-state-map)
+[LGBTQ: Attacks on Gender Affirming Care Tracker](https://www.hrc.org/resources/attacks-on-gender-affirming-care-by-state-map)
 
 [LGBTQ: TransLegislation.com Legislation Tracker](https://translegislation.com/)
 
 [LGBTQ: The Trevor Project](https://www.thetrevorproject.org/)
 
 [LGBTQ: Advocate.com](https://www.advocate.com/)
+
+[LGBTQ: Transequality.org](https://transequality.org/)
+
 ---
 
 
