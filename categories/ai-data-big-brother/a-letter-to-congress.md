@@ -458,6 +458,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-07-27 Anthropic became the third AI company whose chatbot conversations with users became accessible in Google search results in 2025. In 2026 the problem continued with Claude. 
 
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
 
 
 

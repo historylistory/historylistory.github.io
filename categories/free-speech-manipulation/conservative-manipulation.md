@@ -504,3 +504,11 @@ TIMESTAMP 10:50 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtub
 [https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america](https://investor.salemmedia.com/news-events/press-releases/detail/926/salem-media-partners-with-compel-studios-to-release-by-dawns-early-light-powerful-new-documentary-on-faith-and-the-future-of-america)
 
 [https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center](https://www.jamesmadisoncenter.org/james-madison-center-for-free-speech-to-host-premiere-of-the-documentary-film-by-dawn-s-early-light-at-trump-kennedy-center)
+
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+[https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza](https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza)
+
+[https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
+
+[https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)

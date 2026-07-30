@@ -560,3 +560,9 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/](https://www.reuters.com/legal/government/trump-spy-nominee-clayton-will-not-directly-say-biden-won-2020-election-2026-07-15/)
 
 [https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020](https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020)
+
+2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
+
+[https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/](https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/)
+
+[https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination](https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination)

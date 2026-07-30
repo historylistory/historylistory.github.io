@@ -765,4 +765,9 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 
 [https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/](https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/)
 
+2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
+
+[https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/](https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/)
+
+[https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination](https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination)
 

@@ -126,3 +126,10 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 [https://www.tomsguide.com/computing/dlss-5-is-fully-controllable-from-the-developer-nvidias-upscaler-might-be-better-than-expected](https://www.tomsguide.com/computing/dlss-5-is-fully-controllable-from-the-developer-nvidias-upscaler-might-be-better-than-expected)
 
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+[https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza](https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza)
+
+[https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
+
+[https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)

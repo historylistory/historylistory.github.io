@@ -426,3 +426,11 @@ SUB WALL [https://www.nytimes.com/2026/06/27/us/politics/watergate-vance-trump-n
 [https://www.jpost.com/american-politics/article-898426](https://www.jpost.com/american-politics/article-898426)
 
 HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
+
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+[https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza](https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza)
+
+[https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
+
+[https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)

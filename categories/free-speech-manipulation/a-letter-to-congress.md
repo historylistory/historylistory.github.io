@@ -511,3 +511,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-07-23 The Trump administration’s Republican led House Ways and Means Committee issued subpoenas for phone records from not just Breakthrough News, but also from The People’s Forum, and Tricontinental Institute for Social Research. 
 
 2026-07-24 The Trump administration withdrew subpoenas for New York Times journalists’ phone records. This came after a stern reprimand from a judge. 
+
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 

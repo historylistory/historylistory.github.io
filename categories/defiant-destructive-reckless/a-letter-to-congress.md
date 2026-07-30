@@ -473,3 +473,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 
 
 2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 
+
+2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 

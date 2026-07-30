@@ -400,3 +400,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-07-17 A senior Iranian official told Drop Site News that Jared Kushner and Steve Witcoff were interested in exploiting insider knowledge than reaching a ceasefire negotiation. 
 
 2026-07-17 Trump Media pitched a $100,000 monthly fee for access to the fastest feed of the President’s posts. The ethics question is whether this is admission by Trump he is using his position to both manipulate market moves and make a profit. 
+
+2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 

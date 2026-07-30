@@ -469,3 +469,10 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 
 [https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000](https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000)
 
+2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+[https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza](https://www.dropsitenews.com/p/israel-brad-parscale-ai-chatbots-gaza)
+
+[https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
+
+[https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)

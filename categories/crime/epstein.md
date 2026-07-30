@@ -499,3 +499,9 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.youtube.com/watch?v=tiY_uW6wW4w&list=WL&index=6&t=29s](https://www.youtube.com/watch?v=tiY_uW6wW4w&list=WL&index=6&t=29s)
 
 [https://www.bbc.com/news/articles/cp8en38vpd3o](https://www.bbc.com/news/articles/cp8en38vpd3o)
+
+2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
+
+[https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/](https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/)
+
+[https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination](https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination)
