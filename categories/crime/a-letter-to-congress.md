@@ -224,6 +224,10 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-01-20 Trump issued a blanket pardon for nearly 1,600 January 6 defendants, including some individuals with severe sexual-crime histories involving minors. RECOMMEND THIS VIDEO AND VIEWER DISCRETION (the child assault and rape charges are disturbing). Many of the insurrectionists included Proud Boys and Oath Keeper militia members who he called them “hostages”. He pardoned several convicted of sedition including founder of the Oath Keeper militia Stuart Rhodes, and 600 people charged with assaulting law enforcement. Insurrectionists used shields, poles, and cattle prods.
 
+2025-01-20 Trump pardoned Andrew Paul Johnson who was arrested in Florida for sexual abuse of a child. 
+
+2025-01-20 Trump pardoned Theodore Middendorf, who was sentenced to 19 years in 2024 for criminal sexual assault of a child. 
+
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 2025-01-23 Representative Andy Ogles introduced a constitutional amendment allowing a third presidential term.
@@ -237,6 +241,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: "Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 ## 2025 February 
+
+2025-02-06 Trump pardoned Andrew Taake, who was a fugitive on child sex charges. 
 
 2025-02-09 JD Vance claimed on social media that judges cannot direct the executive branch's legitimate exercise of power, “If a judge tried to tell a general how to conduct a military operation, that would be illegal. If a judge tried to command the attorney general in how to use her discretion as a prosecutor, that’s also illegal. Judges aren’t allowed to control the executive’s legitimate power”.
 
@@ -315,6 +321,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2025-07-15 Charlie Kirk initially urged the Trump administration to release the Epstein files, then announced he was done discussing the issue.
 
 2025-07-16 Several senators proposed the Presidential Library Anti-Corruption Act to prevent presidents from using their presidential library as a tool for corruption and bribery.
+
+2025-07-16 Trump pardoned Kyle Colton who was convicted of child pornography. 
 
 2025-07-17 The White House released a 2-page memo stating that the Epstein case was closed because there were no lists and that they “did not uncover evidence that would predicate charges against uncharged third parties”.
 
@@ -574,6 +582,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-04-14 Two members of Congress resigned, and two others faced expulsion proceedings in an unprecedented series of ethics scandals. Eric Swalwell resigned amid sexual-assault allegations, while Tony Gonzales resigned after acknowledging an affair with an aide who later died by suicide.
 
 2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
+
+2026-04-14 Trump pardoned David Daniel who was involved in a child exploitation case. 
 
 2026-04-16 House Democrats introduced articles of impeachment against Pete Hegseth for high crimes.
 

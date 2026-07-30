@@ -67,6 +67,16 @@ DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.you
 
 {% include youtubePlayer.html id="n_S5sYC1nKw" %}
 
+2025-01-20 Trump pardoned Andrew Paul Johnson who was arrested in Florida for sexual abuse of a child. 
+
+[https://www.nbcnews.com/politics/justice-department/jan-6-rioter-pardoned-trump-jan-6-case-gets-life-sentence-child-sex-cr-rcna261963](https://www.nbcnews.com/politics/justice-department/jan-6-rioter-pardoned-trump-jan-6-case-gets-life-sentence-child-sex-cr-rcna261963)
+
+2025-01-20 Trump pardoned Theodore Middendorf, who was sentenced to 19 years in 2024 for criminal sexual assault of a child. 
+
+[https://www.congress.gov/119/meeting/house/119311/documents/HHRG-119-JU00-20260520-SD033.pdf](https://www.congress.gov/119/meeting/house/119311/documents/HHRG-119-JU00-20260520-SD033.pdf)
+
+[https://www.npr.org/2025/01/30/nx-s1-5276336/donald-trump-jan-6-rape-assault-pardons-rioters](https://www.npr.org/2025/01/30/nx-s1-5276336/donald-trump-jan-6-rape-assault-pardons-rioters)
+
 
 2025-01-23 Trump pardoned two D.C. police officers convicted in a fatal crash.
 
@@ -81,6 +91,11 @@ DISTURBING CONTENT [https://www.youtube.com/watch?v=n_S5sYC1nKw](https://www.you
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
 
 
+### 2025 February
+
+2025-02-06 Trump pardoned Andrew Taake, who was a fugitive on child sex charges. 
+
+[https://www.texastribune.org/2025/02/06/arrest-trump-pardon-insurrection/](https://www.texastribune.org/2025/02/06/arrest-trump-pardon-insurrection/)
 
 
 
@@ -136,6 +151,7 @@ PAY WALL [https://www.nytimes.com/2026/03/31/opinion/trump-jan-6-pardons-crimes-
 
 [https://www.cbsnews.com/newyork/news/new-york-city-eric-adams-corruption-case-department-of-justice-brad-lander/](https://www.cbsnews.com/newyork/news/new-york-city-eric-adams-corruption-case-department-of-justice-brad-lander/)
 
+
 2025-04-23 Trump pardoned Michele Fiore who was convicted of $70M in charity fraud.
 
 [https://www.justice.gov/pardon/media/1397926/dl?inline](https://www.justice.gov/pardon/media/1397926/dl?inline)
@@ -176,6 +192,13 @@ PAY WALL [https://www.wsj.com/politics/policy/white-house-explores-250-pardons-t
 
 [https://www.justice.gov/pardon/media/1402041/dl?inline](https://www.justice.gov/pardon/media/1402041/dl?inline)
 
+### 2025 July
+
+2025-07-16 Trump pardoned Kyle Colton who was convicted of child pornography. 
+
+[https://www.kcra.com/article/man-pardoned-by-trump-convicted-child-pornography/65432041](https://www.kcra.com/article/man-pardoned-by-trump-convicted-child-pornography/65432041)
+
+[https://www.cbsnews.com/sacramento/news/california-man-pardoned-for-jan-6-riot-convicted-of-receiving-child-porn/](https://www.cbsnews.com/sacramento/news/california-man-pardoned-for-jan-6-riot-convicted-of-receiving-child-porn/)
 
 ### 2025 August
 
@@ -387,6 +410,11 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+2026-04-14 Trump pardoned David Daniel who was involved in a child exploitation case. 
+
+[https://www.nbcnews.com/politics/justice-department/another-pardoned-jan-6-rioter-admit-guilt-child-sexual-abuse-case-rcna331841](https://www.nbcnews.com/politics/justice-department/another-pardoned-jan-6-rioter-admit-guilt-child-sexual-abuse-case-rcna331841)
+
 
 ### 2026 May
 
