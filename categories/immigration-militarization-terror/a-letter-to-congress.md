@@ -56,6 +56,9 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 1942-01-01 America built Japanese internment camps. 
 
+1946-06-14 Trump’s mother was an immigrant, and his father was born in the U.S. to immigrants. 
+
+
 ## 1990s 
 
 1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square.

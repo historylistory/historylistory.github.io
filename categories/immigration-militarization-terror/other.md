@@ -6,6 +6,15 @@ subcategory_slug: other
 permalink: /categories/immigration-militarization-terror/other/
 ---
 
+### 1946 
+
+1946-06-14 Trump’s mother was an immigrant, and his father was born in the U.S. to immigrants. 
+
+[https://www.history.com/articles/donald-trump-father-mother-ancestry](https://www.history.com/articles/donald-trump-father-mother-ancestry)
+
+[https://www.bbc.com/news/world-us-canada-45731931](https://www.bbc.com/news/world-us-canada-45731931)
+
+
 ### 2025
 
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”

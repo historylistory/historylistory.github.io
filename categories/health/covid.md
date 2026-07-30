@@ -222,5 +222,7 @@ Great Barrington Declaration links:
 
 [https://www.pbs.org/newshour/politics/watch-sen-paul-says-he-will-hold-a-contempt-vote-after-fauci-invokes-5th-amendment](https://www.pbs.org/newshour/politics/watch-sen-paul-says-he-will-hold-a-contempt-vote-after-fauci-invokes-5th-amendment)
 
+A LONG RUNNING FEUD [https://www.youtube.com/shorts/IAVtyQiuGMA](https://www.youtube.com/shorts/IAVtyQiuGMA)
+
 
 
