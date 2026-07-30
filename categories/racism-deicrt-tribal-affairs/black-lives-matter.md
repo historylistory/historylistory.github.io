@@ -130,3 +130,14 @@ TIMESTAMP 9:00 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=62
 [https://wisconsinexaminer.com/briefs/madison-police-kill-man-in-broad-daylight-in-front-of-witnesses/](https://wisconsinexaminer.com/briefs/madison-police-kill-man-in-broad-daylight-in-front-of-witnesses/)
 
 [https://www.nbcnews.com/news/us-news/madison-wisconsin-police-shooting-corey-ruiz-rcna588925](https://www.nbcnews.com/news/us-news/madison-wisconsin-police-shooting-corey-ruiz-rcna588925)
+
+2026-07-27 Austin PD fatally shot an unarmed Black teenager while responding to a call. 
+
+[https://www.austintexas.gov/police/news/update-officer-involved-shooting-10100-block-baden-lane](https://www.austintexas.gov/police/news/update-officer-involved-shooting-10100-block-baden-lane)
+
+[https://edition.cnn.com/2026/07/30/us/video/police-fatally-shoot-black-teen-after-responding-to-911-call-vrtc](https://edition.cnn.com/2026/07/30/us/video/police-fatally-shoot-black-teen-after-responding-to-911-call-vrtc)
+
+[https://www.axios.com/local/austin/2026/07/27/austin-police-shooting-scrutiny](https://www.axios.com/local/austin/2026/07/27/austin-police-shooting-scrutiny)
+
+BODYCAM [https://www.youtube.com/watch?v=k0KJSznlHnw&list=PLOvCzdPzyQdI&index=4](https://www.youtube.com/watch?v=k0KJSznlHnw&list=PLOvCzdPzyQdI&index=4)
+

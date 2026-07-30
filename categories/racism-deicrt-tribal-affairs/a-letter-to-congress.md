@@ -763,3 +763,5 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-07-22 Protests erupted in Madison Wisconsin after police killed a Black man. 
 
 2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
+
+2026-07-27 Austin PD fatally shot an unarmed Black teenager while responding to a call. 
