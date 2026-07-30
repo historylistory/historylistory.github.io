@@ -33,6 +33,13 @@ Pass-Through Entities: Business owners use S-corporations or LLCs to push profit
 
 **Offshore Accounts:** Deferral of earnings, bypassing the Foreign Account Tax Compliance Act, transferring patents or trademarks to offshore subsidiaries at low costs then licensing them back to the US parent at a high cost (this generates large tax-deductible expenses), using IRS Form 8832 to make the entity “disappear” for tax purposes. This is legal except if it’s used to hide income (which is tax evasion). 
 
+
+### Educate 
+
+Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Union. Large companies like Kroger and Walmart hire employees at just below hours required to pay them benefits, expect the government to subsidize their employees’ food and health costs, then expect those same employees to turn around and spend those subsidies within their stores. Trillion-dollar companies are the ones guilty of taking advantage of SNAP, Medicare, and workers. 
+
+[https://www.youtube.com/watch?v=VKRLZk98EOg](https://www.youtube.com/watch?v=VKRLZk98EOg)
+
 ### 2017
 
 2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 

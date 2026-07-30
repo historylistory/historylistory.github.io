@@ -6,6 +6,7 @@ subcategory_slug: food
 permalink: /categories/health/food/
 ---
 
+
 ### 2014
 
 2014-06-24 The GOP repeatedly attacked Michelle Obama for her efforts to introduce a nutrition program in schools that leaned heavily towards fresh fruits and vegetables.

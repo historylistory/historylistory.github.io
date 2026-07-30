@@ -20,6 +20,13 @@ permalink: /categories/economy-labor-poverty/food-prices/
 
 [https://www.justice.gov/opa/pr/statement-revocation-biden-harris-executive-order-competition](https://www.justice.gov/opa/pr/statement-revocation-biden-harris-executive-order-competition)
 
+
+### Educate 
+
+Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Union. Large companies like Kroger and Walmart hire employees at just below hours required to pay them benefits, expect the government to subsidize their employees’ food and health costs, then expect those same employees to turn around and spend those subsidies within their stores. Trillion-dollar companies are the ones guilty of taking advantage of SNAP, Medicare, and workers. 
+
+[https://www.youtube.com/watch?v=VKRLZk98EOg](https://www.youtube.com/watch?v=VKRLZk98EOg)
+
 ### 1996 
 
 1996-06-06 Antitrust Enforcement in the Meat Packing Industry (archived DOJ document)

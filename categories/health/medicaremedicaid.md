@@ -6,6 +6,13 @@ subcategory_slug: medicaremedicaid
 permalink: /categories/health/medicaremedicaid/
 ---
 
+
+### Educate 
+
+Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Union. Large companies like Kroger and Walmart hire employees at just below hours required to pay them benefits, expect the government to subsidize their employees’ food and health costs, then expect those same employees to turn around and spend those subsidies within their stores. Trillion-dollar companies are the ones guilty of taking advantage of SNAP, Medicare, and workers. 
+
+[https://www.youtube.com/watch?v=VKRLZk98EOg](https://www.youtube.com/watch?v=VKRLZk98EOg)
+
 ### 2023
 
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
