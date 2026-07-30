@@ -132,3 +132,10 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 [https://time.com/article/2026/07/22/medicaid-california-minnesota-fraud-newsom-walz-trump/](https://time.com/article/2026/07/22/medicaid-california-minnesota-fraud-newsom-walz-trump/)
 
 [https://www.healthcaredive.com/news/minnesota-california-1-billion-medicaid-funding-deferred-fraud-trump-hhs/825802/](https://www.healthcaredive.com/news/minnesota-california-1-billion-medicaid-funding-deferred-fraud-trump-hhs/825802/)
+
+2026-07-29 The Trump administration announced it will be ending a Medicare part D subsidy in 2027. 
+
+[https://apnews.com/article/medicare-drug-subsidy-trump-biden-insurance-3d3fdb43b1bf374a1a168506fded86c0](https://apnews.com/article/medicare-drug-subsidy-trump-biden-insurance-3d3fdb43b1bf374a1a168506fded86c0)
+
+[https://abcnews.com/Health/trump-administration-end-medicare-part-subsidy-program-2027/story?id=135176506](https://abcnews.com/Health/trump-administration-end-medicare-part-subsidy-program-2027/story?id=135176506)
+

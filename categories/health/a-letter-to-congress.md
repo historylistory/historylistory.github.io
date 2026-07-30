@@ -606,3 +606,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-07-29 Anthony Fauci invoked the 5th Amendment not to answer questions at the GOP-led COVID hearing.
 
+2026-07-29 The Trump administration announced it will be ending a Medicare part D subsidy in 2027. 
+
