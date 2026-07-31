@@ -2048,3 +2048,12 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://x.com/foxandfriends/status/2082441121368604811](https://x.com/foxandfriends/status/2082441121368604811)
 
 [https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989](https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989)
+
+2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 
+
+[https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10](https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10)
+
+[https://www.bbc.com/news/articles/cvgwe2qpgq1o](https://www.bbc.com/news/articles/cvgwe2qpgq1o)
+
+[https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea](https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea)
+

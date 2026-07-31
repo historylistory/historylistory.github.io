@@ -339,6 +339,13 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 ### 2026 May
 
+2026-05-04 Nick Fuentes said during a Fresh and Fit podcast, “We already live in Mogadishu. We already live in Islamabad. Have you been outside LA, Chicago, New York? We live in n-word hell”. 
+
+[https://www.youtube.com/watch?v=QcAdG06_Dic&list=WL&index=7](https://www.youtube.com/watch?v=QcAdG06_Dic&list=WL&index=7)
+
+[https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks](https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks)
+
+
 2026-05-21 Applications opened for a $1.8 billion compensation fund benefiting January 6 defendants and other Trump allies, including Enrique Tarrio, Mike Lindell, George Santos, Rod Blagojevich, and Adam Johnson.
 
 [https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3](https://www.youtube.com/watch?v=cZiPuCeWa6A&list=WL&index=3)

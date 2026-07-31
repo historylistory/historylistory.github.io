@@ -298,6 +298,13 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 July
 
+2026-07-01 Nick Fuentes said, “Islam is not right about a lot of things, but it is right about women should really not be allowed to travel by themselves, cuz, what are you travelling for? What is a girl going to college for”, “Freedom of movement should not exist for women”.  
+
+[https://www.youtube.com/watch?v=zMTR46fiBK4&list=WL&index=8](https://www.youtube.com/watch?v=zMTR46fiBK4&list=WL&index=8)
+
+[https://www.peoplefor.org/rightwingwatch/nick-fuentes-says-women-should-not-be-able-go-college-or-travel-alone](https://www.peoplefor.org/rightwingwatch/nick-fuentes-says-women-should-not-be-able-go-college-or-travel-alone)
+
+
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
 
 THE CLIP [https://www.youtube.com/watch?v=sK6tA74tOaE](https://www.youtube.com/watch?v=sK6tA74tOaE)

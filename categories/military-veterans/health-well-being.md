@@ -89,6 +89,17 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 ### 2026 July
 
+2026-07-06 The Take Care of America’s Veterans Act HR 9237/S.4744 sparked division between veterans’ groups on the best path forward. 
+
+[https://www.youtube.com/watch?v=1gwiBUavSJs&list=WL&index=11&t=30s](https://www.youtube.com/watch?v=1gwiBUavSJs&list=WL&index=11&t=30s)
+
+[https://pva.org/news-and-media-center/recent-news/pva-issues-statement-in-response-to-the-take-care-of-americas-veterans-act/](https://pva.org/news-and-media-center/recent-news/pva-issues-statement-in-response-to-the-take-care-of-americas-veterans-act/)
+
+[https://www.politico.com/news/2026/07/15/house-take-care-veterans-act-00999260](https://www.politico.com/news/2026/07/15/house-take-care-veterans-act-00999260)
+
+[https://www.stripes.com/veterans/2026-07-06/take-care-of-americas-veterans-act-22193190.html](https://www.stripes.com/veterans/2026-07-06/take-care-of-americas-veterans-act-22193190.html)
+
+
 2026-07-15 Hegseth announced a new policy to test troops for low testosterone. 
 
 [https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383](https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383)

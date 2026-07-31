@@ -271,3 +271,10 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
 
 [https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)
+
+2026-07-30 Democrats called for an ethics investigation into Max Miller for domestic abuse allegations. 
+
+[https://www.motherjones.com/politics/2026/07/democrats-call-for-ethics-investigation-into-congressman-max-miller/](https://www.motherjones.com/politics/2026/07/democrats-call-for-ethics-investigation-into-congressman-max-miller/)
+
+[https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations](https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations)
+

@@ -88,3 +88,10 @@ permalink: /categories/foreign-affairs-isolation/global-security/
 
 [https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020](https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020)
 
+2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 
+
+[https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10](https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10)
+
+[https://www.bbc.com/news/articles/cvgwe2qpgq1o](https://www.bbc.com/news/articles/cvgwe2qpgq1o)
+
+[https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea](https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea)

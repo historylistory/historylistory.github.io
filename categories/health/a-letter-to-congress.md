@@ -608,3 +608,4 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-07-29 The Trump administration announced it will be ending a Medicare part D subsidy in 2027. 
 
+2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 

@@ -257,3 +257,10 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s](https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s)
 
+2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 
+
+[https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10](https://www.youtube.com/watch?v=JFnHlghq_Rs&list=WL&index=10)
+
+[https://www.bbc.com/news/articles/cvgwe2qpgq1o](https://www.bbc.com/news/articles/cvgwe2qpgq1o)
+
+[https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea](https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea)

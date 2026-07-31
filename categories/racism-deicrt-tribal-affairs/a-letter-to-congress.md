@@ -692,6 +692,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-05-04 Mississippi and Florida called a special session to redraw state districting maps to gain favor with Republicans and disenfranchise Black voters.
 
+2026-05-04 Nick Fuentes said during a Fresh and Fit podcast, “We already live in Mogadishu. We already live in Islamabad. Have you been outside LA, Chicago, New York? We live in n-word hell”. 
+
 2026-05-05 Even after Louisiana received more than 42,000 absentee ballots the governor declared a state of emergency and suspended the election so new maps could be drawn. The new map eliminated one of two majority Black districts.
 
 2026-05-06 After Tennessee divided up Memphis into three districts, Tennessee Republicans insisted they were unaware they were disenfranchising Black voters. When Senator Lamar asked Senator Stevens if he was aware that Memphis is predominantly African American, he said he was not aware.

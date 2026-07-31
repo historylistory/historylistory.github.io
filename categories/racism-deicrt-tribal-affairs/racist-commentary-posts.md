@@ -600,6 +600,12 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 ### 2026 May
 
+2026-05-04 Nick Fuentes said during a Fresh and Fit podcast, “We already live in Mogadishu. We already live in Islamabad. Have you been outside LA, Chicago, New York? We live in n-word hell”. 
+
+[https://www.youtube.com/watch?v=QcAdG06_Dic&list=WL&index=7](https://www.youtube.com/watch?v=QcAdG06_Dic&list=WL&index=7)
+
+[https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks](https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks)
+
 2026-05-06 Headline “The Rise of Anti-Muslim Policies and Rhetoric in Texas”.
 
 [https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)

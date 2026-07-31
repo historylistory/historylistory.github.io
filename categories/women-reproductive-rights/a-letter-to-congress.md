@@ -323,6 +323,9 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ## 2026 March 
 
+2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
+
+
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.
 
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat. It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
@@ -347,6 +350,9 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ## 2026 May 
 
+2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 
+
+
 2026-05-02 The Supreme Court banned, then temporarily lifted the ban on, mifepristone.
 
 2026-05-03 The anti-abortion movement turned on Trump, with its president Marjorie Dannenfelser saying, “Trump is the problem. The president is the problem”. Meanwhile abortion rates soared after overturning Roe v Wade.
@@ -369,8 +375,12 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ## 2026 July 
 
+2026-07-01 Nick Fuentes said, “Islam is not right about a lot of things, but it is right about women should really not be allowed to travel by themselves, cuz, what are you travelling for? What is a girl going to college for”, “Freedom of movement should not exist for women”.  
+
 2026-07-18 After Hegseth ordered testosterone testing for servicemembers, Jesse Watters of Fox, “You know what’s going to happen? The guys that don’t need it are gonna take it to triple boost, and then they’re gonna get out there, and women on base YOU GUYS BETTER BE CAREFUL. Port calls? Women in Asia? You better be careful, because these guys are gonna be wild animals and you better WATCH OUT”. 
 
 2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
 
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
+
+2026-07-30 Democrats called for an ethics investigation into Max Miller for domestic abuse allegations. 

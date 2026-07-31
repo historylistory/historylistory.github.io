@@ -771,3 +771,9 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 
 [https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination](https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination)
 
+2026-07-30 Democrats called for an ethics investigation into Max Miller for domestic abuse allegations. 
+
+[https://www.motherjones.com/politics/2026/07/democrats-call-for-ethics-investigation-into-congressman-max-miller/](https://www.motherjones.com/politics/2026/07/democrats-call-for-ethics-investigation-into-congressman-max-miller/)
+
+[https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations](https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations)
+
