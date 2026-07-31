@@ -199,6 +199,12 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 [https://www.heritage.org/sites/default/files/2026-01/SR323.pdf](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
 
+2026-01-15 Joel Webbon said, “Wives, submit to your husbands in everything. Everything is what the Bible teaches. And it is a sense of fear and trembling and awe is the disposition of deference that the wife is to maintain towards her husband as she seeks to submit to him as the church submits to Christ…” and so on. 
+
+[https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2](https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe)
+
 ### 2026 February
 
 2026-02-03 During a press conference Trump told CNN reporter Kaitlan Collins she should smile more and called her the “worst reporter” while she was asking about the Epstein files.
@@ -217,6 +223,13 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 [https://www.wonkette.com/p/elon-musk-agrees-saving-the-country](https://www.wonkette.com/p/elon-musk-agrees-saving-the-country)
 
+2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
+
+[https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4](https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4)
+
+[https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms](https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms)
+
+
 2026-02-22 In the wake of the men’s hockey team victory, conservative commentators on Fox referred to the Canadian team as “communists”, with one saying, “Gotta go all the way back to 1980 when we defeated the Soviets. This felt just as sweet because I guess since we don’t have Russia to kick around anymore, Canada will do” and another saying, “They’re practically communists, and they’re cozying up to the Chinese. Benny Johnson said, “Masculinity and celebration – these are things that, like, have been completely and totally sanitized from our arch-feminist culture, our estrogen-etic culture”.
 
 [https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026#:~:text=Jack%20Hughes%20is%20the%20poster,at%20Santaguilia%20Arena%20on%20Sunday](https://www.nhl.com/news/united-states-canada-2026-olympics-gold-medal-game-recap-february-22-2026).
@@ -225,6 +238,15 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 ### 2026 March
 
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
+[https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5](https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people)
+
+[https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should](https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should)
+
+
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”. 
 
 [https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/](https://www.mediaite.com/politics/theyre-cutting-their-dcks-off-benny-johnson-tells-cpac-crowd-they-need-to-out-breed-the-left-to-win-culture-war/)
@@ -232,6 +254,24 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 [https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp](https://www.themirror.com/news/us-news/maga-outbreed-left-wing-babies-1760769.amp)
 
 [https://www.youtube.com/watch?v=3wShzNx6RVg](https://www.youtube.com/watch?v=3wShzNx6RVg)
+
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
+[https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6](https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut](https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut)
+
+[https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)
+
+### 2026 April
+
+2026-04-03 Dale Partridge said, “One of America’s biggest threats is white liberal women because they are the ones, literally, opening up the doors of immigration, passing laws that degenerate society, releasing criminals to be repeat offenders, aborting babies by the hundreds of thousands of millions. It’s why I really believe that we must, as a nation, repeal the 19th Amendment”. 
+
+[https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9](https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9)
+
+[https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women](https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women)
+
+[https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/](https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/)
 
 ### 2026 June
 

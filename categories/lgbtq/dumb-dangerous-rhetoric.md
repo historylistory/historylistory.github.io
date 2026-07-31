@@ -207,6 +207,14 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 [https://www.youtube.com/watch?v=VC1NnYeQda8](https://www.youtube.com/watch?v=VC1NnYeQda8)
 {% include youtubePlayer.html id="VC1NnYeQda8" %}
 
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
+[https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5](https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people)
+
+[https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should](https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should)
+
 ### 2026 April
 
 2026-04-01 The Chicago Bulls cut ties with Jaden Ivey for expressing anti-LGBTQ views. After Ivey’s separation, TreVeyon Henderson posted, “Blessed are those who are persecuted for righteousness’ sake, For theirs is the kingdom of heaven.” – Matthew 5:10.

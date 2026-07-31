@@ -65,3 +65,18 @@ permalink: /categories/women-reproductive-rights/marriage/
 
 [https://www.heritage.org/sites/default/files/2026-01/SR323.pdf](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
 
+2026-01-15 Joel Webbon said, “Wives, submit to your husbands in everything. Everything is what the Bible teaches. And it is a sense of fear and trembling and awe is the disposition of deference that the wife is to maintain towards her husband as she seeks to submit to him as the church submits to Christ…” and so on. 
+
+[https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2](https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe)
+
+### 2026 March
+
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
+[https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6](https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut](https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut)
+
+[https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)

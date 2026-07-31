@@ -46,6 +46,13 @@ permalink: /categories/religion/christian-nationalism/
 
 ### 2025 January
 
+2026-01-12 Christian Nationalist pastor Dale Partridge said freedom of religion is “a really bad idea”. 
+
+[https://www.youtube.com/watch?v=4v_iZ8Llu6I&list=WL&index=1](https://www.youtube.com/watch?v=4v_iZ8Llu6I&list=WL&index=1)
+
+[https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-dale-partridge-says-freedom-religion-really-bad-idea](https://www.peoplefor.org/rightwingwatch/christian-nationalist-pastor-dale-partridge-says-freedom-religion-really-bad-idea)
+
+
 2025-01-20 Project 2025 page 589 mandates additional pay in observance of Sundays but completely bypasses all other religious observances. If you do for one, you must do for everybody.
 
 [https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf](https://static.heritage.org/project2025/2025_MandateForLeadership_FULL.pdf)
@@ -96,6 +103,14 @@ permalink: /categories/religion/christian-nationalism/
 [https://www.christianpost.com/news/man-paints-over-heretical-billboard-to-read-jesus-is-god.html](https://www.christianpost.com/news/man-paints-over-heretical-billboard-to-read-jesus-is-god.html)
 
 [https://cbn.com/news/us/man-paints-over-heretical-message-massive-billboard-los-angeles](https://cbn.com/news/us/man-paints-over-heretical-message-massive-billboard-los-angeles)
+
+### 2026 February
+
+2026-02-18 Doug Wilson told Tucker Carlson during an interview all Muslims are criminals. He said Islams are a greater threat than the Jews, and when asked by Tucker Carlson if the problem with the Muslims of Europe was that they’re too Muslim or that they’re criminals, Doug Wilson responded, “Well, that’s the same thing”. 
+
+[https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3](https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3)
+
+[https://www.peoplefor.org/rightwingwatch/doug-wilson-suggests-all-muslims-are-criminals](https://www.peoplefor.org/rightwingwatch/
 
 ### 2026 March
 

@@ -235,6 +235,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2026-03-17 Fox News peddled a gay conspiracy about the new Iranian ayatollah
 
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
 2026-03-31 SCOTUS blocked Colorado’s ban on conversion therapy.
 
 ## 2026 April 

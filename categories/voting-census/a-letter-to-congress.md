@@ -384,11 +384,15 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-03-27 Todd Blanche asked, “Why is there objection to sending ICE officers to polling places”.
 
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
 2026-03-31 Trump signed an executive order instructing DHS to gather a voters list and the USPS to transmit ballots, thereby nationalizing elections, burdening the postal service, complicating mail voting, and suppressing turnout.
 
 ## 2026 April 
 
 2026-04-01 American Action Network mailed out misleading fliers in Nebraska saying Democrat Cavanaugh supports the Trump agenda.
+
+2026-04-03 Dale Partridge said, “One of America’s biggest threats is white liberal women because they are the ones, literally, opening up the doors of immigration, passing laws that degenerate society, releasing criminals to be repeat offenders, aborting babies by the hundreds of thousands of millions. It’s why I really believe that we must, as a nation, repeal the 19th Amendment”. 
 
 2026-04-20 Kash Patel told Fox that arrests connected to the 2020 election would be forthcoming.
 

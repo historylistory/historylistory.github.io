@@ -251,6 +251,10 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 ## 2026 January 
 
+2026-01-12 Christian Nationalist pastor Dale Partridge said freedom of religion is “a really bad idea”. 
+
+2026-01-15 Joel Webbon said, “Wives, submit to your husbands in everything. Everything is what the Bible teaches. And it is a sense of fear and trembling and awe is the disposition of deference that the wife is to maintain towards her husband as she seeks to submit to him as the church submits to Christ…” and so on. 
+
 2026-01-24 The Texas Education Freedom Accounts allegedly excluded Muslim private schools from the State voucher program.
 
 2026-01-28 A Christian Nationalist painted over a World’s Last Chance billboard in Los Angeles to read Jesus is God. 
@@ -262,6 +266,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-02-09 A group of multifaith organizations sued Trump’s “Religious Liberty Commission” for a lack of diversity.
 
 2026-02-10 Buddhist monks walked 108 days from Texas to Washington DC in a walk for peace.
+
+2026-02-18 Doug Wilson told Tucker Carlson during an interview all Muslims are criminals. He said Islams are a greater threat than the Jews, and when asked by Tucker Carlson if the problem with the Muslims of Europe was that they’re too Muslim or that they’re criminals, Doug Wilson responded, “Well, that’s the same thing”. 
 
 ## 2026 March 
 
@@ -282,6 +288,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-03-17 During a sermon Trump’s former Department of State Director and Deputy Assistant Secretary of Defense William Wolfe stated, ”…we should not blink. We should not hesitate to tell people. Not because we are so wise. Not because we made the rules of the world – we didn’t. We humbly submit to how God made the rules of the world and we say, ‘this is how we should order our lives together’. And frankly, yes, we are going to impose it upon you. If you don’t like it, I’m sorry, but this is good and right and just if it lines up with God’s standards, and I am going to enforce my morality on you in as much as our morality is God’s morality, and you should always check yourselves. I’m – you know, again – I’m not trying to puff you up. Check yourself. Do I believe what God believes? Am I defending what God says is good? And if it is, you should have the courage to say ‘This is how we’re going to run our town. This is how we’re going to run our county. This is how we’re going to run our State. And this is how we should run the United States of America by legislating the morality that we can find in the Bible’.”
 
 2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.
+
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
 
 2026-03-26 Hegseth delivered a Pentagon sermon invoking God’s role in war, prayed for eternal damnation and overwhelming violence in the name of God and claimed the United States was righteous.
 

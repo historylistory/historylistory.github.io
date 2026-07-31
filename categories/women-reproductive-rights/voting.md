@@ -39,5 +39,15 @@ OCT 2024 VIRGINIA USED THIS SYSTEM AND WRONGFULLY PURGED VOTERS: [https://www.su
 
 {% include youtubePlayer.html id="LLAdmVDXx60" %}
 
+### 2026 April
+
+2026-04-03 Dale Partridge said, “One of America’s biggest threats is white liberal women because they are the ones, literally, opening up the doors of immigration, passing laws that degenerate society, releasing criminals to be repeat offenders, aborting babies by the hundreds of thousands of millions. It’s why I really believe that we must, as a nation, repeal the 19th Amendment”. 
+
+[https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9](https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9)
+
+[https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women](https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women)
+
+[https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/](https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/)
+
 
 

@@ -64,6 +64,32 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 
 {% include youtubePlayer.html id="BMTSGFzr4OE" %}
 
+### 2026 January
+
+2026-01-15 Joel Webbon said, “Wives, submit to your husbands in everything. Everything is what the Bible teaches. And it is a sense of fear and trembling and awe is the disposition of deference that the wife is to maintain towards her husband as she seeks to submit to him as the church submits to Christ…” and so on. 
+
+[https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2](https://www.youtube.com/watch?v=hyOFC9LaiL4&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-wives-must-submit-their-husbands-fear-trembling-and-awe)
+
+### 2026 March
+
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
+[https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5](https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people)
+
+[https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should](https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should)
+
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
+[https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6](https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut](https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut)
+
+[https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)
+
 ### 2026 May
 
 2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 

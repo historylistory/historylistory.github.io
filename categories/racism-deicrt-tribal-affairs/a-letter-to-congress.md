@@ -618,6 +618,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-02-17 A judge ordered the Trump administration to reinstate a slavery exhibit at the Presidential House in Philadelphia, citing George Orwell’s 1984, comparing the Trump administration to the book’s totalitarian regime which revised historical records to align with its own narratives.
 
+2026-02-18 Doug Wilson told Tucker Carlson during an interview all Muslims are criminals. He said Islams are a greater threat than the Jews, and when asked by Tucker Carlson if the problem with the Muslims of Europe was that they’re too Muslim or that they’re criminals, Doug Wilson responded, “Well, that’s the same thing”. 
+
 2026-02-21 Mike Johnson denied requests to let Reverend Jesse Jackson lie in honor at the Capitol.
 
 2026-02-24 Representative Al Green was kicked out of the State of the Union address for holding up a sign, “Black people are not apes”. 
@@ -643,6 +645,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.
 
 2026-03-20 The Trump administration planned to display a statue of a slave owner for America’s 250th anniversary.
+
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
 
 2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 

@@ -193,6 +193,12 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://www.mediamatters.org/nick-fuentes/nick-fuentes-number-one-political-enemy-america-women-they-have-be-imprisoned](https://www.mediamatters.org/nick-fuentes/nick-fuentes-number-one-political-enemy-america-women-they-have-be-imprisoned)
 
+2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
+
+[https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4](https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4)
+
+[https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms](https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms)
+
 ### 2026 April
 
 2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg. 

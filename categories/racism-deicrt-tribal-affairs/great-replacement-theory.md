@@ -182,6 +182,12 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 
 [https://evangelicaldarkweb.org/2026/02/15/trump-snubs-woke-pastor-in-texas-32nd-primary/](https://evangelicaldarkweb.org/2026/02/15/trump-snubs-woke-pastor-in-texas-32nd-primary/)
 
+2026-02-18 Doug Wilson told Tucker Carlson during an interview all Muslims are criminals. He said Islams are a greater threat than the Jews, and when asked by Tucker Carlson if the problem with the Muslims of Europe was that they’re too Muslim or that they’re criminals, Doug Wilson responded, “Well, that’s the same thing”. 
+
+[https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3](https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3)
+
+[https://www.peoplefor.org/rightwingwatch/doug-wilson-suggests-all-muslims-are-criminals](https://www.peoplefor.org/rightwingwatch/
+
 2026-02-27 The Trump administration aimed to process 4500 white-only refugees per month from South Africa and installed trailers at the U.S. embassy in Pretoria for refugee processing.
 
 [https://africa.businessinsider.com/local/lifestyle/white-south-african-refugee-admissions-set-to-rise-to-4500-under-new-us-plan/2mbjwbf](https://africa.businessinsider.com/local/lifestyle/white-south-african-refugee-admissions-set-to-rise-to-4500-under-new-us-plan/2mbjwbf)

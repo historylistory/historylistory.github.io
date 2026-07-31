@@ -477,6 +477,14 @@ The ban was supported by **ADF International legal communications director Elyss
 
 [https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research](https://www.cnn.com/2026/01/22/health/fetal-tissue-nih-research)
 
+### 2026 February
+
+2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
+
+[https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4](https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4)
+
+[https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms](https://timesofindia.indiatimes.com/world/us/im-really-so-sick-of-him-outrage-as-nick-fuentes-says-there-are-no-female-philosophers-or-inventors-women-men/articleshow/128607463.cms)
+
 ### 2026 March
 
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.

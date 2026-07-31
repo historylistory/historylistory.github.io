@@ -299,6 +299,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-01-14 The Heritage Foundation Project 2026 agenda plans eliminate no-fault divorce, removing agency and rights to leave an abusive or unwanted marriage. Their website reads, “Over the course of 60 years, casual sex, abortion, childlessness by choice, and no-fault divorce became normalized, while marriage and the natural family became stigmatized”, “These two forces – big government liberalism and second-wave feminism – combined to radically change how men and women thought about their roles in the home”.
 
+2026-01-15 Joel Webbon said, “Wives, submit to your husbands in everything. Everything is what the Bible teaches. And it is a sense of fear and trembling and awe is the disposition of deference that the wife is to maintain towards her husband as she seeks to submit to him as the church submits to Christ…” and so on. 
+
 2026-01-22 Republicans banned the use of fetal tissue in research, further limiting life-changing possibilities for regenerative medicine and destroying the path to curing things like Parkinson’s, diabetes, and heart failure
 
 ## 2026 February 
@@ -313,6 +315,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-02-11 Founder of America First PAC Nick Fuentes said, “So just like Hitler imprisoned Gypsies, Jews, communists, you know, all of his political rivals, we have to do the same thing with women. And we’ll sort it out. We’ll find the good ones. They can prove themselves. Then we’ll let them go. So they go to the gulag first. They go to the breeding gulags. The good ones will be liberated. The bad ones will toil in the mines forever”. 
 
+2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
+
 2026-02-22 In the wake of the men’s hockey team victory, conservative commentators on Fox referred to the Canadian team as “communists”, with one saying, “Gotta go all the way back to 1980 when we defeated the Soviets. This felt just as sweet because I guess since we don’t have Russia to kick around anymore, Canada will do” and another saying, “They’re practically communists, and they’re cozying up to the Chinese. Benny Johnson said, “Masculinity and celebration – these are things that, like, have been completely and totally sanitized from our arch-feminist culture, our estrogen-etic culture”.
 
 2026-02-25 Reports show the current global population is over 8 billion, compared to 1.4 billion in 1900.
@@ -323,11 +327,17 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat. It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
 
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
 2026-03-26 Benny Johnson told CPAC attendees to “out-breed” liberals, “Having children and starting a family is the culture war right there”, and “Because the left, we’re gonna just outbreed them! Can I get a witness? Can I get an amen? We’re just going to outbreed the left. You ever met a lib?”.
 
 2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, and Chief of Staff Ricky Buria allegedly told Army Secretary Daniel Driscoll not to assign Major General Antoinette R. Gant command of the Military District of Washington because President Trump wouldn’t want to stand next to a Black female officer at events.
 
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
 ## 2026 April 
+
+2026-04-03 Dale Partridge said, “One of America’s biggest threats is white liberal women because they are the ones, literally, opening up the doors of immigration, passing laws that degenerate society, releasing criminals to be repeat offenders, aborting babies by the hundreds of thousands of millions. It’s why I really believe that we must, as a nation, repeal the 19th Amendment”. 
 
 2026-04-08 Former Fort Bragg employee Courtney Williams was charged under the Espionage Act after allegedly providing information to a journalist about sexual and race-based harassment at Fort Bragg.
 

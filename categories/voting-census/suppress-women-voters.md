@@ -62,7 +62,7 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 
 {% include youtubePlayer.html id="u29UJtpA3x0" %}
 
-### 2026
+### 2026 March
 
 2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
@@ -75,6 +75,29 @@ Clarifying the SAVE Act: Trump had repeated that the only way Democrats would wi
 [https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336](https://www.nbcnews.com/politics/donald-trump/trump-says-will-not-sign-bills-america-act-passes-rcna262336)
 
 [https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting](https://www.npr.org/2026/03/08/g-s1-112917/trump-says-he-wont-sign-bills-until-congress-overhauls-voting)
+
+
+2026-03-27 Joel Webbon said to Wesley Todd, “And that’s why God in his word, God in nature that he made said Women need to shut up. They need to be quiet. They don’t get to call shots. They don’t get to rule because they do stupid things like this”, and was responded to with, “So true, king, women need to shut up”. 
+
+[https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6](https://www.youtube.com/watch?v=Lz1XH0GSAdw&list=WL&index=6)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut](https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut)
+
+[https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)
+
+### 2026 April
+
+2026-04-03 Dale Partridge said, “One of America’s biggest threats is white liberal women because they are the ones, literally, opening up the doors of immigration, passing laws that degenerate society, releasing criminals to be repeat offenders, aborting babies by the hundreds of thousands of millions. It’s why I really believe that we must, as a nation, repeal the 19th Amendment”. 
+
+[https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9](https://www.youtube.com/watch?v=8vmnlb3Butg&list=WL&index=9)
+
+[https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women](https://www.france24.com/en/live-news/20260123-trump-s-maga-movement-ramps-up-attacks-on-progressive-white-women)
+
+[https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/](https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/)
+
+
+### 2026 May 
+
 
 2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 
 

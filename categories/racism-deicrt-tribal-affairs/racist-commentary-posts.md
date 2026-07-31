@@ -523,6 +523,12 @@ FISHBACK PODCAST [https://www.youtube.com/watch?v=VOVEIliJ3dM](https://www.youtu
 
 {% include youtubePlayer.html id="ZPZoVwgfK84" %}
 
+2026-02-18 Doug Wilson told Tucker Carlson during an interview all Muslims are criminals. He said Islams are a greater threat than the Jews, and when asked by Tucker Carlson if the problem with the Muslims of Europe was that they’re too Muslim or that they’re criminals, Doug Wilson responded, “Well, that’s the same thing”. 
+
+[https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3](https://www.youtube.com/watch?v=JZ9Lj4xep8I&list=WL&index=3)
+
+[https://www.peoplefor.org/rightwingwatch/doug-wilson-suggests-all-muslims-are-criminals](https://www.peoplefor.org/rightwingwatch/
+
 2026-02-24 Trump stated, “The Somali pirates who ransacked Minnesota remind us that there are large parts of the world where bribery, corruption and lawlessness are the norm, not the exception. Importing these cultures through unrestricted immigration and open borders brings those problems right here to the USA, and it is the American people who pay the price in higher medical bills, car insurance rates, rent, taxes, and perhaps most importantly, crime” while JD Vance and Mike Johnson laughed and applauded.
 
 [https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100](https://www.startribune.com/trump-calls-somali-community-pirates-prompting-shouts-from-rep-ilhan-omar-during-state-of-the-union/601588100)
@@ -560,6 +566,14 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.axios.com/2026/03/13/muslim-shooting-fine-tuberville-posts-republicans](https://www.axios.com/2026/03/13/muslim-shooting-fine-tuberville-posts-republicans)
 
 [https://thehill.com/homenews/house/5783650-ogles-anti-muslim-posts-censure/](https://thehill.com/homenews/house/5783650-ogles-anti-muslim-posts-censure/)
+
+2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
+
+[https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5](https://www.youtube.com/watch?v=McvQOXwhuq0&list=WL&index=5)
+
+[https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people](https://www.peoplefor.org/rightwingwatch/joel-webbon-says-gender-equality-jewish-plot-eradicate-white-people)
+
+[https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should](https://www.hatecomestomainstreet.com/p/women-vote-for-being-raped-should)
 
 2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 
