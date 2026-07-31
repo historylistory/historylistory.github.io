@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: Conflicts & Ethics
-category_slug: greed-corruption
+category_slug: greed-ethics
 subcategory_slug: conflicts-ethics
-permalink: /categories/greed-corruption/conflicts-ethics/
+permalink: /categories/greed-ethics/conflicts-ethics/
 ---
 
 ### 1989

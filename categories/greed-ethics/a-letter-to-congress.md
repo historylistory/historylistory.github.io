@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: A LETTER TO CONGRESS
-category_slug: greed-corruption
+category_slug: greed-ethics
 subcategory_slug: a-letter-to-congress
-permalink: /categories/greed-corruption/a-letter-to-congress/
+permalink: /categories/greed-ethics/a-letter-to-congress/
 ---
 
 
