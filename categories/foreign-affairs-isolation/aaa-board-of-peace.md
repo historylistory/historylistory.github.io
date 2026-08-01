@@ -1,6 +1,6 @@
 ---
 layout: subcategory
-title: AAA. BOARD OF PEACE
+title: BOARD OF PEACE
 category_slug: foreign-affairs-isolation
 subcategory_slug: aaa-board-of-peace
 permalink: /categories/foreign-affairs-isolation/aaa-board-of-peace/
