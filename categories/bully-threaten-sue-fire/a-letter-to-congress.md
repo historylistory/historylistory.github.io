@@ -661,3 +661,5 @@ Manhattan grand jury in the hush-money case.
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
 
 2026-07-24 The Trump administration conceded that it cancelled 284 research grants on states that voted against Trump in 2024. 
+
+2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 

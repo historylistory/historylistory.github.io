@@ -264,3 +264,13 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.bbc.com/news/articles/cvgwe2qpgq1o](https://www.bbc.com/news/articles/cvgwe2qpgq1o)
 
 [https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea](https://apnews.com/article/cyberattack-minnesota-water-systems-5bb1dcbaab8e3231889700c38a21e8ea)
+
+2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 
+
+[https://www.cbsnews.com/minnesota/news/trump-blames-minnesota-for-water-system-cyberattacks/](https://www.cbsnews.com/minnesota/news/trump-blames-minnesota-for-water-system-cyberattacks/)
+
+[https://www.bbc.com/news/articles/cvgwe2qpgq1o](https://www.bbc.com/news/articles/cvgwe2qpgq1o)
+
+[https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks](https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks)
+
+SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161](https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161)

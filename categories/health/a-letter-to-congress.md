@@ -609,3 +609,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-29 The Trump administration announced it will be ending a Medicare part D subsidy in 2027. 
 
 2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 
+
+2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 
