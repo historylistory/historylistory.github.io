@@ -2,8 +2,8 @@
 layout: subcategory
 title: Foreign Influence in Politics
 category_slug: foreign-affairs-isolation
-subcategory_slug: foreign-influence-in-politics
-permalink: /categories/foreign-affairs-isolation/foreign-influence-in-politics/
+subcategory_slug: 0-foreign-influence-in-politics
+permalink: /categories/foreign-affairs-isolation/0-foreign-influence-in-politics/
 ---
 
 ### 2017 

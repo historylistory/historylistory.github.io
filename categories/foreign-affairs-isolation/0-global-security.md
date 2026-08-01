@@ -2,8 +2,8 @@
 layout: subcategory
 title: Global Security
 category_slug: foreign-affairs-isolation
-subcategory_slug: global-security
-permalink: /categories/foreign-affairs-isolation/global-security/
+subcategory_slug: 0-global-security
+permalink: /categories/foreign-affairs-isolation/0-global-security/
 ---
 
 ### 2025 July

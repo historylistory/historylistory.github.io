@@ -2,8 +2,8 @@
 layout: subcategory
 title: World Health Organization
 category_slug: foreign-affairs-isolation
-subcategory_slug: world-health-organization
-permalink: /categories/foreign-affairs-isolation/world-health-organization/
+subcategory_slug: 0-world-health-organization
+permalink: /categories/foreign-affairs-isolation/0-world-health-organization/
 ---
 
 ### 2025 January

@@ -2,8 +2,8 @@
 layout: subcategory
 title: Board of Peace
 category_slug: foreign-affairs-isolation
-subcategory_slug: board-of-peace
-permalink: /categories/foreign-affairs-isolation/board-of-peace/
+subcategory_slug: 0-board-of-peace
+permalink: /categories/foreign-affairs-isolation/0-board-of-peace/
 ---
 
 ### 2026 January
