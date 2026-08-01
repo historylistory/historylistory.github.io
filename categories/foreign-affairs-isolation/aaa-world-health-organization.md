@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: World Health Organization
+title: AAA. WORLD HEALTH
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-world-health-organization
-permalink: /categories/foreign-affairs-isolation/0-world-health-organization/
+subcategory_slug: aaa-world-health
+permalink: /categories/foreign-affairs-isolation/aaa-world-health/
 ---
 
 ### 2025 January

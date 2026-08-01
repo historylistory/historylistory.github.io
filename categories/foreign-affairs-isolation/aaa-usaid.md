@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: USAID
+title: AAA. USAID
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-usaid
-permalink: /categories/foreign-affairs-isolation/0-usaid/
+subcategory_slug: aaa-usaid
+permalink: /categories/foreign-affairs-isolation/aaa-usaid/
 ---
 
 ### 1961

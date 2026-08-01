@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: UN
+title: AAA. UN
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-un
-permalink: /categories/foreign-affairs-isolation/0-un/
+subcategory_slug: aaa-un
+permalink: /categories/foreign-affairs-isolation/aaa-un/
 ---
 
 ### 2018

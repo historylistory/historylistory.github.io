@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Global Security
+title: AAA. GLOBAL SECURITY
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-global-security
-permalink: /categories/foreign-affairs-isolation/0-global-security/
+subcategory_slug: aaa-global-security
+permalink: /categories/foreign-affairs-isolation/aaa-global-security/
 ---
 
 ### 2025 July

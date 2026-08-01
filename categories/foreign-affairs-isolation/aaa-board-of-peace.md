@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Board of Peace
+title: AAA. BOARD OF PEACE
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-board-of-peace
-permalink: /categories/foreign-affairs-isolation/0-board-of-peace/
+subcategory_slug: aaa-board-of-peace
+permalink: /categories/foreign-affairs-isolation/aaa-board-of-peace/
 ---
 
 ### 2026 January

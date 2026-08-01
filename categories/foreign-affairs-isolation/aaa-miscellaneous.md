@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Foreign Influence in Politics
+title: AAA. MISCELLANEOUS
 category_slug: foreign-affairs-isolation
-subcategory_slug: 0-foreign-influence-in-politics
-permalink: /categories/foreign-affairs-isolation/0-foreign-influence-in-politics/
+subcategory_slug: aaa-miscellaneous
+permalink: /categories/foreign-affairs-isolation/aaa-miscellaneous/
 ---
 
 ### 2017 
