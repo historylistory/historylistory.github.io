@@ -371,3 +371,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-07-28 The US walked out of a UN Security Council meeting in protest after French ambassador remarks blasting the US for voting against extending Volker Turk’s term for high commissioner of human rights. After the vote France ONU Geneve wrote, “The US used to be a beacon of human rights. Not anymore. Today, it stands alongside North Korea, Nicaragua, Mali & Russia, isolated. And the world no longer listens to it.”
 
 2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+2026-07-30 Journalist Sam Husseini interrupted Schumer during a conference and called him a genocidal maniac for supporting Israel. 
+
+2026-07-30 The Senate again voted down a war powers resolution. 

@@ -95,3 +95,10 @@ permalink: /categories/foreign-affairs-isolation/0-world-health-organization/
 [https://x.com/MinofHealthUG/status/2082029801326465174](https://x.com/MinofHealthUG/status/2082029801326465174)
 
 [https://www.rfi.fr/en/africa/20260729-uganda-declares-end-to-latest-ebola-outbreak-on-its-soil](https://www.rfi.fr/en/africa/20260729-uganda-declares-end-to-latest-ebola-outbreak-on-its-soil)
+
+2026-07-30 The US apologized after sharing an inaccurate map of Africa at a major AIDS conference showing Nigeria as a landlocked nation in the Sahara desert. 
+
+[https://www.democracynow.org/2026/7/31/headlines/us_displays_wildly_inaccurate_map_of_africa_misplacing_nigeria_other_nations](https://www.democracynow.org/2026/7/31/headlines/us_displays_wildly_inaccurate_map_of_africa_misplacing_nigeria_other_nations)
+
+[https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/](https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/)
+

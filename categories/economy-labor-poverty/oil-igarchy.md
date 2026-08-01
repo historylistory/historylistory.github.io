@@ -240,3 +240,9 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/](https://6abc.com/post/freedom-fuel-network-25-gas-stations-offering-cheaper-prices-pennsylvania-new-jersey/19474281/)
 
 [https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations](https://www.cnn.com/2026/07/09/business/trump-freedom-fuel-stations)
+
+2026-07-30 Oil firms reported the highest quarterly profits in years. 
+
+[https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/](https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/)
+
+SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html](https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html)

@@ -777,3 +777,8 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 
 [https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations](https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations)
 
+2026-07-30 FIFA president Infantino received backlash for trying to sell stakes in the World Cup to a private equity group run by Joshua Kushner, brother of Trump’s son in law  Jared Kushner. 
+
+[https://www.espn.com/soccer/story/_/id/49500782/fifa-world-cup-investment-private-gianni-infantino](https://www.espn.com/soccer/story/_/id/49500782/fifa-world-cup-investment-private-gianni-infantino)
+
+[https://www.nbcnews.com/sports/soccer/fifa-president-gianni-infantino-faces-boycott-20b-world-cup-private-eq-rcna590207](https://www.nbcnews.com/sports/soccer/fifa-president-gianni-infantino-faces-boycott-20b-world-cup-private-eq-rcna590207)

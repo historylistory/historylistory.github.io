@@ -228,3 +228,8 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 
 [https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/](https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/)
 
+2026-07-30 Saudi Arabia formed a new military alliance with 13 other countries. 
+
+[https://www.aljazeera.com/news/2026/7/30/saudi-arabia-announces-maritime-defence-alliance-to-secure-vital-waterways](https://www.aljazeera.com/news/2026/7/30/saudi-arabia-announces-maritime-defence-alliance-to-secure-vital-waterways)
+
+[https://www.argusmedia.com/en/news-and-insights/latest-market-news/2859311-saudi-arabia-unveils-maritime-defence-alliance](https://www.argusmedia.com/en/news-and-insights/latest-market-news/2859311-saudi-arabia-unveils-maritime-defence-alliance)

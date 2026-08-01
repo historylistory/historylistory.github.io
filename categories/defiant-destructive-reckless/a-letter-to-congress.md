@@ -475,3 +475,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-07-28 Allegedly Trump is planning to replace RFK for not fulfilling demands to link vaccines with autism. 
 
 2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
+
+2026-07-30 The US apologized after sharing an inaccurate map of Africa at a major AIDS conference showing Nigeria as a landlocked nation in the Sahara desert. 
+
+2026-07-30 The Senate again voted down a war powers resolution. 

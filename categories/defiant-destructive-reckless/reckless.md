@@ -713,3 +713,10 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 [https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html](https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html)
 
 SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411](https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411)
+
+2026-07-30 The US apologized after sharing an inaccurate map of Africa at a major AIDS conference showing Nigeria as a landlocked nation in the Sahara desert. 
+
+[https://www.democracynow.org/2026/7/31/headlines/us_displays_wildly_inaccurate_map_of_africa_misplacing_nigeria_other_nations](https://www.democracynow.org/2026/7/31/headlines/us_displays_wildly_inaccurate_map_of_africa_misplacing_nigeria_other_nations)
+
+[https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/](https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/)
+

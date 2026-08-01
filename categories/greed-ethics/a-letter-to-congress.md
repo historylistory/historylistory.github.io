@@ -404,3 +404,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
 
 2026-07-30 Democrats called for an ethics investigation into Max Miller for domestic abuse allegations. 
+
+2026-07-30 FIFA president Infantino received backlash for trying to sell stakes in the World Cup to a private equity group run by Joshua Kushner, brother of Trump’s son in law  Jared Kushner. 
+
+2026-07-30 Oil firms reported the highest quarterly profits in years. 

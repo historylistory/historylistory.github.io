@@ -114,3 +114,8 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 
 TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s](https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=370s)
 
+2026-07-30 Oil firms reported the highest quarterly profits in years. 
+
+[https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/](https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/)
+
+SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html](https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html)

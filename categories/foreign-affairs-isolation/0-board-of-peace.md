@@ -56,3 +56,11 @@ permalink: /categories/foreign-affairs-isolation/0-board-of-peace/
 
 [https://www.jpost.com/middle-east/article-900662](https://www.jpost.com/middle-east/article-900662)
 
+### 2026 July
+
+2026-07-30 Trump announced the Board of Peace and Hamas agreed to a disarmament and that Israel would withdraw from Gaza.
+
+[https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza](https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza)
+
+[https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace](https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace)
+

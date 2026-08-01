@@ -577,3 +577,15 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 2026-07-28 Israels defense minister Israel Katz ordered the IDF to take over a fourth refugee camp and “expel” its Palestinian residents. 
 
 [https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000](https://www.haaretz.com/west-bank/2026-07-28/ty-article/.premium/defense-minister-orders-idf-takeover-of-refugee-camp-expulsion-of-palestinians/0000019f-a88a-dfac-a5df-b9db2fdc0000)
+
+2026-07-30 Journalist Sam Husseini interrupted Schumer during a conference and called him a genocidal maniac for supporting Israel. 
+
+[https://www.democracynow.org/2026/7/31/headlines/sen_schumer_disrupted_at_dc_event_over_his_support_of_israel](https://www.democracynow.org/2026/7/31/headlines/sen_schumer_disrupted_at_dc_event_over_his_support_of_israel)
+
+[https://www.yahoo.com/news/politics/articles/pro-palestinian-activist-crashes-schumer-190950465.html](https://www.yahoo.com/news/politics/articles/pro-palestinian-activist-crashes-schumer-190950465.html)
+
+2026-07-30 The Senate again voted down a war powers resolution. 
+
+[https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/](https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/)
+
+[https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/](https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/)

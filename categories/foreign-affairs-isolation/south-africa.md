@@ -6,6 +6,16 @@ subcategory_slug: south-africa
 permalink: /categories/foreign-affairs-isolation/south-africa/
 ---
 
+### 2025 May
+
+2025-05-12 Trump allowed immigration for white Afrikaners, claiming South Africa was amidst white genocide.
+
+{% include youtubePlayer.html id="6__bY1JtzU4" %}
+
+2025-05-21 Trump made baseless accusations of white genocide while meeting with South African president Ramaphosa.
+
+{% include youtubePlayer.html id="16yLb_rAQkk" %}
+
 
 ### 2026 February
 
@@ -31,15 +41,7 @@ permalink: /categories/foreign-affairs-isolation/south-africa/
 
 [https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/](https://www.japantimes.co.jp/news/2026/03/11/world/trump-white-south-africans-better-life/)
 
-### 2025 May
 
-2025-05-12 Trump allowed immigration for white Afrikaners, claiming South Africa was amidst white genocide.
-
-{% include youtubePlayer.html id="6__bY1JtzU4" %}
-
-2025-05-21 Trump made baseless accusations of white genocide while meeting with South African president Ramaphosa.
-
-{% include youtubePlayer.html id="16yLb_rAQkk" %}
 
 ### 2026 July
 

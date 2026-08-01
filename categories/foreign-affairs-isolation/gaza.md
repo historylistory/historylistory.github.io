@@ -560,3 +560,9 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
 
 [https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)
+
+2026-07-30 Trump announced the Board of Peace and Hamas agreed to a disarmament and that Israel would withdraw from Gaza.
+
+[https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza](https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza)
+
+[https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace](https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace)
