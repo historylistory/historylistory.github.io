@@ -199,3 +199,12 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-](https://www.nyc.gov/mayors-office/news/2026/07/mayor-mamdani-unveils-30--discount---including-all-produce--all-)
 
 [https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325](https://apnews.com/article/mamdani-nyc-grocery-stores-prices-bronx-4634d4030209fea663e68f5d6d09a325)
+
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+[https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3](https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3)
+
+[https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
+
+[https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)

@@ -130,3 +130,13 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 [https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/](https://thehill.com/homenews/administration/5964574-trump-graham-save-america-act/)
 
 [https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732])https://www.nbcnews.com/politics/congress/trump-phone-call-lindsey-graham-death-save-act-rcna552732
+
+### 2026 August
+
+2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
+
+[https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2](https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2)
+
+[https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370](https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370)
+
+[https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump](https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump)

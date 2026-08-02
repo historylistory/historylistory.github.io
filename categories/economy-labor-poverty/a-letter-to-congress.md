@@ -1064,3 +1064,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-07-28 Mayor Mamdani proposed plans to create city-owned grocery stores to help lower grocery costs on staple items like meat, pasta, produce, seafood, bread, yogurt, rice and beans. 
 
 2026-07-30 Oil firms reported the highest quarterly profits in years. 
+
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 

@@ -186,3 +186,6 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-07-27 The USDA announced a plan to open the southern border for two select areas of Mexico in August for cattle ranchers. 
 
 2026-07-27 The latest request for farm aid would cost each taxpayer $360. 
+
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 

@@ -132,3 +132,12 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 [https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7](https://apnews.com/article/ranchers-water-hauling-bb468aa92a821c3fe20a381eda9762d7)
 
 [https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/](https://coloradosun.com/2026/06/22/ready-for-your-next-steak-these-ranchers-are-battling-drought-to-bring-it-to-you/)
+
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+[https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3](https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3)
+
+[https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
+
+[https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)

@@ -414,3 +414,6 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-29 Trump claimed UK’s Prime Minister Andy Burnham told him the North Sea was open for drilling. 
 
 
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+

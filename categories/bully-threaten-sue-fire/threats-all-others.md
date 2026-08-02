@@ -209,3 +209,12 @@ KAITLAN COLLINS [https://www.youtube.com/watch?v=nQjg_TtO71o](https://www.youtub
 
 KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech](https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech)
 
+### 2026 August
+
+2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
+
+[https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2](https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2)
+
+[https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370](https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370)
+
+[https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump](https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump)

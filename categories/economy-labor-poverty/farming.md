@@ -352,3 +352,11 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 
 [https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier](https://www.agweb.com/news/business/farm-aid-could-total-360-taxpayer-it-bridge-or-pier)
 
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+[https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3](https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3)
+
+[https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
+
+[https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)

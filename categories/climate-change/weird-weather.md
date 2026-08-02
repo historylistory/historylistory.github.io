@@ -308,3 +308,12 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.aljazeera.com/news/2026/7/28/magnitude-7-1-earthquake-shakes-southern-japan-tsunami-warning-issued](https://www.aljazeera.com/news/2026/7/28/magnitude-7-1-earthquake-shakes-southern-japan-tsunami-warning-issued)
 
 [https://www.youtube.com/watch?v=XPDoHnGLSNU&list=WL&index=1](https://www.youtube.com/watch?v=XPDoHnGLSNU&list=WL&index=1)
+
+2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+[https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3](https://www.youtube.com/watch?v=N-wT4VXfJTw&list=WL&index=3)
+
+[https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
+
+[https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)
+

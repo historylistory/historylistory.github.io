@@ -579,3 +579,14 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://www.youtube.com/watch?v=HTboRPK5ZKc](https://www.youtube.com/watch?v=HTboRPK5ZKc)
 
+### 2026 August 
+
+2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
+
+[https://www.youtube.com/watch?v=EdC_0lWANJM&list=WL&index=4](https://www.youtube.com/watch?v=EdC_0lWANJM&list=WL&index=4)
+
+[https://www.pbs.org/newshour/politics/trump-blasts-pirro-after-she-refutes-his-claim-that-reflecting-pool-was-damaged-by-vandals](https://www.pbs.org/newshour/politics/trump-blasts-pirro-after-she-refutes-his-claim-that-reflecting-pool-was-damaged-by-vandals)
+
+[https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/](https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/)
+
+

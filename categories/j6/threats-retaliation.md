@@ -48,3 +48,13 @@ permalink: /categories/j6/threats-retaliation/
 [https://www.cbsnews.com/news/republican-senators-lawsuit-justice-department-500k/](https://www.cbsnews.com/news/republican-senators-lawsuit-justice-department-500k/)
 
 [https://www.nbcnews.com/politics/congress/gop-senators-distance-provision-allowing-sue-phone-record-searches-rcna243902](https://www.nbcnews.com/politics/congress/gop-senators-distance-provision-allowing-sue-phone-record-searches-rcna243902)
+
+### 2026 August 
+
+2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
+
+[https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2](https://www.youtube.com/watch?v=vqL6CYkeuss&list=WL&index=2)
+
+[https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370](https://www.nbcnews.com/politics/congress/trump-revive-anti-weaponization-blanche-attorney-general-cornyn-tillis-rcna590370)
+
+[https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump](https://www.cnn.com/2026/07/31/politics/todd-blanche-weaponization-fund-trump)

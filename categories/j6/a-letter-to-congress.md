@@ -190,3 +190,9 @@ Below are some examples of the J6 timeline, lest we forget.
 
 ## 2026 July 
 2026-07-12 Lindsey Graham died at 71. Trump gave Graham a life score of 99% during an interview, saying he’d dock points for criticism of J6, then claimed Graham’s death was a huge blow to the SAVE Act. Trump said, “He was a worker; he was really a worker. But he sounded great, actually, but he actually said he was tired. But he wanted to pass the SAVE America Act, and I said, ‘We’re going to get it done, Lindsey, we’re going to get it done, I’ll see you, like soon. We might even meet today.'”
+
+### 2026 August 
+
+2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
+
+

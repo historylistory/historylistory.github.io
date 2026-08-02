@@ -64,3 +64,12 @@ permalink: /categories/voting-census/suppress-accessibility/
 
 [https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/](https://www.courthousenews.com/federal-judge-blocks-trumps-national-citizenship-database/)
 
+### 2026 July
+
+2026-07-31 Texas reported several voters were flagged incorrectly as noncitizens after they voluntarily enacted the SAVE act. 
+
+[https://www.youtube.com/watch?v=DIjO18fXuxI&list=WL&index=1&t=140s](https://www.youtube.com/watch?v=DIjO18fXuxI&list=WL&index=1&t=140s)
+
+[https://www.houstonpublicmedia.org/articles/voting/2026/07/31/558356/texas-flagged-noncitizen-voters-reinstated-secretary-state/](https://www.houstonpublicmedia.org/articles/voting/2026/07/31/558356/texas-flagged-noncitizen-voters-reinstated-secretary-state/)
+
+[https://www.texastribune.org/2026/02/13/save-voter-citizenship-tool-mistakes-confusion/](https://www.texastribune.org/2026/02/13/save-voter-citizenship-tool-mistakes-confusion/)

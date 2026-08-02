@@ -656,3 +656,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-07-23 The man who killed Melissa and Mark Hortman was sentenced to two consecutive life terms. The suspect left behind 3 assault rifles, a handgun, and a hit list containing the names of dozens of people including prominent Democrats and abortion providers and advocates. 
 
 2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
+
+### 2026 August 
+
+2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 

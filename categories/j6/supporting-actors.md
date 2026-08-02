@@ -98,4 +98,4 @@ permalink: /categories/j6/supporting-actors/
 
 [https://people.com/qanon-shaman-slams-donald-trump-as-fraud-11779154](https://people.com/qanon-shaman-slams-donald-trump-as-fraud-11779154)
 
- 
+

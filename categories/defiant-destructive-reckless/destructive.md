@@ -336,3 +336,12 @@ permalink: /categories/defiant-destructive-reckless/destructive/
 
 [https://www.npr.org/2026/07/26/nx-s1-5906719/trump-allies-approve-new-rules-that-will-weaken-protections-for-historic-sites](https://www.npr.org/2026/07/26/nx-s1-5906719/trump-allies-approve-new-rules-that-will-weaken-protections-for-historic-sites)
 
+### 2026 August 
+
+2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
+
+[https://www.youtube.com/watch?v=EdC_0lWANJM&list=WL&index=4](https://www.youtube.com/watch?v=EdC_0lWANJM&list=WL&index=4)
+
+[https://www.pbs.org/newshour/politics/trump-blasts-pirro-after-she-refutes-his-claim-that-reflecting-pool-was-damaged-by-vandals](https://www.pbs.org/newshour/politics/trump-blasts-pirro-after-she-refutes-his-claim-that-reflecting-pool-was-damaged-by-vandals)
+
+[https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/](https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/)
