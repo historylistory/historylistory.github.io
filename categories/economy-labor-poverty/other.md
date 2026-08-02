@@ -18,6 +18,12 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.bbc.com/news/blogs-echochambers-27074746](https://www.bbc.com/news/blogs-echochambers-27074746)
 
+### 2025 March
+
+2025-03-10 Trump has been pouring taxpayer dollars into golf courses; two in Germany, one in Japan, one in Korea, and one in Massachusetts. 
+
+[https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/](https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/)
+
 ### 2025 January
 
 2025-01-20 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade.

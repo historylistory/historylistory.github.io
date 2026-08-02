@@ -6,6 +6,27 @@ subcategory_slug: war
 permalink: /categories/military-veterans/war/
 ---
 
+### The More You Know
+
+Contractors and price hikes in defense spending:
+[https://www.youtube.com/watch?v=T9IV09cvXx4](https://www.youtube.com/watch?v=T9IV09cvXx4)
+
+Lockheed’s F-35 subcontracts are spread across 307 congressional districts in 45 states, ensuring the fealty of congressmen and senators. 
+
+[https://harpers.org/archive/2019/06/the-pentagon-syndrome/](https://harpers.org/archive/2019/06/the-pentagon-syndrome/)
+
+
+Servicemembers are not allowed to repair their own equipment.
+
+[https://responsiblestatecraft.org/military-repairs/](https://responsiblestatecraft.org/military-repairs/)
+
+
+The Pentagon is actively enlisting Silicon Valley startups and tech giants to build next-generation defense systems. 
+
+[https://www.wsj.com/articles/pentagon-woos-silicon-valley-to-join-ranks-of-arms-makers-38b1d4c0](https://www.wsj.com/articles/pentagon-woos-silicon-valley-to-join-ranks-of-arms-makers-38b1d4c0)
+
+[https://responsiblestatecraft.org/ai-weapons-silicon-valley/](https://responsiblestatecraft.org/ai-weapons-silicon-valley/)
+
 ### 2025 September
 
 2025-09-06 JD Vance posted on social media, “killing cartel members who poison our fellow citizens is the highest and best use of our military”. Brian Krassenstein replied, “killing the citizens of another nation who are civilians without any due process is called a war crime”. JD Vance responded, “I don’t give a shit what you call it”. Vance also wrote, “Democrats:let’s send your kids to die in Russia…Republicans:actually let’s protect our people from the scum of the earth”.

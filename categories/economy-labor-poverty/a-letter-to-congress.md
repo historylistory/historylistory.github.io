@@ -288,6 +288,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-03-10 Canadian visitors boycotted tourism in the U.S., possibly causing a long-term loss in the U.S. economy.
 
+2025-03-10 Trump has been pouring taxpayer dollars into golf courses; two in Germany, one in Japan, one in Korea, and one in Massachusetts. 
+
 2025-03-11 A journalist asked, “Have you ever paid a tariff? Because I have. They don’t get charged on foreign companies. They get charged on the importers”. Karoline Leavitt responded, “and ultimately, when we have fair and balanced trade, which the American people have not seen in decades, as I said at the beginning, revenues will stay here, wages will go up, and our country will be made wealthy again. And I think it’s insulting that you are trying to test my knowledge of economics and the decisions that this president has made. I now regret giving a question to the Associated Press”.
 
 2025-03-12 Trump claimed his administration had “virtually no inflation” during his last term, took credit for lowered egg prices, and cited oil was $65 a barrel. 

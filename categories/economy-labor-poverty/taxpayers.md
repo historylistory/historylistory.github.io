@@ -78,6 +78,13 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://www.budget.senate.gov/chairman/newsroom/press/extending-trumps-tax-cuts-for-the-wealthy-will-shrink-the-economy-cbo-finds/](https://www.budget.senate.gov/chairman/newsroom/press/extending-trumps-tax-cuts-for-the-wealthy-will-shrink-the-economy-cbo-finds/)
 
+### 2025 March
+
+2025-03-10 Trump has been pouring taxpayer dollars into golf courses; two in Germany, one in Japan, one in Korea, and one in Massachusetts. 
+
+[https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/](https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/)
+
+
 ### 2025 May
 
 2025-05-20 Trump and supporters announced the lackluster “No Tax For Tips” bill, which ended up being temporary in nature, featured an income cap up to $25,000, and excluded  payroll and state taxes. 

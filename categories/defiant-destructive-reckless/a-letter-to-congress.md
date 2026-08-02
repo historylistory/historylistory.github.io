@@ -109,7 +109,10 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
-## 2025 Marcy 
+## 2025 March
+
+2025-03-10 Trump has been pouring taxpayer dollars into golf courses; two in Germany, one in Japan, one in Korea, and one in Massachusetts. 
+
 
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 

@@ -127,6 +127,9 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 ### 2025 March
 
+2025-03-10 Trump has been pouring taxpayer dollars into golf courses; two in Germany, one in Japan, one in Korea, and one in Massachusetts. 
+
+[https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/](https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/)
 
 2025-03-11 Hegseth improperly discussed Yemen strike plans on Signal with unauthorized participants.
 

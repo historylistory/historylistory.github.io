@@ -6,6 +6,26 @@ subcategory_slug: war-profits
 permalink: /categories/economy-labor-poverty/war-profits/
 ---
 
+### The More You Know
+
+Contractors and price hikes in defense spending:
+[https://www.youtube.com/watch?v=T9IV09cvXx4](https://www.youtube.com/watch?v=T9IV09cvXx4)
+
+Lockheed’s F-35 subcontracts are spread across 307 congressional districts in 45 states, ensuring the fealty of congressmen and senators. 
+
+[https://harpers.org/archive/2019/06/the-pentagon-syndrome/](https://harpers.org/archive/2019/06/the-pentagon-syndrome/)
+
+
+Servicemembers are not allowed to repair their own equipment.
+
+[https://responsiblestatecraft.org/military-repairs/](https://responsiblestatecraft.org/military-repairs/)
+
+
+The Pentagon is actively enlisting Silicon Valley startups and tech giants to build next-generation defense systems. 
+
+[https://www.wsj.com/articles/pentagon-woos-silicon-valley-to-join-ranks-of-arms-makers-38b1d4c0](https://www.wsj.com/articles/pentagon-woos-silicon-valley-to-join-ranks-of-arms-makers-38b1d4c0)
+
+[https://responsiblestatecraft.org/ai-weapons-silicon-valley/](https://responsiblestatecraft.org/ai-weapons-silicon-valley/)
 
 ### 2009 
 
