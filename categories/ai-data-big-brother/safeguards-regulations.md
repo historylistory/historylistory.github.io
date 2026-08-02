@@ -36,6 +36,14 @@ permalink: /categories/ai-data-big-brother/safeguards-regulation/
 
 [https://www.cnn.com/2025/07/01/tech/senate-strikes-ai-regulation-moratorium-agenda-bill](https://www.cnn.com/2025/07/01/tech/senate-strikes-ai-regulation-moratorium-agenda-bill)
 
+2025-07-15 The Trump administration defunded CISA (Cybersecurity and Infrastructure Security Agency), accusing it of spreading misinformation and combating foreign disinformation. Interesting sidenote, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
+
+[https://www.meritalk.com/articles/trump-budget-slashes-cisa-science-funding-boosts-space-mission/](https://www.meritalk.com/articles/trump-budget-slashes-cisa-science-funding-boosts-space-mission/)
+
+[https://www.cybersecuritydive.com/news/cisa-stakeholder-engagement-division-layoffs-critical-infrastructure-international/803433/#](https://www.cybersecuritydive.com/news/cisa-stakeholder-engagement-division-layoffs-critical-infrastructure-international/803433/)
+
+[https://www.computerweekly.com/news/366625236/US-cyber-agency-CISA-faces-stiff-budget-cuts#](https://www.computerweekly.com/news/366625236/US-cyber-agency-CISA-faces-stiff-budget-cuts)
+
 ### 2025 September
 
 2025-09-16 Ted Cruz said the AI regulation moratorium would return.

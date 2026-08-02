@@ -297,6 +297,15 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html](https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html)
 
+2026-03-26 The Trump administration redirected $1.25B from the State Department to his Boad of Peace. They took the funds from international disaster assistance, peacekeeping efforts, and other International programs. 
+
+[https://www.semafor.com/article/03/26/2026/state-department-sends-125b-in-foreign-aid-to-board-of-peace](https://www.semafor.com/article/03/26/2026/state-department-sends-125b-in-foreign-aid-to-board-of-peace)
+
+[https://www.thefiscaltimes.com/2026/03/26/Trump-Shifts-125-Billion-State-Department-Funds-His-Board-Peace](https://www.thefiscaltimes.com/2026/03/26/Trump-Shifts-125-Billion-State-Department-Funds-His-Board-Peace)
+
+[https://www.yahoo.com/news/articles/state-department-sends-1-25b-140048507.html](https://www.yahoo.com/news/articles/state-department-sends-1-25b-140048507.html)
+
+[https://www.federalregister.gov/documents/2026/01/22/2026-01271/designating-the-board-of-peace-as-a-public-international-organization-entitled-to-enjoy-certain](https://www.federalregister.gov/documents/2026/01/22/2026-01271/designating-the-board-of-peace-as-a-public-international-organization-entitled-to-enjoy-certain)
 
 
 2026-03-29 Trump touted more plans for his ballroom to include bulletproof glass and drone-proof construction. This during a war in Iran, the lowest job-market in decades, surging inflation, unaffordable healthcare, increasing poverty, and a shutdown. 

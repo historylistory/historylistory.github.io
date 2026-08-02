@@ -732,6 +732,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-03-26 Ukrainian drones struck ports and refineries along the Baltic sea, halting at least 40% of Russian oil export capacity. Zelenskyy reported that the U.S. was making any security guarantees for Ukraine contingent upon Ukraine giving up its defense of the Eastern Donbas region.
 
+2026-03-26 The Trump administration redirected $1.25B from the State Department to his Boad of Peace. They took the funds from international disaster assistance, peacekeeping efforts, and other International programs. 
+
 2026-03-27 Sony raised PlayStation 5 prices globally due to chip shortages.
 
 2026-03-27 The proposed funding bill by Democrats to fund TSA workers passed the House, but the GOP Senate warned the bill would be “dead on arrival” once it met the Senate.

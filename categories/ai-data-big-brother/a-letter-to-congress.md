@@ -184,7 +184,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2025-07-09 A report claimed Grok provided instructions for rape and breaking into homes.
 
-2025-07-15 The Trump administration defunded CISA, accusing it of spreading misinformation and combating foreign disinformation. Interesting sidenote, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
+2025-07-15 The Trump administration defunded CISA (Cybersecurity and Infrastructure Security Agency), accusing it of spreading misinformation and combating foreign disinformation. Interesting sidenote, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
 
 2025-07-17 Grok malfunctioned, called itself “MechaHitler,” and posted antisemitic content.
 
