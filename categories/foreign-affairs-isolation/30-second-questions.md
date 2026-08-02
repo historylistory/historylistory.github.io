@@ -40,7 +40,7 @@ Response received? Not yet.
 
 ### Question 2
 
-Trump withdrew from the World Health Organization, boycotted the U.N. review of America’s human-rights record, gutted USAID, threatened the International Criminal Court unless it shielded him and his allies, and refused to extend the trade agreement he negotiated with Canada and Mexico. This administration treats diplomacy like a petty feud—severing ties, insulting allies, and creating openings for other countries to build alliances without us. Why are we isolating ourselves, and what will you do to restore America’s credibility and relationships?
+Trump withdrew from the World Health Organization, boycotted the U.N. review of America’s human-rights record, gutted USAID, threatened the International Criminal Court unless it shielded him and his allies, and refused to extend the trade agreement he negotiated with Canada and Mexico. This administration treats diplomacy like a petty feud, severing ties, insulting allies, and creating openings for other countries to build alliances without us. Why are we isolating ourselves, and what will you do to restore America’s credibility and relationships?
 
 SOME SOURCES
 
