@@ -12,3 +12,4 @@ permalink: /categories/foreign-affairs-isolation/albania/
 
 [https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4](https://www.youtube.com/watch?v=aBwZ9XuOjPI&list=WL&index=4)
 
+[https://www.pbs.org/newshour/world/protests-grow-over-resort-in-albania-linked-to-trump-son-in-law-jared-kushner](https://www.pbs.org/newshour/world/protests-grow-over-resort-in-albania-linked-to-trump-son-in-law-jared-kushner)

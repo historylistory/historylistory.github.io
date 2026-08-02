@@ -6,6 +6,63 @@ subcategory_slug: gaza
 permalink: /categories/foreign-affairs-isolation/gaza/
 ---
 
+### 1856 Treaty of Friendship and Commerce
+
+1856-02-22 Treaty of Friendship and Commerce
+
+### 1909 Anglo-Persian Oil Company
+
+1909 (historical context) The Ango-Persian Oil Company was incorporated in the United Kingdom. Renamed to Anglo-Iranian Oil Company in 1935. 
+
+[https://www.iranicaonline.org/articles/anglo-persian-oil-company/](https://www.iranicaonline.org/articles/anglo-persian-oil-company/)
+
+[https://iranian-studies.stanford.edu/events/lecture-series/irans-1933-oil-concession-myths-and-realities](https://iranian-studies.stanford.edu/events/lecture-series/irans-1933-oil-concession-myths-and-realities)
+
+
+### 1914 Sykes-Picot Agreement
+
+1914-01-01 European imperial powers began plans to partition up the Ottoman Empire region after World War I, including holding secret negotiations in 1915 called the Sykes-Picot Agreement which was signed May 16, 1916. This caused much resentment from Arabs and Muslims.
+
+[https://www.history.com/this-day-in-history/may-16/britain-and-france-conclude-sykes-picot-agreement](https://www.history.com/this-day-in-history/may-16/britain-and-france-conclude-sykes-picot-agreement)
+
+[https://interactive.aljazeera.com/aje/2016/sykes-picot-100-years-middle-east-map/index.html#:~:text=The%20borders%20of%20the%20Middle,shaped%20for%20years%20to%20come](https://interactive.aljazeera.com/aje/2016/sykes-picot-100-years-middle-east-map/index.html).
+
+### 1917 Balfour
+
+1917-11-02 The British Foreign Secretary Arthor Balfour pledged British support for establishing a national home for the Jewish people, AKA Israel, to support Zionist aspirations. This led to plans to divide up the heart of the region in places where Palestinians already lived. This was created without local consent and against the will of the region’s inhabitants.
+
+[https://www.bbc.com/news/world-middle-east-41765892](https://www.bbc.com/news/world-middle-east-41765892)
+
+[https://www.palquest.org/en/highlight/157/balfour-declaration-2-november-1917](https://www.palquest.org/en/highlight/157/balfour-declaration-2-november-1917)
+
+### 1918 European Colonialism
+
+1918-11-11 World War I ended, but much of the Arab region did not regain independence. Rather, control was handed over to European colonial powers and carved up amongst themselves. Most Arab nations did not gain independence until after World War II.
+
+[https://education.cfr.org/learn/reading/middle-east-timeline#:~:text=Ottoman%20Empire%20Falls%2C%20Europe%20Redraws,national%20identities%20in%20the%20region](https://education.cfr.org/learn/reading/middle-east-timeline).
+
+### 1943 Lebanon Independence
+
+1943-11-22 Lebanon gained its independence.
+
+[https://www.britannica.com/place/Lebanon/French-mandate](https://www.britannica.com/place/Lebanon/French-mandate)
+
+### 1946 Syria, Jordan Independence
+
+1946-04-17 Syria gained their independence.
+
+[https://www.bbc.com/news/world-middle-east-14703995](https://www.bbc.com/news/world-middle-east-14703995)
+
+1946-05-25 Jordan gained their independence.
+
+[https://history.state.gov/countries/jordan](https://history.state.gov/countries/jordan)
+
+### 1947 Nakba Ethnic Cleansing
+
+1947-12-31 Israel began carrying out the Nakba, or ethnic cleansing, of Palestinian Arabs in the region. It began with displacement of 700,000 people and grew into a genocide which lasted all the way through 2026.
+
+[https://en.wikipedia.org/wiki/Nakba](https://en.wikipedia.org/wiki/Nakba)
+
 ### 2017
 
 2017-01-01 (Context) Oracle CEO Larry Ellison donated $**16.6M** to the Friends of the Israel Defense Forces, a non-profit that operates fifteen regional offices in the U.S. and Panama. A separate post on X suggested he also donated as early as 2009.

@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: NATO
+title: AAA. NATO
 category_slug: foreign-affairs-isolation
-subcategory_slug: nato
-permalink: /categories/foreign-affairs-isolation/nato/
+subcategory_slug: aaa-nato
+permalink: /categories/foreign-affairs-isolation/aaa-nato/
 ---
 
 ### 1949

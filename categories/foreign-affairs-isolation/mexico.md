@@ -6,6 +6,12 @@ subcategory_slug: mexico
 permalink: /categories/foreign-affairs-isolation/mexico/
 ---
 
+### 2025 January
+
+2025-01-20 Trump signed executive order 14172 directing federal agencies to refer to the Gulf of Mexico as the Gulf of America.
+
+[https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy#:~:text=The%20Gulf%20of%20Mexico%20has,Trump%20on%20January%2020%2C%202025](https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy).
+
 ### 2026 July
 
 2026-07-14 Mexico filed a criminal complaint on the US for migrant deaths in custody. 
