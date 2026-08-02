@@ -76,3 +76,8 @@ permalink: /categories/climate-change/disaster-recovery/
 
 [https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/](https://cepr.net/publications/disaster-declarations-continue-to-highlight-trumps-partisan-favoritism/)
 
+### 2026 April
+
+2026-04-06 Trump’s FY27 budget will cut climate and disaster funding. 
+
+[https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/](https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/)

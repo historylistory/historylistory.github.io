@@ -139,6 +139,12 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 
 SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html](https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-total.html)
 
+### 2026 April
+
+2026-04-06 Trump’s FY27 budget will cut climate and disaster funding. 
+
+[https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/](https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/)
+
 ### 2026 May
 
 2026-05-18 The White House passed legislation for a national annual $130 registration fee for electric vehicles. 

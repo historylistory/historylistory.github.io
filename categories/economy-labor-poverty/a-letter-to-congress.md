@@ -744,9 +744,14 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 ## 2026 April
 
+2026-04-03 Trump proposed a 44% budget hike for the Department of Defense. 
+
+
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 2026-04-03 Trump’s new budget seeks TSA privatization.
+
+2026-04-03 Part of Trump’s FY 2027 Department of War Budget overview book addresses making “transformative investments in our Nation’s critical minerals industry”. 
 
 2026-04-06 Gulf investors, including Abu Dhabi sovereign wealth fund L’imad, backed Paramount’s proposed $81 billion acquisition of Warner
 
@@ -821,6 +826,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-04-23 A Paramount-Warner Brothers Discovery merger for $111B was approved.
 
 2026-04-23 Republicans used budget reconciliation measures to bypass votes and approve an additional $70B in ICE funding.
+
+2026-04-24 By the end of April Trump had spent at least $4.7B on extrajudicial killings and boat strikes in Latin America.
 
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 

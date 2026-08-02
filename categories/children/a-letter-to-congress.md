@@ -139,6 +139,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-04-08 The Fairness for Stay-at-Home Parents Act was introduced
 
+2026-04-10 Trump’s 2027 budget will further cut $923M from HIV/AIDS healthcare, $561M from maternal and child health, $576M from mental health including suicide prevention, and $872M from health workforce programs. This would be the single largest spending increase since WWII.
+
 ## 2025 May
 
 2025-05-02 The administration reduced funding for after-school and summer-learning programs, affecting working families and nonprofit partnerships. 

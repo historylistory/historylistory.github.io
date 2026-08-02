@@ -115,6 +115,11 @@ permalink: /categories/health/research-treatment/
 
 ### 2026 April
 
+2026-04-10 Trump’s 2027 budget will further cut $923M from HIV/AIDS healthcare, $561M from maternal and child health, $576M from mental health including suicide prevention, and $872M from health workforce programs. This would be the single largest spending increase since WWII.
+
+[https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/](https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/)
+
+
 2026-04-10 Acting CDC director Jay Bhattacharya blocked COVID vaccination reports showing their benefits.  Jay Bhattacharya was one of the authors of the Great Barrington Declaration in 2020 which argued against COVID lockdowns even before vaccines were developed.
 
 [https://www.theguardian.com/us-news/2026/apr/10/cdc-chief-covid-vaccine](https://www.theguardian.com/us-news/2026/apr/10/cdc-chief-covid-vaccine)

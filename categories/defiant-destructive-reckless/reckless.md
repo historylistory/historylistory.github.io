@@ -309,6 +309,12 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://www.bbc.com/news/articles/cy7mev35x2lo](https://www.bbc.com/news/articles/cy7mev35x2lo)
 
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
+[https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid](https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid)
+
+[https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops](https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops)
+
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 [https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting](https://www.axios.com/2026/01/27/trump-stephen-miller-massacre-minnesota-shooting)

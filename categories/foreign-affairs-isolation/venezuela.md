@@ -250,6 +250,12 @@ permalink: /categories/foreign-affairs-isolation/venezuela/
 
 [https://www.reuters.com/world/americas/venezuela-acting-president-opposition-leader-navigate-new-relations-with-trump-2026-01-16/](https://www.reuters.com/world/americas/venezuela-acting-president-opposition-leader-navigate-new-relations-with-trump-2026-01-16/)
 
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
+[https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid](https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid)
+
+[https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops](https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops)
+
 ### 2026 February
 
 2026-02-24 During the State of the Union Trump joked about U.S. strikes on Venezuelan boats in the Caribbean that killed hundreds of people, “We very seriously damaged their fishing industry, also. Also, nobody wants – nobody wants to go fishing anymore”.
@@ -291,6 +297,11 @@ COOKIES [https://www.france24.com/en/live-news/20260414-venezuela-chevron-strike
 [https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/](https://www.reuters.com/world/americas/us-arrests-soldier-accused-betting-400000-maduro-removal-abc-news-reports-2026-04-23/)
 
 [https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426](https://abcnews.com/US/doj-arrests-soldier-made-400000-betting-maduros-removal/story?id=132325426)
+
+2026-04-24 By the end of April Trump had spent at least $4.7B on extrajudicial killings and boat strikes in Latin America.
+
+[https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h](https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h)
+
 
 2026-04-26 The U.S. struck another boat, claiming once again without merit it was transporting narcotics. 
 

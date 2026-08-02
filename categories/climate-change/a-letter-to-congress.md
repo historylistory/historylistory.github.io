@@ -311,6 +311,11 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-04-02 Argentina’s lawmakers, led by Javier Milei, pushed reforms to remove protections on freshwater reserves and glaciers to allow for drilling.
 
+2026-04-03 Part of Trump’s FY 2027 Department of War Budget overview book addresses making “transformative investments in our Nation’s critical minerals industry”. 
+
+
+2026-04-06 Trump’s FY27 budget will cut climate and disaster funding. 
+
 2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
 
 2026-04-16 The senate voted to lift a federal ban on mining upstream from Minnesota’s pristine Boundary Waters Canoe Area Wilderness.

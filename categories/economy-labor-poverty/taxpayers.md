@@ -323,6 +323,13 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 
 ### 2026 April
 
+2026-04-03 Trump proposed a 44% budget hike for the Department of Defense. 
+
+[https://www.fdd.org/analysis/2026/04/23/trump-administration-requests-extraordinary-1-5-trillion-defense-budget/](https://www.fdd.org/analysis/2026/04/23/trump-administration-requests-extraordinary-1-5-trillion-defense-budget/)
+
+[https://www.thecentersquare.com/national/article_0a26c41a-8770-465d-84e5-2e6bb7664ffa.html](https://www.thecentersquare.com/national/article_0a26c41a-8770-465d-84e5-2e6bb7664ffa.html)
+
+
 2026-04-03 Trump made deep cuts to the Low-Income Home Energy Assistance Program (LIHEAP) and recommended cutting it entirely while simultaneously demanding $1.5T in defense spending to support Israels war. He stated, “It’s not possible for us to take care of daycare, Medicaid, Medicare, all these individual…things. They can do it on a State basis. You can’t do it on a Federal – we have to take care of one thing: military protection. We have to guard the country”.
 
 [https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4](https://www.youtube.com/watch?v=L0IV2JT26Ls&list=WL&index=4)
@@ -384,6 +391,10 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 [https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation](https://www.npr.org/2026/04/23/g-s1-118330/congress-dhs-spending-reconciliation)
 
 [https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/](https://thehill.com/homenews/senate/5844515-senate-republicans-budget-resolution/)
+
+2026-04-24 By the end of April Trump had spent at least $4.7B on extrajudicial killings and boat strikes in Latin America.
+
+[https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h](https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h)
 
 2026-04-27 Lindsey Graham pushed for taxpayers to fund Trump’s ballroom despite earlier promises of private financing.
 

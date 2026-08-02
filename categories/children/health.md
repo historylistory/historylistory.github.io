@@ -77,6 +77,12 @@ permalink: /categories/children/health/
 
 [https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/](https://www.politifact.com/article/2025/sep/15/Tylenol-acetaminophen-pregnancy-autism-RFK/)
 
+### 2026 April
+
+2026-04-10 Trump’s 2027 budget will further cut $923M from HIV/AIDS healthcare, $561M from maternal and child health, $576M from mental health including suicide prevention, and $872M from health workforce programs. This would be the single largest spending increase since WWII.
+
+[https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/](https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/)
+
 ### 2026 May
 
 2026-05-08 RFK ended a ban on tanning beds for minors.

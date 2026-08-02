@@ -287,6 +287,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-04-24 Israeli forces continued their killings in Gaza despite a ceasefire.
 
+2026-04-24 By the end of April Trump had spent at least $4.7B on extrajudicial killings and boat strikes in Latin America.
+
 2026-04-26 The U.S. struck another boat, claiming once again without merit it was transporting narcotics. 
 
 2026-04-29 Leaked audio revealed U.K. Ambassador Christian Turner saying the “only country” to have a “special relationship” with the United States was “probably Israel”.

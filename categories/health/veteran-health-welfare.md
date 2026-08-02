@@ -119,6 +119,10 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 ### 2026 April
 
+2026-04-10 Trump’s 2027 budget will further cut $923M from HIV/AIDS healthcare, $561M from maternal and child health, $576M from mental health including suicide prevention, and $872M from health workforce programs. This would be the single largest spending increase since WWII.
+
+[https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/](https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/)
+
 2026-04-18 Trump signed an Executive Order to loosen restrictions on psychedelic therapy treatment for military members suffering from PTSD. This came shortly after podcaster Joe Rogan texted Trump about ibogaine. 
 
 [https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4](https://www.youtube.com/watch?v=pWOnsAHeKLg&list=WL&index=4)

@@ -174,6 +174,11 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 
 ### 2026 April
 
+2026-04-10 Trump’s 2027 budget will further cut $923M from HIV/AIDS healthcare, $561M from maternal and child health, $576M from mental health including suicide prevention, and $872M from health workforce programs. This would be the single largest spending increase since WWII.
+
+[https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/](https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/)
+
+
 2026-04-22 A Senate finance committee hearing revealed TrumpRX is not more affordable as advertised. For example, TrumpRX offers Protonix for $200, but Costco offers it for $16. TrumpRX offers heart medication for $336 while CostPlus sells it for $12. 
 
 [https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3](https://www.youtube.com/watch?v=P19C2Sgle0g&list=WL&index=3)

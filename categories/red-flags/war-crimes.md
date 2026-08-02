@@ -348,6 +348,10 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/](https://www.reuters.com/world/middle-east/israeli-attacks-kill-least-four-palestinians-gaza-medics-say-2026-04-26/)
 
+2026-04-24 By the end of April Trump had spent at least $4.7B on extrajudicial killings and boat strikes in Latin America.
+
+[https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h](https://english.almayadeen.net/news/politics/venezuela-aggression--maduro-capture--boat-strikes-cost-us-h)
+
 2026-04-26 The U.S. struck another boat, claiming once again without merit it was transporting narcotics. 
 
 [https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242](https://www.nbcnews.com/politics/politics-news/3-killed-latest-us-military-strike-alleged-drug-boat-eastern-pacific-rcna342242)

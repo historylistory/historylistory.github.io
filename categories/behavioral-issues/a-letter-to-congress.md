@@ -375,6 +375,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-01-23 Just one hour after agents executed Alex Pretti, Pam Bondi sent a letter to Tim Walz stating the Trump administration would remove ICE from the State if Minnesota met demands to hand over voter files, SNAP data, and repealed its sanctuary policy.
 
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 ## 2026 February

@@ -247,6 +247,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-01-26 Despite a judicial warrant, federal agents blocked the Minnesota Bureau of Criminal Apprehension from accessing the scene to the fatal shooting of Alex Pretti.
 
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
 ## 2026 February 

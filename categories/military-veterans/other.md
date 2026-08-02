@@ -68,6 +68,14 @@ permalink: /categories/military-veterans/other/
 
 [https://www.cbsnews.com/news/trump-says-he-could-send-army-navy-air-force-marines-to-us-cities/](https://www.cbsnews.com/news/trump-says-he-could-send-army-navy-air-force-marines-to-us-cities/)
 
+### 2026 January
+
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
+[https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid](https://www.pbs.org/newshour/nation/trump-says-u-s-used-secret-discombobulator-on-venezuelan-equipment-during-maduro-raid)
+
+[https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops](https://www.scmp.com/news/world/united-states-canada/article/3343546/trump-hails-us-discombobulator-weapon-he-meets-maduro-op-troops)
+
 ### 2026 March 
 
 2026-03-01 Trump peddled a veteran’s edition of his Trump bible for $99.99 on his website and on eBay.

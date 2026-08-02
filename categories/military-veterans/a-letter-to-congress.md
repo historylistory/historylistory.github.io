@@ -229,6 +229,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2026-01-14 The Congressional Budget Office estimated American taxpayers would spend $125M just to rebrand the DoD as “Department of War”.
 
+2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 
+
 2026-01-28 After the US removed flags honoring fallen Danish soldiers who died in Afghanistan on behalf of the US, Trump claimed it was because they “didn’t walk the front line”.
 
 ## 2026 February 
@@ -305,6 +307,8 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-04-02 Pete Hegseth fired Army Chief of Staff General Randy George, drawing criticism from several Republican senators
 
 2026-04-03 The U.S. military conducted a Search and Rescue mission for an F-15 fighter pilot who was shot down in Iran.
+
+2026-04-03 Trump proposed a 44% budget hike for the Department of Defense. 
 
 2026-04-04 Hegseth ordered base commanders to allow troops to carry personal firearms. This was originally banned by George Bush in the 90’s to prevent accidents and suicides.
 

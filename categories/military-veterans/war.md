@@ -262,6 +262,12 @@ The Pentagon is actively enlisting Silicon Valley startups and tech giants to bu
 
 [https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/](https://time.com/article/2026/04/05/-safe-and-sound-how-a-u-s-airman-shot-down-in-iran-was-rescued-from-a-mountain-crevice/)
 
+2026-04-03 Trump proposed a 44% budget hike for the Department of Defense. 
+
+[https://www.fdd.org/analysis/2026/04/23/trump-administration-requests-extraordinary-1-5-trillion-defense-budget/](https://www.fdd.org/analysis/2026/04/23/trump-administration-requests-extraordinary-1-5-trillion-defense-budget/)
+
+[https://www.thecentersquare.com/national/article_0a26c41a-8770-465d-84e5-2e6bb7664ffa.html](https://www.thecentersquare.com/national/article_0a26c41a-8770-465d-84e5-2e6bb7664ffa.html)
+
 2026-04-09 Survivors of a deadly attack in Kuwait March 1st 2026 said they were not prepared or fortified despite Hegseth asserting they were. 
 
 [https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/](https://www.cbsnews.com/news/iran-war-kuwait-drone-attack-survivors-us-army/)

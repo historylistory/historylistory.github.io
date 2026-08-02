@@ -68,6 +68,11 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 ### 2026 April
 
+
+2026-04-03 Part of Trump’s FY 2027 Department of War Budget overview book addresses making “transformative investments in our Nation’s critical minerals industry”. 
+
+[https://www.bhfs.com/insight/critical-minerals-take-center-stage-in-trumps-fy27-budget-request/](https://www.bhfs.com/insight/critical-minerals-take-center-stage-in-trumps-fy27-budget-request/)
+
 2026-04-13 Chevron set to expand oil extraction operations in Venezuela.
 
 [https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela](https://www.democracynow.org/2026/4/14/headlines/chevron_set_to_expand_oil_extraction_operations_in_venezuela)
