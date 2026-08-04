@@ -17,6 +17,10 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1 
 
+Oklahoma let PragerU create an “America First” test that questioned teachers about false 2020 election claims. Nebraska welcomed Turning Point USA into schools under rhetoric about “God and Satan”. Texas restricted how teachers discuss race and controversial events. Republicans claim they oppose classroom indoctrination, yet they are giving partisan organizations power over teachers and curriculum. Why should political advocacy groups control public education, and what will you do to keep propaganda and religious nationalism out of our schools?
+
+Or you could ask this question this way: 
+
 Conservative advocacy groups such as PragerU and Turning Point USA are gaining increasing influence in public schools, while some officials are imposing ideological tests on teachers and disciplining educators who criticize curriculum decisions. Will you oppose government efforts to privilege partisan organizations in public education, protect teachers who speak honestly about curriculum, and ensure history and civics standards are written by qualified educators, not political advocacy groups?
 
 SOME SOURCES 
