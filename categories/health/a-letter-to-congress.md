@@ -613,3 +613,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-07-30 The Trump administration told water system operators across the country that Iran was performing cyber attacks on their water systems. 
 
 2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 
+
+### 2026 August
+
+2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 

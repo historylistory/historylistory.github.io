@@ -590,3 +590,10 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/](https://www.cbsnews.com/video/trump-blasts-pirros-decision-in-reflecting-pool-case/)
 
 
+2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
+
+[https://www.youtube.com/watch?v=M8A3UYqiwQM&list=WL&index=2](https://www.youtube.com/watch?v=M8A3UYqiwQM&list=WL&index=2)
+
+[https://www.pbs.org/newshour/politics/watch-trump-says-jeanine-pirro-made-a-mistake-and-choked-on-reflecting-pool-vandalism-case-reversal](https://www.pbs.org/newshour/politics/watch-trump-says-jeanine-pirro-made-a-mistake-and-choked-on-reflecting-pool-vandalism-case-reversal)
+
+[https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651](https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651)

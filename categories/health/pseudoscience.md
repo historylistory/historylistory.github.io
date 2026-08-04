@@ -135,3 +135,15 @@ permalink: /categories/health/pseudoscience/
 [https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html](https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html)
 
 SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411](https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411)
+
+### 2026 August
+
+2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 
+
+[https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/](https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/)
+
+[https://www.youtube.com/watch?v=Fmun_86S5qk&list=WL&index=3](https://www.youtube.com/watch?v=Fmun_86S5qk&list=WL&index=3)
+
+SUB WALL [https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/](https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/)
+
+SUB WALL [https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641](https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641)

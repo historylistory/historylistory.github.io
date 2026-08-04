@@ -623,3 +623,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 
 2026-07-29 Trump claimed he would “beat the fucking shit” out of Iran. 
+
+
+
+### 2026 August 
+
+2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 

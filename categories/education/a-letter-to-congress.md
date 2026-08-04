@@ -330,6 +330,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-05-26 NASA announced plans to build a moon base.
 
+2026-05-29 The White House Office of Management and Budget proposed a new rule that would shift American science by giving political appointees a wide range of control over grants. The rule specifically says the funding would be, “aligned with administration policies and priorities”. 
+
 ## 2026 June 
 
 2026-06-16 Trump administration moved two high-profile functions out of the Department of Education: Civil Rights Education will now be under the Department of Justice, and Special Education will now be under the Department of Health and Human Services.

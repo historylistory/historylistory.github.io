@@ -81,3 +81,14 @@ permalink: /categories/education/dismantling-research-science/
 
 [https://www.youtube.com/watch?v=1Lul2ZUN0RI&list=WL&index=6](https://www.youtube.com/watch?v=1Lul2ZUN0RI&list=WL&index=6)
 
+2026-05-29 The White House Office of Management and Budget proposed a new rule that would shift American science by giving political appointees a wide range of control over grants. The rule specifically says the funding would be, “aligned with administration policies and priorities”. 
+
+[https://www.youtube.com/watch?v=TmhQC3lAQRc&list=WL&index=1](https://www.youtube.com/watch?v=TmhQC3lAQRc&list=WL&index=1)
+
+[https://www.propublica.org/article/federal-science-grants-russell-vought-omb](https://www.propublica.org/article/federal-science-grants-russell-vought-omb)
+
+[https://www.insidehighered.com/news/government/science-research-policy/2026/07/07/comments-flood-omb-proposal-political-control](https://www.insidehighered.com/news/government/science-research-policy/2026/07/07/comments-flood-omb-proposal-political-control)
+
+[https://www.acenet.edu/Pages/Groups-Warn-OMB-Rule-Shift-Grant-Decisions.aspx](https://www.acenet.edu/Pages/Groups-Warn-OMB-Rule-Shift-Grant-Decisions.aspx)
+
+

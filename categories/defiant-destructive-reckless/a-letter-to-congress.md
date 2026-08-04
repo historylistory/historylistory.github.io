@@ -488,3 +488,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 ### 2026 August 
 
 2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
+
+2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
