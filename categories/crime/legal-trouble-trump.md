@@ -241,3 +241,15 @@ permalink: /categories/crime/legal-trouble-trump/
 2026-05-27 The White House targeted E. Jean Carroll who Trump was found liable in courts for sexually abusing in 1996. 
 
 [https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6](https://www.youtube.com/watch?v=8fsr2pgsCEg&list=WL&index=6)
+
+### 2026 August
+
+2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+
+[https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
+
+[https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad](https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad)
+
+[https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
+
+[https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)

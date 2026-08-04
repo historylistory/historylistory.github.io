@@ -55,3 +55,14 @@ permalink: /categories/health/measles/
 [https://www.npr.org/sections/shots-health-news/2025/04/07/nx-s1-5354900/hhs-rfk-endorses-mmr-measles-vaccine-stoking-supporters-fury](https://www.npr.org/sections/shots-health-news/2025/04/07/nx-s1-5354900/hhs-rfk-endorses-mmr-measles-vaccine-stoking-supporters-fury)
 
 SUB WALL [https://www.politico.com/news/2025/04/06/kennedy-support-measles-vaccine-outbreak-00276021](https://www.politico.com/news/2025/04/06/kennedy-support-measles-vaccine-outbreak-00276021)
+
+### 2026 July
+
+2026-07-31 Measles cases hit an all-time high due to the Trump administration’s misinformation at 2371 cases as of July 30. 
+
+[https://www.cdc.gov/measles/data-research/index.html](https://www.cdc.gov/measles/data-research/index.html)
+
+[https://www.cidrap.umn.edu/measles/us-adds-53-more-measles-cases-its-2026-total](https://www.cidrap.umn.edu/measles/us-adds-53-more-measles-cases-its-2026-total)
+
+[https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm](https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm)
+

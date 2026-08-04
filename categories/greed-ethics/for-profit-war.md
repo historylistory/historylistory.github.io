@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: War Profits
+title: For-Profit War
 category_slug: greed-ethics
-subcategory_slug: war-profits
-permalink: /categories/greed-ethics/war-profits/
+subcategory_slug: for-profit-war
+permalink: /categories/greed-ethics/for-profit-war/
 ---
 
 ### 2009 

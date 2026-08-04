@@ -782,3 +782,15 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 [https://www.espn.com/soccer/story/_/id/49500782/fifa-world-cup-investment-private-gianni-infantino](https://www.espn.com/soccer/story/_/id/49500782/fifa-world-cup-investment-private-gianni-infantino)
 
 [https://www.nbcnews.com/sports/soccer/fifa-president-gianni-infantino-faces-boycott-20b-world-cup-private-eq-rcna590207](https://www.nbcnews.com/sports/soccer/fifa-president-gianni-infantino-faces-boycott-20b-world-cup-private-eq-rcna590207)
+
+### 2026 August
+
+2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+
+[https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
+
+[https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad](https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad)
+
+[https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
+
+[https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)

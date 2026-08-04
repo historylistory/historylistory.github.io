@@ -271,3 +271,9 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.usnews.com/news/world/articles/2026-07-14/cubas-national-electric-grid-collapses-for-the-third-time-in-july-state-media-says](https://www.usnews.com/news/world/articles/2026-07-14/cubas-national-electric-grid-collapses-for-the-third-time-in-july-state-media-says)
 
+### 2026 August
+
+2026-08-03 Cuba’s electric grid collapsed for the third time. 
+
+[https://www.nbcnews.com/world/cuba/cuba-plunges-darkness-electric-grid-collapses-rcna590542](https://www.nbcnews.com/world/cuba/cuba-plunges-darkness-electric-grid-collapses-rcna590542)
+

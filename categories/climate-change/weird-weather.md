@@ -317,3 +317,23 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)
 
+### 2026 August
+
+2026-08-02 The UK reported low water levels due to serious drought. The shortage threatens food supply and sewage treatment. 
+
+[https://www.theguardian.com/environment/2026/aug/02/we-cannot-magic-up-more-water-the-supply-problems-putting-housing-targets-in-england-at-risk](https://www.theguardian.com/environment/2026/aug/02/we-cannot-magic-up-more-water-the-supply-problems-putting-housing-targets-in-england-at-risk)
+
+[https://www.bbc.com/news/articles/ckg35n7yny3o](https://www.bbc.com/news/articles/ckg35n7yny3o)
+
+[https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/](https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/)
+
+
+2026-08-03 Two firefighters died in Athens Greece after firefighting helicopters collied. 
+
+[https://www.bbc.com/news/live/cqjxeexpenzt](https://www.bbc.com/news/live/cqjxeexpenzt)
+
+2026-08-03 Hungary closed its nuclear power plant amid a drought and soaring temperatures. 
+
+[https://www.france24.com/en/amid-a-drought-and-soaring-temperatures-hungary-shuts-down-its-nuclear-plant](https://www.france24.com/en/amid-a-drought-and-soaring-temperatures-hungary-shuts-down-its-nuclear-plant)
+
+

@@ -614,6 +614,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 
 
+2026-07-31 Measles cases hit an all-time high due to the Trump administration’s misinformation at 2371 cases as of July 30. 
+
 ### 2026 August
 
 2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 

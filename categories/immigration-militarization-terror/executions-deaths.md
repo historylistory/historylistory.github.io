@@ -389,6 +389,14 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://cw39.com/news/local/houston-ice-shooting-day-action/](https://cw39.com/news/local/houston-ice-shooting-day-action/)
 
+2026-07-24 29-year-old Prisciliano Trejo Ricano died in ICE custody after they were refused medical treatment for an aggressive form of leukemia. 
+
+[https://www.democracynow.org/2026/8/3/headlines/29_year_old_prisciliano_trejo_ricano_dies_in_ice_custody_in_georgia](https://www.democracynow.org/2026/8/3/headlines/29_year_old_prisciliano_trejo_ricano_dies_in_ice_custody_in_georgia)
+
+[https://cardinalpine.com/news/mexican-man-living-in-durham-dies-of-leukemia-in-ice-custody/](https://cardinalpine.com/news/mexican-man-living-in-durham-dies-of-leukemia-in-ice-custody/)
+
+[https://www.newsweek.com/ice-detainee-diagnosed-with-leukemia-dies-after-transfer-from-detention-12271146](https://www.newsweek.com/ice-detainee-diagnosed-with-leukemia-dies-after-transfer-from-detention-12271146)
+
 2026-07-28 A judge ordered ICE to release one of the witnesses to the murder of Lorenzo Salgado Arajo. 
 
 [https://abc7chicago.com/post/federal-judge-orders-release-witness-jose-trinidad-rojas-pliego-houston-ice-shooting-lorenzo-salgado-araujo/19592899/](https://abc7chicago.com/post/federal-judge-orders-release-witness-jose-trinidad-rojas-pliego-houston-ice-shooting-lorenzo-salgado-araujo/19592899/)
@@ -396,3 +404,7 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://thehill.com/regulation/court-battles/5995138-judge-orders-dhs-release-witness/](https://thehill.com/regulation/court-battles/5995138-judge-orders-dhs-release-witness/)
 
 [https://www.nbcdfw.com/news/local/texas-news/judge-orders-immigration-officials-to-release-key-witness-in-texas-ice-shooting/4055600/](https://www.nbcdfw.com/news/local/texas-news/judge-orders-immigration-officials-to-release-key-witness-in-texas-ice-shooting/4055600/)
+
+### 2026 August
+
+

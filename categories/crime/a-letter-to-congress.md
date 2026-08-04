@@ -720,3 +720,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-07-28 Reports showed that US boat strikes in international waters as part of “Operation Southern Spear” did not reduce the amount of cocaine flow into the US. 
 
 2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
+
+### 2026 August 
+
+2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.

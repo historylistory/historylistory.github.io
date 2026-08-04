@@ -123,3 +123,13 @@ permalink: /categories/climate-change/resources/
 [https://www.newsweek.com/timeline-shows-how-lakes-powell-mead-hit-lowest-combined-level-12254603](https://www.newsweek.com/timeline-shows-how-lakes-powell-mead-hit-lowest-combined-level-12254603)
 
 [https://www.youtube.com/watch?v=N5_wuaryW-Q&list=WL&index=1](https://www.youtube.com/watch?v=N5_wuaryW-Q&list=WL&index=1)
+
+### 2026 August
+
+2026-08-02 The UK reported low water levels due to serious drought. The shortage threatens food supply and sewage treatment. 
+
+[https://www.theguardian.com/environment/2026/aug/02/we-cannot-magic-up-more-water-the-supply-problems-putting-housing-targets-in-england-at-risk](https://www.theguardian.com/environment/2026/aug/02/we-cannot-magic-up-more-water-the-supply-problems-putting-housing-targets-in-england-at-risk)
+
+[https://www.bbc.com/news/articles/ckg35n7yny3o](https://www.bbc.com/news/articles/ckg35n7yny3o)
+
+[https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/](https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/)

@@ -1,6 +1,6 @@
 ---
 layout: subcategory
-title: For Profit Imprisonment
+title: For-Profit Imprisonment
 category_slug: greed-ethics
 subcategory_slug: for-profit-imprisonment
 permalink: /categories/greed-ethics/for-profit-imprisonment/

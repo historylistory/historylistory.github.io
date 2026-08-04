@@ -853,6 +853,9 @@ Next
 
 2026-07-24 Dozens of businesses in Houston participated in an economic boycott demanding justice for the killing of Lorenzo Salgado Araujo. 
 
+2026-07-24 29-year-old Prisciliano Trejo Ricano died in ICE custody after they were refused medical treatment for an aggressive form of leukemia. 
+
 2026-07-28 A judge ordered ICE to release one of the witnesses to the murder of Lorenzo Salgado Arajo. 
 
 2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
+

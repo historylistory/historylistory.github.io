@@ -137,3 +137,15 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 [https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html](https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html)
 
 SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/](https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/)
+
+### 2026 August
+
+2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+
+[https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
+
+[https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad](https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad)
+
+[https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
+
+[https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)

@@ -147,3 +147,8 @@ PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health
 
 [https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949](https://www.politico.com/news/2026/07/15/fire-tech-california-trump-washington-dc-technology-wildfires-00996949)
 
+### 2026 August
+
+2026-08-03 Two firefighters died in Athens Greece after firefighting helicopters collied. 
+
+[https://www.bbc.com/news/live/cqjxeexpenzt](https://www.bbc.com/news/live/cqjxeexpenzt)

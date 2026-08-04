@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: "Side Hustles & For-Profit Presidency"
+title: "For-Profit Presidency"
 category_slug: greed-ethics
-subcategory_slug: side-hustles-for-profit-presidency
-permalink: /categories/greed-ethics/side-hustles-for-profit-presidency/
+subcategory_slug: for-profit-presidency
+permalink: /categories/greed-ethics/for-profit-presidency/
 ---
 
 ### 1995
@@ -252,3 +252,23 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 [https://www.ft.com/content/e466df85-fa3b-4a7f-a4a1-ae04d66db99f?syn-25a6b1a6=1](https://www.ft.com/content/e466df85-fa3b-4a7f-a4a1-ae04d66db99f?syn-25a6b1a6=1)
 
 [https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/](https://www.reuters.com/business/media-telecom/trump-media-pitched-100000-monthly-fee-fast-feed-us-presidents-posts-ft-reports-2026-07-17/)
+
+### 2026 August
+
+2026-08-01 Trump’s Truth Social will now offer immediate access to Trump’s posts for paid users only, making this another for-profit-presidency scheme 
+
+[https://www.theguardian.com/us-news/2026/aug/01/trump-truth-social-early-access](https://www.theguardian.com/us-news/2026/aug/01/trump-truth-social-early-access)
+
+[https://www.bbc.com/news/articles/c4gdkl9zn8wo](https://www.bbc.com/news/articles/c4gdkl9zn8wo)
+
+[https://www.nbcnews.com/politics/donald-trump/truth-social-launches-service-selling-faster-access-trump-posts-rcna590419](https://www.nbcnews.com/politics/donald-trump/truth-social-launches-service-selling-faster-access-trump-posts-rcna590419)
+
+2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+
+[https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
+
+[https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad](https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad)
+
+[https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
+
+[https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)
