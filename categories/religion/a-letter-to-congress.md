@@ -386,3 +386,9 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-07-13 MAGA pastor Joel Webbon suggested seizing churches and imprisoning pastors for “blasphemy” for not following Christian Nationalism. 
 
 2026-07-18 Governor Huckabee Sanders announced Arkansas as #1 in the First Liberty Institute’s 2026 Religious Libert in the States Index. Megan Baily, spokesperson for the ACLU said in a statement, “"It's deeply ironic to celebrate Arkansas as the nation's leader on religious liberty while state leaders continue to push policies that privilege certain religious beliefs, mandate religious displays in public schools, censor books, and target LGBTQ people and other marginalized communities”. 
+
+2026-07-23 2500 Israelis led by far-right activist and National Security Minister Itamar Ben-Gvir entered the Al-Aqsa Mosque compound in Jerusalem during the Tisha B’Av fast. 
+
+## 2026 August 
+
+2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 

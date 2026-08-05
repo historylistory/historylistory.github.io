@@ -217,3 +217,12 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 
 [https://www.pillarcatholic.com/p/vatican-confirms-six-sspx-bishops](https://www.pillarcatholic.com/p/vatican-confirms-six-sspx-bishops)
 
+2026-07-23 2500 Israelis led by far-right activist and National Security Minister Itamar Ben-Gvir entered the Al-Aqsa Mosque compound in Jerusalem during the Tisha B’Av fast. 
+
+[https://www.theguardian.com/world/2026/aug/04/jordan-convenes-emergency-meeting-israel-religious-conflict-jerusalem](https://www.theguardian.com/world/2026/aug/04/jordan-convenes-emergency-meeting-israel-religious-conflict-jerusalem)
+
+[https://www.theguardian.com/world/2026/jul/23/israel-security-minister-itamar-ben-gvir-jewish-extremists-storm-al-aqsa-mosque-compound-jerusalem](https://www.theguardian.com/world/2026/jul/23/israel-security-minister-itamar-ben-gvir-jewish-extremists-storm-al-aqsa-mosque-compound-jerusalem)
+
+2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 
+
+[https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html](https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html)

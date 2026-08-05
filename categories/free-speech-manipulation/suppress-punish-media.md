@@ -490,3 +490,13 @@ FOX ‘NEWS’ TAKE [https://www.foxnews.com/politics/house-panel-subpoenas-3-le
 [https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5](https://apnews.com/article/usmediatimesair-force-one-42429e4d4da8accc42b6c3ddf3f4fed5)
 
 SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html](https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpoenas-withdraw.html)
+
+### 2026 August
+
+2026-08-01 The DOJ subpoenaed Matthew Cole over his reporting on a Seal team operation in North Korea where soldiers killed several unarmed North Koreans. 
+
+[https://www.aljazeera.com/news/2026/8/1/new-york-times-reveals-trump-administration-subpoena-over-north-korea-story](https://www.aljazeera.com/news/2026/8/1/new-york-times-reveals-trump-administration-subpoena-over-north-korea-story)
+
+[https://www.reuters.com/legal/government/us-justice-department-subpoenas-new-york-times-freelancer-over-north-korea-story-2026-08-01/](https://www.reuters.com/legal/government/us-justice-department-subpoenas-new-york-times-freelancer-over-north-korea-story-2026-08-01/)
+
+[https://www.military.com/doj-subpoenas-nyt-journalist-over-2025-report-on-us-mission-in-north-korea](https://www.military.com/doj-subpoenas-nyt-journalist-over-2025-report-on-us-mission-in-north-korea)

@@ -471,3 +471,12 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
 
 [https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/](https://time.com/article/2026/07/22/trump-administration-eeoc-worker-demographic-data-requirement/)
+
+2026-07-22 The No More 24 advocacy campaign movement in New York aims to ban mandatory 24-hour work shifts for home health care aides. 
+
+[https://nonprofitquarterly.org/no-more-24-a-movement-to-abolish-24-hour-workdays-for-nycs-home-care-workers/](https://nonprofitquarterly.org/no-more-24-a-movement-to-abolish-24-hour-workdays-for-nycs-home-care-workers/)
+
+[https://www.nycitynewsservice.com/2026/06/05/no-more-24-the-ongoing-fight-to-end-24-hour-shifts/](https://www.nycitynewsservice.com/2026/06/05/no-more-24-the-ongoing-fight-to-end-24-hour-shifts/)
+
+[https://gothamist.com/news/nyc-home-care-workers-urge-end-to-torture-of-24-hour-shifts](https://gothamist.com/news/nyc-home-care-workers-urge-end-to-torture-of-24-hour-shifts)
+

@@ -1053,6 +1053,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
 
+2026-07-22 The No More 24 advocacy campaign movement in New York aims to ban mandatory 24-hour work shifts for home health care aides. 
+
+
 2026-07-23 Senator Thune said he didn’t have the votes to pass the $95B reconciliation bill. 
 
 2026-07-24 Landlords in New York are suing to overturn Mamdani’s rent freeze on apartments. 

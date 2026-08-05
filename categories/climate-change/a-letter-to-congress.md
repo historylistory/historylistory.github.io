@@ -430,3 +430,9 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-03 Hungary closed its nuclear power plant amid a drought and soaring temperatures. 
 
+2026-08-05 Italy placed 27 of its cities on heat alert. 
+
+2026-08-05 Poland’s rivers fell to record low levels due to drought and climate change. 
+
+2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
+

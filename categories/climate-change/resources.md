@@ -133,3 +133,13 @@ permalink: /categories/climate-change/resources/
 [https://www.bbc.com/news/articles/ckg35n7yny3o](https://www.bbc.com/news/articles/ckg35n7yny3o)
 
 [https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/](https://www.courthousenews.com/british-drought-raises-fears-of-food-shortages-as-farmers-warn-of-shrinking-harvests/)
+
+2026-08-05 Poland’s rivers fell to record low levels due to drought and climate change. 
+
+[https://www.turkiyetoday.com/region/heatwaves-and-drought-grip-europe-danube-hits-record-low-3225428](https://www.turkiyetoday.com/region/heatwaves-and-drought-grip-europe-danube-hits-record-low-3225428)
+
+[https://www.bbc.com/news/articles/c78gn8zvrx4o](https://www.bbc.com/news/articles/c78gn8zvrx4o)
+
+2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
+
+[https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)

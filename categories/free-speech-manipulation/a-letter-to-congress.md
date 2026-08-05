@@ -513,3 +513,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-07-24 The Trump administration withdrew subpoenas for New York Times journalists’ phone records. This came after a stern reprimand from a judge. 
 
 2026-07-30 Trump’s former campaign manager Brad Parscale is working with Israel to help adjust how AI chatbots talk about Gaza in a $45M project. 
+
+## 2026 August
+
+2026-08-01 The DOJ subpoenaed Matthew Cole over his reporting on a Seal team operation in North Korea where soldiers killed several unarmed North Koreans. 

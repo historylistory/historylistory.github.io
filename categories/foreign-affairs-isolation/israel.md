@@ -451,6 +451,13 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 
 HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf](https://armedservices.house.gov/uploadedfiles/fy27_ndaa_chairmans_mark_-_final.pdf)
 
+2026-07-23 2500 Israelis led by far-right activist and National Security Minister Itamar Ben-Gvir entered the Al-Aqsa Mosque compound in Jerusalem during the Tisha B’Av fast. 
+
+[https://www.theguardian.com/world/2026/aug/04/jordan-convenes-emergency-meeting-israel-religious-conflict-jerusalem](https://www.theguardian.com/world/2026/aug/04/jordan-convenes-emergency-meeting-israel-religious-conflict-jerusalem)
+
+[https://www.theguardian.com/world/2026/jul/23/israel-security-minister-itamar-ben-gvir-jewish-extremists-storm-al-aqsa-mosque-compound-jerusalem](https://www.theguardian.com/world/2026/jul/23/israel-security-minister-itamar-ben-gvir-jewish-extremists-storm-al-aqsa-mosque-compound-jerusalem)
+
+
 2026-07-28 Trump hosted Netanyahu at the White House.
 
 [https://www.theguardian.com/us-news/2026/jul/28/trump-netanyahu-zelenskyy-meetings](https://www.theguardian.com/us-news/2026/jul/28/trump-netanyahu-zelenskyy-meetings)
@@ -488,3 +495,9 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza](https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza)
 
 [https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace](https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace)
+
+### 2026 August
+
+2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 
+
+[https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html](https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html)

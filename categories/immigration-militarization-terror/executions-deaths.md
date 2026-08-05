@@ -407,4 +407,9 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 ### 2026 August
 
+2026-08-01 An El Salvador man died at Delaney Hall from seizures. 
+
+[https://www.pbs.org/newshour/nation/el-salvador-man-dies-in-delaney-hall-immigration-facility-in-new-jersey](https://www.pbs.org/newshour/nation/el-salvador-man-dies-in-delaney-hall-immigration-facility-in-new-jersey)
+
+[https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/](https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/)
 

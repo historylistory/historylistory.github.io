@@ -336,4 +336,19 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.france24.com/en/amid-a-drought-and-soaring-temperatures-hungary-shuts-down-its-nuclear-plant](https://www.france24.com/en/amid-a-drought-and-soaring-temperatures-hungary-shuts-down-its-nuclear-plant)
 
+2026-08-05 Italy placed 27 of its cities on heat alert. 
+
+[https://www.reuters.com/business/environment/italy-puts-all-major-cities-highest-alert-heatwave-intensifies-2026-08-04/](https://www.reuters.com/business/environment/italy-puts-all-major-cities-highest-alert-heatwave-intensifies-2026-08-04/)
+
+[https://www.theguardian.com/environment/2026/aug/05/italy-heatwave-major-cities-highest-heat-alert](https://www.theguardian.com/environment/2026/aug/05/italy-heatwave-major-cities-highest-heat-alert)
+
+2026-08-05 Poland’s rivers fell to record low levels due to drought and climate change. 
+
+[https://www.turkiyetoday.com/region/heatwaves-and-drought-grip-europe-danube-hits-record-low-3225428](https://www.turkiyetoday.com/region/heatwaves-and-drought-grip-europe-danube-hits-record-low-3225428)
+
+[https://www.bbc.com/news/articles/c78gn8zvrx4o](https://www.bbc.com/news/articles/c78gn8zvrx4o)
+
+2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
+
+[https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)
 

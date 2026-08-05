@@ -861,4 +861,6 @@ Next
 
 ## 2026 August
 
+2026-08-01 An El Salvador man died at Delaney Hall from seizures. 
+
 2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
