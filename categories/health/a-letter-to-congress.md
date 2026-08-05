@@ -66,6 +66,15 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2012-03-01 Rush Limbaugh attacked women asking for birth control, “So, Ms. Fluke and the rest of you feminazis, here’s the deal: If we are going to pay for your contraceptives, and thus pay for you to have sex, we want something for it. And I’ll tell you what it is. We want you to post the videos online so we can all watch”.
 
+### 2013 
+
+
+2013-08-13 Companies intentionally cut employee hours just so they didn't have to meet ACA healthcare requirements. 
+
+[https://www.nbcnews.com/news/world/businesses-claim-obamacare-has-forced-them-cut-employee-hours-flna6c10911846](https://www.nbcnews.com/news/world/businesses-claim-obamacare-has-forced-them-cut-employee-hours-flna6c10911846)
+
+[https://www.nbcnews.com/nightly-news/video/businesses-cut-employees-hours-blame-new-insurance-mandate-42175043933](https://www.nbcnews.com/nightly-news/video/businesses-cut-employees-hours-blame-new-insurance-mandate-42175043933)
+
 ## 2014 
 
 2014-01-01 The Affordable Care Act was fully implemented. This legislation was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans.
@@ -616,6 +625,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-07-31 Measles cases hit an all-time high due to the Trump administration’s misinformation at 2371 cases as of July 30. 
 
-### 2026 August
+## 2026 August
 
 2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 

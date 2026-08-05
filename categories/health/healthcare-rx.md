@@ -6,6 +6,15 @@ subcategory_slug: healthcare-rx
 permalink: /categories/health/healthcare-rx/
 ---
 
+### 2013 
+
+2013-08-13 Companies intentionally cut employee hours just so they didn't have to meet ACA healthcare requirements. 
+
+[https://www.nbcnews.com/news/world/businesses-claim-obamacare-has-forced-them-cut-employee-hours-flna6c10911846](https://www.nbcnews.com/news/world/businesses-claim-obamacare-has-forced-them-cut-employee-hours-flna6c10911846)
+
+[https://www.nbcnews.com/nightly-news/video/businesses-cut-employees-hours-blame-new-insurance-mandate-42175043933](https://www.nbcnews.com/nightly-news/video/businesses-cut-employees-hours-blame-new-insurance-mandate-42175043933)
+
+
 ### 2014
 
 2014-01-01 The Affordable Care Act was fully implemented. This legislation was designed to prohibit insurers from denying coverage or charging more based on pre-existing conditions, and to stop lifetime caps. It also mandated a standard level of care for insurance plans.

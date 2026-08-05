@@ -664,6 +664,6 @@ Manhattan grand jury in the hush-money case.
 
 2026-07-31 A day after claiming Iran was responsible for water treatment hacks, the Trump administration switched blame to Tim Walz. Trump stated, “I think that Minnesota is behind it. You know who is behind it? Minnesota. Because they’re grossly incompetent. I don’t think there was an Iranian cyberattack. I think Minnesota ought to get its act together”. 
 
-### 2026 August
+## 2026 August
 
 2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 

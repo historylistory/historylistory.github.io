@@ -274,7 +274,7 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 [https://x.com/LauraLoomer/status/1939831588902109629?lang=en](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 
-### 2026 July
+### 2025 July
 
 2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
 
@@ -880,16 +880,6 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html](https://finance.yahoo.com/media-advertising/articles/elon-musk-mackenzie-scott-giving-152505233.html)
 
-### 2026 July
-
-2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
-
-[https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank](https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank)
-
-[https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/](https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/)
-
-[https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
-
 2026-06-23 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care. 
 
 [https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights](https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights)
@@ -903,6 +893,14 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 [https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)
 
 ### 2026 July
+
+2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 
+
+[https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank](https://www.theguardian.com/world/2026/jul/07/israeli-officer-stun-grenade-car-west-bank)
+
+[https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/](https://www.timesofisrael.com/border-police-officer-throws-stun-grenade-into-palestinian-car-blocks-drivers-exit/)
+
+[https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc](https://www.cnn.com/2026/07/06/world/video/israel-stun-grenade-qalandiya-vrtc)
 
 2026-07-10 Newly released footage from the ICE killing in Houston revealed the victim was chased down and targeted, and he never assaulted ICE or attempted to run them over. It was also revealed that three witnesses were deported for speaking up, and ICE disposed of the body as a “John Doe” so the family couldn’t retrieve him. 
 

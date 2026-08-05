@@ -83,6 +83,10 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2009-05-29 Trump supporter, podcaster, and pastor Shane Vaughn was arrested on bank and insurance fraud.
 
+## 2015 
+
+2015-08-01 Texas Attorney General Ken Paxton was indicted on multi-count securities fraud. 
+
 ## 2016 
 
 2016-01-01 Multiple allegations of criminal activity involving Trump properties emerged in 2016.
@@ -721,6 +725,6 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-07-30 Todd Blanche’s nomination has been postponed as members demanded scaling back on the part of the settlement that exempted Trump and his family from IRS audits. Epstein victims also lobbied against Blanche saying he was very condescending to them during their meeting. 
 
-### 2026 August 
+## 2026 August 
 
 2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 

@@ -409,7 +409,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-07-30 Oil firms reported the highest quarterly profits in years. 
 
-### 2026 August 
+## 2026 August 
 
 2026-08-01 Trump’s Truth Social will now offer immediate access to Trump’s posts for paid users only, making this another for-profit-presidency scheme 
 

@@ -422,7 +422,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
 
 
-### 2026 August
+## 2026 August
 
 2026-08-02 The UK reported low water levels due to serious drought. The shortage threatens food supply and sewage treatment. 
 

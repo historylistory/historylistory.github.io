@@ -115,6 +115,7 @@ permalink: /links/
 
 ---
 
+[GET INVOLVED: 1000 Miles to Memphis march](https://1000milestomemphis.com/)
 
 [GET INVOLVED: Change.org](https://www.change.org/)
 
@@ -375,6 +376,11 @@ permalink: /links/
 
 ---
 
+[Veterans: 1000 Miles to Memphis march](https://1000milestomemphis.com/)
+
+[Veterans: Foundation for Women Warriors](https://foundationforwomenwarriors.org/)
+
+---
 
 [Women: Emily's List](https://emilyslist.org/)
 

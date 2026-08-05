@@ -19,6 +19,17 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 
 [https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud](https://religionnews.com/2020/11/16/meet-shane-vaughn-small-town-mississippi-preacher-viral-happens-if-trump-doesnt-concede-video-house-of-representatives-fraud)
 
+### 2015 
+
+2015-08-01 Texas Attorney General Ken Paxton was indicted on multi-count securities fraud. 
+
+[https://www.houstonpublicmedia.org/articles/news/politics/2015/08/03/212881/a-closer-look-at-the-ken-paxton-idictment/](https://www.houstonpublicmedia.org/articles/news/politics/2015/08/03/212881/a-closer-look-at-the-ken-paxton-idictment/)
+
+[https://www.texastribune.org/2015/08/01/reports-paxton-indicted-collin-county-grand-jury/](https://www.texastribune.org/2015/08/01/reports-paxton-indicted-collin-county-grand-jury/)
+
+[https://www.youtube.com/watch?v=lvKJRNP31K8&list=WL&index=2&t=61s](https://www.youtube.com/watch?v=lvKJRNP31K8&list=WL&index=2&t=61s)
+
+
 ### 2021
 
 2021-01-06 When insurrectionists demolished the capitol some relieved themselves on desks like animals while others brutally attacked law enforcement officers. One officer died of a stroke 7 hours later. Multiple lawsuits were filed for damages and bodily harm, but Trump refunded penalties to the insurrectionists and attempted to build a slush fund in 2026 for them to receive payouts.

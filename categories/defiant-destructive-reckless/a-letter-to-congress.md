@@ -485,7 +485,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-07-30 The Senate again voted down a war powers resolution. 
 
-### 2026 August 
+## 2026 August 
 
 2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
 
