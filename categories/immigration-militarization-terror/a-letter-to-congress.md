@@ -859,3 +859,6 @@ Next
 
 2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
 
+## 2026 August
+
+2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 

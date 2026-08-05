@@ -1015,3 +1015,14 @@ VIDEO WAS TAKEN DOWN 5 HOURS LATER: [https://www.aol.com/articles/lindsey-graham
 
 PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary](https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary)
 
+### 2026 August
+
+2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
+
+[https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures](https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures)
+
+[https://www.theguardian.com/us-news/2026/aug/03/trump-dhs-hunger-strikes-force-feeding-ice-detention](https://www.theguardian.com/us-news/2026/aug/03/trump-dhs-hunger-strikes-force-feeding-ice-detention)
+
+[https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker](https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker)
+
+[https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf](https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf)

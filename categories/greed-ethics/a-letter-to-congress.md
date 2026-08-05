@@ -414,3 +414,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-08-01 Trump’s Truth Social will now offer immediate access to Trump’s posts for paid users only, making this another for-profit-presidency scheme 
 
 2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 
+
+2026-08-04 Oil company BP reported making $6B between April and June. 
+
+2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 

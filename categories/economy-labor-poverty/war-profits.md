@@ -113,3 +113,13 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi](https://www.pbs.org/newshour/show/whats-at-stake-as-trump-heads-to-china-for-talks-with-xi)
 
 [https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk](https://www.cnn.com/2026/05/13/politics/live-news/trump-china-visit-arrival-ceremony-hnk)
+
+### 2026 August
+
+2026-08-04 Oil company BP reported making $6B between April and June. 
+
+[https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran](https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran)
+
+2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
+
+[https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit](https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit)

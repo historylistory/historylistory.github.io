@@ -1078,3 +1078,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 
 2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+## August
+
+2026-08-04 Oil company BP reported making $6B between April and June. 
+
+
+2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 

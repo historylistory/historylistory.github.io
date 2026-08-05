@@ -246,3 +246,14 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 [https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/](https://www.reuters.com/business/energy/chevron-records-highest-quarterly-profit-six-years-beating-analyst-estimates-2026-07-31/)
 
 SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html](https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-chevron-earnings-iran-war.html)
+
+### 2026 August
+
+2026-08-04 Oil company BP reported making $6B between April and June. 
+
+[https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran](https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran)
+
+2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
+
+[https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit](https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit)
+

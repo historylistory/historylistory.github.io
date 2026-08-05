@@ -493,3 +493,14 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 [https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/](https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/)
 
+### 2026 August
+
+2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
+
+[https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures](https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures)
+
+[https://www.theguardian.com/us-news/2026/aug/03/trump-dhs-hunger-strikes-force-feeding-ice-detention](https://www.theguardian.com/us-news/2026/aug/03/trump-dhs-hunger-strikes-force-feeding-ice-detention)
+
+[https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker](https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker)
+
+[https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf](https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf)
