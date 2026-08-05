@@ -413,4 +413,4 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-08-01 Trump’s Truth Social will now offer immediate access to Trump’s posts for paid users only, making this another for-profit-presidency scheme 
 
-2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 

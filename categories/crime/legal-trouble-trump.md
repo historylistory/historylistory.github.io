@@ -244,7 +244,7 @@ permalink: /categories/crime/legal-trouble-trump/
 
 ### 2026 August
 
-2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 
 
 [https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
 

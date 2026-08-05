@@ -263,7 +263,7 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 
 [https://www.nbcnews.com/politics/donald-trump/truth-social-launches-service-selling-faster-access-trump-posts-rcna590419](https://www.nbcnews.com/politics/donald-trump/truth-social-launches-service-selling-faster-access-trump-posts-rcna590419)
 
-2026-08-03 Capital One closed Trump’s accounts after a money-laundering review.
+2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 
 
 [https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering](https://www.theguardian.com/us-news/2026/aug/01/capital-one-trump-organization-money-laundering)
 
