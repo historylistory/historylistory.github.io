@@ -294,7 +294,7 @@ permalink: /links/
 
 ----
 
-[NON PROFITS](https://greatnonprofits.org/org/foundation-for-women-warriors)
+[NON PROFITS: Great Non Profits.org](https://greatnonprofits.org/org/foundation-for-women-warriors)
 
 
 ---
