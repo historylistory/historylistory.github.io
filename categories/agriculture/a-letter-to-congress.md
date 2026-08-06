@@ -189,3 +189,7 @@ Congress must restore agricultural and conservation funding, protect independent
 
 
 2026-07-31 The heatwave blanketing much cattle country took a physical toll on herds with losses in the thousands. 
+
+## 2026 August
+
+2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 

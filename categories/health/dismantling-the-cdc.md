@@ -88,3 +88,12 @@ Great Barrington Declaration links:
 [https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html](https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html)
 
 [https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/](https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/)
+
+### 2026 August
+
+2026-08-06 Dr. Erica Schwarz was confirmed to lead the Centers for Disease Control Prevention. The agency has been without a director for more than a year after Trump fired Susan Monarez for not carrying out his MAGA agendas.  
+
+[https://www.nbcnews.com/health/health-news/new-cdc-director-confirmed-erica-shwartz-rcna590994](https://www.nbcnews.com/health/health-news/new-cdc-director-confirmed-erica-shwartz-rcna590994)
+
+[https://www.npr.org/2026/08/05/nx-s1-5920379/cdc-director-confirmed-erica-schwartz](https://www.npr.org/2026/08/05/nx-s1-5920379/cdc-director-confirmed-erica-schwartz)
+

@@ -1088,3 +1088,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 
 2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
+
+2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 
+
+2026-08-05 Iran and Oman have agreed to a shipping corridor through the Strait of Hormuz. 
+
+2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 

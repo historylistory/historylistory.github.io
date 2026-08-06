@@ -6,6 +6,18 @@ subcategory_slug: epstein
 permalink: /categories/crime/epstein/
 ---
 
+### Epstein Class War
+
+2026-02-13 “The Epstein Class War”: the wealthy and well-connected remain insulated from consequences as they hold all the political power.  
+
+[https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/](https://prospect.org/2026/02/17/organized-money-epstein-files-ro-khanna/)
+
+[https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite](https://www.wbur.org/onpoint/2026/02/26/epstein-class-what-the-files-reveal-about-the-global-elite)
+
+[https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building](https://khanna.house.gov/media/in-the-news/i-believe-going-be-reckoning-ro-khanna-man-behind-epstein-files-act-building)
+
+[https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis](https://www.cnn.com/2026/02/09/politics/epstein-files-ossoff-clinton-trump-lutnick-analysis)
+
 ### 1996
 
 1996-01-01 Jeffrey Epstein faced sexual assault allegations dating back to 1996. 
@@ -505,3 +517,25 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/](https://time.com/article/2026/07/30/trump-says-no-objection-withdrawing-todd-blanche-doj-attorney-general/)
 
 [https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination](https://www.npr.org/2026/07/30/g-s1-136265/senate-blanche-nomination)
+
+### 2026 August
+
+2026-08-05 New Mexico sued the DOJ and Todd Blanche for “stonewalling” the state investigation into sex crimes at Jeffrey Epstein’s estate Zorro Ranch. 
+
+[https://www.theguardian.com/us-news/2026/aug/05/new-mexico-sues-doj-epstein-investigation](https://www.theguardian.com/us-news/2026/aug/05/new-mexico-sues-doj-epstein-investigation)
+
+[https://thehill.com/homenews/state-watch/6011782-new-mexico-sues-doj-epstein/](https://thehill.com/homenews/state-watch/6011782-new-mexico-sues-doj-epstein/)
+
+[https://www.reuters.com/legal/government/new-mexico-sues-us-government-access-epstein-files-2026-08-05/](https://www.reuters.com/legal/government/new-mexico-sues-us-government-access-epstein-files-2026-08-05/)
+
+2026-08-05 The Senate Finance Committee released a report alleging more than a dozen bankers from JP Morgan Chase, Bank of America and Deutsche Bank failed to report hundreds of millions of dollars in suspicious transactions tied to Jeffrey Epstein. 
+
+[https://www.finance.senate.gov/ranking-members-news/wyden-releases-new-report-on-failure-of-wall-street-banks-to-blow-the-whistle-on-jeffrey-epsteins-sex-trafficking-and-money-laundering-schemes](https://www.finance.senate.gov/ranking-members-news/wyden-releases-new-report-on-failure-of-wall-street-banks-to-blow-the-whistle-on-jeffrey-epsteins-sex-trafficking-and-money-laundering-schemes)
+
+[https://today.westlaw.com/Document/Ia51340b0902811f18e07b0e11951504f/View/FullText.html](https://today.westlaw.com/Document/Ia51340b0902811f18e07b0e11951504f/View/FullText.html)
+
+[https://prospect.org/2026/08/05/sen-wyden-report-banks-systematically-ignored-jeffrey-epsteins-crimes/](https://prospect.org/2026/08/05/sen-wyden-report-banks-systematically-ignored-jeffrey-epsteins-crimes/)
+
+[https://www.npr.org/2026/08/04/nx-s1-5919238/jeffrey-epstein-jpmorgan-bank-of-america-deutsche-bank-senate-democrats](https://www.npr.org/2026/08/04/nx-s1-5919238/jeffrey-epstein-jpmorgan-bank-of-america-deutsche-bank-senate-democrats)
+
+

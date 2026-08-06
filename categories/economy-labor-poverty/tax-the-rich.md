@@ -170,3 +170,19 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.cnbc.com/2026/05/28/anthropic-open-ai-startup-value.html](https://www.cnbc.com/2026/05/28/anthropic-open-ai-startup-value.html)
 
 [https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies](https://www.democracynow.org/2026/6/2/headlines/anthropic_confidentially_files_for_ipo_as_sen_sanders_calls_for_50_tax_on_stock_of_ai_companies)
+
+### 2026 August
+
+2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 
+
+[https://www.theguardian.com/us-news/2026/aug/05/michigan-senate-primary-results-abdul-el-sayed](https://www.theguardian.com/us-news/2026/aug/05/michigan-senate-primary-results-abdul-el-sayed)
+
+[https://www.nbcnews.com/politics/2026-election/abdul-el-sayed-won-michigan-results-illustrate-challenges-ahead-rcna591052](https://www.nbcnews.com/politics/2026-election/abdul-el-sayed-won-michigan-results-illustrate-challenges-ahead-rcna591052)
+
+[https://www.youtube.com/watch?v=T67SarATXnE&list=WL&index=5](https://www.youtube.com/watch?v=T67SarATXnE&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=G9mHl8f7OH4&list=WL&index=4](https://www.youtube.com/watch?v=G9mHl8f7OH4&list=WL&index=4)
+
+[https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/](https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/)
+
+[https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)

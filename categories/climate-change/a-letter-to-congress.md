@@ -436,3 +436,9 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
 
+2025-08-05 Guatemala evacuated as the Fuego volcano erupted. 
+
+2026-08-05 Romania is blasting riverbeds to release and redirect water due to drought and low water levels. 
+
+2026-08-06 The River Thames is drying up. 
+

@@ -598,3 +598,20 @@ GREAT VIDEO [https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5](https:
 
 [https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/](https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/)
 
+### 2026 August
+
+2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 
+
+[https://thehill.com/policy/healthcare/6008603-blanche-plans-abortion-rollback/](https://thehill.com/policy/healthcare/6008603-blanche-plans-abortion-rollback/)
+
+[https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/](https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/)
+
+[https://stateline.org/2026/08/04/ag-nominee-tells-faith-leaders-he-will-take-action-to-restrict-abortion-drug-access/](https://stateline.org/2026/08/04/ag-nominee-tells-faith-leaders-he-will-take-action-to-restrict-abortion-drug-access/)
+
+[https://www.the-independent.com/news/world/americas/us-politics/todd-blanche-restrict-abortion-access-justice-department-b3027400.html](https://www.the-independent.com/news/world/americas/us-politics/todd-blanche-restrict-abortion-access-justice-department-b3027400.html)
+
+[https://www.democracynow.org/2026/8/6/headlines/acting_attorney_general_todd_blanche_pledges_to_make_dobbs_permanent_nationwide](https://www.democracynow.org/2026/8/6/headlines/acting_attorney_general_todd_blanche_pledges_to_make_dobbs_permanent_nationwide)
+
+THE CALL WAS POSTED THEN TAKEN DOWN [https://www.youtube.com/watch?v=GSgPBOlRyuU](https://www.youtube.com/watch?v=GSgPBOlRyuU)
+
+DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/](https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/)

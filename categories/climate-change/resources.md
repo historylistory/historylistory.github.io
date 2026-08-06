@@ -143,3 +143,17 @@ permalink: /categories/climate-change/resources/
 2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
 
 [https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)
+
+2026-08-05 Romania is blasting riverbeds to release and redirect water due to drought and low water levels. 
+
+[https://weather.com/2026/08/05/news/romania-military-explosives-danube-nuclear-plant-drought](https://weather.com/2026/08/05/news/romania-military-explosives-danube-nuclear-plant-drought)
+
+[https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor](https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor)
+
+
+2026-08-06 The River Thames is drying up. 
+
+[https://www.bbc.com/news/articles/cm2gvkgkdd3o](https://www.bbc.com/news/articles/cm2gvkgkdd3o)
+
+[https://www.gov.uk/guidance/river-thames-current-river-conditions](https://www.gov.uk/guidance/river-thames-current-river-conditions)
+

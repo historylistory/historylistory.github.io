@@ -667,3 +667,5 @@ Manhattan grand jury in the hush-money case.
 ## 2026 August
 
 2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
+
+2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 

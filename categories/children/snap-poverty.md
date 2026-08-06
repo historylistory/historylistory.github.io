@@ -125,3 +125,13 @@ permalink: /categories/children/snap-poverty/
 [https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7](https://www.youtube.com/watch?v=9hECf9ZCGws&list=WL&index=7)
 
 SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace](https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-peace)
+
+### 2026 August
+
+2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
+
+GOOD VIDEO CLIP [https://www.youtube.com/watch?v=yZkwQnFYw-Q&list=WL&index=3](https://www.youtube.com/watch?v=yZkwQnFYw-Q&list=WL&index=3)
+
+ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/](https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/)
+
+[https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text](https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text)

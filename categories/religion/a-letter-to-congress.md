@@ -259,6 +259,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-01-28 A Christian Nationalist painted over a World’s Last Chance billboard in Los Angeles to read Jesus is God. 
 
+2026-01-28 Leaked audio revealed Erika Kirk holding a TPUSA zoom meeting 11 days after Charlie Kirk’s death where she giddily shared excitement over merch sales. 
+
 ## 2026 February 
 
 2026-02-05 During a prayer breakfast Trump joked he would revoke church tax exempt status if leaders “say something bad about” him. Also during the prayer breakfast, President Bukele credited God for his paramilitary actions in El Salvador.
@@ -390,5 +392,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 2026-07-23 2500 Israelis led by far-right activist and National Security Minister Itamar Ben-Gvir entered the Al-Aqsa Mosque compound in Jerusalem during the Tisha B’Av fast. 
 
 ## 2026 August 
+
+
+2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 
 
 2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 

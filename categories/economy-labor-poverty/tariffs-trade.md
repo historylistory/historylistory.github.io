@@ -411,3 +411,12 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 
 [https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/](https://fortune.com/2026/07/17/donald-trump-supreme-court-tariffs-brazil-section-301-workaround-global-trade-politics/)
 
+### 2026 August
+
+2026-08-05 Iran and Oman have agreed to a shipping corridor through the Strait of Hormuz. 
+
+[https://www.aljazeera.com/news/2026/8/6/hormuz-deal-close-whats-the-latest-on-each-sides-positions](https://www.aljazeera.com/news/2026/8/6/hormuz-deal-close-whats-the-latest-on-each-sides-positions)
+
+[https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news](https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news)
+
+[https://www.bbc.com/news/articles/ckg9d3eyeggo](https://www.bbc.com/news/articles/ckg9d3eyeggo)

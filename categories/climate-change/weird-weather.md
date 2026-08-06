@@ -352,3 +352,15 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)
 
+2025-08-05 Guatemala evacuated as the Fuego volcano erupted. 
+
+[https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2](https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2)
+
+[https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala](https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala)
+
+2026-08-05 Romania is blasting riverbeds to release and redirect water due to drought and low water levels. 
+
+[https://weather.com/2026/08/05/news/romania-military-explosives-danube-nuclear-plant-drought](https://weather.com/2026/08/05/news/romania-military-explosives-danube-nuclear-plant-drought)
+
+[https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor](https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor)
+

@@ -277,3 +277,10 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.nbcnews.com/world/cuba/cuba-plunges-darkness-electric-grid-collapses-rcna590542](https://www.nbcnews.com/world/cuba/cuba-plunges-darkness-electric-grid-collapses-rcna590542)
 
+2026-08-06 The New York Times reported on the CIA establishing a new Cuba task force. 
+
+[https://www.democracynow.org/2026/8/6/headlines/nyt_cia_secretly_established_new_cuba_task_force](https://www.democracynow.org/2026/8/6/headlines/nyt_cia_secretly_established_new_cuba_task_force)
+
+[https://www.commondreams.org/news/cia-cuba ](https://www.commondreams.org/news/cia-cuba )
+
+SUB WALL [https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html](https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html)

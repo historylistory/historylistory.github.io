@@ -236,3 +236,19 @@ PAY WALL [https://www.dispatch.com/story/news/politics/state/2023/02/15/lobbyist
 2026-05-23 Hawaii banned dark money elections like Citizens United, in a strategy known as the “Corporate Power Reset”.
 
 [https://www.youtube.com/watch?v=oBGpEcPrbso&list=WL&index=6](https://www.youtube.com/watch?v=oBGpEcPrbso&list=WL&index=6)
+
+### 2026 August
+
+2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 
+
+[https://www.theguardian.com/us-news/2026/aug/05/michigan-senate-primary-results-abdul-el-sayed](https://www.theguardian.com/us-news/2026/aug/05/michigan-senate-primary-results-abdul-el-sayed)
+
+[https://www.nbcnews.com/politics/2026-election/abdul-el-sayed-won-michigan-results-illustrate-challenges-ahead-rcna591052](https://www.nbcnews.com/politics/2026-election/abdul-el-sayed-won-michigan-results-illustrate-challenges-ahead-rcna591052)
+
+[https://www.youtube.com/watch?v=T67SarATXnE&list=WL&index=5](https://www.youtube.com/watch?v=T67SarATXnE&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=G9mHl8f7OH4&list=WL&index=4](https://www.youtube.com/watch?v=G9mHl8f7OH4&list=WL&index=4)
+
+[https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/](https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/)
+
+[https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)

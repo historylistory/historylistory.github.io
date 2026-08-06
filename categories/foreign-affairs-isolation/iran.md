@@ -2068,3 +2068,13 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161](https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161)
 
 
+### 2026 August
+
+2026-08-05 Iran and Oman have agreed to a shipping corridor through the Strait of Hormuz. 
+
+[https://www.aljazeera.com/news/2026/8/6/hormuz-deal-close-whats-the-latest-on-each-sides-positions](https://www.aljazeera.com/news/2026/8/6/hormuz-deal-close-whats-the-latest-on-each-sides-positions)
+
+[https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news](https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news)
+
+[https://www.bbc.com/news/articles/ckg9d3eyeggo](https://www.bbc.com/news/articles/ckg9d3eyeggo)
+

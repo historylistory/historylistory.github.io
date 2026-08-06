@@ -113,3 +113,14 @@ permalink: /categories/children/immigrants/
 [https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/](https://www.nbcchicago.com/news/local/chicago-teen-dying-from-terminal-cancer-in-mexico-pleads-for-one-final-wish-to-see-his-parents-again/3932818/)
 
 [https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/](https://abc7news.com/post/couple-ice-custody-fighting-dying-chicago-born-son-kevin-gonzalez-final-days-stage-4-colon-cancer/19059694/)
+
+### 2026 August
+
+2026-08-05 A federal lawsuit accuses the Trump administration of deliberately targeting unaccompanied children at airports. The lawsuit states, “This case is about the most vulnerable in our immigration system: abused, abandoned, neglected, and trafficked children. One would assume it would be a priority of our immigration system to protect, at least, these children. However, protecting vulnerable and trafficked children conflicts with an agenda of ‘deport at all costs’”. 
+
+[https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-children-deportation-push](https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-children-deportation-push)
+
+[https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/](https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/)
+
+[https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation](https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation)
+

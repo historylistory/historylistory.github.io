@@ -379,6 +379,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-01-28 Kristi Noem and Stephen Miller pointed the finger at each other for the Alex Pretti execution.
 
+2026-01-28 Leaked audio revealed Erika Kirk holding a TPUSA zoom meeting 11 days after Charlie Kirk’s death where she giddily shared excitement over merch sales. 
+
 ## 2026 February
 
 2026-02-02 Trump announced luxurious Kennedy Center renovations while Americans struggled with healthcare costs. Meanwhile, a Gallup survey showed that millions of Americans were skipping meals to pay for their healthcare. 

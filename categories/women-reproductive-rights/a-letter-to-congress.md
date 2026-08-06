@@ -384,3 +384,7 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-07-24 During the rescheduled correspondence dinner Trump quipped, “This place is really the largest group of Trump derangement syndrome people ever put together at one time, I suspect. Some of you are lucky that our last dinner was cut short, because I had brought with me what would possibly have been—I'm telling you, I had something. I was going to go after you…” and subsequently, “Your lives were really in danger the last time. But on the plus side, your careers were saved”. Then he took jabs at Kaitlan Collins, mocked Dylan Mulvaney, insulted Anderson Cooper and Don Lemon, and targeted opponents. 
 
 2026-07-30 Democrats called for an ethics investigation into Max Miller for domestic abuse allegations. 
+
+## 2026 August
+
+2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 

@@ -203,3 +203,14 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
 
 [https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)
+
+### 2026 August
+
+
+2026-08-05 A federal lawsuit accuses the Trump administration of deliberately targeting unaccompanied children at airports. The lawsuit states, “This case is about the most vulnerable in our immigration system: abused, abandoned, neglected, and trafficked children. One would assume it would be a priority of our immigration system to protect, at least, these children. However, protecting vulnerable and trafficked children conflicts with an agenda of ‘deport at all costs’”. 
+
+[https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-children-deportation-push](https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-children-deportation-push)
+
+[https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/](https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/)
+
+[https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation](https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation)

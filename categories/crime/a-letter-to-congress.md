@@ -728,3 +728,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 ## 2026 August 
 
 2026-08-03 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering. 
+
+2026-08-05 New Mexico sued the DOJ and Todd Blanche for “stonewalling” the state investigation into sex crimes at Jeffrey Epstein’s estate Zorro Ranch. 
+
+2026-08-05 The Senate Finance Committee released a report alleging more than a dozen bankers from JP Morgan Chase, Bank of America and Deutsche Bank failed to report hundreds of millions of dollars in suspicious transactions tied to Jeffrey Epstein. 

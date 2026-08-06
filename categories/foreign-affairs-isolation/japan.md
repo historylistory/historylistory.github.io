@@ -20,6 +20,15 @@ permalink: /categories/foreign-affairs-isolation/japan/
 
 {% include youtubePlayer.html id="7QldP6hff84" %}
 
+2026-03-25 Japanese protestors handed out anti-war leaflets outside US military bases. 
+
+[https://www.arabnews.jp/en/japan/article_171206/](https://www.arabnews.jp/en/japan/article_171206/)
+
+[https://www.facebook.com/reel/1213708687509011](https://www.facebook.com/reel/1213708687509011)
+
+[https://www.theguardian.com/world/2026/apr/22/japan-youth-pacifist-constitution-trump-iran](https://www.theguardian.com/world/2026/apr/22/japan-youth-pacifist-constitution-trump-iran)
+
+
 ### 2026 April
 
 2026-04-20 Japan opened its doors to the global arms market and passed a record $58B defense budget for 2026. Part of the change is to eliminate the ban on lethal weapons and allow Japan to export missiles and warships. Prime Minister Sanae Takaichi stated, “No single country can now protect its own peace and security alone, and partner countries that support each other in terms of defense equipment are necessary”.

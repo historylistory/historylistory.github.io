@@ -278,6 +278,8 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 2026-01-28 New York city comptroller Mark Levine encouraged people to reinvest the city’s pension funds in Israeli bonds. In response, protestors stated, “Levine says it’s profitable to invest in the Israeli bonds. He says that they are solid investments with high returns. It’s not surprising that a war economy is profitable. That’s what Israel’s economy is. It’s a war economy. That’s why there is high yields. But buying these bonds only ensures the injustice and the system of occupation continues”.
 
+2026-01-28 Leaked audio revealed Erika Kirk holding a TPUSA zoom meeting 11 days after Charlie Kirk’s death where she giddily shared excitement over merch sales. 
+
 ## 2026 February 
 
 2026-02-01 Trump family’s World Liberty Financial sold a 49% stake in its cryptocurrency business to members of the Emirati royal family.
@@ -418,3 +420,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-08-04 Oil company BP reported making $6B between April and June. 
 
 2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
+
+2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 

@@ -360,3 +360,14 @@ h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90
 [https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
 
 [https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)
+
+### 2026 August
+
+2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
+
+GOOD VIDEO CLIP [https://www.youtube.com/watch?v=yZkwQnFYw-Q&list=WL&index=3](https://www.youtube.com/watch?v=yZkwQnFYw-Q&list=WL&index=3)
+
+ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/](https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/)
+
+[https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text](https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text)
+
