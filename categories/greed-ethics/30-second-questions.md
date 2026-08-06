@@ -18,7 +18,7 @@ Or, [email me/](https://historylistory.com/contact/) if you have a question idea
 
 ### Question 1
 
-President Trump bought up to $5M in Axon stock shortly before ICE pursued a major contract. Trump’s family profits from cryptocurrency. Companies connected to Trump’s sons receive Pentagon contracts. How many apparent conflicts of interest will Republicans excuse before demanding an independent investigation, and will you support laws requiring presidents to divest their assets and disclose all financial dealings involving their families?
+Trump bought up to $5 million in Axon stock shortly before ICE sought a $220 million Taser contract. Companies tied to his sons benefited from Pentagon deals, including a $620 million loan expedited after White House intervention. Saudi Arabia invested $2 billion in Jared Kushner’s firm, and TrumpCoin launched three days before inauguration. With so many examples of indirect self-dealing and exploiting gaps by rerouting benefits through family and private companies, at what point does public service become a for-profit presidency, and what binding ethics rules and investigations will you support?
 
 SOME SOURCES
 
@@ -45,6 +45,8 @@ SOME SOURCES
 * TRUMP MOBILE May 11, 2026: Launched in 2025, but the phones not coming yet. Oh by the way, they were made in China and the flag only has 11 stripes [Fortune.com](https://fortune.com/2026/05/11/trump-mobile-gold-trump-phone-deposits-t1-device-fcc/)
 
 * VULCAN ELEMENTS May 28, 2026: The White House intervened to get a $620M business deal for Donald Trump Jr. [ProPublica.org](https://www.propublica.org/article/donald-trump-jr-vulcan-deal-white-house)
+
+* MONEY LAUNDERING August 3, 2026 Capital One argued the closure of approximately 385 Trump-related accounts in 2021 was justified because they were all flagged for money laundering [AP News.com](https://apnews.com/article/trump-capital-one-debanking-money-laundering-5f5cc717e1e011e6195bd765c8f90bad)
 
 # Answer 1 
 
