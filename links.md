@@ -14,7 +14,7 @@ permalink: /links/
 [Project 2026 WEB](https://www.heritage.org/family/saving-america-by-saving-the-family)
 
 [Project 2026 PDF](https://www.heritage.org/sites/default/files/2026-01/SR323.pdf)
-
+ 
 
 ### Everything Else (alphabetical order)
 
