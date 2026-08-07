@@ -136,3 +136,36 @@ Submitted to Congress by HistoryListory: Not yet.
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+
+### Question 3 
+
+France’s U.N. mission recently said America “used to be a beacon of human rights” but now stands isolated, while Amnesty International described Trump alongside Putin and Netanyahu as “voracious predators” pursuing political and economic domination. Mexico has even turned to the U.N. over deaths of its citizens in U.S. custody, while this administration has threatened the International Criminal Court and repeatedly attacked international institutions. When our allies and human-rights organizations begin viewing America as a predator rather than a defender of human dignity, what does that do to our standing in the world and what will you do to restore it?
+
+SOME SOURCES
+
+* NO LONGER A BEACON: July 28, 2026 France ONU Geneve wrote, “The US used to be a beacon of human rights. Not anymore. Today, it stands alongside North Korea, Nicaragua, Mali & Russia, isolated. And the world no longer listens to it.” [Time.com](https://time.com/article/2026/07/28/us-walks-out-protest-france-united-nations-address-europe-rift/)
+
+* REJECTED BY THE POPE February 18, 2026 Pope Leo and the Vatican rejected Trump’s invitation to join the board of peace. [Axios.com](https://www.axios.com/2026/02/18/vatican-trump-gaza-board-of-peace-pope-leo)
+
+* GO TO HELL September 23, 2025 Trump tells members of the UN “I’m really good at this stuff - your countries are going to hell”. [Reuters.com](https://www.reuters.com/world/us/trump-address-un-he-distances-us-global-cooperation-2025-09-23)
+
+* VORACIOUS PREDATORS April 21, 2026 Amnesty International's annual Global Human Rights report described the leaders of Israel, Russia, and the United States as "voracious predators" pursuing economic and political domination, citing the Iran war, genocide, violence in Lebanon, and the Gaza conflict [Amnesty.org](https://www.amnesty.org/en/documents/pol10/0320/2026/en)
+
+* EVEN NORTH KOREA March 24, 2026 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism [NK News.org](https://www.nknews.org/2026/03/kim-jong-un-calls-us-a-terrorist-state-repeats-anti-south-korea-stance)
+
+* POPE CALLS US TYRANTS April 15, 2026 JD Vance and Mike Johnson lashed out at the Pope for criticizing Trump’s elective war in Iran.  Vance threatened the Pope should “be careful talking about theology,” while Johnson cited “Just War Doctrine.” The Pope later warned against manipulating religion for political, economic, or military purposes and condemned a world “ravaged by a handful of tyrants.” [Vatican News.va](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
+
+* MEXICO SUES US July 14, 2026 Mexico filed a criminal complaint on the US for migrant deaths in custody [Reuters.com](https://www.reuters.com/world/americas/mexico-files-criminal-complains-us-over-migrant-deaths-custody-2026-07-14) 
+
+* BOARD OF PEACE June 28, 2026 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”. [The Guardian.com](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un) 
+
+* ROME STATUTE December 10, 2025 Reuters reported that the Trump administration urged the International Criminal Court to amend the Rome Statute to shield Trump and senior officials from potential war-crimes investigations, while threatening sanctions if the ICC refused [Reuters.com](https://www.reuters.com/world/us/us-threatens-new-icc-sanctions-unless-court-pledges-not-prosecute-trump-2025-12-10)
+
+# Answer 3
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
