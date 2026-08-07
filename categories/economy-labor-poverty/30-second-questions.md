@@ -150,3 +150,34 @@ Submitted to Congress by HistoryListory: Not Yet
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
 
 Response received? Not yet.
+
+
+### Question 5 
+
+Trump promised he would not touch Social Security or raise the retirement age, yet Republicans have proposed raising it to 69.  Treasury Secretary Scott Bessent called Trump Accounts a potential “backdoor” to privatizing Social Security. Trump’s administration is opening Americans’ 401(k)s to private equity and other complex investments. So can you tell us plainly: Will you oppose raising the retirement age, privatizing Social Security, and putting Americans’ retirement savings at greater risk, and what will you do to protect Americans’ retirement security? 
+
+SOME SOURCES: 
+* GOODBYE 401K March 25, 2026 Trump wants to hand your 401K over to private equity [UPENN.EDU](https://finance-pillar.wharton.upenn.edu/blog/private-equity-retirement-plans)
+
+* PARDONING PE MOGULS November 30, 2025 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms [Wealth Management.com](https://www.wealthmanagement.com/regulation-compliance/trump-commutes-sentence-of-gpb-capital-founder-david-gentile)
+
+* PULLING 401KS March 10, 2026 Americans pulled money out of their 401k funds at record rates due to hardship [USA Today.com](https://www.usatoday.com/story/money/2026/03/12/can-you-withdraw-401k-hardship-rules/89084285007) 
+
+* DIRTY LITTLE SECRET May 8, 2026 During a Milken Institute panel, Ted Cruz described Trump Accounts as a "dirty little secret" for advancing privatized Social Security through accounts created for newborns, and an article quoted him as saying, “it’s because we gave the money to babies so the old people didn’t get pissed” [Democrats.org](https://democrats.org/news/ted-cruz-admits-dirty-little-secret-trump-accounts-are-a-way-to-privatize-social-security)
+
+* FALSE CLAIMS March 4, 2025 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security [CPBB.org](https://www.cbpp.org/blog/setting-the-record-straight-on-social-security)
+
+* NOT RAISING THE RETIREMENT AGE December 8, 2024 Trump pledged, “we are not touching Social Security” and “we are not raising ages” [NBC News.com](https://www.nbcnews.com/meet-the-press/video/trump-says-we-re-not-touching-social-security-in-proposed-cuts-to-government-spending-226493509716)
+
+* RAISING THE RETIREMENT AGE The Republican Study Committee proposed raising the retirement age to 69 [American Progress.org](https://www.americanprogress.org/press/release-the-house-republican-study-committee-budget-proposes-harsh-changes-to-social-security)
+
+* PLANS TO PRIVATIZE SOCIAL SECURITY July 31, 2025 Treasury Secretary Scott Bessent clarified that "Trump Baby Accounts" were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security” [Politico.com](https://www.politico.com/news/2025/07/30/bessent-trump-accounts-backdoor-privatize-social-security-00484859)
+
+
+# Answer 5 
+
+Submitted to Congress by HistoryListory: Not Yet
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
