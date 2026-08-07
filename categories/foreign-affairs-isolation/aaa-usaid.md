@@ -80,6 +80,21 @@ permalink: /categories/foreign-affairs-isolation/aaa-usaid/
 
 [https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/](https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/)
 
+### 2025 November
+
+2025-11-20 Reports indicated that the USAID shut down directly led to roughly 600,000 or more preventable deaths worldwide. 
+
+[https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
+
+[https://www.youtube.com/watch?v=7x4ZHWjDcf4](https://www.youtube.com/watch?v=7x4ZHWjDcf4)
+
+[https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf](https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf)
+
+[https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/](https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/)
+
+[https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands](https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands)
+
+
 ### 2025 December
 
 2025-03-29 House Republicans posted an AI-generated celebration video mocking USAID’s collapse. In December 2025 reporters found that in Kenya where they relied on USAID mothers had to choose which of their kids to feed and pregnant women were so desperate for food they were eating mud. 

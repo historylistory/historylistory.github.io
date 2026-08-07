@@ -38,7 +38,32 @@ permalink: /categories/foreign-affairs-isolation/aaa-world-health/
 
 [https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/](https://nurse.org/news/uganda-nurse-climbs-ladders-to-save-lives/)
 
+### 2025 November
+
+2025-11-20 Reports indicated that the USAID shut down directly led to roughly 600,000 or more preventable deaths worldwide. 
+
+[https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
+
+[https://www.youtube.com/watch?v=7x4ZHWjDcf4](https://www.youtube.com/watch?v=7x4ZHWjDcf4)
+
+[https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf](https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf)
+
+[https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/](https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/)
+
+[https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands](https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands)
+
+2025-11-27 The State Department directed its employees and grant-recipients to not commemorate World Aids Day.
+
+[https://www.theguardian.com/us-news/2025/nov/27/world-aids-day](https://www.theguardian.com/us-news/2025/nov/27/world-aids-day)
+
+[https://www.eatg.org/hiv-news/tets/](https://www.eatg.org/hiv-news/tets/)
+
+[https://www.forbes.com/sites/davewessner/2025/12/01/on-this-world-aids-day-the-us-declines-to-participate/](https://www.forbes.com/sites/davewessner/2025/12/01/on-this-world-aids-day-the-us-declines-to-participate/)
+
+
+
 ### 2026 January
+
 
 2026-01-21 In a study, Trump’s decision to block USAID resulted in hundreds of thousands of deaths from infectious diseases and malnutrition.
 
@@ -89,6 +114,9 @@ permalink: /categories/foreign-affairs-isolation/aaa-world-health/
 
 ### 2026 July
 
+2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
+
+[https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor](https://www.fao.org/newsroom/detail/fao-chief-economist-warns-of-severe-global-food-security-risks-from-disruption-to-strait-of-hormuz-trade-corridor)
 
 2026-07-28 The health ministry of Uganda declared the nation Ebola free.
 

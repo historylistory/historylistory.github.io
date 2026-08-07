@@ -14,6 +14,16 @@ permalink: /categories/economy-labor-poverty/doge/
 
 [https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf](https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf)
 
+### 2025 January
+
+2025-01-20 While he did not directly create DOGE, Heritage Foundation’s Russell Vought both inspired and worked closely with the entity. 
+
+[https://www.axios.com/2025/07/18/russ-vought-doge-elon-musk-recissions](https://www.axios.com/2025/07/18/russ-vought-doge-elon-musk-recissions)
+
+[https://prospect.org/2026/02/05/doge-russell-vought-elon-musk-office-management-budget/](https://prospect.org/2026/02/05/doge-russell-vought-elon-musk-office-management-budget/)
+
+[https://www.democracydocket.com/news-alerts/trump-advisor-russell-vought-doge/](https://www.democracydocket.com/news-alerts/trump-advisor-russell-vought-doge/)
+
 ### 2025 February
 
 2025-02-17 The Trump administration stated Elon Musk was not DOGE’s leader, calling him a “Special Government Employee” without formal authority.

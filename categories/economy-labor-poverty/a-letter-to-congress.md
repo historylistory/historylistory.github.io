@@ -258,6 +258,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-01-20 The Big Beautiful Bill expanded tax cuts that disproportionately benefit high-income earners, with the top 1% receiving over $1T in tax cuts over the next decade.
 
+2025-01-20 While he did not directly create DOGE, Heritage Foundation’s Russell Vought both inspired and worked closely with the entity. 
+
 2025-01-25 Trump handed four big tech giants massive tax breaks. 
 
 ## 2025 February 
