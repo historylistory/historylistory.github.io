@@ -6,6 +6,31 @@ subcategory_slug: disease-spread
 permalink: /categories/health/disease-spread/
 ---
 
+### 2025 January
+
+
+2025-01-28 Trump ordered the CDC to completely cut communications off with the World Health Organization. 
+
+[https://www.cbsnews.com/news/cdc-communication-who-world-health-organization/](https://www.cbsnews.com/news/cdc-communication-who-world-health-organization/)
+
+[https://www.cdc.gov/global-health/resources/us-withdrawal-who.html](https://www.cdc.gov/global-health/resources/us-withdrawal-who.html)
+
+[https://apnews.com/article/cdc-who-trump-548cf18b1c409c7d22e17311ccdfe1f6](https://apnews.com/article/cdc-who-trump-548cf18b1c409c7d22e17311ccdfe1f6)
+
+### 2025 February
+
+2025-02-27 DOGE cut funding to fight Ebola. During the deadly outbreak in May in the Congo, Musk claimed they restored the funding. Yet, the Trump administration also cut funding to the CDC, barred the CDC from contacting the World Health Organization, and cases in the Congo surpassed 3000. Experts warned this strain of Ebola carried more momentum than the 2014 outbreak that claimed over 11,000 lives. 
+
+[https://www.theguardian.com/technology/2026/jul/07/elon-musk-doge-cuts-usaid-ebola](https://www.theguardian.com/technology/2026/jul/07/elon-musk-doge-cuts-usaid-ebola)
+
+[https://www.npr.org/sections/goats-and-soda/2025/02/27/g-s1-50929/elon-musk-ebola-usaid](https://www.npr.org/sections/goats-and-soda/2025/02/27/g-s1-50929/elon-musk-ebola-usaid)
+
+[https://www.cbsnews.com/news/cdc-communication-who-world-health-organization/](https://www.cbsnews.com/news/cdc-communication-who-world-health-organization/)
+
+[https://www.cdc.gov/global-health/resources/us-withdrawal-who.html](https://www.cdc.gov/global-health/resources/us-withdrawal-who.html)
+
+PAY WALL [https://www.washingtonpost.com/politics/2025/02/26/elon-musk-ebola-prevention-usaid-doge/](https://www.washingtonpost.com/politics/2025/02/26/elon-musk-ebola-prevention-usaid-doge/)
+
 ### 2026 January
 
 2026-01-29 As the US began to lose its measles elimination status, the CDC under-reported 588 measles cases across 17 states, while other health organizations reported that South Carolina alone had over 800 cases in January.

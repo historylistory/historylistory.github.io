@@ -14,6 +14,14 @@ permalink: /categories/economy-labor-poverty/doge/
 
 [https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf](https://storage.courtlistener.com/recap/gov.uscourts.dcd.277463/gov.uscourts.dcd.277463.24.1.pdf)
 
+2024-11-25 Key figures from silicon valley were also involved in DOGE. 
+
+[https://www.businessinsider.com/doge-silicon-valley-leaders-trump-musk-marc-andreessen-travis-kalanick-2024-11](https://www.businessinsider.com/doge-silicon-valley-leaders-trump-musk-marc-andreessen-travis-kalanick-2024-11)
+
+[https://techcrunch.com/2025/03/26/19-founders-and-vcs-working-with-elon-musks-doge/](https://techcrunch.com/2025/03/26/19-founders-and-vcs-working-with-elon-musks-doge/)
+
+[https://finance.yahoo.com/news/19-founders-vcs-working-elon-184500063.html](https://finance.yahoo.com/news/19-founders-vcs-working-elon-184500063.html)
+
 ### 2025 January
 
 2025-01-20 While he did not directly create DOGE, Heritage Foundation’s Russell Vought both inspired and worked closely with the entity. 

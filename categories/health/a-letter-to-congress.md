@@ -237,6 +237,9 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-01-24 Trump reenacted a policy banning aid to groups abroad that discuss or provide abortions.
 
+
+2025-01-28 Trump ordered the CDC to completely cut communications off with the World Health Organization. 
+
 2025-01-29 During a confirmation hearing, Bernie Sanders questioned RFK about his non-profit Children’s Health Defense selling anti-vax propaganda onesies for infants on their website: “Unvaxxed – Unafraid” and “No Vax - No Problem”.
 
 2025-01-30 Senator Alsobrooks asked RFK why he claimed Black people have a different immune system than white people and should get a different vaccine schedule. 
@@ -254,6 +257,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2025-02-26 The family of a 6-year-old who died in Lubbock Texas of measles stated they stood by their decision to not vaccinate their child and believed their child’s death was God’s will.
 
 2025-02-27 The Trump administration ended funding for a UN program fighting HIV/AIDS.
+
+2025-02-27 DOGE cut funding to fight Ebola. During the deadly outbreak in May in the Congo, Musk claimed they restored the funding. Yet, the Trump administration also cut funding to the CDC, barred the CDC from contacting the World Health Organization, and cases in the Congo surpassed 3000. Experts warned this strain of Ebola carried more momentum than the 2014 outbreak that claimed over 11,000 lives. 
 
 2025-02-28 Elon Musk claimed social security was a “Ponzi scheme”.
 

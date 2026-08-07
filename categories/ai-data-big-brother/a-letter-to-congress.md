@@ -118,6 +118,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2024-11-12 Trump appointed Elon Musk and Vivek Ramaswamy to DOGE. The White House later alternated between claiming Musk was and was not leading DOGE. Musk was sending out his “What did you do last week” emails.
 
+2024-11-25 Key figures from silicon valley were also involved in DOGE. 
+
 2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.
 
 ## 2025 January

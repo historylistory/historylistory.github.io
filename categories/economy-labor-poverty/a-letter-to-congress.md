@@ -208,6 +208,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2024-11-12 Trump appointed Elon Musk and Vivek Ramaswamy to DOGE. The White House later alternated between claiming Musk was and was not leading DOGE. Musk was sending out his “What did you do last week” emails.
 
+2024-11-25 Key figures from silicon valley were also involved in DOGE. 
+
 2024-12-08 Trump pledged, “we are not touching Social Security” and “we are not raising ages”.
 
 2024-12-27 Algorithms increasingly track user behavior, fueling concerns about tech-billionaire influence and surveillance.

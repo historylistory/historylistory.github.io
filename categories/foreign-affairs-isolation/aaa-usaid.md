@@ -50,6 +50,17 @@ permalink: /categories/foreign-affairs-isolation/aaa-usaid/
 
 [https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid#:~:text=On%20the%20latest%20Last,any%20of%20those%20thoughts%20true.%E2%80%9D](https://www.theguardian.com/tv-and-radio/2026/mar/09/john-oliver-trump-usaid)
 
+2025-02-11 Some celebrated closure of USAID for its history of redirecting funds for American interests. For example, under Regan the emphasis was on private sector growth. In Afghanistan millions of dollars were spent on unsustainable projects. They often redirected funds to private US-owned clinics and schools.  
+
+[https://www.npr.org/sections/goats-and-soda/2025/02/11/g-s1-47661/trump-musk-usaid-ukraine-south-africa-mexico-colombia-india-afghanistan-hiv](https://www.npr.org/sections/goats-and-soda/2025/02/11/g-s1-47661/trump-musk-usaid-ukraine-south-africa-mexico-colombia-india-afghanistan-hiv)
+
+[https://www.pbs.org/video/haiti-in-crisis-1743539858/](https://www.pbs.org/video/haiti-in-crisis-1743539858/)
+
+[https://www.pbs.org/newshour/show/u-s-created-cuba-twitter-sow-unrest-reports-ap](https://www.pbs.org/newshour/show/u-s-created-cuba-twitter-sow-unrest-reports-ap)
+
+[https://www.cbsnews.com/news/us-secretly-built-cuban-twitter-but-why/](https://www.cbsnews.com/news/us-secretly-built-cuban-twitter-but-why/)
+
+
 2025-02-18 Right-wing podcaster Benny Johnson celebrated outside the shuttered USAID headquarters.
 
 {% include youtubePlayer.html id="tU8S13xYJNM" %}

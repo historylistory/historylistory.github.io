@@ -56,6 +56,13 @@ permalink: /categories/ai-data-big-brother/tech-economy/
 [https://x.com/NathanJRobinson/status/1787176314023092727](https://x.com/NathanJRobinson/status/1787176314023092727)
 
 
+2024-11-25 Key figures from silicon valley were also involved in DOGE. 
+
+[https://www.businessinsider.com/doge-silicon-valley-leaders-trump-musk-marc-andreessen-travis-kalanick-2024-11](https://www.businessinsider.com/doge-silicon-valley-leaders-trump-musk-marc-andreessen-travis-kalanick-2024-11)
+
+[https://techcrunch.com/2025/03/26/19-founders-and-vcs-working-with-elon-musks-doge/](https://techcrunch.com/2025/03/26/19-founders-and-vcs-working-with-elon-musks-doge/)
+
+[https://finance.yahoo.com/news/19-founders-vcs-working-elon-184500063.html](https://finance.yahoo.com/news/19-founders-vcs-working-elon-184500063.html)
 
 ### 2025 January STARGATE
 
