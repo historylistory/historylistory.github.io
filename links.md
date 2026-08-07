@@ -148,6 +148,8 @@ permalink: /links/
 [GET INVOLVED/FIGHT EXTREMISM: Institute for Strategic Dialogue](https://www.isdglobal.org/)
 
 [GET INVOLVED/FIGHT EXTREMISM: Southern Poverty Law Center](https://www.splcenter.org/)
+
+
 ---
 
 [GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
@@ -187,6 +189,7 @@ permalink: /links/
 [GET INVOVED/VOTE: Vote411.org](https://www.vote411.org/)
 
 [GET INVOLVED/VOTE: Rock the Vote.org YES children of the 90's, they still have this!](https://www.rockthevote.org/)
+
 
 ---
 
@@ -256,6 +259,7 @@ permalink: /links/
 [HUMAN RIGHTS & GLOBAL AFFAIRS: Physicians for Human Rights](https://phr.org/)
 
 [HUMAN RIGHTS & GLOBAL AFFAIRS: Food and Agriculture Organization of the United Nations](https://www.fao.org/)
+
 --- 
 
 [Hunger: World Food Program USA](https://wfpusa.org/)

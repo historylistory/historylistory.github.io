@@ -8,6 +8,6 @@ permalink: /categories/greed-ethics/for-profit-religion/
 
 ### Commentary
 
-To avoid duplication, visit the Religion section for this: 
+To avoid duplication, visit the [Religion: Profit & Politics](https://historylistory.com/categories/religion/profit-and-politics) section
 
 
