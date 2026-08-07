@@ -638,7 +638,10 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-05 A deadly fungus called Candida auris hit Texas and 23 states. 
 
+2026-08-05 A salmonella outbreak was reported in 27 states. 
 
 2026-08-06 Dr. Erica Schwarz was confirmed to lead the Centers for Disease Control Prevention. The agency has been without a director for more than a year after Trump fired Susan Monarez for not carrying out his MAGA agendas.  
+
+2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
 
 

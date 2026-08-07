@@ -361,3 +361,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-05 A federal lawsuit accuses the Trump administration of deliberately targeting unaccompanied children at airports. The lawsuit states, “This case is about the most vulnerable in our immigration system: abused, abandoned, neglected, and trafficked children. One would assume it would be a priority of our immigration system to protect, at least, these children. However, protecting vulnerable and trafficked children conflicts with an agenda of ‘deport at all costs’”. 
 
 2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
+
+2026-08-06 Project 2025 began its attack on cuts to Head Start.

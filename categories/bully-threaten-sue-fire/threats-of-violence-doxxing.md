@@ -336,3 +336,13 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/](https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/)
 
 [https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)
+
+### 2026 August
+
+2026-08-06 US District Judge John McConnell reported that he and his family have received death threats after ruling against Trump. 
+
+[https://www.youtube.com/watch?v=D_mF5-H2ftc&list=WL&index=7&t=136s](https://www.youtube.com/watch?v=D_mF5-H2ftc&list=WL&index=7&t=136s)
+
+[https://www.cnn.com/2026/08/06/us/video/ebof-judges-mcconnell-and-salas-threats](https://www.cnn.com/2026/08/06/us/video/ebof-judges-mcconnell-and-salas-threats)
+
+[https://www.yahoo.com/news/videos/judge-reveals-credible-death-threats-194023869.html](https://www.yahoo.com/news/videos/judge-reveals-credible-death-threats-194023869.html)

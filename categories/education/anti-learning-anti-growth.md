@@ -114,3 +114,20 @@ The publication “A Short History of the Department of State” was retired.
 
 [https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/](https://www.reuters.com/legal/litigation/trump-administration-fires-entire-national-science-board-2026-04-28/)
 
+### 2026 August
+
+2026-08-06 Project 2025 began its attack on cuts to Head Start.
+
+2024 WARNING [https://www.nea.org/nea-today/all-news-articles/how-project-2025-would-devastate-public-education](https://www.nea.org/nea-today/all-news-articles/how-project-2025-would-devastate-public-education)
+
+[https://www.youtube.com/watch?v=Pp-5MPxSJHY&list=WL&index=6](https://www.youtube.com/watch?v=Pp-5MPxSJHY&list=WL&index=6)
+
+[https://www.americanprogress.org/article/project-2025-would-eliminate-head-start-severely-restricting-access-to-child-care-in-rural-america/](https://www.americanprogress.org/article/project-2025-would-eliminate-head-start-severely-restricting-access-to-child-care-in-rural-america/)
+
+[https://www.americanprogress.org/article/project-2025-would-eliminate-head-start-severely-restricting-access-to-child-care-in-rural-america/](https://www.americanprogress.org/article/project-2025-would-eliminate-head-start-severely-restricting-access-to-child-care-in-rural-america/)
+
+[https://www.kmbc.com/article/kc-area-head-start-programs-major-overhaul/73370717](https://www.kmbc.com/article/kc-area-head-start-programs-major-overhaul/73370717)
+
+[https://www.kctv5.com/2026/08/06/advocates-proposed-head-start-changes-risk-teacher-layoffs-weakened-standards/](https://www.kctv5.com/2026/08/06/advocates-proposed-head-start-changes-risk-teacher-layoffs-weakened-standards/)
+
+SUB WALL [https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html](https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html)

@@ -224,5 +224,14 @@ Great Barrington Declaration links:
 
 A LONG RUNNING FEUD [https://www.youtube.com/shorts/IAVtyQiuGMA](https://www.youtube.com/shorts/IAVtyQiuGMA)
 
+### 2026 August
+
+2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
+
+[https://www.pbs.org/newshour/politics/why-was-fauci-held-in-contempt-for-pleading-the-5th-and-what-happens-next](https://www.pbs.org/newshour/politics/why-was-fauci-held-in-contempt-for-pleading-the-5th-and-what-happens-next)
+
+[https://www.foxnews.com/opinion/fauci-contempt-congress-challengeable-not-contempt-public](https://www.foxnews.com/opinion/fauci-contempt-congress-challengeable-not-contempt-public)
+
+[https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing](https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing)
 
 

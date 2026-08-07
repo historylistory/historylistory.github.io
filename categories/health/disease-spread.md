@@ -137,3 +137,12 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 
 [https://www.youtube.com/playlist?list=WL](https://www.youtube.com/playlist?list=WL)
 
+2026-08-05 A salmonella outbreak was reported in 27 states. 
+
+[https://www.youtube.com/watch?v=ATdMWQi_stQ&list=WL&index=5](https://www.youtube.com/watch?v=ATdMWQi_stQ&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=j-g6ZoBuuZ8&list=WL&index=4](https://www.youtube.com/watch?v=j-g6ZoBuuZ8&list=WL&index=4)
+
+[https://www.cbsnews.com/news/qdoba-jalapenos-salmonella-outbreak-affects-dozens-of-states/](https://www.cbsnews.com/news/qdoba-jalapenos-salmonella-outbreak-affects-dozens-of-states/)
+
+[https://globalnews.ca/news/12011438/u-s-salmonella-outbreak-linked-to-jalapenos/](https://globalnews.ca/news/12011438/u-s-salmonella-outbreak-linked-to-jalapenos/)

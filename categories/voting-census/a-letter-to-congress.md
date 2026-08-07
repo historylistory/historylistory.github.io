@@ -513,3 +513,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-07-28 The Senate voted to confirm Jay Clatyon as director of National Intelligence. Clayton repeatedly refused to say or concede that Joe Biden won the 2020 election or that Trump had lost. 
 
 2026-07-31 Texas reported several voters were flagged incorrectly as noncitizens after they voluntarily enacted the SAVE act. 
+
+## 2026 August
+
+2026-08-05 Republicans challenged a constitutional amendment in Maryland to change rules governing how future congressional district maps are drawn, complaining that the measure doesn’t give voters enough time to decide. 

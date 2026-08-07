@@ -350,3 +350,13 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 [https://www.youtube.com/watch?v=VeKoi2ZqL94&list=WL&index=8](https://www.youtube.com/watch?v=VeKoi2ZqL94&list=WL&index=8)
 
 [https://www.pbs.org/newshour/politics/georgia-republican-legislative-leaders-reject-governors-call-for-2028-redistricting](https://www.pbs.org/newshour/politics/georgia-republican-legislative-leaders-reject-governors-call-for-2028-redistricting)
+
+### 2026 August
+
+2026-08-05 Republicans challenged a constitutional amendment in Maryland to change rules governing how future congressional district maps are drawn, complaining that the measure doesn’t give voters enough time to decide. 
+
+[https://www.youtube.com/watch?v=n9hhXYGgJTU&list=WL&index=3](https://www.youtube.com/watch?v=n9hhXYGgJTU&list=WL&index=3)
+
+[https://marylandmatters.org/2026/08/05/maryland-republicans-predict-legal-challenge-to-constitutional-amendment-on-redistricting/](https://marylandmatters.org/2026/08/05/maryland-republicans-predict-legal-challenge-to-constitutional-amendment-on-redistricting/)
+
+[https://www.wbaltv.com/article/maryland-constitutional-amendment-redistricting-bill-passes/73348816](https://www.wbaltv.com/article/maryland-constitutional-amendment-redistricting-bill-passes/73348816)

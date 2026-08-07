@@ -144,3 +144,11 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 
 [https://www.usinflationcalculator.com/inflation/airfare-inflation/](https://www.usinflationcalculator.com/inflation/airfare-inflation/)
 
+### 2026 August
+
+2026-08-06 After a system outage at a major air traffic control facility in Minneapolis multiple airspaces were shut down. 
+
+[https://abcnews.com/US/flights-grounded-midwest-after-temporary-outage-minnesota-air/story?id=135438785](https://abcnews.com/US/flights-grounded-midwest-after-temporary-outage-minnesota-air/story?id=135438785)
+
+[https://www.cbsnews.com/minnesota/news/minneapolis-st-paul-international-airport-ground-stop-august-6-2026/](https://www.cbsnews.com/minnesota/news/minneapolis-st-paul-international-airport-ground-stop-august-6-2026/)
+
