@@ -38,6 +38,13 @@ permalink: /categories/economy-labor-poverty/doge/
 
 [https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639](https://www.politico.com/news/2025/02/17/doge-administrator-elon-musk-00204639)
 
+### 2025 April
+
+2025-04-28 DOGE claimed to save $160B with cuts, but the cost to taxpayers equated to $135B. 
+
+[https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/](https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/)
+
+
 ### 2025 June
 
 2025-06-24 The Trump administration scrambled to rehire federal workers fired by DOGE. Those DOGE cuts cost taxpayers an estimated $135B.
@@ -49,6 +56,18 @@ permalink: /categories/economy-labor-poverty/doge/
 [https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/](https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/)
 
 ### 2025 July
+
+2025-07-01 A UCLA Fielding research study showed that DOGE’s dismantling USAID will lead to more than 14M preventable deaths including more than 4M children under the age of 5 
+
+[https://ph.ucla.edu/news-events/news/research-finds-more-14-million-preventable-deaths-2030-if-usaid-defunding](https://ph.ucla.edu/news-events/news/research-finds-more-14-million-preventable-deaths-2030-if-usaid-defunding)
+
+[https://www.healthdata.org/research-analysis/gbd](https://www.healthdata.org/research-analysis/gbd)
+
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
+
+[https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/](https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/)
+
+[https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/](https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/)
 
 2025-07-15 The Trump administration defunded CISA (Cybersecurity and Infrastructure Security Agency), accusing it of spreading misinformation and combating foreign disinformation. Interesting sidenote, the former director Chris Krebs was one of Trump’s direct targets when he announced the 2020 presidential election was conducted securely and without significant voter fraud.
 

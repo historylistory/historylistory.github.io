@@ -154,6 +154,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 ## 2025 April
 
+2025-04-01 Musk rerouted Biden’s Broadband Equity, Access and Deployment program designed to help rural communities gain access to the internet. Instead, he rerouted funds to his Starlink Telecom company. 
+
 2025-04-08 Companies increasingly used AI to scan resumes, rank candidates, and reject applicants before human review.
 
 2025-04-12 Apple received retroactive exemptions from certain Chinese tariffs on smartphones.

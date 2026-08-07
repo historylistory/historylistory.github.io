@@ -197,6 +197,9 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-10-16 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery.
 
+2025-10-17 An anonymous senior government official for the Office of Management and Budget stated, “We work for the President of the United States”, “it feels like we work for Russ Vought. He has centralized decision-making power to an extent that he is the Commander in Chief”. 
+
+
 2025-10-20 Israeli soldiers shot and killed 9-year-old Mohammad Bahjat Mohammad Hallaq in the head.
 
 ## 2025 November

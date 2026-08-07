@@ -151,6 +151,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 ## 2025 July
 
+2025-07-01 A UCLA Fielding research study showed that DOGE’s dismantling USAID will lead to more than 14M preventable deaths including more than 4M children under the age of 5 
+
 2025-07-04 The "Big Beautiful Bill" sharply reduced eligibility for food assistance and other aid programs serving low-income families. 
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 

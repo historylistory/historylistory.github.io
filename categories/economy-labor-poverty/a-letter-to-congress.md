@@ -308,6 +308,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-04-01 The Trump administration made cuts to Meals on Wheels, the Low-Income Home Energy Assistance Program, and crisis assistance to the elderly and disabled.
 
+2025-04-01 Musk rerouted Biden’s Broadband Equity, Access and Deployment program designed to help rural communities gain access to the internet. Instead, he rerouted funds to his Starlink Telecom company. 
+
 2025-04-02 The White House imposed tariffs on uninhabited islands. The Commerce Secretary claimed it was on purpose to tackle any loopholes.
 
 2025-04-08 Companies increasingly used AI to scan resumes, rank candidates, and reject applicants before human review.
@@ -315,6 +317,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-04-12 Apple received retroactive exemptions from certain Chinese tariffs on smartphones.
 
 2025-04-17 Trump criticized Federal Reserve Chair Jerome Powell on social media and said Powell’s “termination cannot come fast enough.”
+
+2025-04-28 DOGE claimed to save $160B with cuts, but the cost to taxpayers equated to $135B. 
 
 ## 2025 May 
 
@@ -346,6 +350,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 ## 2025 July 
 
+2025-07-01 A UCLA Fielding research study showed that DOGE’s dismantling USAID will lead to more than 14M preventable deaths including more than 4M children under the age of 5 
+
 2025-07-03 DeSantis vetoed funds set aside for “Patriot Passport”, a veteran program designed to allow permanent Florida residents who are veterans to ride transit lines for free.
 
 2025-07-04 Trump signed a bill to change gambling loss deductions, potentially causing a “tax on phantom income” and unregulated offshore betting. 
@@ -363,6 +369,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-07-09 Trump revoked Biden’s Executive Order 14036 on Promoting Competition in the American Economy, a legislation meant to prevent monopolies and higher food prices.
 
 2025-07-10 Trump ended federal subsidies for electric vehicles.
+
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
 
 2025-07-18 Trump signed “The Genius Act” to regulate the stablecoin industry.
 

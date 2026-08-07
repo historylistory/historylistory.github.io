@@ -12,13 +12,22 @@ permalink: /categories/foreign-affairs-isolation/aaa-miscellaneous/
 
 [https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
 
-
-
 ### 2025
 
 2025-02-05 Pam Bondi disbanded the FBI Foreign Influence Task Force and FBI Task Force Kleptocapture. Both departments were designed to combat foreign influence in U.S. politics.
 
 [https://www.nbcnews.com/politics/national-security/bondi-ends-fbi-effort-combat-foreign-influence-us-politics-rcna191012](https://www.nbcnews.com/politics/national-security/bondi-ends-fbi-effort-combat-foreign-influence-us-politics-rcna191012)
+
+### 2025 April 
+
+2025-04-03 The Trump administration sent a three-person team out to Myanmar for foreign aid in response to an earthquake, then fired them once there. China sent 600 aid workers. 
+
+[https://www.nbcnews.com/news/world/us-aid-team-fired-myanmar-earthquake-zone-ex-official-says-rcna199886](https://www.nbcnews.com/news/world/us-aid-team-fired-myanmar-earthquake-zone-ex-official-says-rcna199886)
+
+[https://www.reuters.com/world/asia-pacific/with-us-absent-china-steps-earthquake-hit-myanmar-2025-04-02/](https://www.reuters.com/world/asia-pacific/with-us-absent-china-steps-earthquake-hit-myanmar-2025-04-02/)
+
+PAY WALL [https://www.nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html](https://www.nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fired.html)
+
 
 2025-06-11 A Pew Research study found that globally other countries have less confidence in the United States. 
 

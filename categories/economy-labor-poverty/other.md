@@ -46,6 +46,17 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/](https://www.forbes.com/sites/suzannerowankelleher/2025/03/10/canada-travel-boycott-4-billion-loss/)
 
+### 2025 April
+
+2025-04-01 Musk rerouted Biden’s Broadband Equity, Access and Deployment program designed to help rural communities gain access to the internet. Instead, he rerouted funds to his Starlink Telecom company. 
+
+[https://broadbandbreakfast.com/rural-focused-42-billion-broadband-equity-access-and-deployment-program-becomes-operational/](https://broadbandbreakfast.com/rural-focused-42-billion-broadband-equity-access-and-deployment-program-becomes-operational/)
+
+[https://stateline.org/2025/06/06/trumps-broadband-program-overhaul-favors-musk-tech-strips-low-cost-plans/](https://stateline.org/2025/06/06/trumps-broadband-program-overhaul-favors-musk-tech-strips-low-cost-plans/)
+
+PAY WALL [https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-satellites-starlink-kuiper/ ](https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-satellites-starlink-kuiper/)
+
+
 ### 2025 July
 
 2025-07-18 Trump signed “The Genius Act” to regulate the stablecoin industry.

@@ -42,7 +42,14 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 [https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
 
+
 ### 2025 July
+
+2025-07-01 A UCLA Fielding research study showed that DOGE’s dismantling USAID will lead to more than 14M preventable deaths including more than 4M children under the age of 5 
+
+[https://ph.ucla.edu/news-events/news/research-finds-more-14-million-preventable-deaths-2030-if-usaid-defunding](https://ph.ucla.edu/news-events/news/research-finds-more-14-million-preventable-deaths-2030-if-usaid-defunding)
+
+[https://www.healthdata.org/research-analysis/gbd](https://www.healthdata.org/research-analysis/gbd)
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 

@@ -42,6 +42,12 @@ permalink: /categories/climate-change/endangerment/
 
 [https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump](https://www.theguardian.com/environment/2025/jul/01/climate-change-reports-removed-trump)
 
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
+
+[https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/](https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/)
+
+[https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/](https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/)
+
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 [https://www.motherjones.com/politics/2026/04/data-centers-indian-country/](https://www.motherjones.com/politics/2026/04/data-centers-indian-country/)

@@ -187,6 +187,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2025-07-10 Trump ended federal subsidies for electric vehicles.
 
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
+
 2025-07-18 The EPA cut 23% of its personnel.
 
 2025-07-21 A Nebraska attorney publicly opposed wind and solar energy development in Nebraska.

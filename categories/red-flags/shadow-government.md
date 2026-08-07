@@ -1,13 +1,10 @@
 ---
 layout: subcategory
-title: Heritage Foundation
-category_slug: religion
-subcategory_slug: heritage-foundation
-permalink: /categories/religion/heritage-foundation/
+title: Shadow Government
+category_slug: red-flags
+subcategory_slug: shadow-government
+permalink: /categories/foreign-affairs-isolation/shadow-government/
 ---
-
-### Overreach 
-*Still in progress* there is just so much
 
 ### 2025 October
 

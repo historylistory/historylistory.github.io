@@ -84,6 +84,11 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/](https://theintercept.com/2025/03/10/pentagon-spending-golf-courses-trump-budget-cuts-elon-musk-doge/)
 
+### 2025 April
+
+2025-04-28 DOGE claimed to save $160B with cuts, but the cost to taxpayers equated to $135B. 
+
+[https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/](https://www.cbsnews.com/news/doge-cuts-cost-135-billion-analysis-elon-musk-department-of-government-efficiency/)
 
 ### 2025 May
 

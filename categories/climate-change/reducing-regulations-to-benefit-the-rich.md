@@ -140,6 +140,12 @@ permalink: /categories/climate-change/reducing-regulations-to-benefit-the-rich/
 
 [https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html](https://www.cnbc.com/2025/07/10/trump-big-beautiful-bill-ends-7500-ev-tax-credit-time-to-buy-vehicle.html)
 
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
+
+[https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/](https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/)
+
+[https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/](https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/)
+
 2025-07-29 The Trump administration attempted to repeal a 2009 EPA endangerment finding that greenhouse gas emissions are air pollutants that endanger public health and welfare.
 
 [https://eelp.law.harvard.edu/tracker/greenhouse-gas-endangerment-finding/](https://eelp.law.harvard.edu/tracker/greenhouse-gas-endangerment-finding/)

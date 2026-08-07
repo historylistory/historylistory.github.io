@@ -44,6 +44,13 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 ### 2025 July
 
+2025-07-10 Project 2025 calls to completely dismantle the National Weather Service and fully commercialize forecasting operations. DOGE torched NOAA’s staff. 
+
+[https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/](https://thehill.com/policy/energy-environment/4907338-heritage-foundation-plan-weather-service/)
+
+[https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/](https://www.americanprogress.org/article/the-lasting-threat-of-trumps-cuts-to-noaa-and-nws-on-american-communities/)
+
+
 2025-07-31 Treasury Secretary Scott Bessent clarified that "Trump Baby Accounts" were intended to supplement, not replace, Social Security. However, reports also indicated he previously referred to them as a “back door for privatizing Social Security”. 
 
 [https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243](https://abcnews.go.com/Politics/bessent-clarify-comments-suggesting-social-security-privatized/story?id=124248243)
