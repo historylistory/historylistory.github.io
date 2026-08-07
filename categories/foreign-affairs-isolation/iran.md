@@ -2078,3 +2078,11 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://www.bbc.com/news/articles/ckg9d3eyeggo](https://www.bbc.com/news/articles/ckg9d3eyeggo)
 
+2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
+
+[https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997](https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997)
+
+[https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low](https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low)
+
+[https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/](https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/)
+

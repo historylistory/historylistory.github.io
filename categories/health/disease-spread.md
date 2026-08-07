@@ -115,4 +115,25 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 
 [https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm](https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm)
 
+### 2026 August
+
+2026-08-03 Florida reported the highest number of leprosy cases in modern records. 
+
+[https://www.youtube.com/watch?v=qE1Nr7KWsvg&list=WL&index=2&t=5s](https://www.youtube.com/watch?v=qE1Nr7KWsvg&list=WL&index=2&t=5s)
+
+[https://cbs12.com/news/local/florida-leprosy-cases-hansens-disease-reached-record-in-2025-see-where-cases-are-being-reported-county-brevard-charlotte-duval-highlands-lake-lee-manatee-miami-dade-okeechobee-orange-seminole-st-johns-sumter-volusia](https://cbs12.com/news/local/florida-leprosy-cases-hansens-disease-reached-record-in-2025-see-where-cases-are-being-reported-county-brevard-charlotte-duval-highlands-lake-lee-manatee-miami-dade-okeechobee-orange-seminole-st-johns-sumter-volusia)
+
+[https://www.the-independent.com/news/world/americas/leprosy-cases-florida-us-hansens-disease-b3028881.html](https://www.the-independent.com/news/world/americas/leprosy-cases-florida-us-hansens-disease-b3028881.html)
+
+[https://news3lv.com/news/nation-world/florida-leprosy-cases-hansens-disease-reached-record-in-2025-see-where-cases-are-being-reported-county-brevard-charlotte-duval-highlands-lake-lee-manatee-miami-dade-okeechobee-orange-seminole-st-johns-sumter-volusia](https://news3lv.com/news/nation-world/florida-leprosy-cases-hansens-disease-reached-record-in-2025-see-where-cases-are-being-reported-county-brevard-charlotte-duval-highlands-lake-lee-manatee-miami-dade-okeechobee-orange-seminole-st-johns-sumter-volusia)
+
+2026-08-05 A deadly fungus called Candida auris hit Texas and 23 states. 
+
+[https://www.elpasotimes.com/story/news/health/2026/08/05/superbug-fungus-candida-auris-texas-cases-explainer/91178731007/](https://www.elpasotimes.com/story/news/health/2026/08/05/superbug-fungus-candida-auris-texas-cases-explainer/91178731007/)
+
+[https://www.houstonchronicle.com/news/houston-texas/trending/article/candida-auris-cases-22375202.php](https://www.houstonchronicle.com/news/houston-texas/trending/article/candida-auris-cases-22375202.php)
+
+[https://thehill.com/policy/healthcare/6000841-superbug-confirmed-in-23-states-where-is-the-deadly-fungus-spreading-in-2026/](https://thehill.com/policy/healthcare/6000841-superbug-confirmed-in-23-states-where-is-the-deadly-fungus-spreading-in-2026/)
+
+[https://www.youtube.com/playlist?list=WL](https://www.youtube.com/playlist?list=WL)
 

@@ -449,6 +449,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-06-30 Representative Tom Kean reported his absence to Congress was due to depression. 
 
+2026-06-30 Heritage Foundation’s Russel Voght stated that there would be no final evaluation report or after-action plan for DOGE. 
+
 ## 2026 July 
 
 2026-07-08 A group of retired judges marched in protest over fears that the rule of law is under threat in the United States. 
@@ -490,3 +492,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
 
 2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
+
+2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 

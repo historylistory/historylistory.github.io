@@ -470,3 +470,14 @@ TIMESTAMP 3:37 [https://www.youtube.com/watch?v=1DoRWxUsI1A&list=WL&index=4](htt
 VIDEO WAS TAKEN DOWN 5 HOURS LATER: [https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html](https://www.aol.com/articles/lindsey-graham-didn-t-just-100000000.html)
 
 PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary](https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-documentary)
+
+### 2026 August
+
+2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
+
+[https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997](https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997)
+
+[https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low](https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low)
+
+[https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/](https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/)
+

@@ -95,6 +95,17 @@ permalink: /categories/economy-labor-poverty/doge/
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
 
+### 2026 June
+
+2026-06-30 Heritage Foundation’s Russel Voght stated that there would be no final evaluation report or after-action plan for DOGE. 
+
+[https://www.meritalk.com/articles/white-house-does-not-plan-final-doge-report-as-agency-nears-end/](https://www.meritalk.com/articles/white-house-does-not-plan-final-doge-report-as-agency-nears-end/)
+
+[https://fedscoop.com/no-doge-action-report-from-white-house/](https://fedscoop.com/no-doge-action-report-from-white-house/)
+
+[https://federalnewsnetwork.com/agency-oversight/2026/07/vought-trump-admin-wont-do-doge-after-action-report/](https://federalnewsnetwork.com/agency-oversight/2026/07/vought-trump-admin-wont-do-doge-after-action-report/)
+
+
 ### 2026 July
 
 2026-07-01 Elon Musk threatened to sue anyone who talks about DOGE cuts. 

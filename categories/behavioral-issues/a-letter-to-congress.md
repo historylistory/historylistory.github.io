@@ -327,6 +327,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
 
+2025-11-20 Reports indicated that the USAID shut down directly led to roughly 600,000 or more preventable deaths worldwide. 
+
 2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
 2025-11-30 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat, captioned, “For your Christmas wish list”. 

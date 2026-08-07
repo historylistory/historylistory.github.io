@@ -667,6 +667,14 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 [https://abc7ny.com/post/new-jersey-rep-tom-kean-jr-returns-dc-4-month-absence-reveals-depression-diagnosis/19421668/](https://abc7ny.com/post/new-jersey-rep-tom-kean-jr-returns-dc-4-month-absence-reveals-depression-diagnosis/19421668/)
 
+2026-06-30 Heritage Foundation’s Russel Voght stated that there would be no final evaluation report or after-action plan for DOGE. 
+
+[https://www.meritalk.com/articles/white-house-does-not-plan-final-doge-report-as-agency-nears-end/](https://www.meritalk.com/articles/white-house-does-not-plan-final-doge-report-as-agency-nears-end/)
+
+[https://fedscoop.com/no-doge-action-report-from-white-house/](https://fedscoop.com/no-doge-action-report-from-white-house/)
+
+[https://federalnewsnetwork.com/agency-oversight/2026/07/vought-trump-admin-wont-do-doge-after-action-report/](https://federalnewsnetwork.com/agency-oversight/2026/07/vought-trump-admin-wont-do-doge-after-action-report/)
+
 ### 2026 July
 
 2026-07-10 The White House left Trump’s Qatari jet in Turkey over security concerns. 
@@ -729,3 +737,12 @@ SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-
 
 [https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/](https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/)
 
+### 2026 August
+
+2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
+
+[https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997](https://abcnews.com/Politics/crucial-us-missile-stockpiles-extremely-low-official/story?id=135428997)
+
+[https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low](https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low)
+
+[https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/](https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/)

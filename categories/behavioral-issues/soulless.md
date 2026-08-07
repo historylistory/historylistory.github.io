@@ -339,6 +339,17 @@ VIDEO (DISTURBING, USE CAUTION) [https://www.youtube.com/watch?v=_7oOnkZvqQE](ht
 
 [https://www.bbc.com/news/articles/cpqwv9vvzx9o](https://www.bbc.com/news/articles/cpqwv9vvzx9o)
 
+2025-11-20 Reports indicated that the USAID shut down directly led to roughly 600,000 or more preventable deaths worldwide. 
+
+[https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/](https://hsph.harvard.edu/news/usaid-shutdown-has-led-to-hundreds-of-thousands-of-deaths/)
+
+[https://www.youtube.com/watch?v=7x4ZHWjDcf4](https://www.youtube.com/watch?v=7x4ZHWjDcf4)
+
+[https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf](https://oversightdemocrats.house.gov/imo/media/doc/usaid_report.pdf)
+
+[https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/](https://thehill.com/policy/international/5909940-deaths-ebola-trump-usaid-report/)
+
+[https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands](https://www.newyorker.com/culture/the-new-yorker-documentary/the-shutdown-of-usaid-has-already-killed-hundreds-of-thousands)
 
 2025-11-30 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat, captioned, “For your Christmas wish list”. 
 

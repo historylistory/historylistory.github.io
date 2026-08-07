@@ -504,3 +504,12 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 [https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker](https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker)
 
 [https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf](https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf)
+
+2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
+
+[https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846](https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846)
+
+[https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops](https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops)
+
+[https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s](https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s)
+
