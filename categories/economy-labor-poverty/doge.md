@@ -146,3 +146,13 @@ permalink: /categories/economy-labor-poverty/doge/
 [https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4](https://www.youtube.com/watch?v=XFyNFxcg4SM&list=WL&index=4)
 
 PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/](https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unproven-usaid-claims-in-fiery-posts-as-studies-link-doge-cuts-to-child-deaths/)
+
+2026-07-22 Due to dismantling the AIDS relief program PEPFAR an estimated 159,272 adults and 16,954 children have died. 
+
+[https://pepfar.impactcounter.com/](https://pepfar.impactcounter.com/)
+
+[https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts](https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/](https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/)
+
+PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html)

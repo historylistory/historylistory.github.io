@@ -626,6 +626,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-01-14 The Congressional Budget Office estimated American taxpayers would spend $125M just to rebrand the DoD as “Department of War”. 
 
+2026-01-20 Trump added $2.25TRN back into the national debt during his first year back in charge. 
+
 2026-01-27 Trump said, “I don’t want to drive housing prices down. I want to drive housing prices up for people that own their homes. And they can be assured that’s what’s going to happen”. 
 
 2026-01-28 In the same month, Jeff Bezos both fired 16,000 Amazon workers and forked over $75M to Melania Trump so she could make a documentary about herself. 

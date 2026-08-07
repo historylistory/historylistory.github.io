@@ -134,7 +134,27 @@ PAY WALL [https://www.washingtonpost.com/politics/2025/02/26/elon-musk-ebola-pre
 
 [https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases](https://www.mercycorps.org/press-room/releases/drc-ebola-cases-tops-1000-cases)
 
+2026-06-28 Musk posted “Exactly. And they cannot cite a single name of someone who died out of the “millions” they falsely claim have died. Not a single name!” about the Ebola outbreak. He later posted, “Deaths in Africa DECREASED after USAID funding was cut, because they’re no longer able to push for violent revolution to install leftist regimes!”. 
+
+[https://x.com/elonmusk/status/2071366974043537458](https://x.com/elonmusk/status/2071366974043537458)
+
+[https://x.com/elonmusk/status/2071673460779041155](https://x.com/elonmusk/status/2071673460779041155)
+
+[https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths](https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths)
+
+PAY WALL [https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html](https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html)
+
 ### 2026 July
+
+2026-07-22 Due to dismantling the AIDS relief program PEPFAR an estimated 159,272 adults and 16,954 children have died. 
+
+[https://pepfar.impactcounter.com/](https://pepfar.impactcounter.com/)
+
+[https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts](https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/](https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/)
+
+PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html)
 
 2026-07-24 In a statement Chief Economist of Food & Agriculture Maximo Torero warned that the Iran war will delay progress on ending global hunger. 
 

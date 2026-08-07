@@ -357,6 +357,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-07-18 Andrew and Tristan Tate were arrested again, for CSAM and sex trafficking.
 
+2026-07-22 Due to dismantling the AIDS relief program PEPFAR an estimated 159,272 adults and 16,954 children have died. 
+
 ## 2026 August
 
 

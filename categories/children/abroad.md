@@ -310,3 +310,14 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 2026-07-12 Israeli soldiers killed 9-year-old Tala Abu Matar
 
 [https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/](https://www.reuters.com/world/middle-east/israeli-attacks-gaza-kill-three-people-including-girl-say-medics-2026-07-12/)
+
+2026-07-22 Due to dismantling the AIDS relief program PEPFAR an estimated 159,272 adults and 16,954 children have died. 
+
+[https://pepfar.impactcounter.com/](https://pepfar.impactcounter.com/)
+
+[https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts](https://www.pbs.org/newshour/show/new-report-reveals-consequences-of-trump-administrations-hiv-aids-funding-cuts)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/](https://pmc.ncbi.nlm.nih.gov/articles/PMC12925645/)
+
+PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html)
+

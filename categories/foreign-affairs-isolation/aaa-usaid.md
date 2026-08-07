@@ -143,3 +143,22 @@ permalink: /categories/foreign-affairs-isolation/aaa-usaid/
 [https://www.nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html](https://www.nytimes.com/2026/02/08/opinion/usaid-humanitarian-aid-america.html)
 
 [https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/](https://www.actionagainsthunger.org/location/africa/democratic-republic-congo/)
+
+### 2026 March
+
+2026-03-20 Bureau of Disaster and Humanitarian Response is taking over USAID. That department will not be focusing on climate change measures and will selectively choose where to send aid. In a statement to Reuters one senior official said, “We are going to pick more carefully the stuff that we respond to. It’s not the United States’ responsibility to respond to every disaster, every crisis, especially when our adversaries or groups that hate the United States are at issue…”.
+
+[https://www.reuters.com/legal/government/us-state-dept-forms-new-humanitarian-bureau-after-foreign-aid-overhaul-2026-03-20/](https://www.reuters.com/legal/government/us-state-dept-forms-new-humanitarian-bureau-after-foreign-aid-overhaul-2026-03-20/)
+
+### 2026 June
+
+2026-06-28 Musk posted “Exactly. And they cannot cite a single name of someone who died out of the “millions” they falsely claim have died. Not a single name!” about the Ebola outbreak. He later posted, “Deaths in Africa DECREASED after USAID funding was cut, because they’re no longer able to push for violent revolution to install leftist regimes!”. 
+
+[https://x.com/elonmusk/status/2071366974043537458](https://x.com/elonmusk/status/2071366974043537458)
+
+[https://x.com/elonmusk/status/2071673460779041155](https://x.com/elonmusk/status/2071673460779041155)
+
+[https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths](https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths)
+
+PAY WALL [https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html](https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html)
+

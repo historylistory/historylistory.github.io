@@ -211,6 +211,11 @@ permalink: /categories/economy-labor-poverty/taxpayers/
 
 [https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535](https://abcnews.go.com/Politics/department-war-rebranding-cost-125m-hundreds-millions-legal/story?id=129220535)
 
+2026-01-20 Trump added $2.25TRN back into the national debt during his first year back in charge. 
+
+[https://fortune.com/2026/01/20/how-much-national-debt-grew-trump-first-year-back-in-office-president/](https://fortune.com/2026/01/20/how-much-national-debt-grew-trump-first-year-back-in-office-president/)
+
+
 2026-01-29 Trump sued the IRS and Treasury Department for $10B in taxpayer money for sharing Trump’s tax information.
 
 [https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information](https://www.npr.org/2026/01/30/nx-s1-5693662/trump-sues-irs-and-treasury-for-10-billion-over-leaked-tax-information)

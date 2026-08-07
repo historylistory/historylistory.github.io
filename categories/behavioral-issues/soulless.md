@@ -913,6 +913,16 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)
 
+2026-06-28 Musk posted “Exactly. And they cannot cite a single name of someone who died out of the “millions” they falsely claim have died. Not a single name!” about the Ebola outbreak. He later posted, “Deaths in Africa DECREASED after USAID funding was cut, because they’re no longer able to push for violent revolution to install leftist regimes!”. 
+
+[https://x.com/elonmusk/status/2071366974043537458](https://x.com/elonmusk/status/2071366974043537458)
+
+[https://x.com/elonmusk/status/2071673460779041155](https://x.com/elonmusk/status/2071673460779041155)
+
+[https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths](https://www.npr.org/2026/07/17/g-s1-133651/usaid-elon-musk-rubio-deaths)
+
+PAY WALL [https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html](https://www.nytimes.com/2026/07/01/opinion/usaid-elon-musk-doge.html)
+
 ### 2026 July
 
 2026-07-07 CCTV footage released showed Israeli police throwing a stun grenade into a car then pushing the door shut on occupants. 

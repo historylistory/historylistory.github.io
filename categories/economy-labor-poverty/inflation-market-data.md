@@ -228,6 +228,12 @@ PAY WALL [https://www.forbes.com/2009/02/23/contrarian-markets-boeing-personal-f
 
 {% include youtubePlayer.html id="Mjzh_lghnq4" %}
 
+### 2026 January
+
+2026-01-20 Trump added $2.25TRN back into the national debt during his first year back in charge. 
+
+[https://fortune.com/2026/01/20/how-much-national-debt-grew-trump-first-year-back-in-office-president/](https://fortune.com/2026/01/20/how-much-national-debt-grew-trump-first-year-back-in-office-president/)
+
 ### 2026 February
 
 2026-02-01 Producer Price Index (wholesale inflation) increased at a seasonally adjusted 0.7% for February 2026. The expectation was 0.3%. PPI inflation was at 3.4% for the year. Core PPI was up 3.9% for the year. These are generally indicators of our CPI. These numbers do not yet reflect the cause-and-effect of Trump’s war in Iran.
