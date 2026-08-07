@@ -260,6 +260,8 @@ permalink: /links/
 
 [HUMAN RIGHTS & GLOBAL AFFAIRS: Food and Agriculture Organization of the United Nations](https://www.fao.org/)
 
+[HUMAN RIGHTS & GLOBAL AFFAIRS: Global Burden of Disease @ HealthData.org](https://www.healthdata.org/research-analysis/gbd)
+
 --- 
 
 [Hunger: World Food Program USA](https://wfpusa.org/)
