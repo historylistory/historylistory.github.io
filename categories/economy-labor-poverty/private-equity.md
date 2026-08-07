@@ -74,6 +74,14 @@ PAY WALL [https://www.washingtonpost.com/business/2025/10/27/private-equity-hosp
 
 ### 2025 
 
+
+2025-09-23 Deaths rose in emergency rooms after hospitals were acquired by private equity firms 
+
+[https://hms.harvard.edu/news/deaths-rose-emergency-rooms-after-hospitals-were-acquired-private-equity-firms](https://hms.harvard.edu/news/deaths-rose-emergency-rooms-after-hospitals-were-acquired-private-equity-firms)
+
+[https://achi.net/newsroom/study-patient-deaths-rose-after-hospitals-were-acquired-by-private-equity/](https://achi.net/newsroom/study-patient-deaths-rose-after-hospitals-were-acquired-by-private-equity/)
+
+
 2025-11-30 Trump commuted the sentence of fraudster David Gentile who was sentenced to seven years in prison for defrauding thousands of investors by misrepresenting the performance of private equity firms.
 
 [https://apnews.com/article/trump-clemency-commutation-david-gentile-fraud-4901d5e2f710b47ee0372a3f0835fa6c](https://apnews.com/article/trump-clemency-commutation-david-gentile-fraud-4901d5e2f710b47ee0372a3f0835fa6c)
@@ -87,6 +95,17 @@ PAY WALL [https://www.washingtonpost.com/business/2025/10/27/private-equity-hosp
 {% include youtubePlayer.html id="56w-jLFeXJQ" %}
 
 ### 2026 
+
+2026-03-25 Trump wants to hand your 401K over to private equity.
+
+[https://www.youtube.com/watch?v=JM-pflHGr78&list=WL&index=1](https://www.youtube.com/watch?v=JM-pflHGr78&list=WL&index=1)
+
+[https://pestakeholder.org/news/trump-admin-dol-rule-bails-out-private-equity-with-your-401k/](https://pestakeholder.org/news/trump-admin-dol-rule-bails-out-private-equity-with-your-401k/)
+
+[https://www.youtube.com/watch?v=L0k9eBhH4o4](https://www.youtube.com/watch?v=L0k9eBhH4o4)
+
+[https://finance-pillar.wharton.upenn.edu/blog/private-equity-retirement-plans/](https://finance-pillar.wharton.upenn.edu/blog/private-equity-retirement-plans/)
+
 
 2026-04-15 Tapatio was bought out by a private equity firm.
 

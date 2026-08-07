@@ -298,6 +298,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-03-12 Trump claimed his administration had “virtually no inflation” during his last term, took credit for lowered egg prices, and cited oil was $65 a barrel. 
 
+2026-03-25 Trump wants to hand your 401K over to private equity.
+
 2025-03-27 Trump signed executive order 14251 “Exclusions from Federal Labor Management Relations Programs”, which removed collective bargaining rights for more than 40 federal agencies.
 
 ## 2025 April 
@@ -477,6 +479,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-09-20 The USDA stopped tracking food insecurity and terminated the annual Household Food Security Report.
 
 2025-09-21 Trump considered selling ByteDance to Rupert Murdoch while seeking U.S. control of 6 of 7 TikTok board seats.
+
+2025-09-23 Deaths rose in emergency rooms after hospitals were acquired by private equity firms 
 
 2025-09-24 The Trump administration rehired many DOGE-fired federal workers.
 
@@ -735,6 +739,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-03-20 In an interview with CNN’s Kaitlyn Collins, Scott Perry said he’d like to see Iran pay for the war.
 
 2026-03-23 Trump paid a French energy company $1B in American taxpayer money to cancel offshore wind farm projects outside New York and North Carolina.
+
+2026-03-25 Trump wants to hand your 401K over to private equity.
 
 2026-03-26 Democratic Senator Chris Murphy wrote that $1.5B in S&P 500 futures were sold minutes before Trump announced a 5-day pause on attacking Iran, “…let me say it again – a $1.5B bet, bigger than any futures purchases made at the time, 5 minutes before Trump’s post. Who was it? Trump? A family member? A White House staffer? This is corruption. Mind blowing corruption”.
 

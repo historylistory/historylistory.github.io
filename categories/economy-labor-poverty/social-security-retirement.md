@@ -92,6 +92,16 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 
 [https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70](https://www.marketwatch.com/story/the-truth-behind-401-k-withdrawal-numbers-people-arent-being-reckless-theyre-desperate-85645e70)
 
+2026-03-25 Trump wants to hand your 401K over to private equity.
+
+[https://www.youtube.com/watch?v=JM-pflHGr78&list=WL&index=1](https://www.youtube.com/watch?v=JM-pflHGr78&list=WL&index=1)
+
+[https://pestakeholder.org/news/trump-admin-dol-rule-bails-out-private-equity-with-your-401k/](https://pestakeholder.org/news/trump-admin-dol-rule-bails-out-private-equity-with-your-401k/)
+
+[https://www.youtube.com/watch?v=L0k9eBhH4o4](https://www.youtube.com/watch?v=L0k9eBhH4o4)
+
+[https://finance-pillar.wharton.upenn.edu/blog/private-equity-retirement-plans/](https://finance-pillar.wharton.upenn.edu/blog/private-equity-retirement-plans/)
+
 ### 2026 April
 
 2026-04-21 Republican Senator of Alabama Tommy Tuberville responded to Dear Son’s post “Name a huge scam that has been normalised?”, writing, “Social Security”. 
