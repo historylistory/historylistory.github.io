@@ -214,3 +214,11 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/](https://mahometdaily.com/federal-lawsuit-alleges-trump-administration-fast-tracks-deportations-of-abused-and-trafficked-immigrant-children/)
 
 [https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation](https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation)
+
+2026-08-07 Trump signed two Executive Orders restricting birthright citizenship. 
+
+[https://www.npr.org/2026/08/06/g-s1-137686/trump-birthright-citizenship-immigration-curb](https://www.npr.org/2026/08/06/g-s1-137686/trump-birthright-citizenship-immigration-curb)
+
+[https://www.bbc.com/news/articles/cj63966j95yo](https://www.bbc.com/news/articles/cj63966j95yo)
+
+[https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/](https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/)

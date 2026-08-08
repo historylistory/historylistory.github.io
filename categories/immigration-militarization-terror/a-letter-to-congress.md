@@ -869,3 +869,5 @@ Next
 2026-08-05 A federal lawsuit accuses the Trump administration of deliberately targeting unaccompanied children at airports. The lawsuit states, “This case is about the most vulnerable in our immigration system: abused, abandoned, neglected, and trafficked children. One would assume it would be a priority of our immigration system to protect, at least, these children. However, protecting vulnerable and trafficked children conflicts with an agenda of ‘deport at all costs’”. 
 
 2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
+
+2026-08-07 Trump signed two Executive Orders restricting birthright citizenship. 

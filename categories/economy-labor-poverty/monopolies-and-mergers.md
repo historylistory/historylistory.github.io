@@ -393,3 +393,12 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 [https://www.cnn.com/2019/06/27/business/walmart-groceries-monopoly-amazon-antitrust](https://www.cnn.com/2019/06/27/business/walmart-groceries-monopoly-amazon-antitrust)
 
 
+### General Media
+
+2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
+
+[https://www.nbcnews.com/business/media/federal-communications-commission-scraps-limit-broadcast-tv-ownership-rcna587641](https://www.nbcnews.com/business/media/federal-communications-commission-scraps-limit-broadcast-tv-ownership-rcna587641)
+
+[https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership](https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership)
+
+SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287](https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287)

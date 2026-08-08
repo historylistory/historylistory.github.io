@@ -2086,3 +2086,9 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/](https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/)
 
+2026-08-07 Israels head of the Mossad fired two top officials at the spy agency over a failed plan to topple Iran’s government. 
+
+[https://www.democracynow.org/2026/8/7/headlines/two_top_mossad_officials_fired_over_israels_failed_plot_to_topple_iranian_govt](https://www.democracynow.org/2026/8/7/headlines/two_top_mossad_officials_fired_over_israels_failed_plot_to_topple_iranian_govt)
+
+[https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot](https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot)
+

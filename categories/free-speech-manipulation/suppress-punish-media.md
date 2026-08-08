@@ -500,3 +500,12 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://www.reuters.com/legal/government/us-justice-department-subpoenas-new-york-times-freelancer-over-north-korea-story-2026-08-01/](https://www.reuters.com/legal/government/us-justice-department-subpoenas-new-york-times-freelancer-over-north-korea-story-2026-08-01/)
 
 [https://www.military.com/doj-subpoenas-nyt-journalist-over-2025-report-on-us-mission-in-north-korea](https://www.military.com/doj-subpoenas-nyt-journalist-over-2025-report-on-us-mission-in-north-korea)
+
+2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
+
+[https://www.nbcnews.com/business/media/federal-communications-commission-scraps-limit-broadcast-tv-ownership-rcna587641](https://www.nbcnews.com/business/media/federal-communications-commission-scraps-limit-broadcast-tv-ownership-rcna587641)
+
+[https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership](https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership)
+
+SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287](https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287)
+

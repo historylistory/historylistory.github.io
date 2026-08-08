@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Ukraine - Russia
+title: Ukraine
 category_slug: foreign-affairs-isolation
-subcategory_slug: ukraine-russia
-permalink: /categories/foreign-affairs-isolation/ukraine-russia/
+subcategory_slug: ukraine
+permalink: /categories/foreign-affairs-isolation/ukraine/
 ---
 
 ### 2023

@@ -233,3 +233,12 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 [https://www.aljazeera.com/news/2026/7/30/saudi-arabia-announces-maritime-defence-alliance-to-secure-vital-waterways](https://www.aljazeera.com/news/2026/7/30/saudi-arabia-announces-maritime-defence-alliance-to-secure-vital-waterways)
 
 [https://www.argusmedia.com/en/news-and-insights/latest-market-news/2859311-saudi-arabia-unveils-maritime-defence-alliance](https://www.argusmedia.com/en/news-and-insights/latest-market-news/2859311-saudi-arabia-unveils-maritime-defence-alliance)
+
+### 2026 August
+
+2026-08-07 Saudi Arabia, Turkey and Pakistan signed a joint defense agreement. 
+
+[https://www.reuters.com/world/asia-pacific/saudi-arabia-turkey-pakistan-sign-joint-defence-deal-amid-regional-turmoil-2026-08-07/](https://www.reuters.com/world/asia-pacific/saudi-arabia-turkey-pakistan-sign-joint-defence-deal-amid-regional-turmoil-2026-08-07/)
+
+[https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c](https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c)
+

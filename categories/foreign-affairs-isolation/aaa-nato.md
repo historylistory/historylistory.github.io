@@ -142,3 +142,16 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 [https://www.aljazeera.com/video/newsfeed/2026/7/7/trump-criticises-nato-allies-over-iran-conflict-support](https://www.aljazeera.com/video/newsfeed/2026/7/7/trump-criticises-nato-allies-over-iran-conflict-support)
 
 [https://www.youtube.com/shorts/PtWTU4fMLPc](https://www.youtube.com/shorts/PtWTU4fMLPc)
+
+### 2026 August
+
+2026-08-07 New US intel indicated Russia may consider an attack on NATO. 
+
+[https://www.cbsnews.com/news/u-s-intelligence-agencies-russia-putin-test-nato/](https://www.cbsnews.com/news/u-s-intelligence-agencies-russia-putin-test-nato/)
+
+[https://www.yahoo.com/news/politics/articles/us-intel-putin-could-test-134425898.html](https://www.yahoo.com/news/politics/articles/us-intel-putin-could-test-134425898.html)
+
+[https://www.gate.com/news/detail/us-intelligence-warns-russia-may-attack-nato-ally-between-fall-2026-and-23292605](https://www.gate.com/news/detail/us-intelligence-warns-russia-may-attack-nato-ally-between-fall-2026-and-23292605)
+
+[https://www.youtube.com/watch?v=7HuimiAnBa0&list=WL&index=2&t=20s](https://www.youtube.com/watch?v=7HuimiAnBa0&list=WL&index=2&t=20s)
+

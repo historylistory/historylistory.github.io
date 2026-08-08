@@ -260,3 +260,14 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
 
 [https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)
+
+### 2026 August
+
+2026-08-07 Trump signed two Executive Orders restricting birthright citizenship. 
+
+[https://www.npr.org/2026/08/06/g-s1-137686/trump-birthright-citizenship-immigration-curb](https://www.npr.org/2026/08/06/g-s1-137686/trump-birthright-citizenship-immigration-curb)
+
+[https://www.bbc.com/news/articles/cj63966j95yo](https://www.bbc.com/news/articles/cj63966j95yo)
+
+[https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/](https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/)
+

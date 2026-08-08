@@ -530,3 +530,9 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
 
 [https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)
+
+2026-08-07 Israels head of the Mossad fired two top officials at the spy agency over a failed plan to topple Iran’s government. 
+
+[https://www.democracynow.org/2026/8/7/headlines/two_top_mossad_officials_fired_over_israels_failed_plot_to_topple_iranian_govt](https://www.democracynow.org/2026/8/7/headlines/two_top_mossad_officials_fired_over_israels_failed_plot_to_topple_iranian_govt)
+
+[https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot](https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot)
