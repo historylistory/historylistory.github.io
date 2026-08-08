@@ -593,3 +593,13 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/](https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/)
 
 [https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/](https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/)
+
+### 2026 August
+
+2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota](https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota)
+
+[https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
+
+[https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)

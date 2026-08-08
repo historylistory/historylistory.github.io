@@ -662,3 +662,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-01 Trump blasted Pirro’s decision to drop charges in the Reflecting Pool case. 
 
 2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
+
+2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 

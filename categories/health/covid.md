@@ -234,4 +234,9 @@ A LONG RUNNING FEUD [https://www.youtube.com/shorts/IAVtyQiuGMA](https://www.you
 
 [https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing](https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing)
 
+2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
+
+[https://www.instagram.com/reels/DbtF6cIDdkk/](https://www.instagram.com/reels/DbtF6cIDdkk/)
+
+TIMESTAMP 6:55 [https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s](https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s)
 

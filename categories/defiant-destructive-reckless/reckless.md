@@ -746,3 +746,16 @@ SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-
 [https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low](https://www.cnn.com/2026/08/04/politics/us-iran-key-missile-interceptors-low)
 
 [https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/](https://thehill.com/policy/defense/6009275-us-missile-interceptor-stocks-dwindling-dangerous/)
+
+2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
+
+[https://www.thedailybeast.com/furious-trumps-camp-david-meltdown-at-pentagon-pete-hegseth-over-iran-war-munitions-shortages-exposed/](https://www.thedailybeast.com/furious-trumps-camp-david-meltdown-at-pentagon-pete-hegseth-over-iran-war-munitions-shortages-exposed/)
+
+[https://www.israelnationalnews.com/news/431308](https://www.israelnationalnews.com/news/431308)
+
+[https://www.jpost.com/international/article-904714](https://www.jpost.com/international/article-904714)
+
+[https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/](https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)
+

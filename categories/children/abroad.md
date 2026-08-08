@@ -321,3 +321,11 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 
 PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html)
 
+### 2026 August
+
+
+2026-08-03 A sixth grader in Gaza Khaled al-Ashram was struck by direct fire from Israeli troops as he sat in his school desk. 
+
+[https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue](https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue)
+
+[https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319](https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319)

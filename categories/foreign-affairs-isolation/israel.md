@@ -498,6 +498,13 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 
 ### 2026 August
 
+2026-08-03 A sixth grader in Gaza Khaled al-Ashram was struck by direct fire from Israeli troops as he sat in his school desk. 
+
+[https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue](https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue)
+
+[https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319](https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319)
+
+
 2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 
 
 [https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html](https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html)
@@ -515,3 +522,11 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/](https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/)
 
 [https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)
+
+2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota](https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota)
+
+[https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
+
+[https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)

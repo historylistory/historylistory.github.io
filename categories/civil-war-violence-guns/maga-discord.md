@@ -597,3 +597,15 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.pbs.org/newshour/politics/watch-trump-says-jeanine-pirro-made-a-mistake-and-choked-on-reflecting-pool-vandalism-case-reversal](https://www.pbs.org/newshour/politics/watch-trump-says-jeanine-pirro-made-a-mistake-and-choked-on-reflecting-pool-vandalism-case-reversal)
 
 [https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651](https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651)
+
+2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
+
+[https://www.thedailybeast.com/furious-trumps-camp-david-meltdown-at-pentagon-pete-hegseth-over-iran-war-munitions-shortages-exposed/](https://www.thedailybeast.com/furious-trumps-camp-david-meltdown-at-pentagon-pete-hegseth-over-iran-war-munitions-shortages-exposed/)
+
+[https://www.israelnationalnews.com/news/431308](https://www.israelnationalnews.com/news/431308)
+
+[https://www.jpost.com/international/article-904714](https://www.jpost.com/international/article-904714)
+
+[https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/](https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)

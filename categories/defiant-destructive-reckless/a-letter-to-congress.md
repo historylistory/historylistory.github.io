@@ -494,3 +494,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
 
 2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
+
+2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 

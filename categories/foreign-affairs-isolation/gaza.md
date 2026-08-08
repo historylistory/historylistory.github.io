@@ -623,3 +623,30 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza](https://www.aljazeera.com/news/2026/7/30/trump-says-board-of-peace-reaches-agreement-on-disarmament-of-hamas-in-gaza)
 
 [https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace](https://www.cnn.com/2026/07/30/politics/hamas-disarmament-agreement-trump-board-of-peace)
+
+### 2026 August
+
+
+2026-08-03 A sixth grader in Gaza Khaled al-Ashram was struck by direct fire from Israeli troops as he sat in his school desk. 
+
+[https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue](https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue)
+
+[https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319](https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319)
+
+2026-08-06 Trump’s Board of Peace issued its first construction contract for a military outpost in Gaza to house more than 150 Moroccan troops. 
+
+[https://www.theguardian.com/world/2026/aug/06/trump-gaza-board-of-peace-first-building-contract-military-base](https://www.theguardian.com/world/2026/aug/06/trump-gaza-board-of-peace-first-building-contract-military-base)
+
+[https://www.newarab.com/news/trumps-board-peace-construct-moroccan-army-base-gaza?amp](https://www.newarab.com/news/trumps-board-peace-construct-moroccan-army-base-gaza?amp)
+
+[https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative](https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative)
+
+[https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza](https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza)
+
+2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota](https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota)
+
+[https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
+
+[https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)

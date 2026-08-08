@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Serious Accusations
+title: Witch Hunts
 category_slug: bully-threaten-sue-fire
-subcategory_slug: serious-accusations
-permalink: /categories/bully-threaten-sue-fire/serious-accusations/
+subcategory_slug: witch-hunts
+permalink: /categories/bully-threaten-sue-fire/witch-hunts/
 ---
 
 ### 2018
@@ -199,3 +199,19 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 2026-05-01 During a speech in Florida, Trump accused political opponents of treason for saying the United States was not winning in Iran. 
 
 [https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s](https://www.youtube.com/watch?v=HG3M63ISqYU&t=101s)
+
+### 2026 August
+
+2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
+
+[https://www.pbs.org/newshour/politics/why-was-fauci-held-in-contempt-for-pleading-the-5th-and-what-happens-next](https://www.pbs.org/newshour/politics/why-was-fauci-held-in-contempt-for-pleading-the-5th-and-what-happens-next)
+
+[https://www.foxnews.com/opinion/fauci-contempt-congress-challengeable-not-contempt-public](https://www.foxnews.com/opinion/fauci-contempt-congress-challengeable-not-contempt-public)
+
+[https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing](https://www.cnn.com/2026/08/06/politics/live-news/fauci-contempt-hearing)
+
+2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
+
+[https://www.instagram.com/reels/DbtF6cIDdkk/](https://www.instagram.com/reels/DbtF6cIDdkk/)
+
+TIMESTAMP 6:55 [https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s](https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s)

@@ -40,3 +40,14 @@ permalink: /categories/foreign-affairs-isolation/morocco/
 
 [https://www.theguardian.com/world/2026/jul/31/ceuta-spain-morocco-border-deaths](https://www.theguardian.com/world/2026/jul/31/ceuta-spain-morocco-border-deaths)
 
+### 2026 August
+
+2026-08-06 Trump’s Board of Peace issued its first construction contract for a military outpost in Gaza to house more than 150 Moroccan troops. 
+
+[https://www.theguardian.com/world/2026/aug/06/trump-gaza-board-of-peace-first-building-contract-military-base](https://www.theguardian.com/world/2026/aug/06/trump-gaza-board-of-peace-first-building-contract-military-base)
+
+[https://www.newarab.com/news/trumps-board-peace-construct-moroccan-army-base-gaza?amp](https://www.newarab.com/news/trumps-board-peace-construct-moroccan-army-base-gaza?amp)
+
+[https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative](https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative)
+
+[https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza](https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza)

@@ -405,3 +405,12 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.thecollegefix.com/court-rules-against-perpetual-college-student-slated-for-deportation/](https://www.thecollegefix.com/court-rules-against-perpetual-college-student-slated-for-deportation/)
 
+### 2026 August
+
+2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota](https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota)
+
+[https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
+
+[https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)

@@ -517,3 +517,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 ## 2026 August
 
 2026-08-05 Republicans challenged a constitutional amendment in Maryland to change rules governing how future congressional district maps are drawn, complaining that the measure doesn’t give voters enough time to decide. 
+
+2026-08-06 House Representative Andy Ogles lost his House primary.

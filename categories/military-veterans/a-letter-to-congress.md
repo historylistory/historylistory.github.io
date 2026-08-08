@@ -412,3 +412,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
 
 2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
+
+2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 

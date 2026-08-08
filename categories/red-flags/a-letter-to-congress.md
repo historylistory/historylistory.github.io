@@ -380,3 +380,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-07-30 Journalist Sam Husseini interrupted Schumer during a conference and called him a genocidal maniac for supporting Israel. 
 
 2026-07-30 The Senate again voted down a war powers resolution. 
+
+## 2026 August
+
+2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 

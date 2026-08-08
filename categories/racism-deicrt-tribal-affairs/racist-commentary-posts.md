@@ -693,3 +693,17 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.thedailybeast.com/obsessed/the-odyssey-lays-bare-the-stupidity-of-magas-uproar/](https://www.thedailybeast.com/obsessed/the-odyssey-lays-bare-the-stupidity-of-magas-uproar/)
 
 [https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1](https://www.youtube.com/watch?v=9a1VhttWfDI&list=WL&index=1)
+
+### 2026 August
+
+2026-08-06 House Representative Andy Ogles lost his House primary.
+
+[https://www.bbc.com/news/articles/c79grd2prnro](https://www.bbc.com/news/articles/c79grd2prnro)
+
+[https://www.aljazeera.com/news/2026/8/7/anti-muslim-us-congressman-andy-ogles-loses-congressional-primary](https://www.aljazeera.com/news/2026/8/7/anti-muslim-us-congressman-andy-ogles-loses-congressional-primary)
+
+[https://www.nbcnews.com/politics/2026-election/rep-andy-ogles-loses-republican-primary-tennessee-rcna591185](https://www.nbcnews.com/politics/2026-election/rep-andy-ogles-loses-republican-primary-tennessee-rcna591185)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections](https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections)
+
+[https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/](https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/)

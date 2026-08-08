@@ -671,3 +671,7 @@ Manhattan grand jury in the hush-money case.
 2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 
 
 2026-08-06 US District Judge John McConnell reported that he and his family have received death threats after ruling against Trump. 
+
+2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
+
+2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
