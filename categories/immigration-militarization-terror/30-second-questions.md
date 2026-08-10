@@ -38,7 +38,7 @@ Response received? Not yet.
 
 ### Question 2
 
-This administration claims it is making our cities safer, yet federal immigration agents shot Marimar Martinez after saying, “Do something, bitch,” and later bragged, “I fired five rounds and she had seven holes.” Nicole Good's last words were "It's okay, I'm not mad at you". Alex Pretti's last action was to protect a woman. The last words of the father in Maine who was executed in front of his 3-year-old girl was, "I tried to stop". The death toll has risen so high that even the U.N. has called for an investigation. Do you support this militarization of our streets, and what part of Americans being terrorized by their own government makes us safer?
+The U.N. is now calling for independent investigations into deaths in U.S. immigration custody. Americans have watched people like Ruben Ray Martinez and Silverio Villegas González killed in encounters where video later challenged the government’s account, while vulnerable people like Daphy Michel died after being released without adequate protection. More people have since been killed in enforcement operations. So when Americans are watching their own government kill people, dispute what happened, and resist outside scrutiny, how are we supposed to feel safer rather than terrorized, and what will you do to restore accountability and public trust?
 
 SOME SOURCES (just the deaths that were in the news, this doesn’t even include the injuries and near-deaths) 
 
