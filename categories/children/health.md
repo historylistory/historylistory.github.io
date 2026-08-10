@@ -90,3 +90,18 @@ permalink: /categories/children/health/
 [https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258](https://people.com/rfk-jr-hals-proposed-ban-minors-tanning-beds-11969258)
 
 [https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760](https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760)
+
+### 2026 August
+
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+
+[https://www.medpagetoday.com/pediatrics/vaccines/122557](https://www.medpagetoday.com/pediatrics/vaccines/122557)
+
+[https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations](https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations)
+
+[https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/](https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/)
+
+[https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html](https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html)
+
+[https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2](https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2)
+

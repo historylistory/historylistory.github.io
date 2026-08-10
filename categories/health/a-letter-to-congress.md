@@ -634,7 +634,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 ## 2026 August
 
-2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 
+2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
 
 2026-08-03 Florida reported the highest number of leprosy cases in modern records. 
 
@@ -649,4 +649,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
 
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+
+2026-08-10 RFK held an event to target food supply and chemical additives. 
 

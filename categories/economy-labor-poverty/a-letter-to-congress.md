@@ -1118,3 +1118,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
 
 2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
+
+2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 

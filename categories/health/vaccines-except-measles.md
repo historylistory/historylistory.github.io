@@ -192,3 +192,17 @@ Great Barrington Declaration links:
 [https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html](https://ca.news.yahoo.com/trump-pressured-rfk-jr-slash-135010235.html)
 
 SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411](https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-78582411)
+
+### 2026 August
+
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+
+[https://www.medpagetoday.com/pediatrics/vaccines/122557](https://www.medpagetoday.com/pediatrics/vaccines/122557)
+
+[https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations](https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations)
+
+[https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/](https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/)
+
+[https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html](https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html)
+
+[https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2](https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2)

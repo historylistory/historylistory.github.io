@@ -274,3 +274,14 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks](https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks)
 
 SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161](https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161)
+
+### 2026 August
+
+2026-08-10 RFK held an event to target food supply and chemical additives. 
+
+[https://www.youtube.com/watch?v=vOe9WRUjDyY&list=WL&index=3&t=33s](https://www.youtube.com/watch?v=vOe9WRUjDyY&list=WL&index=3&t=33s)
+
+[https://www.nbcnews.com/health/health-news/rfk-jr-proposes-fix-loophole-gras-ingredients-rcna591400](https://www.nbcnews.com/health/health-news/rfk-jr-proposes-fix-loophole-gras-ingredients-rcna591400)
+
+[https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/](https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/)
+

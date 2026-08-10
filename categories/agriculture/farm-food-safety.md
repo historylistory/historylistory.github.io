@@ -143,3 +143,14 @@ STATEMENT FROM THE NATIONAL CHICKEN COUNCIL [https://www.nationalchickencouncil.
 [https://www.prevention.com/food-nutrition/a73257973/egg-recall-fda-midwest-poultry-services/](https://www.prevention.com/food-nutrition/a73257973/egg-recall-fda-midwest-poultry-services/)
 
 TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s](https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17s)
+
+### 2026 August
+
+2026-08-10 RFK held an event to target food supply and chemical additives. 
+
+[https://www.youtube.com/watch?v=vOe9WRUjDyY&list=WL&index=3&t=33s](https://www.youtube.com/watch?v=vOe9WRUjDyY&list=WL&index=3&t=33s)
+
+[https://www.nbcnews.com/health/health-news/rfk-jr-proposes-fix-loophole-gras-ingredients-rcna591400](https://www.nbcnews.com/health/health-news/rfk-jr-proposes-fix-loophole-gras-ingredients-rcna591400)
+
+[https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/](https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/)
+

@@ -138,7 +138,7 @@ SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-
 
 ### 2026 August
 
-2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 
+2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
 
 [https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/](https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/)
 
@@ -147,3 +147,15 @@ SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-
 SUB WALL [https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/](https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/)
 
 SUB WALL [https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641](https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641)
+
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+
+[https://www.medpagetoday.com/pediatrics/vaccines/122557](https://www.medpagetoday.com/pediatrics/vaccines/122557)
+
+[https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations](https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations)
+
+[https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/](https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/)
+
+[https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html](https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html)
+
+[https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2](https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2)

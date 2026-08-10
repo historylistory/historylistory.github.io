@@ -480,3 +480,15 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://gothamist.com/news/nyc-home-care-workers-urge-end-to-torture-of-24-hour-shifts](https://gothamist.com/news/nyc-home-care-workers-urge-end-to-torture-of-24-hour-shifts)
 
+### 2026 August
+
+2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
+
+[https://www.bls.gov/news.release/pdf/empsit.pdf](https://www.bls.gov/news.release/pdf/empsit.pdf)
+
+[https://apnews.com/article/economy-jobs-trump-unemployment-rate-jobseekers-9c2d147c14bc428458be5a1e83e54957](https://apnews.com/article/economy-jobs-trump-unemployment-rate-jobseekers-9c2d147c14bc428458be5a1e83e54957)
+
+[https://eyeonhousing.org/2026/08/u-s-labor-market-softens-in-july/](https://eyeonhousing.org/2026/08/u-s-labor-market-softens-in-july/)
+
+[https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/](https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/)
+

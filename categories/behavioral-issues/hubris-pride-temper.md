@@ -260,7 +260,7 @@ SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kush
 
 ### 2026 August
 
-2026-08-02 RFK lashed out during a CNN interview after being questioned about his conspiracy theories. 
+2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
 
 [https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/](https://thehill.com/policy/healthcare/6004265-kennedy-bash-clash-vaccine-safety/)
 

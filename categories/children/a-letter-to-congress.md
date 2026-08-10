@@ -369,3 +369,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
 
 2026-08-06 Project 2025 began its attack on cuts to Head Start.
+
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
