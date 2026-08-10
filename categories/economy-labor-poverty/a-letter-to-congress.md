@@ -1120,3 +1120,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
 
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
+
+2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 

@@ -827,3 +827,11 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://x.com/foxandfriends/status/2082441121368604811](https://x.com/foxandfriends/status/2082441121368604811)
 
 [https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989](https://www.huffpost.com/entry/donald-trump-beat-the-fucking-shit-out-of-them-iran_n_6a6a03efe4b0fddbd7128989)
+
+### 2026 August
+
+2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
+
+[https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
+
+SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)

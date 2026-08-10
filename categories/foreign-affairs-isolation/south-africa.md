@@ -55,3 +55,13 @@ permalink: /categories/foreign-affairs-isolation/south-africa/
 
 [https://www.aljazeera.com/news/2026/7/9/south-african-protesters-intimidate-migrants-as-aid-group-issues-warning](https://www.aljazeera.com/news/2026/7/9/south-african-protesters-intimidate-migrants-as-aid-group-issues-warning)
 
+### 2026 August
+
+2026-08-08 In South Africa more than 178,000 immigrants have been forced to flee, HIV patients pulled from lifesaving treatment, and children removed from schools. 
+
+[https://www.democracynow.org/2026/8/10/headlines/178_000_immigrants_forced_to_flee_south_africa_amid_violence_and_harassment](https://www.democracynow.org/2026/8/10/headlines/178_000_immigrants_forced_to_flee_south_africa_amid_violence_and_harassment)
+
+[https://abcnews.com/International/wireStory/178000-immigrants-suddenly-fled-deported-south-africa-135482769](https://abcnews.com/International/wireStory/178000-immigrants-suddenly-fled-deported-south-africa-135482769)
+
+[https://apnews.com/article/immigration-migrants-immigrants-africa-deported-repatriated-a708b48293d6b5c70a6e320f8defdd9e](https://apnews.com/article/immigration-migrants-immigrants-africa-deported-repatriated-a708b48293d6b5c70a6e320f8defdd9e)
+

@@ -67,3 +67,9 @@ TIMESTAMP 10:12 [https://www.youtube.com/watch?v=v_SFu52pBGA&list=WL&index=1&t=6
 [https://www.rescue.org/article/crisis-sudan-what-happening-and-how-help](https://www.rescue.org/article/crisis-sudan-what-happening-and-how-help)
 
 [https://www.uscirf.gov/publications/sudan-issue-update](https://www.uscirf.gov/publications/sudan-issue-update)
+
+### 2026 August
+
+2026-08-07 Two federal judges sided with Trump to terminate TPS aid to Sudanese immigrants who will now face deportation. 
+
+[https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/](https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/)

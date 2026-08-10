@@ -572,3 +572,11 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/](https://time.com/article/2026/07/31/republicans-break-ranks-attempt-to-limit-trump-iran-war-powers/)
 
 [https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/](https://thehill.com/homenews/senate/5999704-senate-gop-iran-war-resolution/)
+
+### 2026 August
+
+2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
+
+[https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
+
+SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)

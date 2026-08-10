@@ -2092,3 +2092,9 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot](https://www.newarab.com/news/mossad-officials-sacked-over-failed-iran-regime-change-plot)
 
+2026-08-09 As Iran worked with Oman to define new shipping lanes, Tehran insisted the US act first to pay compensation, lift sanctions, and halt military threats. 
+
+[https://www.democracynow.org/2026/8/10/headlines/iran_close_to_final_pact_with_oman_to_reopen_strait_of_hormuz](https://www.democracynow.org/2026/8/10/headlines/iran_close_to_final_pact_with_oman_to_reopen_strait_of_hormuz)
+
+[https://www.maritimeprofessional.com/news/iran-ties-hormuz-reopening-concessions-421866](https://www.maritimeprofessional.com/news/iran-ties-hormuz-reopening-concessions-421866)
+

@@ -19,3 +19,12 @@ permalink: /categories/zzz/where-to-file/
 [https://www.cnn.com/2026/07/15/politics/live-news/todd-blanche-confirmation-hearing](https://www.cnn.com/2026/07/15/politics/live-news/todd-blanche-confirmation-hearing)
 
 [https://www.nbcnews.com/politics/trump-administration/live-blog/trump-blanche-doj-clayton-congress-iran-ice-2026-midterm-live-updates-rcna587566](https://www.nbcnews.com/politics/trump-administration/live-blog/trump-blanche-doj-clayton-congress-iran-ice-2026-midterm-live-updates-rcna587566)
+
+### 2026 August
+
+2026-08-09 Todd Blanche was confirmed as Attorney General. 
+
+[https://apnews.com/article/senate-blanche-attorney-general-justice-department-fcb4157d45d7b13a05de4d2b0f4f92e2](https://apnews.com/article/senate-blanche-attorney-general-justice-department-fcb4157d45d7b13a05de4d2b0f4f92e2)
+
+[https://www.politico.com/live-updates/2026/08/07/congress/todd-blanche-senate-confirmation-01029751](https://www.politico.com/live-updates/2026/08/07/congress/todd-blanche-senate-confirmation-01029751)
+

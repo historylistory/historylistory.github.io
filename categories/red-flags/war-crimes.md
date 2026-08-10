@@ -603,3 +603,9 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
 
 [https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)
+
+2026-08-10 An investigation revealed that participants of the Global Sumud Flotilla suffered beatings, electric shocks, fractured bones, gunshot wounds, a collapsed lung, taser wounds, and other forms of abuse from Israeli soldiers. 
+
+[https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
+
+PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)

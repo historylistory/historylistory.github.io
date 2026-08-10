@@ -67,3 +67,11 @@ permalink: /categories/immigration-militarization-terror/for-profit-imprisonment
 [https://www.commondreams.org/news/dhs-ombudsman-closed](https://www.commondreams.org/news/dhs-ombudsman-closed)
 
 [https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)
+
+### 2026 August
+
+2026-08-07 CoreCivic and GEO Group both reported a combined $1.4BN quarterly revenue over Trump’s immigration crackdown.
+
+[https://www.npr.org/2026/08/08/nx-s1-5923881/geo-group-corecivic-immigration-detention](https://www.npr.org/2026/08/08/nx-s1-5923881/geo-group-corecivic-immigration-detention)
+
+[https://www.tucsonsentinel.com/nationworld/report/081026_core_civic/private-prison-firm-corecivic-cashes-trumps-mass-immigrant-detention-agenda/](https://www.tucsonsentinel.com/nationworld/report/081026_core_civic/private-prison-firm-corecivic-cashes-trumps-mass-immigrant-detention-agenda/)

@@ -354,3 +354,8 @@ permalink: /categories/defiant-destructive-reckless/destructive/
 
 [https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651](https://www.nbcnews.com/politics/justice-department/trump-says-jeanine-pirro-choked-dropping-reflecting-pool-vandalism-cas-rcna590651)
 
+2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
+
+[https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
+
+SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)

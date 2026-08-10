@@ -496,3 +496,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-05 Reports suggested US military air defense missile stockpiles have been nearly depleted. 
 
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
+
+2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 

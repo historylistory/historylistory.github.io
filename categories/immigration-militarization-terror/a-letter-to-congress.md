@@ -871,3 +871,7 @@ Next
 2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
 
 2026-08-07 Trump signed two Executive Orders restricting birthright citizenship. 
+
+2026-08-07 Two federal judges sided with Trump to terminate TPS aid to Sudanese immigrants who will now face deportation. 
+
+2026-08-07 CoreCivic and GEO Group both reported a combined $1.4BN quarterly revenue over Trump’s immigration crackdown.

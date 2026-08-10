@@ -271,3 +271,6 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 
 [https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/](https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/)
 
+2026-08-07 Two federal judges sided with Trump to terminate TPS aid to Sudanese immigrants who will now face deportation. 
+
+[https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/](https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/)
