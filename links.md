@@ -347,6 +347,8 @@ permalink: /links/
 
 [Trump: Snake Poem, transcript below](https://www.youtube.com/watch?v=qSrOXvoNLwg)
 
+[Trump: A timeline of civil-right rollbacks from this administration, Civil Rights.org](https://civilrights.org/trump-rollbacks/)
+
 [Trump: Trump's Truth](https://trumpstruth.org/)
 
 [Trump's SWAMP THE VOTE website](https://swampthevoteusa.com/)
