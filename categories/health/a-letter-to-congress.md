@@ -651,7 +651,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
 
-2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
 
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
 

@@ -148,7 +148,9 @@ SUB WALL [https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-
 
 SUB WALL [https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641](https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641)
 
-2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
+
+TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=268s](https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=268s)
 
 [https://www.medpagetoday.com/pediatrics/vaccines/122557](https://www.medpagetoday.com/pediatrics/vaccines/122557)
 
