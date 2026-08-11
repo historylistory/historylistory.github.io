@@ -406,6 +406,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-05-01 Stephen Miller claimed that Biden imported a “terrorist army”, that the media covers up rape-torture-and-murder, and blamed due process for the killing of a woman.
 
+2025-05-07 The DOJ Civil Rights Division was placed under leadership of Harmeet Dhillon. During an interview on The Signal Sitdown she stated, “Someone asked me what I think is one of the, or, the most critical civil rights issue of our time that’s on a daily basis. And I said I think it is – it’s not even in the Bill of Rights. It’s the fact that Americans feel like they have to lie every day to get through the day. They have to lie about pronouns. They have to lie about, um, the person in the cubicle next to them being qualified if they aren’t. They have to pretend to laugh at and like certain types of jokes – late night comedians – when they don’t agree with them”. 
+
 2025-05-08 Trump had Librarian of Congress Carla Hayden fired on the 9th of her 10-year term as part of his DEI initiative. Carla Hayden received her termination by email from a low-level employee.
 
 2025-05-12 Trump allowed immigration for white Afrikaners, claiming South Africa was amidst white genocide.

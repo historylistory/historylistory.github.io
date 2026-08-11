@@ -79,6 +79,14 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 [https://en.wikipedia.org/wiki/The_War_on_Warriors](https://en.wikipedia.org/wiki/The_War_on_Warriors).
 
+### 2025 January
+
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
+[https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations](https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations)
+
+[https://www.propublica.org/topics/trump-administration](https://www.propublica.org/topics/trump-administration)
+
 ### 2025 February
 
 2025-02-27 The Trump administration targeted legal oversight of military lawyers, stating their enforcement of law were potential “roadblocks” to Trump’s orders.
@@ -170,6 +178,16 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 
 
 ### 2025 May
+
+2025-05-07 The DOJ Civil Rights Division was placed under leadership of Harmeet Dhillon. During an interview on The Signal Sitdown she stated, “Someone asked me what I think is one of the, or, the most critical civil rights issue of our time that’s on a daily basis. And I said I think it is – it’s not even in the Bill of Rights. It’s the fact that Americans feel like they have to lie every day to get through the day. They have to lie about pronouns. They have to lie about, um, the person in the cubicle next to them being qualified if they aren’t. They have to pretend to laugh at and like certain types of jokes – late night comedians – when they don’t agree with them”. 
+
+TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtube.com/watch?v=PUPuhlJ3IuE)
+
+[https://civilrights.org/2026/04/07/harmeet-dhillon/](https://civilrights.org/2026/04/07/harmeet-dhillon/)
+
+[https://www.wsj.com/opinion/harmeet-dhillon-is-no-civil-rights-enforcer-cfd4f5b1](https://www.wsj.com/opinion/harmeet-dhillon-is-no-civil-rights-enforcer-cfd4f5b1)
+
+[https://news.bloomberglaw.com/us-law-week/doj-leader-calls-for-civil-rights-paradigm-shift-after-exodus](https://news.bloomberglaw.com/us-law-week/doj-leader-calls-for-civil-rights-paradigm-shift-after-exodus)
 
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 

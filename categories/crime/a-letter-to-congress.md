@@ -232,6 +232,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2025-01-20 Trump pardoned Theodore Middendorf, who was sentenced to 19 years in 2024 for criminal sexual assault of a child. 
 
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 2025-01-23 Representative Andy Ogles introduced a constitutional amendment allowing a third presidential term.

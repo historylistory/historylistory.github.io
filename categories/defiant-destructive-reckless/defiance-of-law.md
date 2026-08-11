@@ -96,6 +96,24 @@ permalink: /categories/defiant-destructive-reckless/defiance-of-law/
 
 ### 2025 January
 
+2025-01-15 Pam Bondi claimed about the DOJ during her confirmation hearing, “I will not politicize that office.  I will not target people simply because of their political affiliation. Justice will be administered even-handedly throughout this country. Yet she addressed the DOJ staff two weeks later, stating, “We are so proud to work at the directive of Donald Trump”. 
+
+[https://www.voanews.com/a/bondi-faces-skeptical-reception-from-democrats-at-confirmation-hearing/7937780.html](https://www.voanews.com/a/bondi-faces-skeptical-reception-from-democrats-at-confirmation-hearing/7937780.html)
+
+[https://apnews.com/video/pam-bondi-u-s-department-of-justice-legal-proceedings-law-enforcement-540eb5852bde4db78cc65d39ecd6d302](https://apnews.com/video/pam-bondi-u-s-department-of-justice-legal-proceedings-law-enforcement-540eb5852bde4db78cc65d39ecd6d302)
+
+[https://www.npr.org/2025/05/06/g-s1-64305/weaponization-doj-trump-bondi-justice-department](https://www.npr.org/2025/05/06/g-s1-64305/weaponization-doj-trump-bondi-justice-department)
+
+TRUMP PLEDGES TO EXPOSE HIS ENEMIES AT THE DOJ: [https://apnews.com/article/trump-visits-justice-department-e9091e3721adda4d3ed39bd15119a0d4](https://apnews.com/article/trump-visits-justice-department-e9091e3721adda4d3ed39bd15119a0d4)
+
+[https://apnews.com/article/trump-retribution-bondi-investigations-97207519e02dea460d6c68cc8b585c33](https://apnews.com/article/trump-retribution-bondi-investigations-97207519e02dea460d6c68cc8b585c33)
+
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
+[https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations](https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations)
+
+[https://www.propublica.org/topics/trump-administration](https://www.propublica.org/topics/trump-administration)
+
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 [https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522](https://www.nbcnews.com/tech/tech-news/government-websites-vanish-trump-constitution-dei-rcna188522)
@@ -178,6 +196,12 @@ permalink: /categories/defiant-destructive-reckless/defiance-of-law/
 2025-05-20 Kristi Noem struggled to explain Habeas Corpus during a hearing.
 
 [https://www.facebook.com/watch/?v=1948380052635180](https://www.facebook.com/watch/?v=1948380052635180)
+
+### 2025 July
+
+2025-07-12 Trump made sure the DOJ purged anyone in the department that investigated him or his allies. 
+
+[https://www.cbsnews.com/news/justice-department-firings-include-trump-investigators-jan-6-prosecutors/](https://www.cbsnews.com/news/justice-department-firings-include-trump-investigators-jan-6-prosecutors/)
 
 ### 2025 August
 

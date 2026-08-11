@@ -171,6 +171,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 ## 2025 January 
 
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
 2025-01-20 Trump rescinded Executive Order 14010 Creating a Comprehensive Regional Framework To Address the Causes of Migration, To Manage Migration Throughout North and Central America, and To Provide Safe and Orderly Processing of Asylum Seekers at the United States Border.
 
 2025-01-20 Trump rescinded Executive Order 14006 Reforming Our Incarceration System To Eliminate the Use of Privately Operated Criminal Detention Facilities.

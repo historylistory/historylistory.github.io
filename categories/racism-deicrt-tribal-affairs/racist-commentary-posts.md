@@ -279,6 +279,18 @@ PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-
 
 [https://www.bbc.com/news/articles/cy9jj2g75q4o](https://www.bbc.com/news/articles/cy9jj2g75q4o)
 
+### 2025 May
+
+2025-05-07 The DOJ Civil Rights Division was placed under leadership of Harmeet Dhillon. During an interview on The Signal Sitdown she stated, “Someone asked me what I think is one of the, or, the most critical civil rights issue of our time that’s on a daily basis. And I said I think it is – it’s not even in the Bill of Rights. It’s the fact that Americans feel like they have to lie every day to get through the day. They have to lie about pronouns. They have to lie about, um, the person in the cubicle next to them being qualified if they aren’t. They have to pretend to laugh at and like certain types of jokes – late night comedians – when they don’t agree with them”. 
+
+TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtube.com/watch?v=PUPuhlJ3IuE)
+
+[https://civilrights.org/2026/04/07/harmeet-dhillon/](https://civilrights.org/2026/04/07/harmeet-dhillon/)
+
+[https://www.wsj.com/opinion/harmeet-dhillon-is-no-civil-rights-enforcer-cfd4f5b1](https://www.wsj.com/opinion/harmeet-dhillon-is-no-civil-rights-enforcer-cfd4f5b1)
+
+[https://news.bloomberglaw.com/us-law-week/doj-leader-calls-for-civil-rights-paradigm-shift-after-exodus](https://news.bloomberglaw.com/us-law-week/doj-leader-calls-for-civil-rights-paradigm-shift-after-exodus)
+
 ### 2025 June
 
 2025-06-02 A news article quoted Curtis Yarvin saying we should “put the church Blacks in charge of the ghetto Blacks”.

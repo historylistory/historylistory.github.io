@@ -137,6 +137,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 ## 2025 January 
 
+2025-01-15 Pam Bondi claimed about the DOJ during her confirmation hearing, “I will not politicize that office.  I will not target people simply because of their political affiliation. Justice will be administered even-handedly throughout this country. Yet she addressed the DOJ staff two weeks later, stating, “We are so proud to work at the directive of Donald Trump”. 
+
 2025-01-27 Elon Musk attended a far-right rally in Germany.
 
 ## 2025 February 

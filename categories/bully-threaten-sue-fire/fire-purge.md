@@ -159,6 +159,11 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://abcnews.com/US/attorney-general-pam-bondi-fires-top-justice-department/story?id=123746598](https://abcnews.com/US/attorney-general-pam-bondi-fires-top-justice-department/story?id=123746598)
 
+2025-07-12 Trump made sure the DOJ purged anyone in the department that investigated him or his allies. 
+
+[https://www.cbsnews.com/news/justice-department-firings-include-trump-investigators-jan-6-prosecutors/](https://www.cbsnews.com/news/justice-department-firings-include-trump-investigators-jan-6-prosecutors/)
+
+
 ### 2025 August
 
 2025-08-01 Trump fired Bureau of Labor Statistics Commissioner Erika McEntarfer following an unfavorable jobs report. He named William Wiatrowski as replacement and later nominated Heritage Foundation economist E.J. Antoni. 

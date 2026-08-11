@@ -169,6 +169,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2025-05-07 Marjorie Taylor Greene repeatedly banged her gavel during a trans-athlete hearing.
 
+2025-05-07 The DOJ Civil Rights Division was placed under leadership of Harmeet Dhillon. During an interview on The Signal Sitdown she stated, “Someone asked me what I think is one of the, or, the most critical civil rights issue of our time that’s on a daily basis. And I said I think it is – it’s not even in the Bill of Rights. It’s the fact that Americans feel like they have to lie every day to get through the day. They have to lie about pronouns. They have to lie about, um, the person in the cubicle next to them being qualified if they aren’t. They have to pretend to laugh at and like certain types of jokes – late night comedians – when they don’t agree with them”. 
+
 ## 2025 June 
 
 2025-06-27 During Pride Month Pete Hegseth renamed USNS Harvey Milk to USNS Oscar V Peterson, claiming the original name was political and didn’t align with a warrior ethos. 

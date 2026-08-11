@@ -268,6 +268,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-07-12 Trump threatened via social media to take away Rosie O’Donnel’s citizenship.
 
+2025-07-12 Trump made sure the DOJ purged anyone in the department that investigated him or his allies. 
+
 2025-07-15 U.S. Army Veteran Bajin Mavalwalla was arrested at his home one month after he participated in an anti-ice protest and faced up to six (6) years in prison for alleged conspiracy to impede an ICE officer. During the protest, 93 justice attorneys received a memo demanding they prioritize prosecutions of anti-ICE protesters. Of the attorneys who would not comply for obvious ethical reasons, they were either ousted or forced to resign.
 
 2025-07-18 Trump celebrated Stephen Colbert's dismissal and suggested Jimmy Kimmel could be next. 

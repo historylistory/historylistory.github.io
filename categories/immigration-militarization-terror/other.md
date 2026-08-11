@@ -17,6 +17,13 @@ permalink: /categories/immigration-militarization-terror/other/
 
 ### 2025
 
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
+[https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations](https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations)
+
+[https://www.propublica.org/topics/trump-administration](https://www.propublica.org/topics/trump-administration)
+
+
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
 
 [https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/](https://www.whitehouse.gov/videos/press-secretary-karoline-leavitt-briefs-members-of-the-media-apr-1-2025/)

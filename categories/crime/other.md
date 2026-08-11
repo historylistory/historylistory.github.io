@@ -56,6 +56,12 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 
 ### 2025
 
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
+[https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations](https://www.propublica.org/article/trump-doj-immigration-bondi-declinations-criminal-investigations)
+
+[https://www.propublica.org/topics/trump-administration](https://www.propublica.org/topics/trump-administration)
+
 2025-09-16 A federal jury found Admiral Robert Burke guilty on corruption charges.
 
 [https://www.justice.gov/usao-dc/pr/retired-us-navy-admiral-sentenced-six-years-bribery-scheme](https://www.justice.gov/usao-dc/pr/retired-us-navy-admiral-sentenced-six-years-bribery-scheme)

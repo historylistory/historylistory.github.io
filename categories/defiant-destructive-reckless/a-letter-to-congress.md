@@ -93,6 +93,10 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 ## 2025 January 
 
+2025-01-15 Pam Bondi claimed about the DOJ during her confirmation hearing, “I will not politicize that office.  I will not target people simply because of their political affiliation. Justice will be administered even-handedly throughout this country. Yet she addressed the DOJ staff two weeks later, stating, “We are so proud to work at the directive of Donald Trump”. 
+
+2025-01-20 After Bondi was confirmed, the DOJ dropped 23,000 criminal investigations so they could shift to immigration enforcement. Cases dropped included those on terrorism, white-collar crime, drugs, nursing home patient abuse (Virginia), and cryptocurrency investor fraud. 
+
 2025-01-22 The U.S. Constitution temporarily disappeared from the White House website shortly after Trump's inauguration, the first of two such incidents reported in 2025.
 
 2025-01-28 Bill HR792 was introduced to force U.S. park services to carve Trump’s face into the side of Mount Rushmore.
@@ -134,6 +138,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-05-04 When asked whether he was required to uphold the Constitution, Trump replied, "I don't know”.
 
+2025-05-07 The DOJ Civil Rights Division was placed under leadership of Harmeet Dhillon. During an interview on The Signal Sitdown she stated, “Someone asked me what I think is one of the, or, the most critical civil rights issue of our time that’s on a daily basis. And I said I think it is – it’s not even in the Bill of Rights. It’s the fact that Americans feel like they have to lie every day to get through the day. They have to lie about pronouns. They have to lie about, um, the person in the cubicle next to them being qualified if they aren’t. They have to pretend to laugh at and like certain types of jokes – late night comedians – when they don’t agree with them”. 
+
 2025-05-12 Steve Bannon called out a “Constitutional Crisis”, saying, “If they can hold it together they can control the government for 50-75 years”
 
 2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
@@ -157,6 +163,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2025-08-07 Portions of the U.S. Constitution temporarily disappeared from the Library of Congress website for a second time; the White House attributed it to a coding error.
 
 2025-07-10 Kristi Noem allegedly delayed FEMA rescue authorization after Texas flooding by 72 hours. 
+
+2025-07-12 Trump made sure the DOJ purged anyone in the department that investigated him or his allies. 
 
 2025-07-14 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated.  Members who were left in USAID reached out to the Trump administration to ask for release of food stocks intended to feed 30,000+ starving children. The administration ignored the requests for weeks, allowed the food stock to expire, then announced it would incinerate the food. It was roughly 500 metric tons of food they allowed to spoil then incinerated, rather than feed hungry children. 
 
