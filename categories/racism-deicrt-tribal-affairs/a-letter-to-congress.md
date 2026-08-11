@@ -738,6 +738,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-06-10 Louisiana, Mississippi and Alabama have never elected a Black representative outside a majority-Black district.
 
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
+
 2026-06-13 At a Houston Texas GOP convention on Judeo-Christian values, Texas Republicans promoted “Don’t Sharia My Texas” and then quickly rejected Muslim attendees. One attendee said, “Halal food is going to be a giant money maker. It is everywhere that Islam goes. The problem is you eat meat that’s been sacrificed to their fake God…”
 
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.

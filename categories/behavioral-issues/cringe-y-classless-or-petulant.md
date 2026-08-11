@@ -223,6 +223,15 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 
 [https://www.npr.org/2025/11/06/nx-s1-5600772/trump-justice-federal-surge-subway-sandwich](https://www.npr.org/2025/11/06/nx-s1-5600772/trump-justice-federal-surge-subway-sandwich)
 
+2025-08-13 The DOJ put out a dramatic cringey propaganda video of them sending a 20-person raid to the apartment of the man who threw a sandwich at ICE. This was after he offered to turn himself in. 
+
+[https://www.yahoo.com/news/articles/white-house-propaganda-video-shows-165408115.html](https://www.yahoo.com/news/articles/white-house-propaganda-video-shows-165408115.html)
+
+[https://www.cnn.com/2025/08/13/politics/man-sandwich-dc-felony-charged](https://www.cnn.com/2025/08/13/politics/man-sandwich-dc-felony-charged)
+
+[https://www.theguardian.com/us-news/2025/nov/06/man-threw-sandwich-agent-washington-not-guilty-verdict])https://www.theguardian.com/us-news/2025/nov/06/man-threw-sandwich-agent-washington-not-guilty-verdict
+
+
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 [https://x.com/RepOgles](https://x.com/RepOgles)

@@ -38,6 +38,23 @@ JUDGE BLOCKS ORDER [https://www.courthousenews.com/states-accuse-trump-administr
 
 NOEM MEMO [https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf](https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.uscourts.rid.59597.59.6.pdf)
 
+2025-08-13 The DOJ put out a dramatic cringey propaganda video of them sending a 20-person raid to the apartment of the man who threw a sandwich at ICE. This was after he offered to turn himself in. 
+
+[https://www.yahoo.com/news/articles/white-house-propaganda-video-shows-165408115.html](https://www.yahoo.com/news/articles/white-house-propaganda-video-shows-165408115.html)
+
+[https://www.cnn.com/2025/08/13/politics/man-sandwich-dc-felony-charged](https://www.cnn.com/2025/08/13/politics/man-sandwich-dc-felony-charged)
+
+[https://www.theguardian.com/us-news/2025/nov/06/man-threw-sandwich-agent-washington-not-guilty-verdict])https://www.theguardian.com/us-news/2025/nov/06/man-threw-sandwich-agent-washington-not-guilty-verdict
+
+2025-08-27 After a grand jury declined to indict the man arrested for throwing a sandwich, the DOJ tried again by removing some jurors who voted against them. In October the DOJ interviewed one juror who said, “I heard this case like last week and I thought it was a crock of shit then and I still think it is”. 
+
+[https://www.theguardian.com/us-news/2025/aug/27/grand-jury-declines-indictment-washington-dc-sandwich-thrower](https://www.theguardian.com/us-news/2025/aug/27/grand-jury-declines-indictment-washington-dc-sandwich-thrower)
+
+[https://www.nbcnews.com/politics/justice-department/dc-sandwich-guy-verdict-rcna242142](https://www.nbcnews.com/politics/justice-department/dc-sandwich-guy-verdict-rcna242142)
+
+[https://www.cnn.com/2026/06/09/politics/grand-jury-transcripts-broadview-six-indictment](https://www.cnn.com/2026/06/09/politics/grand-jury-transcripts-broadview-six-indictment)
+
+
 2025-09-14 Trump’s government spending on immigration reached $75 billion.
 
 [https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/](https://www.americanprogress.org/article/congressional-republicans-one-big-beautiful-bill-act-creates-an-unaccountable-slush-fund-for-the-trump-administrations-deportation-force/)

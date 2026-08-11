@@ -36,6 +36,16 @@ permalink: /categories/health/politicizing-health/
 
 [https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/](https://healthpolicy-watch.news/ttrump-2027-budget-extends-us-global-and-domestic-health-cuts/)
 
+### 2026 June
+
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
+
+[https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement](https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement)
+
+PAY WALL [https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html](https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html)
+
+TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtube.com/watch?v=PUPuhlJ3IuE)
+
 ### 2026 July
 
 2026-07-15 The Geo Group blocked Adams County Health officials from entering Aurora ICE detention center to investigate and possibly treat a tuberculosis outbreak. 

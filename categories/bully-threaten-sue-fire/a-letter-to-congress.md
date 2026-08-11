@@ -516,6 +516,8 @@ Manhattan grand jury in the hush-money case.
 
 2026-03-16 Trump said he intended to "take" Cuba and threatened continued energy restrictions unless Cuban leadership changed. He said, “I do believe I’ll have the honor of taking Cuba”. He also stated, “I can do anything I want”. 
 
+2026-03-16 After Trump took office nearly 4000 attorneys at the DOJ quit, only 1400 new hires were set to replace them, and standards for hiring were reduced to only needing a law degree and active state bar membership; no experience required. 
+
 2026-03-17 Trump said Newsom shouldn’t be president because he has dyslexia. He stated in the Oval Office, “…with a low IQ person, you know, ‘cuz Gavin New-Scum has admitted that he has a – that he has learning disabilities. Honestly, I’m all for people with learning disabilities but not for my President, um, I want…I think a President should not have a learning disability, okay? And, I know it’s highly controversial to say such a horrible thing. The President of the United States, Gavin New-Scum admitted that he has learning disabilities, dyslexia….”
 
 2026-03-17 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast. 2026-03-25 James Talarico responded to pastor Brooks Potteiger’s death wish. On March 25th Talarico wrote, “Jesus loves. Christian Nationalism kills. You may pray for my death, Pastor, but I still love you. I love you more than you could ever hate me”.

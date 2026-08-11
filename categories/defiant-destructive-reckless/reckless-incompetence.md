@@ -473,6 +473,10 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 
 {% include youtubePlayer.html id="beMb-MHflOs" %}
 
+2026-03-16 After Trump took office nearly 4000 attorneys at the DOJ quit, only 1400 new hires were set to replace them, and standards for hiring were reduced to only needing a law degree and active state bar membership; no experience required. 
+
+[https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school](https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school)
+
 2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
 
 [https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s](https://www.youtube.com/watch?v=TGFkuH7GRX8&list=WL&index=1&t=388s)
@@ -633,6 +637,13 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 
 [https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/](https://www.cbsnews.com/news/senate-defeats-7th-trump-war-powers-iran/)
 
+2026-05-18 Trump’s DOJ attorney pick for Wyoming was noted as behaving wildly unprofessional during court proceedings.
+
+[https://news.bloomberglaw.com/us-law-week/court-tosses-indictments-over-misconduct-by-wyoming-us-attorney](https://news.bloomberglaw.com/us-law-week/court-tosses-indictments-over-misconduct-by-wyoming-us-attorney)
+
+[https://wyofile.com/wyomings-new-us-attorney-is-off-to-an-historic-bad-start-so-why-did-he-get-confirmed/](https://wyofile.com/wyomings-new-us-attorney-is-off-to-an-historic-bad-start-so-why-did-he-get-confirmed/)
+
+
 ### 2026 June
 
 2026-06-02 Trump named housing official Bill Pulte as acting director of national intelligence.
@@ -647,6 +658,15 @@ SUB WALL [https://www.nytimes.com/2026/04/23/us/politics/iran-war-cost-military.
 [https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts](https://time.com/article/2026/06/06/trump-ODNI-intelligence-cuts)
 
 [https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html](https://www.cnbc.com/2026/06/05/trump-bill-pulte-fire-intelligence-dni.html)
+
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
+
+[https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement](https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement)
+
+PAY WALL [https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html](https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html)
+
+TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtube.com/watch?v=PUPuhlJ3IuE)
+
 
 2026-06-14 FISA Section 702 – a foreign surveillance law – was allowed to expire. 
 

@@ -158,10 +158,6 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2025-07-10 Kristi Noem allegedly delayed FEMA rescue authorization after Texas flooding by 72 hours. 
 
-2025-08-07 JD Vance allegedly pressured the Army Corps of Engineers to release river water for kayaking on his birthday. 
-
-2025-08-07 Portions of the U.S. Constitution temporarily disappeared from the Library of Congress website for a second time; the White House attributed it to a coding error.
-
 2025-07-10 Kristi Noem allegedly delayed FEMA rescue authorization after Texas flooding by 72 hours. 
 
 2025-07-12 Trump made sure the DOJ purged anyone in the department that investigated him or his allies. 
@@ -170,7 +166,13 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 ## 2025 August 
 
+2025-08-07 JD Vance allegedly pressured the Army Corps of Engineers to release river water for kayaking on his birthday. 
+
+2025-08-07 Portions of the U.S. Constitution temporarily disappeared from the Library of Congress website for a second time; the White House attributed it to a coding error.
+
 2025-08-11 Lawrence Taylor admitted uncertainty about his sports council appointment.
+
+2025-08-27 After a grand jury declined to indict the man arrested for throwing a sandwich, the DOJ tried again by removing some jurors who voted against them. In October the DOJ interviewed one juror who said, “I heard this case like last week and I thought it was a crock of shit then and I still think it is”. 
 
 ## 2025 September 
 
@@ -315,6 +317,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-03-16 The White House arts commission proposed removing White House columns.
 
+2026-03-16 After Trump took office nearly 4000 attorneys at the DOJ quit, only 1400 new hires were set to replace them, and standards for hiring were reduced to only needing a law degree and active state bar membership; no experience required. 
+
 2026-03-22 Trump said, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.
 
 2026-03-24 This time Democrats delayed forcing an Iran war-powers vote.
@@ -417,6 +421,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-05-15 Trump announced a sculpture garden project in D.C.
 
+2026-05-18 Trump’s DOJ attorney pick for Wyoming was noted as behaving wildly unprofessional during court proceedings.
+
 2026-05-22 Combat veteran and Democratic Representative Pat Ryan said, “These chickenhawk motherf*ckers are going to send us home for Memorial Day weekend – where I’m going to honor my fellow veterans that I served 27 months in combat with – and they are going to not even give an up or down vote on continuing this war almost 3 months in while Americans are paying almost $5 a gallon at the pumps. It is fucking pathetic. They use this procedural bullsh!t argument, and every American should be absolutely outraged about this. It’s a disgrace.”
 
 2026-05-29 House GOP members rejected Trump’s National Defense Authorization Act demands.
@@ -430,6 +436,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-06-05 The White House took over federal grant-making draws, allowing the President to have more partisan power over grants and research. 
 
 2026-06-06 Trump appointed former private equity mogul Bill Pulte to take over as Director of National Intelligence and shrink overseas intelligence agencies. 
+
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
 
 2026-06-12 A judge ordered Trump’s name to be removed from the Kennedy Center. 
 

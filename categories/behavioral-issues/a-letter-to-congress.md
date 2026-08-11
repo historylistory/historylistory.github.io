@@ -245,6 +245,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2025-08-13 Trump allies proposed renaming the Kennedy Center after Melania or Trump himself.
 
+2025-08-13 The DOJ put out a dramatic cringey propaganda video of them sending a 20-person raid to the apartment of the man who threw a sandwich at ICE. This was after he offered to turn himself in. 
+
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 2025-08-26 Trump hung a banner of himself across from the Labor Department.

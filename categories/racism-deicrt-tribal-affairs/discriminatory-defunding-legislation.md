@@ -265,6 +265,14 @@ MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/he
 
 [https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668](https://www.kcra.com/article/southern-poverty-law-center-chair-congressional-hearing/71538668)
 
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
+
+[https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement](https://www.justice.gov/archives/opa/pr/departments-justice-and-health-and-human-services-announce-interim-resolution-agreement)
+
+PAY WALL [https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html](https://www.nytimes.com/2026/05/11/us/alabama-sewage-trump-dei-voting-rights-act.html)
+
+TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtube.com/watch?v=PUPuhlJ3IuE)
+
 2026-06-15 The DOJ intervened in a lawsuit in NAACP v. Elon Musk for violating a clean air act and polluting Black neighborhoods.
 
 [https://www.democracynow.org/2026/6/18/abre_conner_naacp](https://www.democracynow.org/2026/6/18/abre_conner_naacp)

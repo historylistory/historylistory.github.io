@@ -269,9 +269,14 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 2025-08-08 PragerU announced plans to totally replace PBS with conservative programming for children. Some example material includes:
 
+2025-08-13 The DOJ put out a dramatic cringey propaganda video of them sending a 20-person raid to the apartment of the man who threw a sandwich at ICE. This was after he offered to turn himself in. 
+
 2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
 
 2025-08-19 Nexstar Media (managed by conservative donor Perry Sook and Fox exec Bill Shine) announced acquisition of TEGNA for $6.2B.
+
+
+2025-08-27 After a grand jury declined to indict the man arrested for throwing a sandwich, the DOJ tried again by removing some jurors who voted against them. In October the DOJ interviewed one juror who said, “I heard this case like last week and I thought it was a crock of shit then and I still think it is”. 
 
 ## 2025 September 
 

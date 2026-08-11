@@ -311,6 +311,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-08-11 Trump sent the National Guard to Washington D.C. despite a 30-year low in crime. 
 
+2025-08-13 The DOJ put out a dramatic cringey propaganda video of them sending a 20-person raid to the apartment of the man who threw a sandwich at ICE. This was after he offered to turn himself in. 
+
 2025-08-14 News outlets reported ongoing inhumane conditions and treatment at Alligator Alcatraz.
 
 2025-08-14 DeSantis announced Deportation Depot; a second ICE detention facility in Florida.
@@ -332,6 +334,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 2025-08-26 Andy Ogles reposted a racist anti-immigrant Babylon Bee meme.
 
 2025-08-27 Long-time community organizer and valid DACA holder Catalina Xochitl Santiago was detained at a domestic flight while on the way to work in El Paso and was kept in detention even after a judge ruled her DACA status was valid. 
+
+2025-08-27 After a grand jury declined to indict the man arrested for throwing a sandwich, the DOJ tried again by removing some jurors who voted against them. In October the DOJ interviewed one juror who said, “I heard this case like last week and I thought it was a crock of shit then and I still think it is”. 
 
 2025-08-27 Washington firefighters were raided by ICE while actively fighting fires and two were detained. The crew members issued a statement in September expressing their anger.
 

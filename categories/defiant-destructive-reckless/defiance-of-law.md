@@ -211,6 +211,14 @@ TRUMP PLEDGES TO EXPOSE HIS ENEMIES AT THE DOJ: [https://apnews.com/article/trum
 
 [https://www.aljazeera.com/news/2025/8/8/have-sections-of-the-us-constitution-gone-missing-from-government-website](https://www.aljazeera.com/news/2025/8/8/have-sections-of-the-us-constitution-gone-missing-from-government-website)
 
+2025-08-27 After a grand jury declined to indict the man arrested for throwing a sandwich, the DOJ tried again by removing some jurors who voted against them. In October the DOJ interviewed one juror who said, “I heard this case like last week and I thought it was a crock of shit then and I still think it is”. 
+
+[https://www.theguardian.com/us-news/2025/aug/27/grand-jury-declines-indictment-washington-dc-sandwich-thrower](https://www.theguardian.com/us-news/2025/aug/27/grand-jury-declines-indictment-washington-dc-sandwich-thrower)
+
+[https://www.nbcnews.com/politics/justice-department/dc-sandwich-guy-verdict-rcna242142](https://www.nbcnews.com/politics/justice-department/dc-sandwich-guy-verdict-rcna242142)
+
+[https://www.cnn.com/2026/06/09/politics/grand-jury-transcripts-broadview-six-indictment](https://www.cnn.com/2026/06/09/politics/grand-jury-transcripts-broadview-six-indictment)
+
 ### 2025 September
 
 2025-09-09 News outlets reported on a possible Heritage Foundation agenda to change the Constitution.
@@ -353,6 +361,9 @@ TRUMP PLEDGES TO EXPOSE HIS ENEMIES AT THE DOJ: [https://apnews.com/article/trum
 
 [https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html](https://www.military.com/feature/2026/03/05/hegseths-stupid-rules-of-engagement-line-and-what-roe-actually-do.html)
 
+2026-03-16 After Trump took office nearly 4000 attorneys at the DOJ quit, only 1400 new hires were set to replace them, and standards for hiring were reduced to only needing a law degree and active state bar membership; no experience required. 
+
+[https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school](https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school)
 
 2026-03-22 Trump said, “They don’t like the word ‘war’, because you’re supposed to get approval, so I’ll use the word ‘military operation’, which is really what it is”.
 

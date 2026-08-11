@@ -269,6 +269,13 @@ PAY WALL [https://www.nytimes.com/2025/06/13/arts/design/kim-sajet-resigns-smith
 
 [https://www.wsj.com/politics/policy/chaos-kristi-noem-homeland-security-f095ac95?gaa_at=eafs&gaa_n=AWEtsqdkNjQ0dQ8iygKNK9rrMC7lqzHKk3X6ynvDCICTH3750-PLnH5KesuyE7gZl2A%3D&gaa_ts=699c5793&gaa_sig=u7RVfFCbDVttyJFAzLJ14heSVqdLdynPtgWq4IpBxzGmBiEfmBL4XLYHA5fvLF3F_gl9gybr3-2N6Y5G7GTfdQ%3D%3D](https://www.wsj.com/politics/policy/chaos-kristi-noem-homeland-security-f095ac95?gaa_at=eafs&gaa_n=AWEtsqdkNjQ0dQ8iygKNK9rrMC7lqzHKk3X6ynvDCICTH3750-PLnH5KesuyE7gZl2A%3D&gaa_ts=699c5793&gaa_sig=u7RVfFCbDVttyJFAzLJ14heSVqdLdynPtgWq4IpBxzGmBiEfmBL4XLYHA5fvLF3F_gl9gybr3-2N6Y5G7GTfdQ%3D%3D)
 
+### 2026 March
+
+2026-03-16 After Trump took office nearly 4000 attorneys at the DOJ quit, only 1400 new hires were set to replace them, and standards for hiring were reduced to only needing a law degree and active state bar membership; no experience required. 
+
+[https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school](https://news.bloomberglaw.com/us-law-week/doj-to-allow-hiring-of-us-prosecutors-straight-out-of-law-school)
+
+
 ### 2026 April
 
 2026-04-02 Pete Hegseth fired Army Chief of Staff General Randy George, drawing criticism from several Republican senators

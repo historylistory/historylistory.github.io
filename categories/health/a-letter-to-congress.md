@@ -576,6 +576,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-06-10 Congress proposed more cuts to VA benefits. 
 
+2026-06-10 After the Civil Rights Division was placed under Harmeet Dhillon, it stepped in to undo Biden-era settlements. One example of a settlement they undid involved Lowndes County, Alabama. There residents do not have access to municipal water and must contend with untreated sewage backing up into their homes. Homeowners there cannot afford the specialized septic systems required for the soil type, so they had been harassed with criminal charges, fines and jailtime. Biden enforced an interim resolution to stop the state from imposing fines and required the state to be an active participant in helping residents get septic systems. Trump’s DOJ eliminated that help, calling the resolution “Illegal DEI” because it was in a predominantly Black neighborhood. 
+
 2026-06-16 The Ebola outbreak in Africa is the worst in history.
 
 2026-06-19 The DOJ released a memo undermining the Olmstead mandate designed to provide community-based services to people with disabilities, particularly if they are homeless disabled.
