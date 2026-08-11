@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Defiant
+title: Defiance of Law
 category_slug: defiant-destructive-reckless
-subcategory_slug: defiant
-permalink: /categories/defiant-destructive-reckless/defiant/
+subcategory_slug: defiance-of-law
+permalink: /categories/defiant-destructive-reckless/defiance-of-law/
 ---
 
 ### 2019
