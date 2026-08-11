@@ -204,3 +204,14 @@ HERITAGE FOUNDATION RHETORIC [https://www.heritage.org/government-regulation/com
 
 [https://www.businessinsider.com/nyc-landlords-sued-over-mamdanis-rent-freeze-has-happened-before-2026-7](https://www.businessinsider.com/nyc-landlords-sued-over-mamdanis-rent-freeze-has-happened-before-2026-7)
 
+### 2026 August
+
+2026-08-07 A New York judge issued a pause on Mamdani’s Pied-a-Tierre Tax. The tax is meant to target homes valued at $5M or more and co-ops and condos worth $1M or more when the owners do not live there as a primary residence. The surcharge asks those who own second homes valued in the millions to contribute their fair share to the city from which they benefit. 
+
+[https://www.yahoo.com/news/politics/articles/mamdani-second-home-tax-paused-010957589.html](https://www.yahoo.com/news/politics/articles/mamdani-second-home-tax-paused-010957589.html)
+
+[https://comptroller.nyc.gov/reports/the-pied-a-terre-tax-and-its-potential-revenues/](https://comptroller.nyc.gov/reports/the-pied-a-terre-tax-and-its-potential-revenues/)
+
+[https://www.politico.com/news/2026/08/10/judge-blocks-new-york-city-pied-a-terre-tax-01031481](https://www.politico.com/news/2026/08/10/judge-blocks-new-york-city-pied-a-terre-tax-01031481)
+
+SUB WALL [https://www.wsj.com/us-news/judge-temporarily-blocks-mamdanis-pied-a-terre-tax-744b0003](https://www.wsj.com/us-news/judge-temporarily-blocks-mamdanis-pied-a-terre-tax-744b0003)

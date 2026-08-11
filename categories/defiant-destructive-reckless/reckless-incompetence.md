@@ -797,3 +797,32 @@ SUB WALL [https://www.wsj.com/politics/policy/trump-rfk-jr-cut-vaccine-children-
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)
 
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
+
+TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=268s](https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=268s)
+
+[https://www.medpagetoday.com/pediatrics/vaccines/122557](https://www.medpagetoday.com/pediatrics/vaccines/122557)
+
+[https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations](https://www.pbs.org/newshour/politics/watch-trump-signs-executive-order-on-childhood-vaccine-recommendations)
+
+[https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/](https://www.cbsnews.com/news/trump-childhood-vaccines-executive-order/)
+
+[https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html](https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html)
+
+[https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2](https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2)
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+[https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report](https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report)
+
+[https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/](https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/)
+
+2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
+
+[https://www.wbal.com/pediatricians-push-back-against-presidents-new-vaccine-order](https://www.wbal.com/pediatricians-push-back-against-presidents-new-vaccine-order)
+
+[https://www.learningdisabilitytoday.co.uk/news/trump-criticised-for-spreading-mmr-vaccine-misinformation-linking-it-to-autism/](https://www.learningdisabilitytoday.co.uk/news/trump-criticised-for-spreading-mmr-vaccine-misinformation-linking-it-to-autism/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations](https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations)
+
+[https://www.aap.org/](https://www.aap.org/)

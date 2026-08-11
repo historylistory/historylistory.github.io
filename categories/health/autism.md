@@ -108,3 +108,19 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html](https://www.cnbc.com/2026/08/10/trump-vaccine-executive-order-autism.html)
 
 [https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2](https://www.youtube.com/watch?v=IuAZ-CcX1ZA&list=WL&index=2)
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+[https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report](https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report)
+
+[https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/](https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/)
+
+2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
+
+[https://www.wbal.com/pediatricians-push-back-against-presidents-new-vaccine-order](https://www.wbal.com/pediatricians-push-back-against-presidents-new-vaccine-order)
+
+[https://www.learningdisabilitytoday.co.uk/news/trump-criticised-for-spreading-mmr-vaccine-misinformation-linking-it-to-autism/](https://www.learningdisabilitytoday.co.uk/news/trump-criticised-for-spreading-mmr-vaccine-misinformation-linking-it-to-autism/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations](https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations)
+
+[https://www.aap.org/](https://www.aap.org/)

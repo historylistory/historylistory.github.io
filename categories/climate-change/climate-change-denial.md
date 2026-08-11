@@ -165,3 +165,16 @@ permalink: /categories/climate-change/climate-change-denial/
 [https://www.eenews.net/articles/trump-admin-is-terminating-a-vast-network-of-ocean-monitors/](https://www.eenews.net/articles/trump-admin-is-terminating-a-vast-network-of-ocean-monitors/)
 
 [https://www.youtube.com/watch?v=yTpETcRkwqI&list=WL&index=3](https://www.youtube.com/watch?v=yTpETcRkwqI&list=WL&index=3)
+
+### 2026 August
+
+2026-08-10 The Trump administration ended  arctic climate reports and the website climate.gov. 
+
+[https://www.cnn.com/2026/08/10/climate/trump-admin-arctic-report-card](https://www.cnn.com/2026/08/10/climate/trump-admin-arctic-report-card)
+
+[https://eos.org/research-and-developments/government-pulls-funding-for-the-arctic-report-card](https://eos.org/research-and-developments/government-pulls-funding-for-the-arctic-report-card)
+
+[https://www.commondreams.org/news/noaa-arctic-report-card](https://www.commondreams.org/news/noaa-arctic-report-card)
+
+[https://www.noaa.gov/climate](https://www.noaa.gov/climate)
+

@@ -2098,3 +2098,6 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://www.maritimeprofessional.com/news/iran-ties-hormuz-reopening-concessions-421866](https://www.maritimeprofessional.com/news/iran-ties-hormuz-reopening-concessions-421866)
 
+2026-08-10 Trump countered Iran’s demands for reparations and removal of sanctions by demanding money in turn for casualties. 
+
+[https://thehill.com/homenews/6020786-trump-demands-iran-compensation/](https://thehill.com/homenews/6020786-trump-demands-iran-compensation/)

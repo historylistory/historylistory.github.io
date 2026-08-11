@@ -225,6 +225,8 @@ The list below outlines my concerns in greater detail. Some of the information i
 
 2025-04-01 During a press conference, a journalist asked Karoline Leavitt about the Trump administration ignoring judge orders, “So are you saying that it is okay to ignore a judge’s ruling if you don’t like it?”. Leavitt responded, “Uh, who does that judge work for? It was an immigration judge who works for the Department of Justice at the direction of the Attorney General of the United States, whose name is Pam Bondi, who has committed to eradicating MS-13 from our nation’s interior…”
 
+2025-04-01 ICE rescinded a policy that protected immigrant veterans and replaced it with measures allowing ICE to detain and deport US servicemembers. 
+
 2025-04-03 Tufts University confirmed that a second student’s visa was terminated without notification.
 
 2025-04-14 Pam Bondi asserted that Abrego-Garcia was MS13 and that it was not up to the US to return him. In the same press conference, Stephen Miller claimed that the media was arrogant for telling El Salvador how to handle their citizens, and El Salvador president Bukele said he couldn’t “smuggle a terrorist” back into the US.

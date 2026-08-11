@@ -373,3 +373,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
 
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 

@@ -1121,6 +1121,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
 
+2026-08-07 A New York judge issued a pause on Mamdani’s Pied-a-Tierre Tax. The tax is meant to target homes valued at $5M or more and co-ops and condos worth $1M or more when the owners do not live there as a primary residence. The surcharge asks those who own second homes valued in the millions to contribute their fair share to the city from which they benefit. 
+
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
 
 2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 

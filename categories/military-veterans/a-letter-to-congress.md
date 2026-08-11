@@ -115,6 +115,10 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website.
 
+## 2025 April
+
+2025-04-01 ICE rescinded a policy that protected immigrant veterans and replaced it with measures allowing ICE to detain and deport US servicemembers. 
+
 ## 2025 May 
 
 2025-05-15 Trump kicked a new VA budget in high gear to privatize VA healthcare and dismantle the system. According to Veteran’s Affairs CMTE, at least 1.2M Veterans will lose their provider AND 62000 Veterans will lose their federal jobs. 

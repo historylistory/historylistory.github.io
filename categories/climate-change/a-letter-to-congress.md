@@ -444,3 +444,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-06 The River Thames is drying up. 
 
+2026-08-10 The Trump administration ended  arctic climate reports and the website climate.gov. 
+
+2026-08-10 Three-quarters of England entered drought status and had to place 27M people under water use restrictions. 
+
+2026-08-10 Typhoon Dolphin made landfall in China 

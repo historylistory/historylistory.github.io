@@ -514,3 +514,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
 
 2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
+
+2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 

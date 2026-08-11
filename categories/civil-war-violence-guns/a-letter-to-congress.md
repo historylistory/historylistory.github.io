@@ -664,3 +664,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-03 During an Oval Office press conference Trump claimed Jeanine Pirro “made a mistake” and “choked” on the Reflecting Pool vandalism case. 
 
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 

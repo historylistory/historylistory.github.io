@@ -6,6 +6,17 @@ subcategory_slug: detention
 permalink: /categories/military-veterans/detention/
 ---
 
+### 2025 April
+
+2025-04-01 ICE rescinded a policy that protected immigrant veterans and replaced it with measures allowing ICE to detain and deport US servicemembers. 
+
+[https://www.militarytimes.com/news/your-military/2025/09/18/mass-deportations-ensnare-immigrant-service-members-veterans/](https://www.militarytimes.com/news/your-military/2025/09/18/mass-deportations-ensnare-immigrant-service-members-veterans/)
+
+[https://www.motherjones.com/politics/2025/09/upheaval-immigrant-troops/](https://www.motherjones.com/politics/2025/09/upheaval-immigrant-troops/)
+
+[https://civilrights.org/trump-rollbacks/](https://civilrights.org/trump-rollbacks/)
+
+
 ### 2025 June
 
 2025-06-23 US Marine and father of three Narcisco Barranco was beaten and detained after DHS accused him of assaulting ICE agents with a weedwhacker. Video footage debunked DHS claims.

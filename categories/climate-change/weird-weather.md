@@ -364,3 +364,14 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor](https://www.thestandard.com.hk/world/article/338985/Romania-blasts-rocks-to-reroute-cooling-Danube-water-to-nuclear-reactor)
 
+2026-08-10 Three-quarters of England entered drought status and had to place 27M people under water use restrictions. 
+
+[https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july](https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july)
+
+[https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/](https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/)
+
+2026-08-10 Typhoon Dolphin made landfall in China 
+
+[https://www.democracynow.org/2026/8/11/headlines/more_than_a_million_people_evacuated_as_typhoon_dolphin_makes_landfall_in_china](https://www.democracynow.org/2026/8/11/headlines/more_than_a_million_people_evacuated_as_typhoon_dolphin_makes_landfall_in_china)
+
+[https://www.nbcnews.com/world/asia/typhoon-dolphin-threatens-central-china-hubei-province-rcna591870](https://www.nbcnews.com/world/asia/typhoon-dolphin-threatens-central-china-hubei-province-rcna591870)

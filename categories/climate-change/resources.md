@@ -157,3 +157,8 @@ permalink: /categories/climate-change/resources/
 
 [https://www.gov.uk/guidance/river-thames-current-river-conditions](https://www.gov.uk/guidance/river-thames-current-river-conditions)
 
+2026-08-10 Three-quarters of England entered drought status and had to place 27M people under water use restrictions. 
+
+[https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july](https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july)
+
+[https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/](https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/)

@@ -609,3 +609,10 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/](https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/)
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)
+
+2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+[https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report](https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report)
+
+[https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/](https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/)
+
