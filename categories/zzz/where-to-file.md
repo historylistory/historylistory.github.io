@@ -22,7 +22,7 @@ permalink: /categories/zzz/where-to-file/
 
 ### 2026 August
 
-2026-08-09 Todd Blanche was confirmed as Attorney General. 
+2026-08-09 Todd Blanche was confirmed as Attorney General. Bill Cassidy stated, “I’ll be criticized for this vote. What’s new? But, people of Louisiana can be assured that I worked hard to understand the issue and to make the right decision. With that, I yield”. 
 
 [https://apnews.com/article/senate-blanche-attorney-general-justice-department-fcb4157d45d7b13a05de4d2b0f4f92e2](https://apnews.com/article/senate-blanche-attorney-general-justice-department-fcb4157d45d7b13a05de4d2b0f4f92e2)
 
