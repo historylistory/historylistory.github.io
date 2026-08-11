@@ -274,3 +274,23 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 2026-08-07 Two federal judges sided with Trump to terminate TPS aid to Sudanese immigrants who will now face deportation. 
 
 [https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/](https://www.reuters.com/legal/government/us-judge-allows-deportation-protections-end-south-sudanese-2026-08-07/)
+
+
+2026-08-11 Haitian immigrants in Ohio are being forced to report to ICE appointments and wear ankle monitors. CNN identified one Haitian immigrant caught on video leaving an ICE facility collapsing to the ground in tears saying he fled Haiti fearing for his life. 
+
+[https://www.wlrn.org/immigration/2026-08-10/some-haitians-targeted-for-ankle-monitors-by-ice-as-they-face-threat-of-mass-deportation](https://www.wlrn.org/immigration/2026-08-10/some-haitians-targeted-for-ankle-monitors-by-ice-as-they-face-threat-of-mass-deportation)
+
+[https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals](https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals)
+
+[https://www.daytondailynews.com/local/ice-seizes-passports-issues-ankle-monitors-to-springfield-haitians/article_571f4d5b-6afc-5e6a-9c21-a4d80486447d.html](https://www.daytondailynews.com/local/ice-seizes-passports-issues-ankle-monitors-to-springfield-haitians/article_571f4d5b-6afc-5e6a-9c21-a4d80486447d.html)
+
+[https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/](https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/)
+
+CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests)
+
+2026-08-11 The Trump administration revoked over 175,000 visas. 
+
+[https://www.aljazeera.com/news/2026/8/10/trump-administration-revoked-over-175000-visas-us-state-department](https://www.aljazeera.com/news/2026/8/10/trump-administration-revoked-over-175000-visas-us-state-department)
+
+[https://time.com/article/2026/08/10/trump-state-department-visa-revocations/](https://time.com/article/2026/08/10/trump-state-department-visa-revocations/)
+

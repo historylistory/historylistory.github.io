@@ -1126,3 +1126,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
 
 2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 

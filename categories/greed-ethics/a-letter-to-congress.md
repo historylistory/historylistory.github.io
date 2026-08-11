@@ -424,3 +424,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-08-05 Dr. Abdul El-Sayed won the Michigan Senate primary campaigning on Medicare for all, ending aid to Israel, and getting money out of politics. Trump said on Abdul El-Sayed (D-MI), “He’s a man of hate. He doesn’t love Israel, he doesn’t love Jewish people, he hates ‘em. He hates ‘em with a passion that burns in his heart and there’s not a freaking thing he can do about it”. 
 
 2026-08-07 CoreCivic and GEO Group both reported a combined $1.4BN quarterly revenue over Trump’s immigration crackdown.
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 

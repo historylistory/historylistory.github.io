@@ -524,3 +524,12 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 [https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s](https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s)
 
+2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
+
+[https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals](https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals)
+
+[https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?](https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?)
+
+[https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146](https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146)
+
+

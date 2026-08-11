@@ -449,3 +449,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-10 Three-quarters of England entered drought status and had to place 27M people under water use restrictions. 
 
 2026-08-10 Typhoon Dolphin made landfall in China 
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 

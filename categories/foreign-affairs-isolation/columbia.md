@@ -15,3 +15,9 @@ permalink: /categories/foreign-affairs-isolation/columbia/
 [https://www.democracynow.org/2026/8/10/headlines/right_wing_president_abelardo_de_la_espriella_sworn_in_as_colombias_president](https://www.democracynow.org/2026/8/10/headlines/right_wing_president_abelardo_de_la_espriella_sworn_in_as_colombias_president)
 
 [https://www.theguardian.com/world/2026/aug/08/us-promises-1bn-in-security-aid-to-colombia-as-new-rightwing-president-pledges-drugs-crackdown](https://www.theguardian.com/world/2026/aug/08/us-promises-1bn-in-security-aid-to-colombia-as-new-rightwing-president-pledges-drugs-crackdown)
+
+2026-08-11 Trump-supported new president of Columbia recognized Morocco sovereignty over occupied Western Sahara. Columbia froze diplomatic relations with the Saharawi Arab Democratic Republic. 
+
+[https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)
+
+[https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/](https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/)

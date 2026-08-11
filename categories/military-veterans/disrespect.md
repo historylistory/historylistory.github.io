@@ -264,12 +264,3 @@ CLAIMED GLITCH [https://www.usatoday.com/story/news/politics/2026/07/24/pentagon
 
 GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/](https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/)
 
-### 2026 August
-
-2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
-
-[https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846](https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846)
-
-[https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops](https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops)
-
-[https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s](https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s)

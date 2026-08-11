@@ -883,3 +883,9 @@ Next
 2026-08-07 Two federal judges sided with Trump to terminate TPS aid to Sudanese immigrants who will now face deportation. 
 
 2026-08-07 CoreCivic and GEO Group both reported a combined $1.4BN quarterly revenue over Trump’s immigration crackdown.
+
+2026-08-11 Haitian immigrants in Ohio are being forced to report to ICE appointments and wear ankle monitors. CNN identified one Haitian immigrant caught on video leaving an ICE facility collapsing to the ground in tears saying he fled Haiti fearing for his life. 
+
+2026-08-11 The Trump administration revoked over 175,000 visas. 
+
+2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 

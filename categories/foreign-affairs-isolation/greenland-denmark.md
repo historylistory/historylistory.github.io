@@ -77,3 +77,13 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 [https://www.youtube.com/watch?v=Grp1FQhSt00&list=WL&index=3](https://www.youtube.com/watch?v=Grp1FQhSt00&list=WL&index=3)
 
 [https://www.pbs.org/newshour/world/trump-again-demands-greenland-as-nato-unveils-military-projects-worth-billions-to-prove-its-firepower](https://www.pbs.org/newshour/world/trump-again-demands-greenland-as-nato-unveils-military-projects-worth-billions-to-prove-its-firepower)
+
+### 2026 August
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+[https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland](https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland)
+
+[https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)

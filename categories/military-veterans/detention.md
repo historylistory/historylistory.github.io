@@ -99,3 +99,21 @@ permalink: /categories/military-veterans/detention/
 [https://www.pbs.org/newshour/politics/watch-rep-magaziner-confronts-noem-with-deported-u-s-military-veteran-on-zoom-in-hearing](https://www.pbs.org/newshour/politics/watch-rep-magaziner-confronts-noem-with-deported-u-s-military-veteran-on-zoom-in-hearing)
 
 [https://abcnews.go.com/Politics/dhs-secretary-kristi-noem-confronted-veteran-contentious-hearing/story?id=128325824](https://abcnews.go.com/Politics/dhs-secretary-kristi-noem-confronted-veteran-contentious-hearing/story?id=128325824)
+
+### 2026 August
+
+2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
+
+[https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846](https://apnews.com/article/military-families-immigration-trump-detained-deported-3337173bff1f06153738c217da52e846)
+
+[https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops](https://www.theguardian.com/us-news/2026/aug/05/trump-immigration-crackdown-troops)
+
+[https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s](https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s)
+
+2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
+
+[https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals](https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals)
+
+[https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?](https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?)
+
+[https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146](https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146)

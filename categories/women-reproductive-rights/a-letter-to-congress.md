@@ -388,3 +388,5 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 ## 2026 August
 
 2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 
+
+2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 

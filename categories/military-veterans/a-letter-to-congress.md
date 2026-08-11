@@ -418,3 +418,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-08-05 Trump’s immigration crackdown has detained more than 50 military spouses and parents. 
 
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
+
+2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 

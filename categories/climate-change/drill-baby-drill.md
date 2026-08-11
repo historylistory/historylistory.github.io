@@ -137,3 +137,13 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
 
 [https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)
+
+### 2026 August
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+[https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland](https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland)
+
+[https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)

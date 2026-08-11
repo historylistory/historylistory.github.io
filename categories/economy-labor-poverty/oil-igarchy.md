@@ -271,3 +271,10 @@ SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-c
 
 [https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)
 
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+[https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland](https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland)
+
+[https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)

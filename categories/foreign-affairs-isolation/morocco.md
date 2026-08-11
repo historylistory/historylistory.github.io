@@ -51,3 +51,9 @@ permalink: /categories/foreign-affairs-isolation/morocco/
 [https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative](https://www.businessreport.com/article/baton-rouge-firm-awarded-contract-under-trumps-gaza-reconstruction-initiative)
 
 [https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza](https://www.democracynow.org/2026/8/7/headlines/gaza_board_of_peace_issues_construction_contract_for_military_outpost_in_gaza)
+
+2026-08-11 Trump-supported new president of Columbia recognized Morocco sovereignty over occupied Western Sahara. Columbia froze diplomatic relations with the Saharawi Arab Democratic Republic. 
+
+[https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)
+
+[https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/](https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/)

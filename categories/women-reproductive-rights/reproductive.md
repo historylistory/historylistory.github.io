@@ -615,3 +615,9 @@ GREAT VIDEO [https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5](https:
 THE CALL WAS POSTED THEN TAKEN DOWN [https://www.youtube.com/watch?v=GSgPBOlRyuU](https://www.youtube.com/watch?v=GSgPBOlRyuU)
 
 DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/](https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/)
+
+2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 
+
+[https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access](https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access)
+
+[https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/](https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/)

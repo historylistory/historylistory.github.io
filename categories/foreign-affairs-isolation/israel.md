@@ -548,3 +548,9 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+
+2026-08-11 Trump-supported new president of Columbia recognized Morocco sovereignty over occupied Western Sahara. Columbia froze diplomatic relations with the Saharawi Arab Democratic Republic. 
+
+[https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)
+
+[https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/](https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/)

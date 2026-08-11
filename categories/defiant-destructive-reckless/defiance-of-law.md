@@ -615,3 +615,12 @@ THE LAWSUIT, April 14 2026 [https://naacp.org/articles/naacp-sues-xai-illegal-po
 [https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
 
 SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)
+
+2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+[https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)
+
+[https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland](https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland)
+
+[https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)
+

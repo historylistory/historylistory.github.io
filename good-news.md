@@ -346,3 +346,9 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections](https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections)
 
 [https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/](https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/)
+
+2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 
+
+[https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access](https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access)
+
+[https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/](https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/)
