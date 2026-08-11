@@ -387,4 +387,6 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
 
+2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
 2026-08-10 An investigation revealed that participants of the Global Sumud Flotilla suffered beatings, electric shocks, fractured bones, gunshot wounds, a collapsed lung, taser wounds, and other forms of abuse from Israeli soldiers. 

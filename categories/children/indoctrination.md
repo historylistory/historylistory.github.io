@@ -175,3 +175,13 @@ h[ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-t
 [https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002](https://www.nbcnews.com/news/us-news/texas-board-approves-bible-stories-required-reading-public-schools-rcna352002)
 
 [https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/](https://www.texastribune.org/2026/06/22/texas-votes-bible-history-lessons-public-schools/)
+
+### 2026 August
+
+2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
+[https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding](https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding)
+
+[https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
+
+[https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)

@@ -653,5 +653,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. 
 
+2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
 2026-08-10 RFK held an event to target food supply and chemical additives. 
 

@@ -55,3 +55,13 @@ TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 [https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/](https://www.cpr.org/2026/07/17/colorado-ag-aurora-ice-detention-center-tuberculosis/)
 
 [https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/](https://coloradosun.com/2026/07/15/geo-group-immigration-detention-tuberculosis/)
+
+### 2026 August
+
+2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
+[https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding](https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding)
+
+[https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
+
+[https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
