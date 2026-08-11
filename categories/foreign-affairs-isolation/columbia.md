@@ -21,3 +21,10 @@ permalink: /categories/foreign-affairs-isolation/columbia/
 [https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)
 
 [https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/](https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/)
+
+2026-08-11 More than 160 are dead in Columbia after a 7.4 magnitude earthquake. 
+
+[https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709](https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709)
+
+[https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html](https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html)
+

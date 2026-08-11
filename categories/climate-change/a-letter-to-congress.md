@@ -438,7 +438,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
 
-2025-08-05 Guatemala evacuated as the Fuego volcano erupted. 
+2026-08-05 Guatemala evacuated as the Fuego volcano erupted. 
 
 2026-08-05 Romania is blasting riverbeds to release and redirect water due to drought and low water levels. 
 
@@ -451,3 +451,14 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-10 Typhoon Dolphin made landfall in China 
 
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+2026-08-11 More than 160 are dead in Columbia after a 7.4 magnitude earthquake. 
+
+2026-08-11 July was the hottest month in history. 
+
+2026-08-11 Lake Mead reached its lowest water level in history. 
+
+2026-08-11 Puerto Rico imposed a 48-hour rotating water schedule to combat water shortages. 
+
+2026-08-11 France imposed water use restrictions due to drought and climate change, while 2/3rds of the groundwater had fallen below normal levels. 
+

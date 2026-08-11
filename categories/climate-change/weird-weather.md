@@ -352,11 +352,7 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)
 
-2025-08-05 Guatemala evacuated as the Fuego volcano erupted. 
 
-[https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2](https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2)
-
-[https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala](https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala)
 
 2026-08-05 Romania is blasting riverbeds to release and redirect water due to drought and low water levels. 
 
@@ -375,3 +371,14 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.democracynow.org/2026/8/11/headlines/more_than_a_million_people_evacuated_as_typhoon_dolphin_makes_landfall_in_china](https://www.democracynow.org/2026/8/11/headlines/more_than_a_million_people_evacuated_as_typhoon_dolphin_makes_landfall_in_china)
 
 [https://www.nbcnews.com/world/asia/typhoon-dolphin-threatens-central-china-hubei-province-rcna591870](https://www.nbcnews.com/world/asia/typhoon-dolphin-threatens-central-china-hubei-province-rcna591870)
+
+2026-08-11 July was the hottest month in history. 
+
+[https://www.nasa.gov/news-release/nasa-clocks-july-2023-as-hottest-month-on-record-ever-since-1880/](https://www.nasa.gov/news-release/nasa-clocks-july-2023-as-hottest-month-on-record-ever-since-1880/)
+
+[https://www.theguardian.com/us-news/2026/aug/10/july-hottest-month-ever-recorded-heatwaves](https://www.theguardian.com/us-news/2026/aug/10/july-hottest-month-ever-recorded-heatwaves)
+
+[https://thehill.com/policy/energy-environment/6020840-july-hottest-month-noaa/](https://thehill.com/policy/energy-environment/6020840-july-hottest-month-noaa/)
+
+[https://www.pbs.org/newshour/nation/contiguous-u-s-broke-its-record-for-hottest-month-ever-in-july-noaa-says](https://www.pbs.org/newshour/nation/contiguous-u-s-broke-its-record-for-hottest-month-ever-in-july-noaa-says)
+

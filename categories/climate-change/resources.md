@@ -162,3 +162,27 @@ permalink: /categories/climate-change/resources/
 [https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july](https://www.gov.uk/government/news/more-areas-in-england-declared-in-drought-after-record-dry-july)
 
 [https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/](https://www.reuters.com/business/environment/almost-three-quarters-england-now-drought-uk-government-says-2026-08-10/)
+
+
+2026-08-11 Lake Mead reached its lowest water level in history. 
+
+[https://time.com/article/2026/08/10/lake-mead-low-water-level/](https://time.com/article/2026/08/10/lake-mead-low-water-level/)
+
+[https://mead.uslakes.info/Level/](https://mead.uslakes.info/Level/)
+
+2026-08-11 Puerto Rico imposed a 48-hour rotating water schedule to combat water shortages. 
+
+[https://mezha.net/eng/bukvy/91d54f3b_puerto_rico_imposes/](https://mezha.net/eng/bukvy/91d54f3b_puerto_rico_imposes/)
+
+[https://www.bbc.com/news/articles/cqlxgk7r2vwo](https://www.bbc.com/news/articles/cqlxgk7r2vwo)
+
+[https://www.riotimesonline.com/puerto-rico-water-rationing-san-juan-drought-2026/](https://www.riotimesonline.com/puerto-rico-water-rationing-san-juan-drought-2026/)
+
+2026-08-11 France imposed water use restrictions due to drought and climate change, while 2/3rds of the groundwater had fallen below normal levels. 
+
+[https://ukranews.com/en/news/1168128-drought-in-france-restrictions-imposed-on-70-of-country](https://ukranews.com/en/news/1168128-drought-in-france-restrictions-imposed-on-70-of-country)
+
+[https://www.euronews.com/my-europe/2026/08/10/drought-forces-water-restrictions-across-nearly-70-of-france-government-says](https://www.euronews.com/my-europe/2026/08/10/drought-forces-water-restrictions-across-nearly-70-of-france-government-says)
+
+
+

@@ -81,3 +81,17 @@ permalink: /categories/climate-change/disaster-recovery/
 2026-04-06 Trump’s FY27 budget will cut climate and disaster funding. 
 
 [https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/](https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/)
+
+### 2026 August
+
+2026-08-05 Guatemala evacuated as the Fuego volcano erupted. 
+
+[https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2](https://apnews.com/photo-gallery/guatemala-evacuates-communities-after-fuego-volcano-erupts-photos-bf23164625284f5ea083ec9dc9e61da2)
+
+[https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala](https://unn.ua/en/news/hundreds-of-people-evacuated-due-to-the-eruption-of-the-fuego-volcano-in-guatemala)
+
+2026-08-11 More than 160 are dead in Columbia after a 7.4 magnitude earthquake. 
+
+[https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709](https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709)
+
+[https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html](https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html)
