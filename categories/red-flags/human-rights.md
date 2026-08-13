@@ -43,3 +43,12 @@ This is specifically for any Global Human Right council activity or events.
 [https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/](https://thehill.com/policy/international/5993955-us-diplomats-unsc-walkout/)
 
 [https://x.com/FranceONUGeneve/status/2081064968586232263](https://x.com/FranceONUGeneve/status/2081064968586232263)
+
+### 2026 August
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+[https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves](https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves)
+
+[https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
+

@@ -222,3 +222,7 @@ Bishop Budde also received multiple hostile and trolling attacks on social media
 [https://www.bbc.com/news/articles/cj63966j95yo](https://www.bbc.com/news/articles/cj63966j95yo)
 
 [https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/](https://www.cbsnews.com/news/trump-new-executive-orders-birthright-citizenship/)
+
+2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
+
+[https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue](https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue)

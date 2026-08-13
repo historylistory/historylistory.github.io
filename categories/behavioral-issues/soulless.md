@@ -1061,3 +1061,17 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
 
 [https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+[https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves](https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves)
+
+[https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
+
+
+2026-08-13 Multiple simultaneous executions were scheduled in Alabama, Oklahoma and Tennessee. In the case of the person in Tennessee, the attorney warned he could face cruel and unusual punishment as the physician tasked to oversee the execution was not qualified to insert the death needle. That physician oversaw a failed execution before and had struggled for an hour to insert the needle. 
+
+[https://www.nbcnews.com/news/us-news/failed-execution-tennessee-death-penalty-row-prison-rcna592093](https://www.nbcnews.com/news/us-news/failed-execution-tennessee-death-penalty-row-prison-rcna592093)
+
+[https://www.democracynow.org/2026/8/12/headlines/us_could_see_three_executions_in_same_day_for_first_time_since_2010](https://www.democracynow.org/2026/8/12/headlines/us_could_see_three_executions_in_same_day_for_first_time_since_2010)
+

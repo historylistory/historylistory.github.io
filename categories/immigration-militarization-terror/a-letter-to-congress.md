@@ -891,3 +891,7 @@ Next
 2026-08-11 The Trump administration revoked over 175,000 visas. 
 
 2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 

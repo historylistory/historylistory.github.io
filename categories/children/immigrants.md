@@ -124,3 +124,8 @@ permalink: /categories/children/immigrants/
 
 [https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation](https://www.democracynow.org/2026/8/6/headlines/federal_lawsuit_accuses_trump_admin_of_targeting_children_for_deportation)
 
+2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
+
+[https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue](https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue)
+
+

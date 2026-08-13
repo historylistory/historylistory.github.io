@@ -427,3 +427,10 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker](https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker)
 
 [https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf](https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf)
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+[https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves](https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves)
+
+[https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
+

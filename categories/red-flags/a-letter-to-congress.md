@@ -395,3 +395,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
 
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+

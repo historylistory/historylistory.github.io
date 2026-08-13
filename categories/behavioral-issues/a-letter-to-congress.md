@@ -649,3 +649,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
 
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+2026-08-13 Multiple simultaneous executions were scheduled in Alabama, Oklahoma and Tennessee. In the case of the person in Tennessee, the attorney warned he could face cruel and unusual punishment as the physician tasked to oversee the execution was not qualified to insert the death needle. That physician oversaw a failed execution before and had struggled for an hour to insert the needle. 

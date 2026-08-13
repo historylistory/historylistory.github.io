@@ -462,3 +462,12 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.commondreams.org/news/tom-homan-bloodshed](https://www.commondreams.org/news/tom-homan-bloodshed)
 
 [https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada](https://www.democracynow.org/2026/7/17/headlines/rights_groups_demand_probe_of_ice_violently_attempting_arrest_of_elderly_man_in_nevada)
+
+### 2026 August
+
+2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
+
+[https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves](https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves)
+
+[https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
+

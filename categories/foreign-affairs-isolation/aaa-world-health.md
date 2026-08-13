@@ -172,3 +172,9 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 
 [https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/](https://www.reuters.com/world/africa/us-government-map-africa-mislabels-every-country-global-conference-2026-07-30/)
 
+### 2026 August
+
+2026-08-07 Ebola cases in the Democratic Republic of Congo surpassed 4000. 
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-infections-rise-above-4000-first-time-outbreak-2026-08-07/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-infections-rise-above-4000-first-time-outbreak-2026-08-07/)
+

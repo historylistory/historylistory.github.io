@@ -422,4 +422,13 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2](https://www.youtube.com/watch?v=e8ZjNAukwtU&list=WL&index=2)
 
+### 2026 August
+
+2026-08-12 A federal judge in Boston blocked the USPS from enforcing part of Trump’s EO to change voting rules on ballots before midterms. 
+
+[https://thehill.com/regulation/court-battles/6023907-judge-blocks-usps-trump-voter-order/](https://thehill.com/regulation/court-battles/6023907-judge-blocks-usps-trump-voter-order/)
+
+[https://www.aclu.org/press-releases/federal-court-blocks-u-s-postal-service-from-implementing-executive-order-restricting-mail-voting](https://www.aclu.org/press-releases/federal-court-blocks-u-s-postal-service-from-implementing-executive-order-restricting-mail-voting)
+
+
 

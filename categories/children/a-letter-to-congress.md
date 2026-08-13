@@ -377,3 +377,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
 
 2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
+
+2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
