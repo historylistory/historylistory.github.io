@@ -134,7 +134,10 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 2024-06-22 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC.
 
+[https://www.cnn.com/2024/06/24/opinions/trump-ufc-migrant-fighting-obeidallah](https://www.cnn.com/2024/06/24/opinions/trump-ufc-migrant-fighting-obeidallah)
+
 {% include youtubePlayer.html id="bZvTStL5GB8" %}
+
 
 ### 2024 August
 
@@ -265,6 +268,8 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 2025-06-16 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X. The post was captioned with “This is what happens when Marxists don’t get their way” and a second post “Nightmare on Waltz Street”. The posts have since been taken down.
 
 {% include youtubePlayer.html id="Ot31E4JGglk" %}
+
+[https://www.theguardian.com/us-news/2025/sep/11/republican-senator-mike-lee-kirk-shooting-melissa-hortman](https://www.theguardian.com/us-news/2025/sep/11/republican-senator-mike-lee-kirk-shooting-melissa-hortman)
 
 2025-06-17 After the politically motivated assassinations Trump refused to contact Tim Walz, saying, “I think the governor is so whacked out, why would I call him”, “the guy doesn’t have a clue, he’s a mess”, and “why waste time”.
 
