@@ -28,3 +28,8 @@ permalink: /categories/foreign-affairs-isolation/columbia/
 
 [https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html](https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html)
 
+2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
+
+[https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
+
+[https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)

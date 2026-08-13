@@ -105,3 +105,11 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 [https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383](https://apnews.com/article/hegseth-pentagon-testosterone-testing-troops-47333bbf3af9e4cac432722332ff1383)
 
 [https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth](https://www.theguardian.com/us-news/2026/jul/15/us-military-testosterone-screening-hegseth)
+
+### 2026 August
+
+2026-08-12 Concern grew over food shortages and poor conditions aboard the USS Abraham Lincoln including incidents of attempted suicide which the Navy denied. 
+
+[https://www.bbc.com/news/articles/cyvl2d5j52lo](https://www.bbc.com/news/articles/cyvl2d5j52lo)
+
+[https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)

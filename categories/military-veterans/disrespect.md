@@ -264,3 +264,10 @@ CLAIMED GLITCH [https://www.usatoday.com/story/news/politics/2026/07/24/pentagon
 
 GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/](https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-operations-casualties/)
 
+### 2026 August
+
+2026-08-12 Concern grew over food shortages and poor conditions aboard the USS Abraham Lincoln including incidents of attempted suicide which the Navy denied. 
+
+[https://www.bbc.com/news/articles/cyvl2d5j52lo](https://www.bbc.com/news/articles/cyvl2d5j52lo)
+
+[https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)

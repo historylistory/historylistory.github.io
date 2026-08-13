@@ -609,3 +609,9 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+
+2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
+
+[https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
+
+[https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)

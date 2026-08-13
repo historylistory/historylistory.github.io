@@ -2101,3 +2101,9 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 2026-08-10 Trump countered Iran’s demands for reparations and removal of sanctions by demanding money in turn for casualties. 
 
 [https://thehill.com/homenews/6020786-trump-demands-iran-compensation/](https://thehill.com/homenews/6020786-trump-demands-iran-compensation/)
+
+2026-08-11 Allegedly Trump was smuggled off the Qatari jet onto a food truck during a threat in Turkey. 
+
+[https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return](https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return)
+
+[https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/](https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/)

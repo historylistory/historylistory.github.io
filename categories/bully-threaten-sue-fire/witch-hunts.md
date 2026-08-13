@@ -246,3 +246,14 @@ PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/ne
 [https://www.instagram.com/reels/DbtF6cIDdkk/](https://www.instagram.com/reels/DbtF6cIDdkk/)
 
 TIMESTAMP 6:55 [https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s](https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s)
+
+2026-08-12 The attorney for Southern Poverty Law’s Heidi Beirich stated, “A free and fair society does not use the justice system to silence its political opponents. Heidi Beirich has dedicated her life to fighting hate groups and extremist movements like the KKK, neo-Nazis, and other white supremacists. Her decades-long record of success dismantling hate groups – and the resulting threats to her life – speak volumes. For this, she has been indicted.”
+
+[https://www.nbcnews.com/politics/justice-department/extremism-expert-charged-case-targeting-southern-poverty-law-centers-u-rcna592198](https://www.nbcnews.com/politics/justice-department/extremism-expert-charged-case-targeting-southern-poverty-law-centers-u-rcna592198)
+
+[https://www.democracynow.org/2026/8/13/headlines/doj_arrests_southern_poverty_law_centers_former_chief_financial_officer](https://www.democracynow.org/2026/8/13/headlines/doj_arrests_southern_poverty_law_centers_former_chief_financial_officer)
+
+[https://www.kcra.com/article/ex-southern-poverty-law-center-official-charged/73416191](https://www.kcra.com/article/ex-southern-poverty-law-center-official-charged/73416191)
+
+[https://www.aljazeera.com/news/2026/8/12/trump-administration-arrests-southern-poverty-law-center-expert-for-fraud](https://www.aljazeera.com/news/2026/8/12/trump-administration-arrests-southern-poverty-law-center-expert-for-fraud)
+

@@ -886,6 +886,8 @@ Next
 
 2026-08-07 CoreCivic and GEO Group both reported a combined $1.4BN quarterly revenue over Trump’s immigration crackdown.
 
+2026-08-08 Family of Pastor Gabriel Johnson reported he had a stroke just weeks after ICE detained him, and they have not let him see his family. 
+
 2026-08-11 Haitian immigrants in Ohio are being forced to report to ICE appointments and wear ankle monitors. CNN identified one Haitian immigrant caught on video leaving an ICE facility collapsing to the ground in tears saying he fled Haiti fearing for his life. 
 
 2026-08-11 The Trump administration revoked over 175,000 visas. 

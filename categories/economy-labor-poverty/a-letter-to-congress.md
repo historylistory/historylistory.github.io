@@ -1132,3 +1132,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
 
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 

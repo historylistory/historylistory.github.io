@@ -446,3 +446,12 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 [https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
 
 [https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)
+
+### 2026 August
+
+2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
+
+[https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
+
+[https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)
+

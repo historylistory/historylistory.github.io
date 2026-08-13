@@ -794,3 +794,14 @@ TIMESTAMP 4:45 [https://www.youtube.com/watch?v=XPMmvsc-wEw&list=WL&index=2&t=37
 [https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
 
 [https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)
+
+2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 
+
+[https://www.theguardian.com/us-news/2026/aug/11/samuel-alito-oil-gas-assets-supreme-court-analysis](https://www.theguardian.com/us-news/2026/aug/11/samuel-alito-oil-gas-assets-supreme-court-analysis)
+
+[https://www.theguardian.com/us-news/2026/aug/12/first-thing-anger-after-trumps-secret-flight-swap-appears-to-offer-up-staff-and-media-as-decoys](https://www.theguardian.com/us-news/2026/aug/12/first-thing-anger-after-trumps-secret-flight-swap-appears-to-offer-up-staff-and-media-as-decoys)
+
+ABOUT THAT CASE [https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/](https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/)
+
+THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/](https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/)
+

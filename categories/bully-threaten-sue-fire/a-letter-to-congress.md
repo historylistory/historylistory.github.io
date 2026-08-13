@@ -683,3 +683,5 @@ Manhattan grand jury in the hush-money case.
 2026-08-06 A Republican-led Senate panel voted to hold Dr. Anthony Fauci in contempt of Congress for invoking the 5th Amendment. 
 
 2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
+
+2026-08-12 The attorney for Southern Poverty Law’s Heidi Beirich stated, “A free and fair society does not use the justice system to silence its political opponents. Heidi Beirich has dedicated her life to fighting hate groups and extremist movements like the KKK, neo-Nazis, and other white supremacists. Her decades-long record of success dismantling hate groups – and the resulting threats to her life – speak volumes. For this, she has been indicted.”

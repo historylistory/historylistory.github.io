@@ -52,3 +52,8 @@ This is specifically for any Global Human Right council activity or events.
 
 [https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
 
+2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
+
+[https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
+
+[https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)

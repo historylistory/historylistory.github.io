@@ -524,6 +524,15 @@ TIMESTAMP 9:33 [https://www.youtube.com/watch?v=5yUjicp6VqU](https://www.youtube
 
 [https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s](https://www.youtube.com/watch?v=IArYk_gQm8M&list=WL&index=8&t=107s)
 
+2026-08-08 Family of Pastor Gabriel Johnson reported he had a stroke just weeks after ICE detained him, and they have not let him see his family. 
+
+[https://premierchristian.news/en/news/article/north-carolina-pastor-arrested-by-ice-suffers-stroke-in-detention](https://premierchristian.news/en/news/article/north-carolina-pastor-arrested-by-ice-suffers-stroke-in-detention)
+
+[https://www.newsobserver.com/news/local/counties/wake-county/article316806044.html](https://www.newsobserver.com/news/local/counties/wake-county/article316806044.html)
+
+[https://www.nbcnews.com/news/us-news/north-carolina-pastor-gabriel-johnson-suffers-stroke-ice-detention-fam-rcna590956](https://www.nbcnews.com/news/us-news/north-carolina-pastor-gabriel-johnson-suffers-stroke-ice-detention-fam-rcna590956)
+
+
 2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
 
 [https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals](https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals)

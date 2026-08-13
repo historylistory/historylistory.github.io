@@ -492,3 +492,10 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/](https://thehill.com/policy/defense/6014559-donald-trump-pete-hegseth-military-munitions-iran-war-clash-camp-david/)
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)
+
+2026-08-12 Concern grew over food shortages and poor conditions aboard the USS Abraham Lincoln including incidents of attempted suicide which the Navy denied. 
+
+[https://www.bbc.com/news/articles/cyvl2d5j52lo](https://www.bbc.com/news/articles/cyvl2d5j52lo)
+
+[https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)
+

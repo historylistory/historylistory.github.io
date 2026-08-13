@@ -481,3 +481,15 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/](https://www.reuters.com/world/americas/pollution-musks-unpermitted-xai-power-project-hits-hardest-black-communities-2026-07-14/)
 
 TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5)
+
+### 2026 August
+
+2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 
+
+[https://www.theguardian.com/us-news/2026/aug/11/samuel-alito-oil-gas-assets-supreme-court-analysis](https://www.theguardian.com/us-news/2026/aug/11/samuel-alito-oil-gas-assets-supreme-court-analysis)
+
+[https://www.theguardian.com/us-news/2026/aug/12/first-thing-anger-after-trumps-secret-flight-swap-appears-to-offer-up-staff-and-media-as-decoys](https://www.theguardian.com/us-news/2026/aug/12/first-thing-anger-after-trumps-secret-flight-swap-appears-to-offer-up-staff-and-media-as-decoys)
+
+ABOUT THAT CASE [https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/](https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/)
+
+THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/](https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/)

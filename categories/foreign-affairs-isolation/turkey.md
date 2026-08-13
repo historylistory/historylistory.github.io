@@ -29,3 +29,10 @@ permalink: /categories/foreign-affairs-isolation/turkey/
 [https://www.reuters.com/world/asia-pacific/saudi-arabia-turkey-pakistan-sign-joint-defence-deal-amid-regional-turmoil-2026-08-07/](https://www.reuters.com/world/asia-pacific/saudi-arabia-turkey-pakistan-sign-joint-defence-deal-amid-regional-turmoil-2026-08-07/)
 
 [https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c](https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c)
+
+2026-08-11 Allegedly Trump was smuggled off the Qatari jet onto a food truck during a threat in Turkey. 
+
+[https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return](https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return)
+
+[https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/](https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/)
+
