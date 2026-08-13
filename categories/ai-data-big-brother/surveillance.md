@@ -449,3 +449,19 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 [https://www.engadget.com/2222008/instagram-is-now-banning-users-who-make-creepy-content-with-meta-glasses/](https://www.engadget.com/2222008/instagram-is-now-banning-users-who-make-creepy-content-with-meta-glasses/)
 
 [https://www.theverge.com/report/970901/instagram-meta-glasses-prank-harassment-ban](https://www.theverge.com/report/970901/instagram-meta-glasses-prank-harassment-ban)
+
+### 2026 August
+
+2026-08-03 ICE is weaponizing social media to target critics. 
+
+[https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49](https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49)
+
+[https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html](https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html)
+
+[https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html](https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html)
+
+[https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/](https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/)
+
+PAY WALL [https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html](https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html)
+
+PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da](https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da)

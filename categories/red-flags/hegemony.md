@@ -87,3 +87,11 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un)
 
 [https://www.jpost.com/middle-east/article-900662](https://www.jpost.com/middle-east/article-900662)
+
+### 2026 August
+
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
+
+[https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/](https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/)
+
+[https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)

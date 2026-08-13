@@ -871,6 +871,8 @@ Next
 
 2026-08-01 An El Salvador man died at Delaney Hall from seizures. 
 
+2026-08-03 ICE is weaponizing social media to target critics. 
+
 2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
 
 

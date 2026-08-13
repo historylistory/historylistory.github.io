@@ -466,6 +466,9 @@ Technology should serve the public—not become a tool for political retaliation
 
 
 
+## 2026 August
+
+2026-08-03 ICE is weaponizing social media to target critics. 
 
 
 

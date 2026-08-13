@@ -134,6 +134,21 @@ NOEM MEMO [https://storage.courtlistener.com/recap/gov.uscourts.rid.59597/gov.us
 
 ### 2026 August
 
+2026-08-03 ICE is weaponizing social media to target critics. 
+
+[https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49](https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49)
+
+[https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html](https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html)
+
+[https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html](https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html)
+
+[https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/](https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/)
+
+PAY WALL [https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html](https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html)
+
+PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da](https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da)
+
+
 2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
 
 [https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals](https://www.democracynow.org/2026/8/11/headlines/state_department_revokes_more_than_175_000_visas_from_foreign_nationals)

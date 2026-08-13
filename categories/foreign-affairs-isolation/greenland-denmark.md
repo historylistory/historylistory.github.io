@@ -80,6 +80,12 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 ### 2026 August
 
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
+
+[https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/](https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/)
+
+[https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)
+
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 
 [https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)

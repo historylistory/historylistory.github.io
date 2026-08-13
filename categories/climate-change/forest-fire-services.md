@@ -99,6 +99,18 @@ permalink: /categories/climate-change/forest-fire-services/
 
 [https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests](https://www.democracynow.org/2026/4/29/nate_halverson_roundup_glyphosate_us_forests)
 
+### 2026 May 
+
+2026-05-13 Trump withheld firefighting funds in Washington State just before fire season. 
+
+[https://www.cantwell.senate.gov/news/press-releases/cantwell-grills-usfs-chief-on-trump-admin-withholding-wildfire-funds-crucial-for-wa-preparedness-ahead-of-peak-fire-season](https://www.cantwell.senate.gov/news/press-releases/cantwell-grills-usfs-chief-on-trump-admin-withholding-wildfire-funds-crucial-for-wa-preparedness-ahead-of-peak-fire-season)
+
+[https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)
+
+SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-washington-state-01028487](https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-washington-state-01028487)
+
+
+
 ### 2026 July
 
 2026-07-07 Utah’s Babylon Fire surpassed 100,000 acres, making it one of the largest wildfires in the nation. 

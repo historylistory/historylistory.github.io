@@ -342,6 +342,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-05-05 Ukrainian strikes reportedly produced “black rain” conditions in parts of Russia.
 
+2026-05-13 Trump withheld firefighting funds in Washington State just before fire season. 
+
 2026-05-18 The White House passed legislation for a national annual $130 registration fee for electric vehicles.
 
 2026-05-18 The EPA proposed eliminating drinking-water limits for four PFAS “forever chemicals” established in 2024 and extending utility compliance deadlines from 2029 to 2031.

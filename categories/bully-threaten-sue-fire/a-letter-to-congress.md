@@ -51,6 +51,10 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
 
+## 2015
+
+2015-01-01 Trump had it out for Penn Jillette. 
+
 ## 2016
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.

@@ -417,6 +417,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-05-13 The Senate rejected another war-powers resolution (the 7th time).
 
+2026-05-13 Trump withheld firefighting funds in Washington State just before fire season. 
+
 2026-05-14 The House failed to advance an Iran war-powers resolution after a 212–212 tie vote.
 
 2026-05-15 Trump announced a sculpture garden project in D.C.

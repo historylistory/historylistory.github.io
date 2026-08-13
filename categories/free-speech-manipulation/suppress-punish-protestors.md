@@ -424,6 +424,20 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 ### 2026 August
 
+2026-08-03 ICE is weaponizing social media to target critics. 
+
+[https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49](https://www.wsj.com/politics/policy/ice-surveillance-internet-critics-e3b22f49)
+
+[https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html](https://www.yahoo.com/news/politics/articles/ice-crawling-social-media-critics-011515510.html)
+
+[https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html](https://www.hindustantimes.com/world-news/how-ice-is-weaponizing-social-media-against-its-critics-101785835198968.html)
+
+[https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/](https://thecurrency.news/articles/235318/how-ice-is-weaponizing-social-media-against-its-critics/)
+
+PAY WALL [https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html](https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html)
+
+PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da](https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da)
+
 2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
 
 [https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota](https://www.theguardian.com/us-news/ng-interactive/2026/aug/06/professor-israel-gaza-university-of-minnesota)

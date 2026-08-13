@@ -638,8 +638,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 ## 2026 August 
 
-2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
 
+2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
 
 2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
 

@@ -850,6 +850,13 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 
 ### 2026 August
 
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
+
+[https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/](https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/)
+
+[https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)
+
+
 2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
 
 [https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
