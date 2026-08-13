@@ -434,3 +434,12 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 
 [https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
 
+2026-08-12 ICE pulled a gun on an unarmed Virginia woman, claiming she tried to weaponize her vehicle. Her dashcam video would not corroborate their claims. 
+
+[https://www.youtube.com/watch?v=-nzEO3VYRzk&list=WL&index=4](https://www.youtube.com/watch?v=-nzEO3VYRzk&list=WL&index=4)
+
+[https://www.nbcnews.com/video/ice-agent-pulls-gun-on-virginia-woman-who-yelled-at-them-in-parking-lot-268182597586](https://www.nbcnews.com/video/ice-agent-pulls-gun-on-virginia-woman-who-yelled-at-them-in-parking-lot-268182597586)
+
+[https://abcnews.com/US/virginia-woman-ice-agent-pointed-gun-denies-run/story?id=135596884](https://abcnews.com/US/virginia-woman-ice-agent-pointed-gun-denies-run/story?id=135596884)
+
+PAY WALL [https://www.cnn.com/2026/08/12/us/ice-agent-points-gun-virginia-woman-video](https://www.cnn.com/2026/08/12/us/ice-agent-points-gun-virginia-woman-video)

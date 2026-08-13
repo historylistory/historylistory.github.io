@@ -171,3 +171,11 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.cbsnews.com/news/qdoba-jalapenos-salmonella-outbreak-affects-dozens-of-states/](https://www.cbsnews.com/news/qdoba-jalapenos-salmonella-outbreak-affects-dozens-of-states/)
 
 [https://globalnews.ca/news/12011438/u-s-salmonella-outbreak-linked-to-jalapenos/](https://globalnews.ca/news/12011438/u-s-salmonella-outbreak-linked-to-jalapenos/)
+
+2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
+
+[https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-salmonella-jalapeno-august-2026](https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-salmonella-jalapeno-august-2026)
+
+[https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/](https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/)
+
+[https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html](https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html)

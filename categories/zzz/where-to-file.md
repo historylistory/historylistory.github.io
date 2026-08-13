@@ -28,3 +28,7 @@ permalink: /categories/zzz/where-to-file/
 
 [https://www.politico.com/live-updates/2026/08/07/congress/todd-blanche-senate-confirmation-01029751](https://www.politico.com/live-updates/2026/08/07/congress/todd-blanche-senate-confirmation-01029751)
 
+2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
+
+[https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223](https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223)
+

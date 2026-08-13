@@ -465,3 +465,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-11 France imposed water use restrictions due to drought and climate change, while 2/3rds of the groundwater had fallen below normal levels. 
 
 2026-08-12 Thousands of people were evacuated as wildfires tore through Washington State. 
+
+2026-08-12 Floodwaters submerged the Midwest. 

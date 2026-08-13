@@ -59,3 +59,14 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 [https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
 
 [https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)
+
+### 2026 August
+
+2026-08-04 Count Binface (Jonathan Harvey) upended British politics. 
+
+[https://time.com/article/2026/08/12/count-binface-interview-nigel-farage-british-politics-clacton-byelection/](https://time.com/article/2026/08/12/count-binface-interview-nigel-farage-british-politics-clacton-byelection/)
+
+[https://theconversation.com/count-binface-why-britains-joke-election-candidates-deserve-to-be-taken-seriously-287537](https://theconversation.com/count-binface-why-britains-joke-election-candidates-deserve-to-be-taken-seriously-287537)
+
+[https://www.pbs.org/newshour/politics/nigel-farage-faces-off-against-count-binface-in-special-election-thats-been-denounced-as-a-stunt](https://www.pbs.org/newshour/politics/nigel-farage-faces-off-against-count-binface-in-special-election-thats-been-denounced-as-a-stunt)
+

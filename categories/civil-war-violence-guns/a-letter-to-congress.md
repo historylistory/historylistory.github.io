@@ -666,3 +666,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
 
 2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
+
+2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 

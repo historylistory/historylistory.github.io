@@ -385,3 +385,9 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.pbs.org/newshour/nation/contiguous-u-s-broke-its-record-for-hottest-month-ever-in-july-noaa-says](https://www.pbs.org/newshour/nation/contiguous-u-s-broke-its-record-for-hottest-month-ever-in-july-noaa-says)
 
+2026-08-12 Floodwaters submerged the Midwest. 
+
+[https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/](https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/)
+
+[https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/](https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/)
+

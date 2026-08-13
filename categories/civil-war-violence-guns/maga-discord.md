@@ -616,3 +616,6 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegs
 
 [https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/](https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/)
 
+2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
+
+[https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223](https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223)

@@ -285,3 +285,10 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/](https://thehill.com/policy/healthcare/6020443-fda-tightens-food-safety-rules/)
 
+2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
+
+[https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-salmonella-jalapeno-august-2026](https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-salmonella-jalapeno-august-2026)
+
+[https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/](https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/)
+
+[https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html](https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html)

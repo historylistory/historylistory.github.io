@@ -235,3 +235,13 @@ TRANSCRIPT [https://www.realclearpolitics.com/video/2026/07/24/watch_president_d
 KAITLAN COLLINS [https://www.youtube.com/watch?v=nQjg_TtO71o](https://www.youtube.com/watch?v=nQjg_TtO71o)
 
 KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech](https://www.advocate.com/politics/national/trump-hijacks-correspondents-dinner-speech)
+
+### 2026 August
+
+2026-08-12 Caitlin Clark spoke out against a recent influx of racist, misogynistic, transphobic and abusive online hate speech directed at the WNBA.
+
+[https://www.espn.com/wnba/story/_/id/49260740/caitlin-clark-condemns-hatred-says-sunday-back](https://www.espn.com/wnba/story/_/id/49260740/caitlin-clark-condemns-hatred-says-sunday-back)
+
+[https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html](https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html)
+
+[https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba](https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba)
