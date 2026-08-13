@@ -390,3 +390,11 @@ PAY WALL [https://www.nytimes.com/2026/07/11/us/politics/how-marco-rubio-runs-ve
 [https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html](https://www.the-independent.com/news/world/americas/us-politics/trump-drug-boat-strikes-cocaine-b3022340.html)
 
 SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/](https://www.washingtonpost.com/world/2026/07/27/operation-southern-spear-has-not-slowed-cocaine-entering-us/)
+
+### 2026 August
+
+2026-08-13 Ecuador fishermen reported they were being attacked by English-speaking assailants using drones and reported known fishing boats have been seemingly lost at sea and presumed dead. Survivors reported the assailants wore matching uniforms with American flag patches. 
+
+[https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants](https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants)
+
+FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors](https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors)

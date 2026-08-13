@@ -3,7 +3,7 @@ layout: subcategory
 title: Human Rights
 category_slug: red-flags
 subcategory_slug: human-rights
-permalink: /categories/foreign-affairs-isolation/red-flags/
+permalink: /categories/foreign-affairs-isolation/human-rights/
 ---
 
 ### Comment

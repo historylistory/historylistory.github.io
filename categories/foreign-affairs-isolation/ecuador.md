@@ -30,3 +30,11 @@ permalink: /categories/foreign-affairs-isolation/ecuador/
 [https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/](https://peoplesdispatch.org/2026/05/05/hondurasgate-leaked-audio-links-asfura-hernandez-trump-milei-netanyahu-in-anti-left-plot/)
 
 TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
+
+### 2026 August
+
+2026-08-13 Ecuador fishermen reported they were being attacked by English-speaking assailants using drones and reported known fishing boats have been seemingly lost at sea and presumed dead. Survivors reported the assailants wore matching uniforms with American flag patches. 
+
+[https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants](https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants)
+
+FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors](https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors)

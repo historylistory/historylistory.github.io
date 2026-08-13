@@ -615,3 +615,10 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 [https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
 
 [https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)
+
+2026-08-13 Ecuador fishermen reported they were being attacked by English-speaking assailants using drones and reported known fishing boats have been seemingly lost at sea and presumed dead. Survivors reported the assailants wore matching uniforms with American flag patches. 
+
+[https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants](https://www.democracynow.org/2026/8/13/headlines/nyt_fishermen_in_ecuador_report_attacks_by_english_speaking_assailants)
+
+FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors](https://www.theguardian.com/global-development/2026/apr/21/ecuador-us-boat-strike-survivors)
+

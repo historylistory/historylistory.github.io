@@ -443,3 +443,10 @@ UNVERIFIED [https://gazettengr.com/riots-break-out-in-new-york-as-ice-agents-arr
 [https://abcnews.com/US/virginia-woman-ice-agent-pointed-gun-denies-run/story?id=135596884](https://abcnews.com/US/virginia-woman-ice-agent-pointed-gun-denies-run/story?id=135596884)
 
 PAY WALL [https://www.cnn.com/2026/08/12/us/ice-agent-points-gun-virginia-woman-video](https://www.cnn.com/2026/08/12/us/ice-agent-points-gun-virginia-woman-video)
+
+2026-08-12 An ICE agent filed pushing an elderly person last year pleaded guilty to battery. In December he assaulted a 68-year-old man in a gas station parking lot. 
+
+[https://www.democracynow.org/2026/8/13/headlines/ice_agent_filmed_pushing_an_elderly_activist_pleads_guilty_to_misdemeanor_battery_charge](https://www.democracynow.org/2026/8/13/headlines/ice_agent_filmed_pushing_an_elderly_activist_pleads_guilty_to_misdemeanor_battery_charge)
+
+PAY WALL [https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html](https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilty.html)
+

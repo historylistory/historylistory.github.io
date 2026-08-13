@@ -399,3 +399,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
 
+2026-08-13 Ecuador fishermen reported they were being attacked by English-speaking assailants using drones and reported known fishing boats have been seemingly lost at sea and presumed dead. Survivors reported the assailants wore matching uniforms with American flag patches. 
+

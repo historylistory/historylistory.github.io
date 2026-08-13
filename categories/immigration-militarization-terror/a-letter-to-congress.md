@@ -899,3 +899,5 @@ Next
 2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
 
 2026-08-12 ICE pulled a gun on an unarmed Virginia woman, claiming she tried to weaponize her vehicle. Her dashcam video would not corroborate their claims. 
+
+2026-08-12 An ICE agent filed pushing an elderly person last year pleaded guilty to battery. In December he assaulted a 68-year-old man in a gas station parking lot. 
