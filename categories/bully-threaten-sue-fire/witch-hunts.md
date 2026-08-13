@@ -6,6 +6,14 @@ subcategory_slug: witch-hunts
 permalink: /categories/bully-threaten-sue-fire/witch-hunts/
 ---
 
+
+### 2017
+
+2017-05-01 Trump fired FBI Director James Comey, who oversaw the investigation into Russian interference in the 2016 election.
+
+[https://en.wikipedia.org/wiki/Dismissal_of_James_Comey](https://en.wikipedia.org/wiki/Dismissal_of_James_Comey)
+
+
 ### 2018
 
 
@@ -46,7 +54,17 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 [https://www.foxnews.com/video/6377384186112](https://www.foxnews.com/video/6377384186112)
 
+2025-08-27 Trump attempted to fire Lisa Cook, who sits on the rate-setting committee. Trump accused Cook of mortgage fraud, but Reuters posted an analysis of documents some analysts claim refute the claims.
+
+[https://en.wikipedia.org/wiki/Lisa_Cook](https://en.wikipedia.org/wiki/Lisa_Cook)
+
+
 ### 2025 September
+
+
+2025-09-20 Trump pressured Pam Bondi to prosecute three of his rivals: James Comey, Letitia James, and Adam Schiff.
+
+[https://truthsocial.com/@realDonaldTrump/posts/115239044548033727](https://truthsocial.com/@realDonaldTrump/posts/115239044548033727)
 
 2025-09-23 Karoline Leavitt announced plans to designate "Antifa" a domestic terrorist organization, citing a White House report linking various incidents of violence to left-wing activism. The September 22 2025 press release begins “President Donald J. Trump is right: the violence problem is on the Left”.
 
@@ -193,6 +211,19 @@ TIMESTAMP 3:30 INTERVIEW [https://www.youtube.com/watch?v=ogFdQx4H98g&list=WL&in
 [https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/](https://thehill.com/homenews/senate/5733465-democratic-lawmakers-avoid-indictment/)
 
 [https://www.cbsnews.com/news/grand-jury-declines-charges-against-6-democrats/](https://www.cbsnews.com/news/grand-jury-declines-charges-against-6-democrats/)
+
+### 2026 April
+
+2026-04-28 Former FBI Director James Comey was indicted again over a 2025 social-media post after an earlier case had been dismissed. 
+
+[https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump](https://www.justice.gov/opa/pr/federal-grand-jury-indicts-former-fbi-director-james-comey-threats-harm-president-trump)
+
+[https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief](https://www.foxnews.com/live-news/james-comey-indicted-again-as-doj-probe-deepens-into-ex-fbi-chief)
+
+[https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment](https://www.npr.org/2026/04/28/nx-s1-5803167/james-comey-indictment)
+
+PAY WALL [https://www.bbc.com/news/articles/cvgz4rvlem5o](https://www.bbc.com/news/articles/cvgz4rvlem5o)
+
 
 ### 2026 May
 
