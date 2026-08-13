@@ -647,3 +647,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
 
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 

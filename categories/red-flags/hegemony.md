@@ -95,3 +95,11 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/](https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/)
 
 [https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)
+
+2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
+
+[https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s](https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s)
+
+[https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear](https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear)
+
+[https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html](https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html)

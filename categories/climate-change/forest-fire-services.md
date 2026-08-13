@@ -164,3 +164,13 @@ PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health
 2026-08-03 Two firefighters died in Athens Greece after firefighting helicopters collied. 
 
 [https://www.bbc.com/news/live/cqjxeexpenzt](https://www.bbc.com/news/live/cqjxeexpenzt)
+
+2026-08-12 Thousands of people were evacuated as wildfires tore through Washington State. 
+
+[https://www.theguardian.com/us-news/2026/aug/10/us-wildfires-pacific-north-west](https://www.theguardian.com/us-news/2026/aug/10/us-wildfires-pacific-north-west)
+
+[https://www.youtube.com/watch?v=zoYrLNQsnVM](https://www.youtube.com/watch?v=zoYrLNQsnVM)
+
+[https://www.facebook.com/watch/?v=2413085845847662](https://www.facebook.com/watch/?v=2413085845847662)
+
+[https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)

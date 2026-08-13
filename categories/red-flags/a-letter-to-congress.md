@@ -393,3 +393,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-10 An investigation revealed that participants of the Global Sumud Flotilla suffered beatings, electric shocks, fractured bones, gunshot wounds, a collapsed lung, taser wounds, and other forms of abuse from Israeli soldiers. 
 
+2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
+

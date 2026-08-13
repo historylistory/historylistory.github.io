@@ -662,3 +662,7 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+[https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)

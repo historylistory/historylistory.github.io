@@ -554,3 +554,7 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 [https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)
 
 [https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/](https://www.democrata.es/en/international/expansion-colombia-annuls-recognition-of-the-sahrawi-arab-democratic-republic-and-freezes-its-ties/)
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+[https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)

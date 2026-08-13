@@ -86,6 +86,15 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 [https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)
 
+2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
+
+[https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s](https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s)
+
+[https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear](https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear)
+
+[https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html](https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html)
+
+
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 
 [https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/](https://globalnews.ca/news/12015693/us-oil-firm-drilling-equipment-greenland/)
@@ -93,3 +102,4 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 [https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland](https://www.democracynow.org/2026/8/11/headlines/trump_linked_oil_company_preparing_to_drill_in_greenland)
 
 [https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)
+

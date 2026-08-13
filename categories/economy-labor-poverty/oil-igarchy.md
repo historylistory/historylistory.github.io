@@ -249,6 +249,12 @@ SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-c
 
 ### 2026 August
 
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
+
+[https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/](https://euperspectives.eu/2026/08/trump-greenland-us-control-by-2029/)
+
+[https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill](https://www.theguardian.com/world/2026/aug/08/greenland-iwarning-trump-linked-oil-firm-prepares-drill)
+
 2026-08-04 Oil company BP reported making $6B between April and June. 
 
 [https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran](https://www.democracynow.org/2026/8/4/headlines/oil_companies_report_soaring_profits_amid_us_war_on_iran)
@@ -270,6 +276,15 @@ SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-c
 [https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/](https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/)
 
 [https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)
+
+
+2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
+
+[https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s](https://www.youtube.com/watch?v=0gIyefnA--M&list=WL&index=4&t=362s)
+
+[https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear](https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear)
+
+[https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html](https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html)
 
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 

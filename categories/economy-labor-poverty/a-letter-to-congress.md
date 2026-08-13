@@ -1108,6 +1108,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 ## August
 
+2026-08-01 Trump posted an AI generated image of his face looming over the coast of Greenland captioned “Hello, Greenland!”. 
+
 2026-08-04 Oil company BP reported making $6B between April and June. 
 
 
@@ -1126,5 +1128,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
 
 2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 
+
+2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
 
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 

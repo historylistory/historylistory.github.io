@@ -1057,3 +1057,7 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker](https://www.theguardian.com/us-news/2026/jul/28/trump-administration-forced-treatment-ice-hunger-striker)
 
 [https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf](https://www.aclu.org/wp-content/uploads/publications/aclu_phr_behind_closed_doors_final_1.pdf)
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+[https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)

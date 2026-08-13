@@ -82,6 +82,16 @@ permalink: /categories/climate-change/disaster-recovery/
 
 [https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/](https://www.smartcitiesdive.com/news/trump-fy27-budget-slashes-climate-disaster-funding-costs-to-cities/816696/)
 
+### 2026 May 
+
+2026-05-13 Trump withheld firefighting funds in Washington State just before fire season. 
+
+[https://www.cantwell.senate.gov/news/press-releases/cantwell-grills-usfs-chief-on-trump-admin-withholding-wildfire-funds-crucial-for-wa-preparedness-ahead-of-peak-fire-season](https://www.cantwell.senate.gov/news/press-releases/cantwell-grills-usfs-chief-on-trump-admin-withholding-wildfire-funds-crucial-for-wa-preparedness-ahead-of-peak-fire-season)
+
+[https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)
+
+SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-washington-state-01028487](https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-washington-state-01028487)
+
 ### 2026 August
 
 2026-08-05 Guatemala evacuated as the Fuego volcano erupted. 
@@ -95,3 +105,14 @@ permalink: /categories/climate-change/disaster-recovery/
 [https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709](https://www.nbcnews.com/world/latin-america/strong-earthquake-colombia-ecuador-people-evacuating-homes-buildings-rcna591709)
 
 [https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html](https://www.independent.co.uk/news/world/americas/colombia-earthquake-choco-bogota-venezuela-b3030930.html)
+
+2026-08-12 Thousands of people were evacuated as wildfires tore through Washington State. 
+
+[https://www.theguardian.com/us-news/2026/aug/10/us-wildfires-pacific-north-west](https://www.theguardian.com/us-news/2026/aug/10/us-wildfires-pacific-north-west)
+
+[https://www.youtube.com/watch?v=zoYrLNQsnVM](https://www.youtube.com/watch?v=zoYrLNQsnVM)
+
+[https://www.facebook.com/watch/?v=2413085845847662](https://www.facebook.com/watch/?v=2413085845847662)
+
+[https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)
+

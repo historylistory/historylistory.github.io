@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Conservative Manipulation
+title: Conservative Propaganda
 category_slug: free-speech-manipulation
-subcategory_slug: conservative-manipulation
-permalink: /categories/free-speech-manipulation/conservative-manipulation/
+subcategory_slug: conservative-propaganda
+permalink: /categories/free-speech-manipulation/conservative-propaganda/
 ---
 
 ### 1971
@@ -536,4 +536,15 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 [https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership](https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership)
 
 SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287](https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287)
+
+2026-08-11 Conservative media company Daily Wire released another propaganda movie manufacturing controversies about the WNBA and Zohran Mamdani. 
+
+[https://www.imdb.com/title/tt40231163/](https://www.imdb.com/title/tt40231163/)
+
+[https://www.dailywire.com/videos/run-hide-fight-infidels](https://www.dailywire.com/videos/run-hide-fight-infidels)
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+[https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)
+
 

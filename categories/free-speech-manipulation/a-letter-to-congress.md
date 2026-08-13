@@ -528,3 +528,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-08-06 University of Minnesota has paid $250,000 to the Israeli American historian Raz Segal. The lawsuit was over the school rescinding a job offer under pressure from donors who objected to Professor Segal’s accusation that Israel is committing genocide in Gaza. In a statement Professor Segal said, “This settlement represents a successful refusal to accept the world of lies that blur an ongoing genocide, and a commitment to continue the intertwined struggles for truth, justice, and accountability, in Palestine and on our campuses”. 
 
 2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
+
+2026-08-11 Conservative media company Daily Wire released another propaganda movie manufacturing controversies about the WNBA and Zohran Mamdani. 
+
+2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
