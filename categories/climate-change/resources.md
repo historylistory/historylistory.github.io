@@ -140,6 +140,8 @@ permalink: /categories/climate-change/resources/
 
 [https://www.bbc.com/news/articles/c78gn8zvrx4o](https://www.bbc.com/news/articles/c78gn8zvrx4o)
 
+[https://www.youtube.com/watch?v=JsfzRtbTa2w&list=WL&index=2](https://www.youtube.com/watch?v=JsfzRtbTa2w&list=WL&index=2)
+
 2026-08-05 Puerto Rico has had to enforce water rationing measures due to low water levels. 
 
 [https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73](https://apnews.com/article/puerto-rico-water-rationing-drought-shortage-901a4855761bb0ad188230960be25d73)
