@@ -130,39 +130,39 @@ The Justice Department is pushing to expand capital punishment, multiple executi
 
 SOME SOURCES 
 
-* MIGRANT UFC FIGHT June 22, 2024 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC https://www.cnn.com/2024/06/24/opinions/trump-ufc-migrant-fighting-obeidallah
+* MIGRANT UFC FIGHT June 22, 2024 Trump floated the idea of a “migrant UFC” league during a Faith and Freedom conference in DC [CNN.com](https://www.cnn.com/2024/06/24/opinions/trump-ufc-migrant-fighting-obeidallah)
 
-* NO SAMARITANS June 30, 2025 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money
+* NO SAMARITANS June 30, 2025 DeSantis vetoed stormwater funding, homeless housing, $200,000 for a Samaritan Resource Center program, and $400,000 for the Transition House Homeless Veterans Program in Osceola County [Click Orlando.com](https://www.clickorlando.com/news/politics/2025/06/30/desantis-vetoed-nearly-14b-from-the-budget-heres-which-central-florida-projects-lost-money)
 
-* ROBERT MUELLER March 21, 2026 Trump publicly celebrated Robert Mueller’s death, “Robert Mueller just died. Good, I’m glad he’s dead. https://www.usatoday.com/story/news/politics/2026/03/21/trump-responds-robert-mueller-death/89263401007
+* ROBERT MUELLER March 21, 2026 Trump publicly celebrated Robert Mueller’s death, “Robert Mueller just died. Good, I’m glad he’s dead. [USA Today.com](https://www.usatoday.com/story/news/politics/2026/03/21/trump-responds-robert-mueller-death/89263401007)
 
-* USAID STOCKPILES July 14, 2025 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532
+* USAID STOCKPILES July 14, 2025 The Trump administration allowed USAID food stocks for starving children to expire and be incinerated [The Atlantic.com](https://www.theatlantic.com/health/archive/2025/07/usaid-emergency-food-incinerate-trump/683532)
 
-* IN THE SHROUD OF NIGHT August 31, 2025 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala
+* IN THE SHROUD OF NIGHT August 31, 2025 In the shroud of night, Kristi Noem ordered ICE agents to load a plane up with Guatemalan children for deportation [PBS.org](https://www.pbs.org/newshour/show/court-blocks-deportation-flights-of-unaccompanied-minors-to-guatemala)
 
-* VALENTINES DAY February 14, 2025 The White House posted a Valentine’s Day deportation poem on X, “Roses are red, violets are blue. Come here illegally and we’ll deport you” https://x.com/WhiteHouse/status/1891922058415603980?lang=en
+* VALENTINES DAY February 14, 2025 The White House posted a Valentine’s Day deportation poem on X, “Roses are red, violets are blue. Come here illegally and we’ll deport you” [X.com @White House](https://x.com/WhiteHouse/status/1891922058415603980?lang=en)
 
-* HORTMAN MURDERS June 16, 2025 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X https://www.theguardian.com/us-news/2025/sep/11/republican-senator-mike-lee-kirk-shooting-melissa-hortman
+* HORTMAN MURDERS June 16, 2025 Utah Republican Senator Mike Lee mocked the murder of Melissa and Mark Hortman in a social media post on X [The Guardian.com](https://www.theguardian.com/us-news/2025/sep/11/republican-senator-mike-lee-kirk-shooting-melissa-hortman)
 
-* ALLIGATOR LIVES MATTER June 30, 2025 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”. https://x.com/LauraLoomer/status/1939831588902109629?lang=en
+* ALLIGATOR LIVES MATTER June 30, 2025 Laura Loomer posted, “Alligator lives matter. The good news is, alligators are guaranteed at least 65 million meals if we get started now”. [X.com @LauraLoomer](https://x.com/LauraLoomer/status/1939831588902109629?lang=en)
 
-* KILLING THE RIGHT PEOPLE October 31, 2025 Lindsey Grahm said, “We’re killing all the right people” at a Republican Jewish Coalition Summit in Las Vegas. https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties
+* KILLING THE RIGHT PEOPLE October 31, 2025 Lindsey Grahm said, “We’re killing all the right people” at a Republican Jewish Coalition Summit in Las Vegas. [New Republic.com](https://newrepublic.com/post/202606/lindsey-graham-republican-party-nick-fuentes-ties)
 
-* FRANKLIN THE TURTLE November 30, 2025 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes
+* FRANKLIN THE TURTLE November 30, 2025 Pete Hegseth used the children’s Franklin the Turtle character to post a violent meme of missiles being fired onto a boat [KOMO News.com](https://komonews.com/news/nation-world/hegseth-franklin-turtle-childrens-book-fighting-narcoterrorists-venezuela-president-donald-trump-department-of-war-defense-boat-strikes)
 
-* DEATH THREATS March 17, 2026 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4
+* DEATH THREATS March 17, 2026 Pastor Brooks Potteiger prayed for James Talarico’s death during a podcast [YouTube.com @Jesse Dollemore](https://www.youtube.com/watch?v=s2LhGaW2C44&list=WL&index=4)
 
-* DEFUNDING CHARITY April 16, 2026 The Trump administration defunded Catholic charities that provide shelter and care for migrant children https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled
+* DEFUNDING CHARITY April 16, 2026 The Trump administration defunded Catholic charities that provide shelter and care for migrant children [MS.Now](https://www.ms.now/opinion/pope-trump-vance-catholic-charities-contract-canceled)
 
-* EXPANDING CAPITAL PUNISHMENT April 24, 2026 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo https://www.npr.org/2026/04/25/g-s1-118767/pope-leo-trump-death-penalty
+* EXPANDING CAPITAL PUNISHMENT April 24, 2026 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo [NPR.org](https://www.npr.org/2026/04/25/g-s1-118767/pope-leo-trump-death-penalty)
 
-* MULTIPLE CAPITAL PUNISHMENTS August 13, 2026 Multiple simultaneous executions were scheduled  https://www.nbcnews.com/news/us-news/failed-execution-tennessee-death-penalty-row-prison-rcna592093
+* MULTIPLE CAPITAL PUNISHMENTS August 13, 2026 Multiple simultaneous executions were scheduled  [NBC News.com](https://www.nbcnews.com/news/us-news/failed-execution-tennessee-death-penalty-row-prison-rcna592093)
 
-* ERODING DISABILITY RIGHTS June 23, 2026 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights
+* ERODING DISABILITY RIGHTS June 23, 2026 Stephen Miller pushed a memo to institutionalize people with disabilities rather than fund community-based care [Bloomberg Law.com](https://news.bloomberglaw.com/us-law-week/stephen-miller-said-to-drive-doj-memo-eroding-disability-rights)
 
-* INVOLUNTARY MEDICAL PROCEDURES August 4, 2026 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures
+* INVOLUNTARY MEDICAL PROCEDURES August 4, 2026 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. [Democracy Now.org](https://www.democracynow.org/2026/8/4/headlines/guardian_at_least_10_hunger_striking_ice_detainees_subject_to_involuntary_medical_procedures)
 
-* ELECTRIC SHOCK GLOVES August 12, 2026 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves
+* ELECTRIC SHOCK GLOVES August 12, 2026 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC [Al Jazeera.com](https://www.aljazeera.com/news/2026/8/12/trump-administration-plans-to-give-ice-officers-electric-shock-gloves)
 
 
 # Answer 3
