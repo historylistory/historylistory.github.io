@@ -27,6 +27,15 @@ PAY WALL: [https://www.forbes.com/sites/stuartanderson/2018/03/06/senator-mike-l
 
 [https://www.aljazeera.com/news/2025/10/17/who-is-john-bolton-and-what-he-has-been-indicted-for](https://www.aljazeera.com/news/2025/10/17/who-is-john-bolton-and-what-he-has-been-indicted-for)
 
+### 2022 
+
+2022-03-16 Homophobic conservatives rejected conservative Dave Rubin because he is gay and planned to raise children with his partner. 
+
+[https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/](https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/)
+
+[https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e](https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e)
+
+
 
 ### 2023
 

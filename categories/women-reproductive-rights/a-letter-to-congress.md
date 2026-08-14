@@ -195,6 +195,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-09-08 Charlie Kirk answered a question if his ten-year-old daughter were pregnant from a rape if he would force pregnancy, “The answer is yes, the baby would be delivered.”
 
+2024-08-07 Daily Wire commentator and Project 2025 partner called surrogacy and IVF a crime, evil, and the most rotten thing a society can possibly do to children. 
+
 2024-09-10 Trump falsely claimed that Democrats support “after birth” abortions.
 
 2024-09-16 At least two women in Georgia were refused treatment for a medical condition and died due to anti-abortion laws.

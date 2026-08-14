@@ -138,6 +138,8 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 2022-01-01 Julie Kelly published “January 6: How Democrats Used the Capitol Protest to Launch a War on Terror Against the Political Right”. 
 
+2022-03-16 Homophobic conservatives rejected conservative Dave Rubin because he is gay and planned to raise children with his partner. 
+
 2022-03-29 Kash Patel published a politically biased children’s book The Plot Against the King, featuring King Donald, Hillary’s horrible plot, and Komey’s spying slugs.
 
 2022-05-24 George W. Bush survived at least 2 assassination attempts. 

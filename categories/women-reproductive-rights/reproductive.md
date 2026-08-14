@@ -311,6 +311,12 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
+### 2024 August
+
+2024-08-07 Daily Wire commentator and Project 2025 partner called surrogacy and IVF a crime, evil, and the most rotten thing a society can possibly do to children. 
+
+[https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten](https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten)
+
 
 ### 2024 September
 

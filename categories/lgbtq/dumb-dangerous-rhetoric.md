@@ -105,6 +105,15 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 [https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3](https://www.wbir.com/article/news/local/the-patriot-church-march-3-2023/51-b342a4d0-8cb5-4c0e-8bbe-49a7113a93f3)
 
+2023-03-06 The Daily Wire’s Michael Knowles stated that “transgenderism must be eradicated from public life entirely – the whole preposterous ideology, at every level”. 
+
+[https://www.hrc.org/press-releases/human-rights-campaign-extremists-at-cpac-laid-bare-hatred-at-root-of-vile-legislation-targeting-trans-people](https://www.hrc.org/press-releases/human-rights-campaign-extremists-at-cpac-laid-bare-hatred-at-root-of-vile-legislation-targeting-trans-people)
+
+[https://www.rollingstone.com/politics/politics-news/cpac-speaker-transgender-people-eradicated-1234690924/](https://www.rollingstone.com/politics/politics-news/cpac-speaker-transgender-people-eradicated-1234690924/)
+
+[https://www.acslaw.org/expertforum/we-are-all-transgender-now-on-resisting-tyranny/](https://www.acslaw.org/expertforum/we-are-all-transgender-now-on-resisting-tyranny/)
+
+
 ### 2024
 
 2024-04-01 Charlie Kirk said, “We need to have a Nuremberg-style trial for every gender-affirming clinic doctor. We need it immediately.”
@@ -149,6 +158,13 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 [https://en.wikipedia.org/wiki/Kamala_is_for_they/them](https://en.wikipedia.org/wiki/Kamala_is_for_they/them)
 
 [https://www.npr.org/2024/10/19/g-s1-28932/donald-trump-transgender-ads-kamala-harris](https://www.npr.org/2024/10/19/g-s1-28932/donald-trump-transgender-ads-kamala-harris)
+
+2024-09-26 Daily Wire host Michael Knowles commented frequently that same sex marriage and same sex parents were unfit and horrifying. 
+
+[https://www.advocate.com/news/michael-knowles-targets-lgbtq-familes](https://www.advocate.com/news/michael-knowles-targets-lgbtq-familes)
+
+[https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten](https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten)
+
 
 ### 2025 April
 

@@ -171,6 +171,17 @@ permalink: /categories/free-speech-manipulation/conservative-propaganda/
 
 ### 2024 September
 
+2024-09-04 Russian money was funneled to right-wing creators. 
+
+[https://www.nbcnews.com/politics/justice-department/russian-money-was-funneled-right-wing-creators-trump-media-outlet-pros-rcna169611](https://www.nbcnews.com/politics/justice-department/russian-money-was-funneled-right-wing-creators-trump-media-outlet-pros-rcna169611)
+
+[https://www.nbcnews.com/tech/internet/internets-popular-trump-pundits-ended-paid-messengers-russian-propagan-rcna169803](https://www.nbcnews.com/tech/internet/internets-popular-trump-pundits-ended-paid-messengers-russian-propagan-rcna169803)
+
+[https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say](https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say)
+
+[https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say](https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say)
+
+
 2024-09-11 Trump was recorded on Fox News requesting preferred anchors for the debate.
 
 [https://www.yahoo.com/news/trump-insults-fox-news-anchors-163830353.html](https://www.yahoo.com/news/trump-insults-fox-news-anchors-163830353.html)

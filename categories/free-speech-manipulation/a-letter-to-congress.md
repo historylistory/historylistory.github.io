@@ -163,6 +163,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 ## 2024 September 
 
+2024-09-04 Russian money was funneled to right-wing creators. 
+
 2024-09-11 Trump was recorded on Fox News requesting preferred anchors for the debate.
 
 ## 2024 October 

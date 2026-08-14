@@ -52,6 +52,13 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 ### 2022
 
+2022-03-16 Homophobic conservatives rejected conservative Dave Rubin because he is gay and planned to raise children with his partner. 
+
+[https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/](https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/)
+
+[https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e](https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e)
+
+
 2022-06-01 Matt Walsh was featured in the anti-gay propaganda film “What is a Woman”. In the documentary Walsh accused schools of child abuse for allowing gender identity. 
 
 [https://en.wikipedia.org/wiki/What_Is_a_Woman%3F](https://en.wikipedia.org/wiki/What_Is_a_Woman%3F)
@@ -82,6 +89,12 @@ permalink: /categories/lgbtq/bully-shame-hate-exclude/
 
 
 ### 2024
+
+2024-09-26 Daily Wire host Michael Knowles commented frequently that same sex marriage and same sex parents were unfit and horrifying. 
+
+[https://www.advocate.com/news/michael-knowles-targets-lgbtq-familes](https://www.advocate.com/news/michael-knowles-targets-lgbtq-familes)
+
+[https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten](https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten)
 
 2024-10-03 A Pennsylvania middle school installed surveillance windows in gender-inclusive bathrooms.
 

@@ -12,6 +12,18 @@ permalink: /categories/foreign-affairs-isolation/russia/
 
 [https://www.cnn.com/2025/04/25/politics/fact-check-trump-ukraine-war](https://www.cnn.com/2025/04/25/politics/fact-check-trump-ukraine-war)
 
+### 2024 
+
+2024-09-04 Russian money was funneled to right-wing creators. 
+
+[https://www.nbcnews.com/politics/justice-department/russian-money-was-funneled-right-wing-creators-trump-media-outlet-pros-rcna169611](https://www.nbcnews.com/politics/justice-department/russian-money-was-funneled-right-wing-creators-trump-media-outlet-pros-rcna169611)
+
+[https://www.nbcnews.com/tech/internet/internets-popular-trump-pundits-ended-paid-messengers-russian-propagan-rcna169803](https://www.nbcnews.com/tech/internet/internets-popular-trump-pundits-ended-paid-messengers-russian-propagan-rcna169803)
+
+[https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say](https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say)
+
+[https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say](https://www.pbs.org/newshour/politics/well-known-right-wing-influencers-duped-to-work-for-covert-russian-operation-u-s-prosecutors-say)
+
 ### 2025 February
 
 2025-02-26 Trump said the US spent $350B on the war in the Ukraine. According to other sources the actual figure was $185B.  

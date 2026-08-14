@@ -19,6 +19,14 @@ permalink: /categories/lgbtq/did-you-know/
 
 [https://thehill.com/homenews/house/425177-gabbard-worked-for-anti-lgbtq-group-run-by-her-father-report/](https://thehill.com/homenews/house/425177-gabbard-worked-for-anti-lgbtq-group-run-by-her-father-report/)
 
+### 2022
+
+2022-03-16 Homophobic conservatives rejected conservative Dave Rubin because he is gay and planned to raise children with his partner. 
+
+[https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/](https://www.forbes.com/sites/danidiplacido/2022/03/21/dave-rubin-is-being-rejected-by-his-own-audience/)
+
+[https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e](https://medium.com/prismnpen/gay-conservative-dave-rubin-excuses-maga-homophobia-d3aacc43432e)
+
 
 ### 2024
 

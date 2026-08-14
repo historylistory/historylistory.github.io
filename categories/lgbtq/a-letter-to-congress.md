@@ -99,6 +99,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 ## 2022 
 
+2022-03-16 Homophobic conservatives rejected conservative Dave Rubin because he is gay and planned to raise children with his partner. 
+
 2022-06-01 Matt Walsh was featured in the anti-gay propaganda film “What is a Woman”. In the documentary Walsh accused schools of child abuse for allowing gender identity. 
 
 ## 2023 
@@ -106,6 +108,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 2023-01-16 Conservatives claimed the green M&M is gay.
 
 2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
+
+2023-03-06 The Daily Wire’s Michael Knowles stated that “transgenderism must be eradicated from public life entirely – the whole preposterous ideology, at every level”. 
 
 2023-04-01 MAGA boycotted Bud Light for featuring transgender influencer Dylan Mulvaney in one of their commercials.
 
@@ -130,6 +134,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 2024-09-07 At a Wisconsin rally, Trump falsely claimed children were going to school and coming home with sex changes.
 
 2024-09-20 Trump launched an anti-gay ad campaign “Kamala is for they/them - Trump is for you”.
+
+2024-09-26 Daily Wire host Michael Knowles commented frequently that same sex marriage and same sex parents were unfit and horrifying. 
 
 2024-10-03 A Pennsylvania middle school installed surveillance windows in gender-inclusive bathrooms.
 
