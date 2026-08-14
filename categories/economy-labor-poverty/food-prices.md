@@ -208,3 +208,18 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 [https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity](https://www.drovers.com/news/cattle-death-toll-climbs-extreme-heat-and-humidity)
 
 [https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/](https://www.wdayradionow.com/news/regional-news/south-dakota-agriculture-faces-severe-heat-crisis-as-feedlot-losses-mount/)
+
+### 2026 August
+
+2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
+
+[https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/](https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/)
+
+[https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it](https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it)
+
+[https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s](https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s)
+
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
+INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s](https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s)
+

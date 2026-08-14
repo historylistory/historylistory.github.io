@@ -1125,6 +1125,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-07 A New York judge issued a pause on Mamdani’s Pied-a-Tierre Tax. The tax is meant to target homes valued at $5M or more and co-ops and condos worth $1M or more when the owners do not live there as a primary residence. The surcharge asks those who own second homes valued in the millions to contribute their fair share to the city from which they benefit. 
 
+2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
+
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
 
 2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 
@@ -1134,3 +1136,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 
 2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 
+
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”

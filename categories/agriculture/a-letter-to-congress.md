@@ -197,3 +197,5 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-08-10 RFK held an event to target food supply and chemical additives. 
 
 2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
+
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”

@@ -103,3 +103,12 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear](https://www.france24.com/en/live-news/20260811-us-company-stokes-greenland-tensions-by-unloading-drilling-gear)
 
 [https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html](https://oilprice.com/Energy/Energy-General/Greenland-Warns-Trump-Linked-Firm-over-Unauthorized-Drilling-Plan.html)
+
+2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
+
+[https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s](https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s)
+
+[https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory](https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory)
+
+[https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/](https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/)
+

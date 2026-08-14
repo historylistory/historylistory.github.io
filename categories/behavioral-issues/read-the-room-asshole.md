@@ -319,3 +319,14 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 [https://www.bbc.com/news/articles/c802e7jk458o](https://www.bbc.com/news/articles/c802e7jk458o)
 
 [https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s](https://www.youtube.com/watch?v=TLiP8iwDYU8&list=WL&index=3&t=23s)
+
+### 2026 August
+
+2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
+
+[https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/](https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/)
+
+[https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it](https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it)
+
+[https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s](https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s)
+

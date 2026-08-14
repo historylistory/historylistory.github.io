@@ -619,6 +619,11 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/](https://www.washingtonpost.com/national-security/2026/08/05/trump-hegseth-clashed-camp-david-over-iran-missile-depletion-concerns/)
 
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
+INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s](https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s)
+
+
 2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
 
 [https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report](https://www.pharmexec.com/view/order-cuts-childhood-vaccines-11-report)

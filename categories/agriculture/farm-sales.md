@@ -115,3 +115,10 @@ permalink: /categories/agriculture/farm-sales/
 [https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449](https://jcpost.com/posts/c5a1a926-4a4f-447a-9738-c27c48318449)
 
 h[ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/](ttps://ruralradio.com/kneb-am/news/usda-slashes-beef-export-sales-report-by-90-after-major-data-error/)
+
+### 2026 August
+
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
+INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s](https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s)
+

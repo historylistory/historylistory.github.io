@@ -667,6 +667,8 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-08-06 Trump and Hegseth clashed at Camp David over munitions shortages. 
 
+2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
 2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
 
 2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 

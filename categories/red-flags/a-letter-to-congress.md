@@ -401,3 +401,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-13 Ecuador fishermen reported they were being attacked by English-speaking assailants using drones and reported known fishing boats have been seemingly lost at sea and presumed dead. Survivors reported the assailants wore matching uniforms with American flag patches. 
 
+2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
+

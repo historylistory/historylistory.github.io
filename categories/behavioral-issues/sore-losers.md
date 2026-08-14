@@ -69,3 +69,13 @@ permalink: /categories/behavioral-issues/sore-losers/
 2026-01-15 Machado gave Trump her Nobel Prize.
 
 [https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk](https://www.cnn.com/2026/01/15/americas/venezuela-machado-trump-meeting-nobel-intl-hnk)
+
+### 2026 August
+
+2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 
+
+[https://www.youtube.com/watch?v=WE2FxOcT55Y&list=WL&index=2&t=11s](https://www.youtube.com/watch?v=WE2FxOcT55Y&list=WL&index=2&t=11s)
+
+[https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary](https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary)
+
+[https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/](https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/)

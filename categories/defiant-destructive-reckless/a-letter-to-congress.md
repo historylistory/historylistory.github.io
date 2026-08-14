@@ -526,3 +526,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 
 2026-08-13 The Trump administration began re-inscribing Trumps name back onto the Kennedy Center. 
+
+2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 

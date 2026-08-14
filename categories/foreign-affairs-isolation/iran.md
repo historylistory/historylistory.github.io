@@ -2107,3 +2107,11 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return](https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return)
 
 [https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/](https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/)
+
+2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
+
+[https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s](https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s)
+
+[https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory](https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory)
+
+[https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/](https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/)

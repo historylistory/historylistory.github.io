@@ -269,3 +269,11 @@ SUB WALL [https://www.forbes.com/sites/conormurray/2026/04/25/trump-cancels-kush
 SUB WALL [https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/](https://www.forbes.com/sites/omerawan/2026/08/02/a-doctor-fact-checks-secretary-robert-f-kennedy-jrs-cnn-interview/)
 
 SUB WALL [https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641](https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01021641)
+
+2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
+
+[https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s](https://www.youtube.com/watch?v=_PS56UXN5UI&list=WL&index=3&t=7s)
+
+[https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory](https://www.aljazeera.com/news/2026/8/14/trump-says-he-will-declare-strait-of-hormuz-a-us-territory)
+
+[https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/](https://www.timesofisrael.com/trump-says-hell-hit-iran-hard-economically-will-soon-declare-hormuz-us-territory/)
