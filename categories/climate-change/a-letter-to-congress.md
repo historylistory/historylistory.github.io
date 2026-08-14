@@ -469,3 +469,6 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-12 Thousands of people were evacuated as wildfires tore through Washington State. 
 
 2026-08-12 Floodwaters submerged the Midwest. 
+
+2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
+

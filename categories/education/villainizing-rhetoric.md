@@ -69,3 +69,9 @@ permalink: /categories/education/villainizing-rhetoric/
 [https://www.businessinsider.com/pentagon-hegseth-order-cancels-military-attendance-more-top-universities-2026-2](https://www.businessinsider.com/pentagon-hegseth-order-cancels-military-attendance-more-top-universities-2026-2)
 
 [https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness](https://www.foxnews.com/politics/hegseth-bans-military-attending-princeton-columbia-other-elite-universities-wokeness-weakness)
+
+### 2026 August
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+[https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)

@@ -334,3 +334,10 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.youtube.com/watch?v=7HuimiAnBa0&list=WL&index=2&t=20s](https://www.youtube.com/watch?v=7HuimiAnBa0&list=WL&index=2&t=20s)
 
 
+2026-08-11 Former US Marine Robert Gilman was released from Russian custody after nearly 4 years. 
+
+[https://www.cbsnews.com/news/robert-gilman-russia-released/](https://www.cbsnews.com/news/robert-gilman-russia-released/)
+
+[https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/](https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/)
+
+[https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/](https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/)

@@ -685,3 +685,7 @@ Manhattan grand jury in the hush-money case.
 2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
 
 2026-08-12 The attorney for Southern Poverty Law’s Heidi Beirich stated, “A free and fair society does not use the justice system to silence its political opponents. Heidi Beirich has dedicated her life to fighting hate groups and extremist movements like the KKK, neo-Nazis, and other white supremacists. Her decades-long record of success dismantling hate groups – and the resulting threats to her life – speak volumes. For this, she has been indicted.”
+
+2026-08-14 The Trump administration allegedly carried out a surveillance program specifically targeting left-leaning groups in Minnesota as well as financial records.  This included labor unions such as Communications Workers of America, the SEIU, Sunrise Movement climate activists, and the AFL-CIO.  This stems from the White House NSPM-7 mandate. 
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.

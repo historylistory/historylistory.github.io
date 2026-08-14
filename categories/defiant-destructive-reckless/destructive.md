@@ -359,3 +359,9 @@ permalink: /categories/defiant-destructive-reckless/destructive/
 [https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
 
 SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)
+
+2026-08-13 The Trump administration began re-inscribing Trumps name back onto the Kennedy Center. 
+
+[https://abc7ny.com/post/kennedy-center-board-votes-close-renovations-add-president-donald-trumps-name-rep-joyce-beatty/19673779/](https://abc7ny.com/post/kennedy-center-board-votes-close-renovations-add-president-donald-trumps-name-rep-joyce-beatty/19673779/)
+
+[https://thehill.com/homenews/administration/6028439-kennedy-center-approves-added-trump-name/](https://thehill.com/homenews/administration/6028439-kennedy-center-approves-added-trump-name/)

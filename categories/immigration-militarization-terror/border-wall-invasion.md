@@ -140,3 +140,14 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 
 [https://www.tpr.org/border-immigration/2026-07-13/talarico-unveils-border-security-plan-criticizes-biden-policies-and-trumps-big-bend-wall](https://www.tpr.org/border-immigration/2026-07-13/talarico-unveils-border-security-plan-criticizes-biden-policies-and-trumps-big-bend-wall)
 
+### 2026 August
+
+2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
+
+[https://www.democracynow.org/2026/8/14/headlines/activists_try_to_halt_border_wall_construction_as_contractors_tear_down_environmental_landmarks](https://www.democracynow.org/2026/8/14/headlines/activists_try_to_halt_border_wall_construction_as_contractors_tear_down_environmental_landmarks)
+
+[https://biologicaldiversity.org/w/news/press-releases/federal-contractors-begin-border-construction-in-big-bend-national-park-2026-08-06/](https://biologicaldiversity.org/w/news/press-releases/federal-contractors-begin-border-construction-in-big-bend-national-park-2026-08-06/)
+
+[https://www.npca.org/articles/11477-administration-begins-bulldozing-through-big-bend-national-park](https://www.npca.org/articles/11477-administration-begins-bulldozing-through-big-bend-national-park)
+
+[https://www.usatoday.com/story/news/politics/2026/08/11/big-bend-border-wall-trump-protests/91248748007/](https://www.usatoday.com/story/news/politics/2026/08/11/big-bend-border-wall-trump-protests/91248748007/)

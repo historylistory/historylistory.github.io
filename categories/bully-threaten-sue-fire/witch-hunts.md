@@ -257,3 +257,16 @@ TIMESTAMP 6:55 [https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25
 
 [https://www.aljazeera.com/news/2026/8/12/trump-administration-arrests-southern-poverty-law-center-expert-for-fraud](https://www.aljazeera.com/news/2026/8/12/trump-administration-arrests-southern-poverty-law-center-expert-for-fraud)
 
+2026-08-14 The Trump administration allegedly carried out a surveillance program specifically targeting left-leaning groups in Minnesota as well as financial records.  This included labor unions such as Communications Workers of America, the SEIU, Sunrise Movement climate activists, and the AFL-CIO.  This stems from the White House NSPM-7 mandate. 
+
+[https://thehill.com/regulation/court-battles/6030064-dhs-secretly-monitored-minneapolis-protesters/](https://thehill.com/regulation/court-battles/6030064-dhs-secretly-monitored-minneapolis-protesters/)
+
+[https://www.democracynow.org/2026/8/14/headlines/dhs_targeted_left_leaning_groups_in_minnesota_with_mass_surveillance_program](https://www.democracynow.org/2026/8/14/headlines/dhs_targeted_left_leaning_groups_in_minnesota_with_mass_surveillance_program)
+
+[https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/](https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/)
+
+PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html](https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html)
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+[https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)

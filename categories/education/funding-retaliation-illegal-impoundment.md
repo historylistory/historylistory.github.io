@@ -176,3 +176,9 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 [https://www.reuters.com/world/us/scouting-america-reaches-accord-with-pentagon-maintain-military-support-2026-02-28/](https://www.reuters.com/world/us/scouting-america-reaches-accord-with-pentagon-maintain-military-support-2026-02-28/)
 
 [https://www.washingtonpost.com/national-security/2026/02/27/hegseth-scouting-america/](https://www.washingtonpost.com/national-security/2026/02/27/hegseth-scouting-america/)
+
+### 2026 August
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+[https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)

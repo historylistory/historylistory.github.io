@@ -465,3 +465,13 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 PAY WALL [https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html](https://www.nytimes.com/2026/02/13/technology/dhs-anti-ice-social-media.html)
 
 PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da](https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmask-critics-raising-free-speech-concerns-0a9573da)
+
+2026-08-14 The Trump administration allegedly carried out a surveillance program specifically targeting left-leaning groups in Minnesota as well as financial records.  This included labor unions such as Communications Workers of America, the SEIU, Sunrise Movement climate activists, and the AFL-CIO.  This stems from the White House NSPM-7 mandate. 
+
+[https://thehill.com/regulation/court-battles/6030064-dhs-secretly-monitored-minneapolis-protesters/](https://thehill.com/regulation/court-battles/6030064-dhs-secretly-monitored-minneapolis-protesters/)
+
+[https://www.democracynow.org/2026/8/14/headlines/dhs_targeted_left_leaning_groups_in_minnesota_with_mass_surveillance_program](https://www.democracynow.org/2026/8/14/headlines/dhs_targeted_left_leaning_groups_in_minnesota_with_mass_surveillance_program)
+
+[https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/](https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/)
+
+PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html](https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html)

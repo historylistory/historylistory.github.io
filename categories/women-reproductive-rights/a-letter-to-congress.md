@@ -394,3 +394,5 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 
 
 2026-08-12 Caitlin Clark spoke out against a recent influx of racist, misogynistic, transphobic and abusive online hate speech directed at the WNBA.
+
+2026-08-13 A surrogate gave birth to a baby with a heart condition despite intended parents seeking abortion. 

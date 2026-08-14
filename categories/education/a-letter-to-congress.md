@@ -355,3 +355,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-08-06 Project 2025 began its attack on cuts to Head Start.
 
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.

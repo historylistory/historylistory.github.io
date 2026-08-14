@@ -352,3 +352,16 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access](https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access)
 
 [https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/](https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/)
+
+2026-08-11 Former US Marine Robert Gilman was released from Russian custody after nearly 4 years. 
+
+[https://www.cbsnews.com/news/robert-gilman-russia-released/](https://www.cbsnews.com/news/robert-gilman-russia-released/)
+
+[https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/](https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/)
+
+[https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/](https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/)
+
+2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+[https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)
+

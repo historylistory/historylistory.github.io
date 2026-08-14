@@ -627,3 +627,12 @@ DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/54917
 [https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access](https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access)
 
 [https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/](https://19thnews.org/2026/08/massachusetts-abortion-law-no-limit-pregnancy/)
+
+2026-08-13 A surrogate gave birth to a baby with a heart condition despite intended parents seeking abortion. 
+
+[https://www.youtube.com/watch?v=H3kDvoiWVIk&list=WL&index=1](https://www.youtube.com/watch?v=H3kDvoiWVIk&list=WL&index=1)
+
+[https://www.cbsnews.com/video/surrogate-gives-birth-to-baby-with-heart-condition-despite-intended-parents-seeking-abortion/](https://www.cbsnews.com/video/surrogate-gives-birth-to-baby-with-heart-condition-despite-intended-parents-seeking-abortion/)
+
+[https://www.theguardian.com/us-news/2026/aug/14/surrogate-baby-texas-parents](https://www.theguardian.com/us-news/2026/aug/14/surrogate-baby-texas-parents)
+

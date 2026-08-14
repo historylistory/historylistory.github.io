@@ -524,3 +524,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
 
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
+
+2026-08-13 The Trump administration began re-inscribing Trumps name back onto the Kennedy Center. 

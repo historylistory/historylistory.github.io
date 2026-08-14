@@ -421,4 +421,6 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-08-11 Investigation further revealed that ICE detained more than 50 parents and spouses of active duty US military members and has tried to deport 282 veterans and their immediate family members. 
 
+2026-08-11 Former US Marine Robert Gilman was released from Russian custody after nearly 4 years. 
+
 2026-08-12 Concern grew over food shortages and poor conditions aboard the USS Abraham Lincoln including incidents of attempted suicide which the Navy denied. 

@@ -277,3 +277,15 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 [https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/](https://ladd.law.wisc.edu/2026/06/17/ecuador-prosecutor-shot-and-killed/)
 
 [https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)
+
+
+### 2026 August
+
+2026-08-11 Former US Marine Robert Gilman was released from Russian custody after nearly 4 years. 
+
+[https://www.cbsnews.com/news/robert-gilman-russia-released/](https://www.cbsnews.com/news/robert-gilman-russia-released/)
+
+[https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/](https://www.usatoday.com/story/news/politics/2026/08/13/what-to-know-about-robert-gilmans-life-in-a-russian-prison/91292996007/)
+
+[https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/](https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/)
+
