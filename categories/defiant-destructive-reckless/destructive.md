@@ -365,3 +365,12 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://abc7ny.com/post/kennedy-center-board-votes-close-renovations-add-president-donald-trumps-name-rep-joyce-beatty/19673779/](https://abc7ny.com/post/kennedy-center-board-votes-close-renovations-add-president-donald-trumps-name-rep-joyce-beatty/19673779/)
 
 [https://thehill.com/homenews/administration/6028439-kennedy-center-approves-added-trump-name/](https://thehill.com/homenews/administration/6028439-kennedy-center-approves-added-trump-name/)
+
+2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
+
+[https://www.blumenthal.senate.gov/newsroom/press/release/blumenthal-demands-answers-from-white-house-chief-of-staff-after-new-reporting-reveals-900-million-price-tag-for-donald-trumps-renovations-to-the-white-house](https://www.blumenthal.senate.gov/newsroom/press/release/blumenthal-demands-answers-from-white-house-chief-of-staff-after-new-reporting-reveals-900-million-price-tag-for-donald-trumps-renovations-to-the-white-house)
+
+[https://thehill.com/homenews/senate/6028941-senate-democrats-audit-white-house-ballroom/](https://thehill.com/homenews/senate/6028941-senate-democrats-audit-white-house-ballroom/)
+
+[https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html](https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html)
+

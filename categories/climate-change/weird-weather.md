@@ -391,3 +391,8 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/](https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/)
 
+2026-08-13 Record-breaking rainfall and floods killed 8 people in Japan. 
+
+[https://apnews.com/article/japan-rain-floods-00b3ce16f648f9c3885bf547edad1696](https://apnews.com/article/japan-rain-floods-00b3ce16f648f9c3885bf547edad1696)
+
+[https://www.aljazeera.com/video/newsfeed/2026/8/14/14-08-sv-japan-floods-chiba-jp](https://www.aljazeera.com/video/newsfeed/2026/8/14/14-08-sv-japan-floods-chiba-jp)

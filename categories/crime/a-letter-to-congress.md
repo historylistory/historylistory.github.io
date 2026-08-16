@@ -75,6 +75,10 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2003-01-01 This is the year the Epstein birthday book was compiled, including a letter from Trump of a naked woman’s outline and the following, “Voice Over – There must be more to live than having everything. Donald – Yes, there is, but I won’t tell you what it is. Jeffrey – Nor will I, since I also know what it is. Donald – We have certain things in common, Jeffrey. Jeffrey – Yes, we do, come to think of it. Donald – Enigmas never age, have you noticed that? Jeffrey – As a matter of fact, it was clear to me the last time I saw you. Donald – A pal is a wonderful thing. Happy Birthday – and may every day be another wonderful secret”.
 
+## 2005
+
+2005-01-01 Hugh Hefner reportedly notified the FBI multiple times about Jeffrey Epstein but was ignored. 
+
 ## 2008 
 
 2008-07-01 Justice Samuel Alito – the person who helped overturn Roe v. Wade – took luxury fishing trips with GOP mega donors Leonard Leo and Paul Singer. Alito wrote an opinion article in the Wall Street Journal claiming ProPublica misleads its readers and that he didn’t have to report on the luxury trip. After the trip, Alito did not recuse himself from a case before the Supreme Court involving Paul Singer, or from a 2023 tax case involving an attorney who interviewed him for articles in the Wall Street Journal. It wasn’t until 2026 when Alito did recuse himself from an oil industry case due to a discovered conflict with his ConocoPhillips stock.

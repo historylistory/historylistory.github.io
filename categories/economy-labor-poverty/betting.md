@@ -264,3 +264,15 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france](https://www.theverge.com/policy/967756/polymarket-is-being-blocked-in-france)
 
 [https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/](https://www.reuters.com/technology/french-internet-service-providers-told-block-access-polymarket-2026-07-17/)
+
+### 2026 August
+
+2026-08-13 Gen Z is using sports betting as a part of their long term financial planning. 
+
+[https://www.newsnationnow.com/business/your-money/sports-betting-gen-z-survey/](https://www.newsnationnow.com/business/your-money/sports-betting-gen-z-survey/)
+
+[https://www.marketwatch.com/story/more-than-half-of-gen-z-redirected-money-away-from-investing-and-toward-sports-betting-over-the-past-year-937a366c](https://www.marketwatch.com/story/more-than-half-of-gen-z-redirected-money-away-from-investing-and-toward-sports-betting-over-the-past-year-937a366c)
+
+[https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html](https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html)
+
+[https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting](https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting)

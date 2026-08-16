@@ -38,3 +38,15 @@ permalink: /categories/foreign-affairs-isolation/japan/
 [https://www.wsws.org/en/articles/2026/04/22/lqcf-a22.html](https://www.wsws.org/en/articles/2026/04/22/lqcf-a22.html)
 
 [https://www.reuters.com/world/china/japan-opens-door-global-arms-market-with-biggest-export-rule-change-decades-2026-04-21/](https://www.reuters.com/world/china/japan-opens-door-global-arms-market-with-biggest-export-rule-change-decades-2026-04-21/)
+
+### 2026 August
+
+2026-08-14 Russian President Vladimir Putin visited the disputed Kuril Island sparking a sharp diplomatic escalation with Japan. 
+
+[https://english.kyodonews.net/articles/-/82261](https://english.kyodonews.net/articles/-/82261)
+
+[https://www.euronews.com/2026/08/14/us-backs-japanese-sovereignty-over-disputed-islands-after-putin-visit](https://www.euronews.com/2026/08/14/us-backs-japanese-sovereignty-over-disputed-islands-after-putin-visit)
+
+[https://www.nbcnews.com/world/asia/putin-pays-first-visit-pacific-island-chain-claimed-japan-rcna592286](https://www.nbcnews.com/world/asia/putin-pays-first-visit-pacific-island-chain-claimed-japan-rcna592286)
+
+[https://en.wikipedia.org/wiki/Kuril_Islands_dispute](https://en.wikipedia.org/wiki/Kuril_Islands_dispute)

@@ -49,6 +49,10 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 ### Chronology.
 
+## 1960s 
+
+1967-01-01 Operation Mockingbird was an alleged wiretapping effort to influence domestic and foreign news media for propaganda purposes. 
+
 ## 1970s
 
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.

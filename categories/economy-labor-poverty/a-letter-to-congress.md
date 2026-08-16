@@ -1138,3 +1138,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 
 
 2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
+2026-08-13 Gen Z is using sports betting as a part of their long term financial planning. 
+
+2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 

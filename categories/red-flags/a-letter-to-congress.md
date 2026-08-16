@@ -51,6 +51,10 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 1955-05-04 The CIA trained torturers serving Fulgencio Batista’s regime in Cuba.
 
+## 1960s
+
+1967-01-01 Operation Mockingbird was an alleged wiretapping effort to influence domestic and foreign news media for propaganda purposes. 
+
 ## 1970s 
 
 1973-10-01 Pinochet with the help of the U.S. funding carried out Operation Condor charged with eliminating perceived opponents of the military regime. An estimated 50,000 were killed, 30,000 missing, and 400,000 were imprisoned and tortured.  In 1974-12-15 Pinochet personally attended the Jotabeche Pentecostal Methodist Church in Santiago Chile two days after those evangelicals pledged their support for Pinochet. Billy Graham personally praised Pinochet as a “great Christian leader”. 

@@ -6,6 +6,19 @@ subcategory_slug: conservative-propaganda
 permalink: /categories/free-speech-manipulation/conservative-propaganda/
 ---
 
+### 1967 
+
+1967-01-01 Operation Mockingbird was an alleged wiretapping effort to influence domestic and foreign news media for propaganda purposes. 
+
+[https://en.wikipedia.org/wiki/Operation_Mockingbird](https://en.wikipedia.org/wiki/Operation_Mockingbird)
+
+[https://en.wikipedia.org/wiki/Project_Mockingbird](https://en.wikipedia.org/wiki/Project_Mockingbird)
+
+[https://timesofindia.indiatimes.com/world/us/killing-a-mockingbird-what-is-operation-mockingbird-and-how-it-was-used-to-manipulate-the-press-and-spread-propaganda/articleshow/123044537.cms](https://timesofindia.indiatimes.com/world/us/killing-a-mockingbird-what-is-operation-mockingbird-and-how-it-was-used-to-manipulate-the-press-and-spread-propaganda/articleshow/123044537.cms)
+
+[https://news.cgtn.com/news/2023-10-02/From-CIA-s-Mockingbird-to-lie-of-the-century-U-S-hasn-t-changed-1nzdn0ZiMrS/index.html](https://news.cgtn.com/news/2023-10-02/From-CIA-s-Mockingbird-to-lie-of-the-century-U-S-hasn-t-changed-1nzdn0ZiMrS/index.html)
+
+
 ### 1971
 
 1971-08-03 Virginian corporate attorney Lewis Powell wrote a confidential 8-page memo “Attack on American Free Enterprise System” outlining efforts for corporations to take over universities and media. He was later nominated by Nixon to the US Supreme Court in 1972. He sat on the Phillips-Morris board and argued cigarettes did not cause cancer.

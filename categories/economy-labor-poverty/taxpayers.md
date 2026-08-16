@@ -700,3 +700,10 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.theguardian.com/world/2026/aug/08/us-promises-1bn-in-security-aid-to-colombia-as-new-rightwing-president-pledges-drugs-crackdown](https://www.theguardian.com/world/2026/aug/08/us-promises-1bn-in-security-aid-to-colombia-as-new-rightwing-president-pledges-drugs-crackdown)
 
+2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
+
+[https://www.blumenthal.senate.gov/newsroom/press/release/blumenthal-demands-answers-from-white-house-chief-of-staff-after-new-reporting-reveals-900-million-price-tag-for-donald-trumps-renovations-to-the-white-house](https://www.blumenthal.senate.gov/newsroom/press/release/blumenthal-demands-answers-from-white-house-chief-of-staff-after-new-reporting-reveals-900-million-price-tag-for-donald-trumps-renovations-to-the-white-house)
+
+[https://thehill.com/homenews/senate/6028941-senate-democrats-audit-white-house-ballroom/](https://thehill.com/homenews/senate/6028941-senate-democrats-audit-white-house-ballroom/)
+
+[https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html](https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html)

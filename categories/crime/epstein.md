@@ -64,6 +64,16 @@ permalink: /categories/crime/epstein/
 
 [https://www.axios.com/2025/07/29/trump-epstein-spa-workers](https://www.axios.com/2025/07/29/trump-epstein-spa-workers)
 
+### 2005
+
+2005-01-01 Hugh Hefner reportedly notified the FBI multiple times about Jeffrey Epstein but was ignored. 
+
+[https://www.newsnationnow.com/crime/hugh-hefner-jeffrey-epstein-fbi-playboy/](https://www.newsnationnow.com/crime/hugh-hefner-jeffrey-epstein-fbi-playboy/)
+
+[https://www.newsnationnow.com/crime/playboy-playmate-fbi-hugh-hefner-jeffrey-epstein-rape/](https://www.newsnationnow.com/crime/playboy-playmate-fbi-hugh-hefner-jeffrey-epstein-rape/)
+
+[https://www.newsnationnow.com/crime/playboy-playmate-fbi-hugh-hefner-jeffrey-epstein-rape/amp/](https://www.newsnationnow.com/crime/playboy-playmate-fbi-hugh-hefner-jeffrey-epstein-rape/amp/)
+
 ### 2019
 
 2019-07-09 Democratic leaders including Lois Frankel and Debbie Wasserman Schultz called for continued investigation into Epstein, including his 2008 plea deal, his death, and the handling of his case. The 2008 plea deal was negotiated by then–U.S. Attorney Alex Acosta, who later became Trump's Labor Secretary.
