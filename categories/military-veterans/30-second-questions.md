@@ -59,7 +59,44 @@ SOME SOURCES
 
 
 # Answer 2 
-s
+
+Submitted to Congress by HistoryListory: Not yet.
+
+Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
+
+Response received? Not yet.
+
+
+
+### Question 3 
+
+President Trump avoided military service through multiple deferments, has reportedly called fallen troops “losers” and “suckers,” abruptly fired senior military leaders, and his political operation even used an image from a dignified transfer of fallen soldiers in a fundraising email. How is that patriotism or respect for those who serve, and what will you do when this administration treats servicemembers, veterans and the fallen as political props rather than people whose sacrifice deserves genuine honor?
+
+SOME SOURCES 
+
+* DEFER TO SERVE 1964 to 1968 President Bone Spurs received five deferments to serving the Army [ABC News.com](https://abcnews.com/Politics/donald-trumps-vietnam-draft-records-secret-documents-deferments/story?id=13492639)
+
+* LOSERS AND SUCKERS	September 4, 2020 Trump called fallen soldiers, “suckers” and “losers”. [The Atlantic.com](https://www.theatlantic.com/politics/archive/2020/09/trump-americans-who-died-at-war-are-losers-and-suckers/615997)
+
+* GENERAL CHARLES Q BROWN February 21, 2025 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda [NPR.org](https://www.npr.org/2025/02/21/nx-s1-5305288/trump-fires-chairman-joint-chiefs-of-staff-charles-brown-pentagon)
+
+* OVERSHADOWING ARLINGTON October 16, 2025 Trump proposed building a giant “victory arch” overlooking Arlington Cemetery [Politico.com](https://www.politico.com/news/2025/12/31/trump-arch-washington-dc-america-250-00708590)
+
+* REMOVING US FLAGS January 28, 2026 The Trump administration removed flags honoring fallen Danish soldiers who died in Afghanistan on behalf of the US [CNN.com](https://www.cnn.com/2026/01/28/europe/us-embassy-copenhagen-removes-flags-danish-soldiers-intl)
+
+* ADVERTISING AT FUNERALS March 7, 2026 Trump wore campaign merchandise during a military dignified transfer and used the images in a fundraising email [The Guardian.com](https://www.theguardian.com/world/2026/mar/07/trump-us-service-members-killed-kuwait)
+
+* STRANDED IN QATAR March 9, 2026 The Trump administration left U.S. citizens and people who helped the U.S. fight the Taliban stranded in Qatar after the U.S. withdrawal in 2021 [The Independent.com](https://www.the-independent.com/news/world/americas/us-politics/trump-afghans-congo-plan-qatar-b2963067.html)
+
+* RENAMING VETERAN HIGHWAY FOR CHARLIE KIRK July 4, 2026 The Trump administration changed the name of the Vietnam Veterans Boulevard in Sumner County to the Charlie Kirk Memorial Highway [Tennessean.com](https://www.tennessean.com/story/news/local/sumner/2026/06/18/charlie-kirk-memorial-highway-tn-state-route-386-vietnam-veterans-renamed/90606519007)
+
+* CASUALTY ROSTER July 22, 2026 Trump attended a dignified transfer of four fallen soldiers. At the transfer he stated, “All of them said very strongly that we can’t let Iran have a nuclear weapon.” After the transfer he removed their names from the casualty roster. [PBS.org](https://www.pbs.org/newshour/world/trump-will-attend-the-dignified-transfer-of-4-u-s-service-members-killed-in-the-middle-east)
+
+* USS ABRAHAM LINCOLN August 12, 2026 Concern grew over conditions, deployment length and suicide attempts aboard USS Abraham Lincoln [NPR.org](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)
+
+
+# Answer 3 
+
 Submitted to Congress by HistoryListory: Not yet.
 
 Included message: "Please be advised any non-response or response will be publicly included on my website HistoryListory.com for readers to review". 
