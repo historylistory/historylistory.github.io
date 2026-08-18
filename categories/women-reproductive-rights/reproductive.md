@@ -45,6 +45,18 @@ Adoption is a multi-billion-dollar for-profit industry.
 
 1973-01-22 Roe v. Wade legalized abortion. 
 
+### 1980 
+
+1980-01-01 The Dr. Seuss biographer sued anti-abortion rights groups for using his book’s likeness in their stationery. 
+
+[https://abcnews.com/Entertainment/story?id=4454256&page=1](https://abcnews.com/Entertainment/story?id=4454256&page=1)
+
+[https://www.christianpost.com/news/5-times-pro-life-cause-accidentally-endorsed-abortion-ed-sheeran-hillary-clinton-planned-parenthood.html?page=2](https://www.christianpost.com/news/5-times-pro-life-cause-accidentally-endorsed-abortion-ed-sheeran-hillary-clinton-planned-parenthood.html?page=2)
+
+[https://www.cnn.com/2009/LIVING/wayoflife/01/23/mf.seuss.stories.behind/index.html](https://www.cnn.com/2009/LIVING/wayoflife/01/23/mf.seuss.stories.behind/index.html)
+
+
+
 ### 1982
 
 1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
@@ -137,6 +149,29 @@ SANTORUM ON GAY MARRIAGE [https://www.peoplefor.org/rightwingwatch/post/santorum
 
 SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-native-american-culture_n_6086ddb7e4b05af50db9656b?or](https://www.huffpost.com/entry/rick-santorum-native-american-culture_n_6086ddb7e4b05af50db9656b?or)
 
+2012-05-30 A woman was charged with murder of a fetus after a failed attempted suicide. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://www.theguardian.com/world/video/2012/may/30/shuai-charged-with-murder-video](https://www.theguardian.com/world/video/2012/may/30/shuai-charged-with-murder-video)
+
+### 2014 
+
+2014-10-10 An Alabama judge made it a crime to cause the death of an unborn child during an act of domestic violence.  Once a fetus is recognized as a separate victim, that same logic can be weaponized against the mother. 
+
+[https://www.propublica.org/article/this-alabama-judge-has-figured-out-how-to-dismantle-roe-v-wade](https://www.propublica.org/article/this-alabama-judge-has-figured-out-how-to-dismantle-roe-v-wade)
+
+2014-12-12 A woman in Wisconsin quit meth once she found she was pregnant and voluntarily self-reported for help. On the day she self-reported the hospital refused to allow her to leave, forced her to join an emergency hearing for temporary physical custody of her unborn baby, denied her an attorney, and gave her fetus an attorney who immediately took a position adverse to the mother.  Tamara Loertscher 
+
+[https://www.wpr.org/health/policing-pregnancy-wisconsins-fetal-protection-law-one-nations-most-punitive-forces-women-treatment](https://www.wpr.org/health/policing-pregnancy-wisconsins-fetal-protection-law-one-nations-most-punitive-forces-women-treatment)
+
+[https://civilrighttocounsel.org/major_developments/wisconsin-case-addresses-right-to-counsel-for-confinement-of-pregnant-women/](https://civilrighttocounsel.org/major_developments/wisconsin-case-addresses-right-to-counsel-for-confinement-of-pregnant-women/)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC5151516/](https://pmc.ncbi.nlm.nih.gov/articles/PMC5151516/)
+
+[https://www.theguardian.com/lifeandstyle/2014/dec/12/pregnant-womans-drug-use-equivalent-to-child-abuse-court-says](https://www.theguardian.com/lifeandstyle/2014/dec/12/pregnant-womans-drug-use-equivalent-to-child-abuse-court-says)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2022/09/01/prosecutions-drugs-miscarriages-meth-stillbirths/](https://www.washingtonpost.com/national-security/2022/09/01/prosecutions-drugs-miscarriages-meth-stillbirths/)
+
+
 ### 2017 
 
 2017-01-03 News stories circulated around, “Make America Mate Again”.
@@ -149,6 +184,11 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mate-again](https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mate-again)
 
+2017-02-13 Oklahoma lawmaker referred to pregnant women as “hosts”. 
+
+[https://www.huffpost.com/entry/oklahoma-lawmaker-wants-men-to-approve-abortion-calls-women-hosts_n_58a1eaf5e4b094a129ed7fac](https://www.huffpost.com/entry/oklahoma-lawmaker-wants-men-to-approve-abortion-calls-women-hosts_n_58a1eaf5e4b094a129ed7fac)
+
+SUB WALL [https://theintercept.com/2017/02/13/oklahoma-lawmakers-want-men-to-approve-all-abortions/](https://theintercept.com/2017/02/13/oklahoma-lawmakers-want-men-to-approve-all-abortions/)
 
 ### 2019
 
@@ -166,6 +206,11 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2](https://www.youtube.com/watch?v=dZ-Hsh1B2TA&list=WL&index=2)
 
+2019-06-27 Marshae Jones was indicted on manslaughter after she was shot in the stomach during pregnancy. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://www.al.com/news/birmingham/2019/06/woman-indicted-in-shooting-death-of-her-unborn-child-charges-against-shooter-dismissed.html](https://www.al.com/news/birmingham/2019/06/woman-indicted-in-shooting-death-of-her-unborn-child-charges-against-shooter-dismissed.html)
+
+[https://www.pbs.org/newshour/nation/alabama-da-wont-prosecute-woman-who-lost-fetus-after-being-shot](https://www.pbs.org/newshour/nation/alabama-da-wont-prosecute-woman-who-lost-fetus-after-being-shot)
 
 ### 2020
 
@@ -213,8 +258,18 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 {% include youtubePlayer.html id=" NtRPLCso0Sw" %}
 
+2021-10-20 A woman was convicted of manslaughter over having a miscarriage. This was after she went to the ER multiple times for bleeding. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://www.cbsnews.com/news/brittany-poolaw-manslaughter-miscarriage-pregnancy/](https://www.cbsnews.com/news/brittany-poolaw-manslaughter-miscarriage-pregnancy/)
+
+
 
 ### 2022
+
+2022-04-07 A Hanford woman faced criminal charges for the stillbirth of her baby. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://abc30.com/post/adora-perez-baby-death/11718606/](https://abc30.com/post/adora-perez-baby-death/11718606/)
+
 
 2022-06-24 When the courts overturned Roe v. Wade Justice Samuel Alito asserted that abortion didn’t have anything to do with gender equity, wasn’t an economic issue, and claimed that “women are not without electoral or political power”, contradicting evidence of racial divide, demographic disparities, and sometimes women having no power because they are not given agency in circumstances of abuse.
 
@@ -251,15 +306,47 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.cbsnews.com/news/amber-thurman-delayed-abortion-georgia/](https://www.cbsnews.com/news/amber-thurman-delayed-abortion-georgia/)
 
+2022-09-08 Pregnant women were and are being jailed over drug use. Prolonged detention keeps them incarcerated far longer than standard non-pregnant detainees, dangerous jail conditions put the baby at further risk, and punitive policies deter women from seeking vital prenatal care or treatment. 
+
+[https://www.washingtonpost.com/nation/2022/09/08/pregnant-women-drugs-jail/](https://www.washingtonpost.com/nation/2022/09/08/pregnant-women-drugs-jail/)
+
+[https://www.pregnancyjusticeus.org/wp-content/uploads/2019/10/Punishing20Women20During20Pregnancy_Paltrow.pdf](https://www.pregnancyjusticeus.org/wp-content/uploads/2019/10/Punishing20Women20During20Pregnancy_Paltrow.pdf)
+
+2022-10-03 A Kings County woman was prosecuted for murder after she had a stillbirth. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://abc30.com/post/kings-county-woman-chelsea-becker-stillbirth-murder-charge-meth-use-during-birth/12292327/](https://abc30.com/post/kings-county-woman-chelsea-becker-stillbirth-murder-charge-meth-use-during-birth/12292327/)
+
 
 ### 2023
+
+2023-03-02 Cherry Mason tested positive for drugs at the hospital after a stillbirth. She took a plea deal for manslaughter stating, “I knew the way that it works here in Oklahoma”. She was given a 12-year prison sentence and required to register as a violent offender. One of her children stated, “If you want to get to the core of the problem, you know, maybe make some kind of system to where we can help people with addiction a little bit more…Sometimes I really don’t think that’s what they want, though”. 
+
+[https://www.themarshallproject.org/2022/09/01/they-lost-their-pregnancies-then-prosecutors-sent-them-to-prison](https://www.themarshallproject.org/2022/09/01/they-lost-their-pregnancies-then-prosecutors-sent-them-to-prison)
+
+[https://kfor.com/news/oklahoma-woman-pleads-guilty-to-manslaughter-after-stillborn-baby-dies-of-methamphetamine-toxicity/](https://kfor.com/news/oklahoma-woman-pleads-guilty-to-manslaughter-after-stillborn-baby-dies-of-methamphetamine-toxicity/)
+
+
 
 2023-11-14 Due to anti-abortion laws in Texas Ciji Graham was refused treatment for a severe episode of atrial fibrillation and died. She was pregnant and doctors wouldn’t treat her. 
 
 [https://www.propublica.org/article/north-carolina-abortion-laws-ciji-graham](https://www.propublica.org/article/north-carolina-abortion-laws-ciji-graham)
 
+2023-12-22 A Black woman in Ohio was charged after miscarrying in her bathroom. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws. 
+
+[https://www.nbcnews.com/news/us-news/black-woman-ohio-was-charged-miscarrying-bathroom-experts-warn-dangero-rcna130649](https://www.nbcnews.com/news/us-news/black-woman-ohio-was-charged-miscarrying-bathroom-experts-warn-dangero-rcna130649)
+
 
 ### 2024 February
+
+2024-02-20 Alabama Supreme Court ruled that frozen embryos are children. This negatively impacted access to IVF. 
+
+[https://publichealth.jhu.edu/2024/the-alabama-supreme-courts-ruling-on-frozen-embryos](https://publichealth.jhu.edu/2024/the-alabama-supreme-courts-ruling-on-frozen-embryos)
+
+[https://pmc.ncbi.nlm.nih.gov/articles/PMC11228790/](https://pmc.ncbi.nlm.nih.gov/articles/PMC11228790/)
+
+[https://www.npr.org/2024/02/20/1232815486/alabama-supreme-court-frozen-embryos](https://www.npr.org/2024/02/20/1232815486/alabama-supreme-court-frozen-embryos)
+
+
 
 2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
 
@@ -267,6 +354,11 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
+2024-02-29 One third of US states have established fetal personhood by law or judicial decision. 
+
+INTERACTIVE MAP [https://www.pregnancyjusticeus.org/laws-by-state/](https://www.pregnancyjusticeus.org/laws-by-state/)
+
+[https://www.politico.com/news/2024/02/29/states-fetus-personhood-alabama-ivf-00143973](https://www.politico.com/news/2024/02/29/states-fetus-personhood-alabama-ivf-00143973)
 
 ### 2024 May
 
@@ -343,6 +435,13 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://www.propublica.org/people/kavitha-surana](https://www.propublica.org/people/kavitha-surana)
 
+
+2024-09-23 A woman was accused of murder after losing her pregnancy. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
+[https://kffhealthnews.org/race-and-health/pregnancy-loss-criminalization-homicide-south-carolina-college-student/](https://kffhealthnews.org/race-and-health/pregnancy-loss-criminalization-homicide-south-carolina-college-student/)
+
+[https://www.cnn.com/2024/09/23/health/south-carolina-abortion-kff-health-news-partner](https://www.cnn.com/2024/09/23/health/south-carolina-abortion-kff-health-news-partner)
+
 ### 2024 October
 
 2024-10-30 Josseli Barnica died in Texas after being told it would be a “crime” to intervene in her miscarriage. 
@@ -382,6 +481,12 @@ PAY WALL [https://www.bloomberg.com/opinion/articles/2017-01-03/make-america-mat
 
 [https://reproductiverights.org/abortion-deleted-from-all-hhs-web-pages/](https://reproductiverights.org/abortion-deleted-from-all-hhs-web-pages/)
 
+2025-01-20 Mississippi bill SB 2319 “Contraception Begins at Erection Act”. 
+
+[https://billstatus.ls.state.ms.us/documents/2025/html/SB/2300-2399/SB2319IN.htm](https://billstatus.ls.state.ms.us/documents/2025/html/SB/2300-2399/SB2319IN.htm)
+
+
+
 2025-01-23 Trump pardoned anti-abortion activists convicted under the FACE Act for blockading clinics and harassing patients and providers (Page 558 of Project 2025 outlines recommendations to question and/or dismantle the FACE Act.)
 
 [https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/](https://reproductiverights.org/trump-pardons-23-people-attacked-abortion-patients-clinics/)
@@ -397,6 +502,21 @@ The ban was supported by **ADF International legal communications director Elyss
 [https://www.npr.org/sections/goats-and-soda/2025/01/24/g-s1-42914/trump-abortion-re-enacts-policy-cutting-aid-to-groups-abroad-that-discuss-or-provide-abortions](https://www.npr.org/sections/goats-and-soda/2025/01/24/g-s1-42914/trump-abortion-re-enacts-policy-cutting-aid-to-groups-abroad-that-discuss-or-provide-abortions)
 
 [https://www.hrc.org/press-releases/10-shocking-facts-about-the-alliance-defending-freedom](https://www.hrc.org/press-releases/10-shocking-facts-about-the-alliance-defending-freedom)
+
+### 2025 February
+
+2025-02-11 A North Dakota State Legislator Lori Van Winkle said, “We have to be brave enough, righteous enough, and have enough integrity not only to our oath of office, but to all the claims of being pro-life and to being Christian, and actually do what the word of God says. And in case you don’t know if a baby at conception is human or not, I would like you to show me the first kangaroo or plant that acme out of a woman’s womb”. 
+
+[https://www.inforum.com/opinion/columns/port-minot-lawmaker-says-she-wont-sacrifice-to-attend-public-legislative-forums](https://www.inforum.com/opinion/columns/port-minot-lawmaker-says-she-wont-sacrifice-to-attend-public-legislative-forums)
+
+[https://ndlegis.gov/files/resource/69-2025/library/hb1373.pdf](https://ndlegis.gov/files/resource/69-2025/library/hb1373.pdf)
+
+### 2025 March
+
+2025-03-29 After receiving a false-positive drug screen for opioids after going into labor she was only allowed supervised time with her children. 
+
+[https://www.cbsnews.com/falsepositives/](https://www.cbsnews.com/falsepositives/)
+
 
 ### 2025 July
 
@@ -485,6 +605,11 @@ The ban was supported by **ADF International legal communications director Elyss
 
 ### 2026 February
 
+2026-02-10 Tens of thousands of mothers were flagged to police over flawed drug tests at childbirth. 
+
+[https://www.themarshallproject.org/2026/02/10/baby-hospital-mom-pregnant-police-drugs](https://www.themarshallproject.org/2026/02/10/baby-hospital-mom-pregnant-police-drugs)
+
+
 2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
 
 [https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4](https://www.youtube.com/watch?v=I57T89pskEc&list=WL&index=4)
@@ -502,6 +627,15 @@ The ban was supported by **ADF International legal communications director Elyss
 [https://www.usatoday.com/story/news/health/2026/03/17/costco-discount-fertility-treatments-ivf/89186184007](https://www.usatoday.com/story/news/health/2026/03/17/costco-discount-fertility-treatments-ivf/89186184007)
 
 [https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html](https://www.consumeraffairs.com/news/costco-takes-on-fertility-costs-with-major-drug-discounts-for-members-030926.html)
+
+2026-03-14 A woman who did not want to have a c-section was forced to join an emergency court hearing via tablet from her hospital bed while actively giving labor so a judge could decide for her how to deliver her baby. 
+
+[https://www.propublica.org/article/florida-court-hearing-c-section](https://www.propublica.org/article/florida-court-hearing-c-section)
+
+[https://www.propublica.org/article/florida-court-ordered-c-sections](https://www.propublica.org/article/florida-court-ordered-c-sections)
+
+PAY WALL [https://edition.cnn.com/2026/03/16/health/c-section-birth-judge-propublica](https://edition.cnn.com/2026/03/16/health/c-section-birth-judge-propublica)
+
 
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat.  It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
 

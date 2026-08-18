@@ -59,6 +59,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ## 1980s 
 
+1980-01-01 The Dr. Seuss biographer sued anti-abortion rights groups for using his book’s likeness in their stationery. 
+
 1982-01-01 Televangelist Jerry Falwell founded Virginia’s Liberty Godparent Home as an alternative to abortion. Former residents alleged coercion, shame, manipulation, forced birth, and pressured adoptions.
 
 1987-03-01 Televangelist Jim Bakker was accused of drugging and raping 21-year-old Jessica Hahn in a Florida hotel room in 1980.
@@ -95,11 +97,19 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2012-04-01 Rick Santorum campaigned on anti-gay rhetoric and abortion misinformation. He claimed there was nothing in America before white colonizers arrived and that Native Americans had not contributed to American culture, marriage equality would lead to sibling marriages or man on dog marriages, and gay rights prevented God from blessing America.
 
+2012-05-30 A woman was charged with murder of a fetus after a failed attempted suicide. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
 ## 2013 
 
 2013-02-28 Multiple GOP members voted against the Violence Against Women Act which was established in 1994.
 
 2013-05-29 Lindsey Graham opposed legislation that would have removed military commanders’ authority to overturn guilty verdicts in sexual assault cases. 
+
+## 2014 
+
+2014-10-10 An Alabama judge made it a crime to cause the death of an unborn child during an act of domestic violence.  Once a fetus is recognized as a separate victim, that same logic can be weaponized against the mother. 
+
+2014-12-12 A woman in Wisconsin quit meth once she found she was pregnant and voluntarily self-reported for help. On the day she self-reported the hospital refused to allow her to leave, forced her to join an emergency hearing for temporary physical custody of her unborn baby, denied her an attorney, and gave her fetus an attorney who immediately took a position adverse to the mother.  Tamara Loertscher 
 
 ## 2016 
 
@@ -108,6 +118,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 ## 2017 
 
 2017-01-03 News stories circulated around, “Make America Mate Again”.
+
+2017-02-13 Oklahoma lawmaker referred to pregnant women as “hosts”. 
 
 2017-10-01 Andrew Tate was banned from Twitter for saying women needed to “bear responsibility” for being sexually assaulted. Several videos have been taken down about comments made by Andrew Tate, such as 18-year-old women are more attractive than women in their 20s because “they’ve been through less dick”, that women should not be allowed to drive, and female self-defense is “bullshit”.
 
@@ -120,6 +132,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 ## 2019 
 
 2019-01-01 Alt-right women’s magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
+
+2019-06-27 Marshae Jones was indicted on manslaughter after she was shot in the stomach during pregnancy. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
 
 ## 2020 
 
@@ -143,11 +157,15 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2021-09-22 Vance was asked if a woman should be forced to carry a child to term after she was victim of incest or rape. He didn’t say no.
 
+2021-10-20 A woman was convicted of manslaughter over having a miscarriage. This was after she went to the ER multiple times for bleeding. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
 2021-11-11 Heritage Foundation’s Scott Yenor said, “Every effort must be made not to recruit women into engineering, but rather to recruit and demand more of men who become engineers. Ditto for med school and the law and every trade…If every Nobel Prize winner is a man, that’s not a failure. It’s kind of a cause for celebration. Why can’t our celebration of male excellence in sports be translated into all facets of life? More successful men will mean more happy citizenry and a stronger nation…Such medicated, quarrelsome, and meddlesome women gain their meaning through the seeming participation in the global project. They are agents of the new world – but not new life. Such women are now the backbone of every left-wing cosmopolitan party in the Western world. From the Greens in Germany to the Democratic party in America. And if our ideal woman is a childless media scold or a barren bureaucratic apparatchik, there is no question whether we can have a future. We can’t. There is a question of whether we deserve one”.
 
 ## 2022  
 
 2022-01-01 Andrew Tate started “Hustlers University” and amassed followers of a right-wing anti-feminist pro-patriarchal movement.
+
+2022-04-07 A Hanford woman faced criminal charges for the stillbirth of her baby. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
 
 2022-06-24 After the Trump administration overturned Roe v. Wade, the ability to ban contraception was returned to the States. This left several health organizations afraid to offer contraception for fear of breaking the law. One Attorney General nominee even compared birth control to fentanyl. 
 
@@ -161,15 +179,27 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2022-08-19 Amber Thurman died after delayed abortion-related care under restrictive state laws. Trump later dismissed questions about the case during a Fox forum. Amber passed away from preventable septic shock and retained products of conception following a medication abortion, with delays in receiving necessary medical care contributing to her death. The care was delayed because when she showed up at Piedmont Henry Hospital for a routine D&C to remove fetal tissue from her body that hadn’t been expelled, she was denied immediate treatment because her State had made performing the procedure a felony. Doctors would have been prosecuted for up to a decade in prison. She waited 20 hours in a hospital bed while providers monitored her blood pressure sinking and organ failure before they operated, but by then it was too late. During a forum with Fox News on women’s issues, Trump was asked, ”…Amber Thurman’s family have come out on a press call and they’re doing what’s called a prebuttal to our town hall right now…” to which Trump replied ”…Oh that’s nice. We’ll get better ratings, I promise.”*
 
+2022-09-08 Pregnant women were and are being jailed over drug use. Prolonged detention keeps them incarcerated far longer than standard non-pregnant detainees, dangerous jail conditions put the baby at further risk, and punitive policies deter women from seeking vital prenatal care or treatment. 
+
+2022-10-03 A Kings County woman was prosecuted for murder after she had a stillbirth. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
 2022-11-21 Elon Musk reinstated Andrew and Tristan Tate social media accounts from which they were previously banned for hate speech. One article explains how the Tate  brothers face charges of rape, human trafficking, trafficking of minors, and sex with a minor. Another article cites comments made by Andrew Tate where he said women should “bear responsibility” for being sexually assaulted.
 
 ## 2023 
 
+2023-03-02 Cherry Mason tested positive for drugs at the hospital after a stillbirth. She took a plea deal for manslaughter stating, “I knew the way that it works here in Oklahoma”. She was given a 12-year prison sentence and required to register as a violent offender. One of her children stated, “If you want to get to the core of the problem, you know, maybe make some kind of system to where we can help people with addiction a little bit more…Sometimes I really don’t think that’s what they want, though”. 
+
 2023-11-14 Due to anti-abortion laws in Texas Ciji Graham was refused treatment for a severe episode of atrial fibrillation and died. She was pregnant and doctors wouldn’t treat her.
+
+2023-12-22 A Black woman in Ohio was charged after miscarrying in her bathroom. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws. 
 
 ## 2024 
 
+2024-02-20 Alabama Supreme Court ruled that frozen embryos are children. This negatively impacted access to IVF. 
+
 2024-02-29 Republicans blocked an IVF bill while making false claims about human-animal chimeras; Emma Waters later suggested IVF outsourcing could invite birthright citizenship.
+
+2024-02-29 One third of US states have established fetal personhood by law or judicial decision. 
 
 2024-05-01 Florida banned abortions after 6 weeks before women even know they’re pregnant (giving women about 2 weeks to find care), even after over 150,000 registered Republican voters joined the rest of us to KEEP abortion access available. 
 
@@ -201,6 +231,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-09-16 At least two women in Georgia were refused treatment for a medical condition and died due to anti-abortion laws.
 
+2024-09-23 A woman was accused of murder after losing her pregnancy. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
+
 2024-10-30 Josseli Barnica died in Texas after being told it would be a “crime” to intervene in her miscarriage.
 
 2024-11-01 Nevaeh Crain died after she was refused lifesaving treatment due to anti-abortion laws.
@@ -229,17 +261,25 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2025-01-20 Trump rescinded Executive Order 14021 Guaranteeing an Educational Environment Free From Discrimination on the Basis of Sex, Including Sexual Orientation or Gender Identity.
 
+2025-01-20 Mississippi bill SB 2319 “Contraception Begins at Erection Act”. 
+
 2025-01-23 Trump pardoned anti-abortion activists convicted under the FACE Act for blockading clinics and harassing patients and providers (Page 558 of Project 2025 outlines recommendations to question and/or dismantle the FACE Act.)
 
 2025-01-24 Trump reenacted a policy banning aid to groups abroad that discuss or provide abortions.
 
 2025-01-24 Trump signed an executive order entitled “Enforcing the Hyde Amendment” to dismantle reproductive healthcare, end efforts to protect patient/provider privacy, cease abortion access, block data and research, and stop public education and awareness. 
 
+## 2025 February
+
+2025-02-11 A North Dakota State Legislator Lori Van Winkle said, “We have to be brave enough, righteous enough, and have enough integrity not only to our oath of office, but to all the claims of being pro-life and to being Christian, and actually do what the word of God says. And in case you don’t know if a baby at conception is human or not, I would like you to show me the first kangaroo or plant that acme out of a woman’s womb”. 
+
 ## 2025 March 
 
 2025-03-07 The Trump administration purged 26,000 military photos of anything referencing women or minorities including photos of the Enola Gay.
 
 2025-03-15 The Trump administration stripped away women’s history pages from the Arlington website.
+
+2025-03-29 After receiving a false-positive drug screen for opioids after going into labor she was only allowed supervised time with her children. 
 
 ## 2025 July 
 
@@ -315,6 +355,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-02-04 Elon Musk reposted from PubWanghaf, “It breaks my heart to say but in order to save this country we are probably going to have to do things that make women sad”. Elon Musk responded, “True words”.
 
+2026-02-10 Tens of thousands of mothers were flagged to police over flawed drug tests at childbirth. 
+
 2026-02-11 Founder of America First PAC Nick Fuentes said, “So just like Hitler imprisoned Gypsies, Jews, communists, you know, all of his political rivals, we have to do the same thing with women. And we’ll sort it out. We’ll find the good ones. They can prove themselves. Then we’ll let them go. So they go to the gulag first. They go to the breeding gulags. The good ones will be liberated. The bad ones will toil in the mines forever”. 
 
 2026-02-19 Nick Fuentes said, “Women are made to be f-ck-d”, claiming that women served one purpose only, and that was for intercourse. 
@@ -327,8 +369,9 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-03-08 Trump threatened to block legislation until Congress passed the SAVE Act.
 
-
 2026-03-12 Costco announced a partnership with Sesame and IVI RMA North America to offer discounted IVF treatment.
+
+2026-03-14 A woman who did not want to have a c-section was forced to join an emergency court hearing via tablet from her hospital bed while actively giving labor so a judge could decide for her how to deliver her baby. 
 
 2026-03-17 Ohio introduced bill HB-754 which would require a State-run registry of pregnancies requiring providers to provide a certificate of life within ten days of detecting a fetal heartbeat. It would also require death certificates be issued. If passing of the fetus (such as in miscarriage) is sudden, the provider is required to order an investigation into the death.
 
