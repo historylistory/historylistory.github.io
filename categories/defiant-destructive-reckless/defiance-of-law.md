@@ -638,3 +638,8 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/](https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/)
 
+2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 
+
+[https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump](https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump)
+
+[https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/](https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/)

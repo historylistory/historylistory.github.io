@@ -439,3 +439,5 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-08-12 Caitlin Clark spoke out against a recent influx of racist, misogynistic, transphobic and abusive online hate speech directed at the WNBA.
 
 2026-08-13 A surrogate gave birth to a baby with a heart condition despite intended parents seeking abortion. 
+
+2026-08-17 A judge ruled that Idaho must allow abortions when the pregnant person’s life is at risk. The judge wrote, “It is about self-preservation and the limit of the State’s power to make a woman suffer for the sake of an unborn child…A pregnant woman’s health is not a State resource to be allocated at the legislature’s whim”. 

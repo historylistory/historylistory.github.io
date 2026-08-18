@@ -365,3 +365,14 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)
 
+2026-08-16 Trump merchandise stores go out of business as their customer base dwindles. 
+
+[https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1](https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html](https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html)
+
+2026-08-17 A judge ruled that Idaho must allow abortions when the pregnant person’s life is at risk. The judge wrote, “It is about self-preservation and the limit of the State’s power to make a woman suffer for the sake of an unborn child…A pregnant woman’s health is not a State resource to be allocated at the legislature’s whim”. 
+
+[https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/](https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/)
+
+[https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions](https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions)

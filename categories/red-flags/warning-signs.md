@@ -455,3 +455,8 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 
 [https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)
 
+2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 
+
+[https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump](https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump)
+
+[https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/](https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/)

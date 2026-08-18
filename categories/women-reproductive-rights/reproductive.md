@@ -770,3 +770,8 @@ DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/54917
 
 [https://www.theguardian.com/us-news/2026/aug/14/surrogate-baby-texas-parents](https://www.theguardian.com/us-news/2026/aug/14/surrogate-baby-texas-parents)
 
+2026-08-17 A judge ruled that Idaho must allow abortions when the pregnant person’s life is at risk. The judge wrote, “It is about self-preservation and the limit of the State’s power to make a woman suffer for the sake of an unborn child…A pregnant woman’s health is not a State resource to be allocated at the legislature’s whim”. 
+
+[https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/](https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/)
+
+[https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions](https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions)

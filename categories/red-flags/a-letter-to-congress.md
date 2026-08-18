@@ -407,3 +407,4 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
 
+2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 

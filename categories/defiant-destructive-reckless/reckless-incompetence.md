@@ -834,3 +834,10 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations](https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations)
 
 [https://www.aap.org/](https://www.aap.org/)
+
+
+2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
+
+[https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war](https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war)
+
+[https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump](https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump)

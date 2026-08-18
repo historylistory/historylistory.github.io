@@ -530,3 +530,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 
 
 2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
+
+
+2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
+
+2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 

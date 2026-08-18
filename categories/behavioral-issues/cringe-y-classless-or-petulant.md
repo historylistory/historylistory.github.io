@@ -862,3 +862,9 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval](https://www.pbs.org/newshour/politics/appeals-court-rules-trump-cant-build-white-house-ballroom-without-congressional-approval)
 
 SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)
+
+2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
+
+[https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war](https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war)
+
+[https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump](https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump)

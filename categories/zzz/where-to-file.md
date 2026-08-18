@@ -32,3 +32,8 @@ permalink: /categories/zzz/where-to-file/
 
 [https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223](https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223)
 
+2026-08-16 Trump merchandise stores go out of business as their customer base dwindles. 
+
+[https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1](https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html](https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html)

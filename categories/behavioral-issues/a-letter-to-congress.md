@@ -659,3 +659,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 
 
 2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
+
+2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
