@@ -396,3 +396,12 @@ permalink: /categories/climate-change/weird-weather/
 [https://apnews.com/article/japan-rain-floods-00b3ce16f648f9c3885bf547edad1696](https://apnews.com/article/japan-rain-floods-00b3ce16f648f9c3885bf547edad1696)
 
 [https://www.aljazeera.com/video/newsfeed/2026/8/14/14-08-sv-japan-floods-chiba-jp](https://www.aljazeera.com/video/newsfeed/2026/8/14/14-08-sv-japan-floods-chiba-jp)
+
+2026-08-17 Hawaii was devastated by Hurricane Lala. 
+
+[https://www.hawaiinewsnow.com/2026/08/18/its-been-hard-hawaii-residents-navigate-days-long-power-outages-after-lala/](https://www.hawaiinewsnow.com/2026/08/18/its-been-hard-hawaii-residents-navigate-days-long-power-outages-after-lala/)
+
+[https://www.theguardian.com/us-news/2026/aug/17/storm-lala-hawaii-damage](https://www.theguardian.com/us-news/2026/aug/17/storm-lala-hawaii-damage)
+
+[https://www.civilbeat.org/2026/08/hurricane-lala-body-of-90-year-old-woman-found-in-field/](https://www.civilbeat.org/2026/08/hurricane-lala-body-of-90-year-old-woman-found-in-field/)
+

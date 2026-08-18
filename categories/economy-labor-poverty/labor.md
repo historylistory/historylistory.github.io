@@ -492,3 +492,8 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/](https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/)
 
+2026-08-18 Kellogg’s Omaha plant closed and laid off the remaining 350 employees. 
+
+[https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/](https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/)
+
+[https://nebraskapublicmedia.org/es/news/news-articles/last-days-approaching-for-workers-at-omaha-kelloggs-plant/](https://nebraskapublicmedia.org/es/news/news-articles/last-days-approaching-for-workers-at-omaha-kelloggs-plant/)

@@ -474,3 +474,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
 
+2026-08-17 Hawaii was devastated by Hurricane Lala. 
+

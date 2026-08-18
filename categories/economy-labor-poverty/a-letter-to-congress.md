@@ -1142,3 +1142,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-13 Gen Z is using sports betting as a part of their long term financial planning. 
 
 2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
+
+2026-08-18 Kellogg’s Omaha plant closed and laid off the remaining 350 employees. 

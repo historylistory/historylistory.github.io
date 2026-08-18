@@ -643,3 +643,10 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump](https://www.axios.com/2026/08/16/todd-blanche-doj-independence-trump)
 
 [https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/](https://thehill.com/homenews/administration/6032206-blanche-rejects-independence-pledge/)
+
+2026-08-18 A federal judge blocked Trump’s attempt to relocate the FBI headquarters and undermine 
+
+[https://apnews.com/article/fbi-headquarters-maryland-reagan-building-f5a77411bf54f3e17beb9cd41fd046a8](https://apnews.com/article/fbi-headquarters-maryland-reagan-building-f5a77411bf54f3e17beb9cd41fd046a8)
+
+[https://www.nbcwashington.com/news/local/judge-blocks-plan-to-scrap-fbi-headquarters-move-to-greenbelt/4143335/](https://www.nbcwashington.com/news/local/judge-blocks-plan-to-scrap-fbi-headquarters-move-to-greenbelt/4143335/)
+
