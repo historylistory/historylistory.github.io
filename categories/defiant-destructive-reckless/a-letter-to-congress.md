@@ -536,4 +536,6 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 
 
+2026-08-17 Kushner and Fred Trump (both family members) were sent for talks with Netanyahu to push Trump’s Gaza agenda. 
+
 2026-08-18 A federal judge blocked Trump’s attempt to relocate the FBI headquarters and undermine 

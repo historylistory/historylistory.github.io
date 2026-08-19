@@ -289,3 +289,10 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 
 [https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/](https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/)
 
+2026-08-17 USS Benfold was left stranded for several days in open waters after a power failure. 
+
+[https://news.usni.org/2026/08/17/uss-benfold-leaves-japan-after-returning-from-power-failure-repairs](https://news.usni.org/2026/08/17/uss-benfold-leaves-japan-after-returning-from-power-failure-repairs)
+
+[https://abcnews.com/Politics/navy-ship-power-4-days-south-china-sea/story?id=135744480](https://abcnews.com/Politics/navy-ship-power-4-days-south-china-sea/story?id=135744480)
+
+[https://www.cbsnews.com/news/uss-benfold-navy-days-without-power-south-china-sea/](https://www.cbsnews.com/news/uss-benfold-navy-days-without-power-south-china-sea/)

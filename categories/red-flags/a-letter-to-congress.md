@@ -410,3 +410,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-08-14 Trump said he would soon declare the Strait of Hormuz a US territory. 
 
 2026-08-17 Todd Blanche declined to pledge that the DOJ will operate independently of the White House. 
+
+2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
+
+2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.

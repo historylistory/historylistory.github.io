@@ -270,3 +270,11 @@ PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
 
 [https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)
+
+2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.
+
+[https://forward.com/news/841862/netanyahu-mamdani-israeli-election-campaign/](https://forward.com/news/841862/netanyahu-mamdani-israeli-election-campaign/)
+
+[https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/](https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/)
+
+[https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/](https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/)

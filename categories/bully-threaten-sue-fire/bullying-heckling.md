@@ -459,3 +459,15 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/](https://thehill.com/homenews/campaign/6012517-trump-abdul-el-sayed-michigan-senate-primary/)
 
 [https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/](https://www.detroitnews.com/story/news/politics/2026/08/06/president-trump-accuses-abdul-el-sayed-hates-jews-full-shi/91197410007/)
+
+
+2026-08-17 Trump launched attacks at CNN’s Kristen Holmes. 
+
+[https://www.yahoo.com/news/politics/articles/white-house-triples-down-trump-222834368.html](https://www.yahoo.com/news/politics/articles/white-house-triples-down-trump-222834368.html)
+
+[https://upolitics.com/news/trump-attacks-cnns-kristen-holmes-after-she-asks-president-about-aide-natalie-harp-white-house-says-her-kids-will-be-sickened/](https://upolitics.com/news/trump-attacks-cnns-kristen-holmes-after-she-asks-president-about-aide-natalie-harp-white-house-says-her-kids-will-be-sickened/)
+
+[https://www.theguardian.com/us-news/video/2026/aug/17/trump-says-be-quiet-cnn-reporter-oval-office](https://www.theguardian.com/us-news/video/2026/aug/17/trump-says-be-quiet-cnn-reporter-oval-office)
+
+[https://www.ms.now/news/trump-launches-personal-attack-on-cnns-kristen-holmes-in-oval-office](https://www.ms.now/news/trump-launches-personal-attack-on-cnns-kristen-holmes-in-oval-office)
+

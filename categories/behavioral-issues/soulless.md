@@ -1088,3 +1088,23 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 
 [https://www.democracynow.org/2026/8/12/headlines/us_could_see_three_executions_in_same_day_for_first_time_since_2010](https://www.democracynow.org/2026/8/12/headlines/us_could_see_three_executions_in_same_day_for_first_time_since_2010)
 
+2026-08-15 Genocide deniers
+
+[https://allisraelnews.com/republicans-have-hammered-democrats-over-antisemitism-now-one-of-their-own-has-some-explaining-to-do](https://allisraelnews.com/republicans-have-hammered-democrats-over-antisemitism-now-one-of-their-own-has-some-explaining-to-do)
+
+
+2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
+
+[https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza](https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza)
+
+[https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/](https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/)
+
+[https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845](https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845)
+
+[https://www.commondreams.org/news/ben-gvir-gaza-killing](https://www.commondreams.org/news/ben-gvir-gaza-killing)
+
+[https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/](https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/)
+
+[https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
+
+[https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)

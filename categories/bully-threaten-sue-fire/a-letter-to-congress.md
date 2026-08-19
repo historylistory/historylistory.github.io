@@ -689,3 +689,7 @@ Manhattan grand jury in the hush-money case.
 2026-08-14 The Trump administration allegedly carried out a surveillance program specifically targeting left-leaning groups in Minnesota as well as financial records.  This included labor unions such as Communications Workers of America, the SEIU, Sunrise Movement climate activists, and the AFL-CIO.  This stems from the White House NSPM-7 mandate. 
 
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+2026-08-17 Trump launched attacks at CNN’s Kristen Holmes. 
+
+2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.

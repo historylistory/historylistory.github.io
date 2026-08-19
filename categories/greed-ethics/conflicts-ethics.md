@@ -805,3 +805,8 @@ ABOUT THAT CASE [https://time.com/article/2026/08/11/us-supreme-court-suncor-v-b
 
 THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/](https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/)
 
+2026-08-17 Kushner and Fred Trump (both family members) were sent for talks with Netanyahu to push Trump’s Gaza agenda. 
+
+[https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/](https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/)
+
+[https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan](https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan)

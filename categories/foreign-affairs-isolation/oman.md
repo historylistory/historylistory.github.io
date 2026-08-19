@@ -25,6 +25,15 @@ permalink: /categories/foreign-affairs-isolation/oman/
 
 ### 2026 August
 
+2026-08-13 Oman worked to mitigate an oil spill from a stranded ship. 
+
+[https://www.middleeasteye.net/live-blog/live-blog-update/oman-intensifies-efforts-contain-oil-spill-stranded-ship](https://www.middleeasteye.net/live-blog/live-blog-update/oman-intensifies-efforts-contain-oil-spill-stranded-ship)
+
+[https://www.bloomberg.com/news/videos/2026-08-18/maniatis-oman-spill-cleanup-may-cost-usd-200-500m-video](https://www.bloomberg.com/news/videos/2026-08-18/maniatis-oman-spill-cleanup-may-cost-usd-200-500m-video)
+
+[https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life](https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life)
+
+[https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast](https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast)
 
 2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
 

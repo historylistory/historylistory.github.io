@@ -472,6 +472,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-13 Record-breaking rainfall and floods killed 8 people in Japan. 
 
+2026-08-13 Oman worked to mitigate an oil spill from a stranded ship. 
+
 2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
 
 2026-08-17 Hawaii was devastated by Hurricane Lala. 

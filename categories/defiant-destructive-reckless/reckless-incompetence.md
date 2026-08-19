@@ -841,3 +841,9 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war](https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war)
 
 [https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump](https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump)
+
+2026-08-17 Kushner and Fred Trump (both family members) were sent for talks with Netanyahu to push Trump’s Gaza agenda. 
+
+[https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/](https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/)
+
+[https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan](https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan)

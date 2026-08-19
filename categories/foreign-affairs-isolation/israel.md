@@ -565,3 +565,33 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
 
 [https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims](https://www.dailywire.com/news/leftist-anti-israel-smear-fails-sniff-test-as-u-n-backed-survey-debunks-starvation-claims)
+
+2026-08-17 Kushner and Fred Trump (both family members) were sent for talks with Netanyahu to push Trump’s Gaza agenda. 
+
+[https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/](https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/)
+
+[https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan](https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan)
+
+2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
+
+[https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza](https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza)
+
+[https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/](https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/)
+
+[https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845](https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845)
+
+[https://www.commondreams.org/news/ben-gvir-gaza-killing](https://www.commondreams.org/news/ben-gvir-gaza-killing)
+
+[https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/](https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/)
+
+[https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
+
+[https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)
+
+2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.
+
+[https://forward.com/news/841862/netanyahu-mamdani-israeli-election-campaign/](https://forward.com/news/841862/netanyahu-mamdani-israeli-election-campaign/)
+
+[https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/](https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/)
+
+[https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/](https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/)

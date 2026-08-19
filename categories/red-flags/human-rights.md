@@ -57,3 +57,19 @@ This is specifically for any Global Human Right council activity or events.
 [https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811](https://www.aa.com.tr/en/americas/us-defense-secretary-urges-latin-american-nations-to-leave-international-criminal-court/4025811)
 
 [https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850](https://en.yenisafak.com/world/us-defense-chief-urges-latin-american-allies-to-quit-icc-3721850)
+
+2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
+
+[https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza](https://www.democracynow.org/2026/8/18/headlines/israels_far_right_minister_itamar_ben_gvir_demands_kill_quota_in_gaza)
+
+[https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/](https://www.cbsnews.com/news/israel-ben-gvir-gaza-netanyahu-kill-every-night/)
+
+[https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845](https://abcnews.com/International/wireStory/israels-ben-gvir-advocates-killing-30-40-people-135687845)
+
+[https://www.commondreams.org/news/ben-gvir-gaza-killing](https://www.commondreams.org/news/ben-gvir-gaza-killing)
+
+[https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/](https://www.palestinechronicle.com/not-even-people-ben-gvir-calls-for-killing-30-40-palestinians-every-night-in-gaza/)
+
+[https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
+
+[https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)

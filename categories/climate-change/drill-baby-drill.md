@@ -157,3 +157,13 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 ABOUT THAT CASE [https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/](https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/)
 
 THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/](https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/)
+
+2026-08-13 Oman worked to mitigate an oil spill from a stranded ship. 
+
+[https://www.middleeasteye.net/live-blog/live-blog-update/oman-intensifies-efforts-contain-oil-spill-stranded-ship](https://www.middleeasteye.net/live-blog/live-blog-update/oman-intensifies-efforts-contain-oil-spill-stranded-ship)
+
+[https://www.bloomberg.com/news/videos/2026-08-18/maniatis-oman-spill-cleanup-may-cost-usd-200-500m-video](https://www.bloomberg.com/news/videos/2026-08-18/maniatis-oman-spill-cleanup-may-cost-usd-200-500m-video)
+
+[https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life](https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life)
+
+[https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast](https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast)

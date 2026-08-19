@@ -428,3 +428,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-08-11 A US oil company linked to Trump called Greenland energy announced they plan to drill in Greenland without local approval 
 
 2026-08-11 According to a review of financial disclosures Supreme Court Justice Samuel Alito profited up to $2.9M from his fossil fuel interests between 2005 and 2024.  This came as SCOTUS was about to hear a case involving Suncor Energy and Exxon. 
+
+2026-08-17 Kushner and Fred Trump (both family members) were sent for talks with Netanyahu to push Trump’s Gaza agenda. 
