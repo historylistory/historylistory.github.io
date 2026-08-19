@@ -47,6 +47,10 @@ permalink: /categories/foreign-affairs-isolation/aaa-global-security/
 
 ### 2026 June
 
+2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
+
+[https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)
+
 2026-06-12 U.S. officials confirmed plans to remove air and naval forces from the EU amidst pressure from Russia.
 
 [https://www.aljazeera.com/news/2026/6/12/us-to-cut-air-and-naval-assets-deployed-for-nato-operations-in-europe](https://www.aljazeera.com/news/2026/6/12/us-to-cut-air-and-naval-assets-deployed-for-nato-operations-in-europe)

@@ -190,6 +190,11 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 ### 2025 August
 
+2025-08-28 Genocide deniers 
+
+[https://newrepublic.com/post/199737/jewish-host-adam-friedland-ritchie-torres-israel-genocide-gaza](https://newrepublic.com/post/199737/jewish-host-adam-friedland-ritchie-torres-israel-genocide-gaza)
+
+
 2025-08-30 Israel ramped up attacks on Palestine, and the combat zone was expanded to Gaza City.
 
 [https://www.aljazeera.com/news/2025/8/30/we-are-on-the-streets-palestinians-flee-israels-assault-on-gaza-city](https://www.aljazeera.com/news/2025/8/30/we-are-on-the-streets-palestinians-flee-israels-assault-on-gaza-city)
@@ -662,6 +667,13 @@ April 2025: [https://www.cair.com/press_releases/cair-calls-israeli-military-bur
 [https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
+[https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/](https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/)
+
+[https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
+
 
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
 

@@ -88,6 +88,10 @@ permalink: /categories/foreign-affairs-isolation/aaa-un/
 
 ### 2026 June
 
+2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
+
+[https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)
+
 2026-06-09 The UN documented hundreds of cases of extrajudicial punishment in Gaza including knee capping and bone breaking with metal pipes. 
 
 [https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians](https://www.democracynow.org/2026/6/10/headlines/un_report_armed_groups_in_gaza_have_beaten_maimed_and_executed_dozens_of_palestinians)

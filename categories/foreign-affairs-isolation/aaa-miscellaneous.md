@@ -43,3 +43,6 @@ PAY WALL [https://www.nytimes.com/2025/04/05/us/politics/aid-workers-myanmar-fir
 
 TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
 
+2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
+
+[https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)

@@ -650,6 +650,10 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
 
+2026-08-07 Kristi Noem erected a bronze statue of herself in Pierre South Dakota. 
+
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
 
 2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 

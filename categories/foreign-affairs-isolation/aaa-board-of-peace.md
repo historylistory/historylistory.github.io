@@ -50,6 +50,10 @@ permalink: /categories/foreign-affairs-isolation/aaa-board-of-peace/
 
 ### 2026 June
 
+2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
+
+[https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)
+
 2026-06-28 Trump’s so-called “Board of Peace” announced a sweeping grant of legal immunity against itself. They also announced the rights to obtain public property in Gaza, “free of charge”.
 
 [https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un](https://www.theguardian.com/law/2026/jun/27/board-of-peace-legal-immunity-un)

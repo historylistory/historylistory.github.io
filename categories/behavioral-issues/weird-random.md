@@ -384,3 +384,10 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 [https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
 
 [https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
+
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
+[https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/](https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/)
+
+[https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
+

@@ -84,6 +84,11 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 
 ### 2025 August 
+
+2025-08-28 Genocide deniers 
+
+[https://newrepublic.com/post/199737/jewish-host-adam-friedland-ritchie-torres-israel-genocide-gaza](https://newrepublic.com/post/199737/jewish-host-adam-friedland-ritchie-torres-israel-genocide-gaza)
+
 2025-08-30 The U.S. Navy sank a Venezuelan vessel in international waters.
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-venezuela-drug-boat-attack-video-b2819566.html](https://www.the-independent.com/news/world/americas/us-politics/trump-venezuela-drug-boat-attack-video-b2819566.html)
@@ -609,6 +614,12 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention](https://www.democracynow.org/2026/8/10/headlines/nyt_global_sumud_flotilla_activists_detail_beatings_electric_shocks_and_other_abuse_in_israeli_detention)
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
+
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
+[https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/](https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/)
+
+[https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
 
 2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
 

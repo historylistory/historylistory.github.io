@@ -8,6 +8,13 @@ permalink: /categories/foreign-affairs-isolation/oman/
 
 ### 2026 May
 
+2026-05-15 A UAE tanker was seized near Oman. 
+
+[https://www.pbs.org/newshour/world/tensions-flare-near-strait-of-hormuz-as-one-ship-is-seized-and-another-is-sunk](https://www.pbs.org/newshour/world/tensions-flare-near-strait-of-hormuz-as-one-ship-is-seized-and-another-is-sunk)
+
+[https://apnews.com/article/iran-us-israel-war-oil-hormuz-may-14-2026-efb53c39ee6334733e1cb22ca4a6c279](https://apnews.com/article/iran-us-israel-war-oil-hormuz-may-14-2026-efb53c39ee6334733e1cb22ca4a6c279)
+
+
 2026-05-28 Trump threatened to “blow up” Oman. 
 
 [https://www.theguardian.com/us-news/2026/may/27/donald-trump-oman-threat-strait-hormuz](https://www.theguardian.com/us-news/2026/may/27/donald-trump-oman-threat-strait-hormuz)

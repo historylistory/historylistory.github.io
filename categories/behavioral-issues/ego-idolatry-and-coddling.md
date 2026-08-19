@@ -416,3 +416,8 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 
 [https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
 
+2026-08-07 Kristi Noem erected a bronze statue of herself in Pierre South Dakota. 
+
+[https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol](https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol)
+
+[https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/](https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/)

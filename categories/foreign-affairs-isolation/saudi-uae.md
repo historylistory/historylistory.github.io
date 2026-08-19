@@ -163,6 +163,12 @@ PAYWALL [https://www.wsj.com/business/deals/three-gulf-funds-agree-to-back-param
 
 TIMESTAMP 1:20 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s)
 
+2026-05-15 A UAE tanker was seized near Oman. 
+
+[https://www.pbs.org/newshour/world/tensions-flare-near-strait-of-hormuz-as-one-ship-is-seized-and-another-is-sunk](https://www.pbs.org/newshour/world/tensions-flare-near-strait-of-hormuz-as-one-ship-is-seized-and-another-is-sunk)
+
+[https://apnews.com/article/iran-us-israel-war-oil-hormuz-may-14-2026-efb53c39ee6334733e1cb22ca4a6c279](https://apnews.com/article/iran-us-israel-war-oil-hormuz-may-14-2026-efb53c39ee6334733e1cb22ca4a6c279)
+
 2026-05-23 Trump campaigned for countries to normalize relations with Israel by joining the Abraham Accords.  According to ABC News Australia, leaders fell silent during a phone conference when Trump insisted these countries must side with Israel. In a social media post, Trump said he was “…mandatorily requesting that all Countries immediately sign the Abraham Accords…”.  
 
 [https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3](https://www.youtube.com/watch?v=T1omqCrvapw&list=WL&index=3)

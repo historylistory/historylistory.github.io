@@ -549,6 +549,13 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 
 PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html](https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-israel-abuse.html)
 
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
+[https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/](https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/)
+
+[https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
+
+
 2026-08-11 Trump-supported new president of Columbia recognized Morocco sovereignty over occupied Western Sahara. Columbia froze diplomatic relations with the Saharawi Arab Democratic Republic. 
 
 [https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara](https://www.democracynow.org/2026/8/11/headlines/colombia_recognizes_moroccos_sovereignty_over_occupied_western_sahara)

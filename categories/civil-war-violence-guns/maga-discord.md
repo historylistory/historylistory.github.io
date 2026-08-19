@@ -630,6 +630,12 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 
 [https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/](https://thehill.com/homenews/senate/6021261-cassidy-trump-mmr-vaccine-order/)
 
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
+[https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/](https://combatantisemitism.org/cam-news/pro-israel-advocate-assaulted-by-failed-congressional-candidate-after-los-angeles-podcast-debate/)
+
+[https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
+
 2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
 
 [https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223](https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223)

@@ -129,6 +129,10 @@ SUB WALL [https://www.space.com/space-exploration/artemis/trump-invited-the-arte
 
 ### 2026 June
 
+2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
+
+[https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)
+
 2026-06-25 Trump aired grievances over NATO not supporting the war in Iran. 
 
 [https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support](https://www.npr.org/2026/06/25/nx-s1-5869806/trump-airs-grievances-with-nato-chief-over-alliances-lack-of-iran-war-support)

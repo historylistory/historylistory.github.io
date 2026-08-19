@@ -399,6 +399,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-10 Greenland issued a warning against the US firm responsible for dropping off drilling equipment, telling them not to drill on their territory. 
 
+2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
+
 2026-08-12 ICE announced plans to purchase $20M on electric-shock gloves manufactured by Compliant Technologies LLC. 
 
 2026-08-12 After Columbia authorized joint military operations with the US against armed Columbia groups Hegseth stated, “I strongly encourage every AC3 member to leave the ICC and reject their attempts to rob your governments and your courts of your sovereignty. I know as a solider I swore an oath to the Constitution, not some fake and illegitimate international court”. 
