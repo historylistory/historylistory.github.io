@@ -357,3 +357,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
 
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
+
+2026-08-20 Former Justice Department attorney Haley Van Erem filed a complaint against the Trump administration, writing that the government probes into schools were, “an unlawful process designed to achieve predetermined political goals”. 

@@ -75,3 +75,8 @@ permalink: /categories/education/villainizing-rhetoric/
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
 
 [https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)
+
+2026-08-20 Former Justice Department attorney Haley Van Erem filed a complaint against the Trump administration, writing that the government probes into schools were, “an unlawful process designed to achieve predetermined political goals”. 
+
+[https://www.cbsnews.com/news/justice-department-harvard-brown-columbia-haley-van-erem-whistleblower/](https://www.cbsnews.com/news/justice-department-harvard-brown-columbia-haley-van-erem-whistleblower/)
+

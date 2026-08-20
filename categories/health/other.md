@@ -143,3 +143,11 @@ permalink: /categories/health/other/
 
 [https://www.newsweek.com/mexico-warns-of-diarrhea-risk-when-visiting-us-12208368](https://www.newsweek.com/mexico-warns-of-diarrhea-risk-when-visiting-us-12208368)
 
+### 2026 August
+
+2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 
+
+[https://www.pbs.org/newshour/politics/trump-picks-white-house-aide-dr-heidi-overton-to-lead-fda](https://www.pbs.org/newshour/politics/trump-picks-white-house-aide-dr-heidi-overton-to-lead-fda)
+
+[https://www.democracynow.org/2026/8/20/headlines/trump_nominates_anti_abortion_activist_to_lead_fda](https://www.democracynow.org/2026/8/20/headlines/trump_nominates_anti_abortion_activist_to_lead_fda)
+

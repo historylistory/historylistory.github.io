@@ -240,3 +240,12 @@ A LONG RUNNING FEUD [https://www.youtube.com/shorts/IAVtyQiuGMA](https://www.you
 
 TIMESTAMP 6:55 [https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s](https://www.youtube.com/watch?v=K4KeRa5DyCQ&list=WL&index=1&t=25s)
 
+2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
+
+[https://www.nbcnews.com/news/us-news/former-fauci-adviser-david-morens-pleads-guilty-conceal-covid-records-rcna593293](https://www.nbcnews.com/news/us-news/former-fauci-adviser-david-morens-pleads-guilty-conceal-covid-records-rcna593293)
+
+2026-08-20 Moderna and Merck produced an experimental vaccine that might prevent skin cancer from returning. It relies on the same mRNA technology that led to the rapid deployment of lifesaving vaccines during the COVID pandemic. This came after the Trump administration slashed half a billion dollars in contracts to develop mRNA projects. 
+
+[https://thehill.com/policy/healthcare/6038285-merck-moderna-melanoma-vaccine-success/](https://thehill.com/policy/healthcare/6038285-merck-moderna-melanoma-vaccine-success/)
+
+[https://www.today.com/video/moderna-and-merck-skin-cancer-vaccine-shows-early-promise-268575813701](https://www.today.com/video/moderna-and-merck-skin-cancer-vaccine-shows-early-promise-268575813701)

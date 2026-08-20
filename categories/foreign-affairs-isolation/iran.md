@@ -2123,3 +2123,10 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.nbcnews.com/politics/trump-administration/trump-orders-military-substantially-reduce-joint-exercises-south-korea-rcna592832](https://www.nbcnews.com/politics/trump-administration/trump-orders-military-substantially-reduce-joint-exercises-south-korea-rcna592832)
 
 [https://apnews.com/article/korea-trump-military-exercises-ae21e0af5ea16f0a74e9a176b3cc2136](https://apnews.com/article/korea-trump-military-exercises-ae21e0af5ea16f0a74e9a176b3cc2136)
+
+2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
+
+[https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490](https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490)
+
+[https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran](https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran)
+

@@ -486,3 +486,10 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 [https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it](https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it)
 
 [https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s](https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s)
+
+2026-08-20 The national debt surpassed $40TRN. For contrast, the national debt in 2016 was $19TRN.
+
+[https://www.economist.com/the-world-in-brief/2026/08/20/4104dc98-9c7f-45fa-86c5-f6ad9f2c45bd](https://www.economist.com/the-world-in-brief/2026/08/20/4104dc98-9c7f-45fa-86c5-f6ad9f2c45bd)
+
+[https://www.thetimes.com/business/economics/article/many-at-fed-wanted-to-raise-rates-vhbzhbn78](https://www.thetimes.com/business/economics/article/many-at-fed-wanted-to-raise-rates-vhbzhbn78)
+

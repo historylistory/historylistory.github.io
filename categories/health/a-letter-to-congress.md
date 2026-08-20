@@ -655,6 +655,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
 
+2026-08-07 In a statement Senator Maggie Hassan stated, “The goal was to wait for Dr. Fauci to make any kind of misstatement and then have a weaponized Department of Justice file criminal charges for that new statement that would not have been covered by the pardon, leaving Dr. Fauci little choice but to invoke his Constitutional right to not walk directly into a trap”. 
+
 2026-08-10 RFK held an event to target food supply and chemical additives. 
 
 2026-08-10 Republican Senator Dr. Bill Cassidy of Louisiana criticized Trump’s order to reduce childhood vaccines, stating, “I’m a doctor. This executive order is wrong. The president does not have the expertise to make these changes”. 
@@ -664,3 +666,9 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
 
 2026-08-13 Trump held up an article from Washington Post about a drop in prescription prices, claimed it was his doing, and the White House ran with it. However, the article he held up reads, “Some experts said a Biden-era policy that requires Medicare to negotiate prices for some popular prescription drugs is more likely to be driving down costs”. 
+
+2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
+
+2026-08-20 Moderna and Merck produced an experimental vaccine that might prevent skin cancer from returning. It relies on the same mRNA technology that led to the rapid deployment of lifesaving vaccines during the COVID pandemic. This came after the Trump administration slashed half a billion dollars in contracts to develop mRNA projects. 
+
+2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 

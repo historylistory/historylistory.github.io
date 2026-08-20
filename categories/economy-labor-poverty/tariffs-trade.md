@@ -420,3 +420,10 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 [https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news](https://www.theguardian.com/world/live/2026/aug/06/iran-oman-strait-of-hormuz-yemen-houthis-israel-lebanon-gaza-us-donald-trump-middle-east-crisis-live-news)
 
 [https://www.bbc.com/news/articles/ckg9d3eyeggo](https://www.bbc.com/news/articles/ckg9d3eyeggo)
+
+2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
+
+[https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490](https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490)
+
+[https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran](https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran)
+

@@ -779,3 +779,10 @@ DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/54917
 2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
 
 [https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5](https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5)
+
+2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 
+
+[https://www.pbs.org/newshour/politics/trump-picks-white-house-aide-dr-heidi-overton-to-lead-fda](https://www.pbs.org/newshour/politics/trump-picks-white-house-aide-dr-heidi-overton-to-lead-fda)
+
+[https://www.democracynow.org/2026/8/20/headlines/trump_nominates_anti_abortion_activist_to_lead_fda](https://www.democracynow.org/2026/8/20/headlines/trump_nominates_anti_abortion_activist_to_lead_fda)
+

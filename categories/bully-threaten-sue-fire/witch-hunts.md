@@ -278,3 +278,8 @@ PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration
 [https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/](https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/)
 
 [https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/](https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/)
+
+2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
+
+[https://www.nbcnews.com/news/us-news/former-fauci-adviser-david-morens-pleads-guilty-conceal-covid-records-rcna593293](https://www.nbcnews.com/news/us-news/former-fauci-adviser-david-morens-pleads-guilty-conceal-covid-records-rcna593293)
+

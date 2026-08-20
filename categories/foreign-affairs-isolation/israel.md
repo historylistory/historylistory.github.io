@@ -612,3 +612,10 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 [https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes](https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes)
 
 [https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation](https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation)
+
+2026-08-20 Israel said it would not be investigating the attack that killed aid workers from World Central Kitchen, MSF and Doctors Without Borders. 
+
+[https://www.doctorswithoutborders.org/latest/msf-condemns-israeli-military-decision-deny-investigation-killings-our-staff-gaza](https://www.doctorswithoutborders.org/latest/msf-condemns-israeli-military-decision-deny-investigation-killings-our-staff-gaza)
+
+[https://www.dw.com/en/israel-idf-gaza-criminal-investigation-hind-rajab-un-msf-wck/a-78429726](https://www.dw.com/en/israel-idf-gaza-criminal-investigation-hind-rajab-un-msf-wck/a-78429726)
+

@@ -46,3 +46,9 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 2026-06-08 Headline “Trump is making the US an increasingly irrelevant power”. 
 
 [https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html](https://slate.com/news-and-politics/2026/06/trump-iran-israel-ukraine-war-foreign-policy.html)
+
+2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
+
+[https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490](https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490)
+
+[https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran](https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran)

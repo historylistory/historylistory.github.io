@@ -155,3 +155,12 @@ Great Barrington Declaration links:
 [https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html](https://www.cdc.gov/cyclosporiasis/outbreaks/07-26/index.html)
 
 [https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/](https://www.forbes.com/sites/maryroeloffs/2026/07/20/heres-where-the-cyclosporiasis-outbreak-stands-after-taylor-farms-false-positive/)
+
+### 2026 August
+
+2026-08-20 Moderna and Merck produced an experimental vaccine that might prevent skin cancer from returning. It relies on the same mRNA technology that led to the rapid deployment of lifesaving vaccines during the COVID pandemic. This came after the Trump administration slashed half a billion dollars in contracts to develop mRNA projects. 
+
+[https://thehill.com/policy/healthcare/6038285-merck-moderna-melanoma-vaccine-success/](https://thehill.com/policy/healthcare/6038285-merck-moderna-melanoma-vaccine-success/)
+
+[https://www.today.com/video/moderna-and-merck-skin-cancer-vaccine-shows-early-promise-268575813701](https://www.today.com/video/moderna-and-merck-skin-cancer-vaccine-shows-early-promise-268575813701)
+

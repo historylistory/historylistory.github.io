@@ -1144,3 +1144,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
 
 2026-08-18 Kellogg’s Omaha plant closed and laid off the remaining 350 employees. 
+
+2026-08-20 The national debt surpassed $40TRN. For contrast, the national debt in 2016 was $19TRN.
+
+2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
