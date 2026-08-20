@@ -863,15 +863,29 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 
 SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755](https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-house-ballroom-01028755)
 
+2026-08-07 Kristi Noem erected a bronze statue of herself in Pierre South Dakota. 
+
+[https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol](https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol)
+
+[https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/](https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/)
+
+
 2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
 
 [https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war](https://newrepublic.com/post/214401/trump-bomb-shit-oman-iran-war)
 
 [https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump](https://www.cnn.com/2026/08/17/world/live-news/iran-war-trump)
 
-2026-08-07 Kristi Noem erected a bronze statue of herself in Pierre South Dakota. 
 
-[https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol](https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol)
 
-[https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/](https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/)
+2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
+
+[https://www.ms.now/news/trump-aide-natalie-harp-worked-at-the-white-house-without-security-clearance-for-a-year](https://www.ms.now/news/trump-aide-natalie-harp-worked-at-the-white-house-without-security-clearance-for-a-year)
+
+[https://www.mediaite.com/media/news/trump-reportedly-had-to-intervene-after-natalie-harp-kept-declining-to-seek-security-clearance/](https://www.mediaite.com/media/news/trump-reportedly-had-to-intervene-after-natalie-harp-kept-declining-to-seek-security-clearance/)
+
+[https://www.forbes.com/sites/antoniopequenoiv/2026/08/19/natalie-harp-worked-at-white-house-for-over-a-year-without-security-clearance-report-says/](https://www.forbes.com/sites/antoniopequenoiv/2026/08/19/natalie-harp-worked-at-white-house-for-over-a-year-without-security-clearance-report-says/)
+
+[https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/](https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/)
+
 

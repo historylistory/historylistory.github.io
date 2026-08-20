@@ -396,3 +396,18 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 [https://www.democracynow.org/2026/8/20/headlines/trump_leads_press_corps_on_bizarre_40_minute_tour_of_the_white_house_touting_plans_for_new_helipad](https://www.democracynow.org/2026/8/20/headlines/trump_leads_press_corps_on_bizarre_40_minute_tour_of_the_white_house_touting_plans_for_new_helipad)
 
 [https://www.theguardian.com/us-news/2026/aug/19/trump-white-house-renovations](https://www.theguardian.com/us-news/2026/aug/19/trump-white-house-renovations)
+
+2026-08-19 Multiple stories emerged about the unhealthy relationship between Trump and his aide Natalie Harp. 
+
+[https://www.yahoo.com/news/politics/articles/trump-relationship-natalie-harp-takes-230903036.html](https://www.yahoo.com/news/politics/articles/trump-relationship-natalie-harp-takes-230903036.html)
+
+[https://www.bbc.com/news/articles/c80nzdjgmk3o](https://www.bbc.com/news/articles/c80nzdjgmk3o)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-truth-social-natalie-harp-b3034302.html](https://www.the-independent.com/news/world/americas/us-politics/trump-truth-social-natalie-harp-b3034302.html)
+
+[https://www.youtube.com/watch?v=Uek25q7qFmk](https://www.youtube.com/watch?v=Uek25q7qFmk)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-truth-social-natalie-harp-b3034302.html](https://www.the-independent.com/news/world/americas/us-politics/trump-truth-social-natalie-harp-b3034302.html)
+
+[https://people.com/natalie-harp-brother-speaks-out-on-her-trump-role-12063290](https://people.com/natalie-harp-brother-speaks-out-on-her-trump-role-12063290)
+

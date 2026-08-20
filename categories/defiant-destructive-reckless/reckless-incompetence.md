@@ -32,6 +32,17 @@ permalink: /categories/defiant-destructive-reckless/reckless-incompetence/
 
 [https://edsource.org/updates/mcmahon-confirmed-as-u-s-secretary-of-education](https://edsource.org/updates/mcmahon-confirmed-as-u-s-secretary-of-education)
 
+### 2019 
+
+2019-03-30 After the 2019 Hanoi Summit collapsed Trump allegedly disclosed classified information about North Korean nuclear submarines.  
+
+[https://www.aljazeera.com/news/2019/3/30/us-asked-north-korea-to-hand-over-all-nuclear-weapons-report](https://www.aljazeera.com/news/2019/3/30/us-asked-north-korea-to-hand-over-all-nuclear-weapons-report)
+
+[https://www.aljazeera.com/news/2023/10/6/trump-revealed-us-nuclear-subs-secrets-to-australian-businessman-us-media](https://www.aljazeera.com/news/2023/10/6/trump-revealed-us-nuclear-subs-secrets-to-australian-businessman-us-media)
+
+[https://www.theaustralian.com.au/news/latest-news/seoul-detects-north-korean-missile-launches-after-trump-says-to-meet-kim/news-story/514c7e720de2111e3c7897a34290004f](https://www.theaustralian.com.au/news/latest-news/seoul-detects-north-korean-missile-launches-after-trump-says-to-meet-kim/news-story/514c7e720de2111e3c7897a34290004f)
+
+
 ### 2021
 
 2021-01-01 FBI director Kash ‘Money” Patel previously hosted the Spotify podcast “Kash’s Corner,” focused on conspiracies and “whistleblowing.”
@@ -847,3 +858,11 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/](https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/)
 
 [https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan](https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan)
+
+2026-08-20 During an impromptu helipad tour, Trump allegedly disclosed classified information about North Korea’s nuclear arsenal. 
+
+[https://www.foxnews.com/politics/trump-reveals-exact-number-north-koreas-nuclear-weapons](https://www.foxnews.com/politics/trump-reveals-exact-number-north-koreas-nuclear-weapons)
+
+[https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/](https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/)
+
+[https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110](https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110)

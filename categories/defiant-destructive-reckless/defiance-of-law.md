@@ -655,3 +655,14 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp](https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp)
 
 [https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)
+
+2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
+
+[https://www.ms.now/news/trump-aide-natalie-harp-worked-at-the-white-house-without-security-clearance-for-a-year](https://www.ms.now/news/trump-aide-natalie-harp-worked-at-the-white-house-without-security-clearance-for-a-year)
+
+[https://www.mediaite.com/media/news/trump-reportedly-had-to-intervene-after-natalie-harp-kept-declining-to-seek-security-clearance/](https://www.mediaite.com/media/news/trump-reportedly-had-to-intervene-after-natalie-harp-kept-declining-to-seek-security-clearance/)
+
+[https://www.forbes.com/sites/antoniopequenoiv/2026/08/19/natalie-harp-worked-at-white-house-for-over-a-year-without-security-clearance-report-says/](https://www.forbes.com/sites/antoniopequenoiv/2026/08/19/natalie-harp-worked-at-white-house-for-over-a-year-without-security-clearance-report-says/)
+
+[https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/](https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/)
+

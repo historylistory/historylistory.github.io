@@ -55,6 +55,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 ## 2019 
 
+2019-03-30 After the 2019 Hanoi Summit collapsed Trump allegedly disclosed classified information about North Korean nuclear submarines.  
+
 2019-09-16 Trump faced numerous allegations of violating the Constitution’s Foreign and Domestic Emoluments Clauses by keeping ownership of businesses while in office, accepting gifts, and business entanglements with foreign officials.
 
 ## 2021 
@@ -541,3 +543,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-18 A federal judge blocked Trump’s attempt to relocate the FBI headquarters and undermine 
 
 2026-08-18 Minnesota has sued Texas Governor Abbott to force him to extradite an ICE agent to stand trial in Minnesota for felony assault charges and falsely reporting a crime. Prosecutors allege the ICE agent shot a man in the leg through his home then lied by claiming the assault was self-defense. Governor Abbot has refused to sign extradition. 
+
+2026-08-20 During an impromptu helipad tour, Trump allegedly disclosed classified information about North Korea’s nuclear arsenal. 
+
+2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 

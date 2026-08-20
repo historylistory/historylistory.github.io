@@ -24,6 +24,17 @@ permalink: /categories/foreign-affairs-isolation/north-korea/
 
 [https://www.npr.org/2017/03/08/519282253/u-n-ambassador-nikki-haley-says-all-options-on-table-with-north-korea](https://www.npr.org/2017/03/08/519282253/u-n-ambassador-nikki-haley-says-all-options-on-table-with-north-korea)
 
+### 2019 
+
+2019-03-30 After the 2019 Hanoi Summit collapsed Trump allegedly disclosed classified information about North Korean nuclear submarines.  
+
+[https://www.aljazeera.com/news/2019/3/30/us-asked-north-korea-to-hand-over-all-nuclear-weapons-report](https://www.aljazeera.com/news/2019/3/30/us-asked-north-korea-to-hand-over-all-nuclear-weapons-report)
+
+[https://www.aljazeera.com/news/2023/10/6/trump-revealed-us-nuclear-subs-secrets-to-australian-businessman-us-media](https://www.aljazeera.com/news/2023/10/6/trump-revealed-us-nuclear-subs-secrets-to-australian-businessman-us-media)
+
+[https://www.theaustralian.com.au/news/latest-news/seoul-detects-north-korean-missile-launches-after-trump-says-to-meet-kim/news-story/514c7e720de2111e3c7897a34290004f](https://www.theaustralian.com.au/news/latest-news/seoul-detects-north-korean-missile-launches-after-trump-says-to-meet-kim/news-story/514c7e720de2111e3c7897a34290004f)
+
+
 ### 2026 March
 
 2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism. 
@@ -40,3 +51,25 @@ permalink: /categories/foreign-affairs-isolation/north-korea/
 
 [https://www.nbcnews.com/world/north-korea/kim-jong-un-destroyer-choe-hyon-nuclear-navy-rcna351523](https://www.nbcnews.com/world/north-korea/kim-jong-un-destroyer-choe-hyon-nuclear-navy-rcna351523)
 
+### 2026 August
+
+2026-08-19 After Trump claimed he would be meeting with North Korean leader Kim Jong Un, his sister Kim Yo Jong dismissed the claims. 
+
+[https://www.theguardian.com/world/2026/aug/19/kim-jong-un-sister-doubt-trump-claims-secret-us-north-korea-talks](https://www.theguardian.com/world/2026/aug/19/kim-jong-un-sister-doubt-trump-claims-secret-us-north-korea-talks)
+
+[https://thediplomat.com/2026/08/north-korea-dismisses-trumps-recent-overtures-to-kim-jong-un/](https://thediplomat.com/2026/08/north-korea-dismisses-trumps-recent-overtures-to-kim-jong-un/)
+
+2026-08-20 During an impromptu helipad tour, Trump allegedly disclosed classified information about North Korea’s nuclear arsenal. 
+
+[https://www.foxnews.com/politics/trump-reveals-exact-number-north-koreas-nuclear-weapons](https://www.foxnews.com/politics/trump-reveals-exact-number-north-koreas-nuclear-weapons)
+
+[https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/](https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/)
+
+[https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110](https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110)
+
+
+2026-08-20 North Korea fired 10 short-range ballistic missiles. 
+
+[https://www.nbcnews.com/world/asia/south-korea-says-north-korea-fires-10-short-range-ballistic-missiles-rcna593503](https://www.nbcnews.com/world/asia/south-korea-says-north-korea-fires-10-short-range-ballistic-missiles-rcna593503)
+
+[https://apnews.com/article/south-north-korea-projectile-launch-military-exercises-b3af05067e4258f90f67023c7b2b3e9a](https://apnews.com/article/south-north-korea-projectile-launch-military-exercises-b3af05067e4258f90f67023c7b2b3e9a)
