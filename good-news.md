@@ -361,6 +361,10 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/](https://www.reuters.com/world/russia-frees-ailing-ex-us-marine-robert-gilman-detention-2026-08-11/)
 
+2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
+
+[https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223](https://www.nbcnews.com/politics/white-house/press-secretary-karoline-leavitt-step-down-end-of-august-rcna592223)
+
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
 
 [https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard](https://www.pbs.org/newshour/politics/judge-dismisses-trump-administration-lawsuit-alleging-antisemitism-at-harvard)
