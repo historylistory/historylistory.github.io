@@ -235,3 +235,10 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 [https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/](https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/)
 
+2026-08-19 A Democratic socialist pulled off a stunning upset in Florida’s Senate primary. 
+
+[https://www.youtube.com/watch?v=_dv3iHLbgeo&list=WL&index=9](https://www.youtube.com/watch?v=_dv3iHLbgeo&list=WL&index=9)
+
+[https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms](https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms)
+
+[https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/](https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/)

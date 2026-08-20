@@ -662,3 +662,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
 
 2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
+
+2026-08-13 Trump held up an article from Washington Post about a drop in prescription prices, claimed it was his doing, and the White House ran with it. However, the article he held up reads, “Some experts said a Biden-era policy that requires Medicare to negotiate prices for some popular prescription drugs is more likely to be driving down costs”. 

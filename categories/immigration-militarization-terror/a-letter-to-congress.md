@@ -902,4 +902,8 @@ Next
 
 2026-08-12 An ICE agent filed pushing an elderly person last year pleaded guilty to battery. In December he assaulted a 68-year-old man in a gas station parking lot. 
 
+2026-08-13 Alex McFarland said America should outlaw Islam. 
+
 2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
+
+2026-08-18 Minnesota has sued Texas Governor Abbott to force him to extradite an ICE agent to stand trial in Minnesota for felony assault charges and falsely reporting a crime. Prosecutors allege the ICE agent shot a man in the leg through his home then lied by claiming the assault was self-defense. Governor Abbot has refused to sign extradition. 

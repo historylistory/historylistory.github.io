@@ -76,6 +76,15 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html](https://www.nytimes.com/2025/03/04/us/politics/hegseth-pentagon-civilian-harm.html)
 
+### 2025 March
+
+2025-03-31 Bodies of 15 paramedics and crushed emergency vehicles were found in a mass grave in Rafah. 
+
+[https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk](https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk)
+
+[https://en.wikipedia.org/wiki/Rafah_paramedic_massacre](https://en.wikipedia.org/wiki/Rafah_paramedic_massacre)
+
+[https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics](https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics)
 
 ### 2025 July
 
@@ -652,3 +661,10 @@ FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-u
 [https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
 
 [https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)
+
+2026-08-19 Israeli soldiers opened fire on a vehicle and murdered a 5-year-old Palestinian girl Hind Rajab. 
+
+[https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes](https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes)
+
+[https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation](https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation)
+

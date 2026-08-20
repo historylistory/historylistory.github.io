@@ -540,3 +540,14 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.axios.com/local/twin-cities/2026/07/23/vance-boelter-sentenced-life-hortman-assasinations](https://www.axios.com/local/twin-cities/2026/07/23/vance-boelter-sentenced-life-hortman-assasinations)
 
 [https://www.nbcnews.com/news/us-news/vance-boelter-sentencing-man-killed-minnesota-democratic-lawmaker-face-rcna588852](https://www.nbcnews.com/news/us-news/vance-boelter-sentencing-man-killed-minnesota-democratic-lawmaker-face-rcna588852)
+
+### 2026 August
+
+2026-08-20 The FBI arrested a woman who allegedly plotted to attack the New York State Capitol building. 
+
+[https://www.youtube.com/watch?v=LWppmdbBQq4&list=WL&index=7&t=21s](https://www.youtube.com/watch?v=LWppmdbBQq4&list=WL&index=7&t=21s)
+
+[https://www.politico.com/news/2026/08/20/albany-woman-accused-of-plot-to-attack-new-york-state-capitol-01044095](https://www.politico.com/news/2026/08/20/albany-woman-accused-of-plot-to-attack-new-york-state-capitol-01044095)
+
+[https://www.the-independent.com/news/world/americas/us-politics/isis-threat-new-york-capitol-fbi-b3036621.html](https://www.the-independent.com/news/world/americas/us-politics/isis-threat-new-york-capitol-fbi-b3036621.html)
+

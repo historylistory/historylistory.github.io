@@ -650,3 +650,8 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.nbcwashington.com/news/local/judge-blocks-plan-to-scrap-fbi-headquarters-move-to-greenbelt/4143335/](https://www.nbcwashington.com/news/local/judge-blocks-plan-to-scrap-fbi-headquarters-move-to-greenbelt/4143335/)
 
+2026-08-18 Minnesota has sued Texas Governor Abbott to force him to extradite an ICE agent to stand trial in Minnesota for felony assault charges and falsely reporting a crime. Prosecutors allege the ICE agent shot a man in the leg through his home then lied by claiming the assault was self-defense. Governor Abbot has refused to sign extradition. 
+
+[https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp](https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp)
+
+[https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)

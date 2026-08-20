@@ -391,3 +391,8 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 
 [https://www.jpost.com/international/article-905163](https://www.jpost.com/international/article-905163)
 
+2026-08-19 Trump gave an impromptu 40-minute tour of helipad renovations including granite and marble plans.  
+
+[https://www.democracynow.org/2026/8/20/headlines/trump_leads_press_corps_on_bizarre_40_minute_tour_of_the_white_house_touting_plans_for_new_helipad](https://www.democracynow.org/2026/8/20/headlines/trump_leads_press_corps_on_bizarre_40_minute_tour_of_the_white_house_touting_plans_for_new_helipad)
+
+[https://www.theguardian.com/us-news/2026/aug/19/trump-white-house-renovations](https://www.theguardian.com/us-news/2026/aug/19/trump-white-house-renovations)

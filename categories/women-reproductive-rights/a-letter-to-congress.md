@@ -441,3 +441,7 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-08-13 A surrogate gave birth to a baby with a heart condition despite intended parents seeking abortion. 
 
 2026-08-17 A judge ruled that Idaho must allow abortions when the pregnant person’s life is at risk. The judge wrote, “It is about self-preservation and the limit of the State’s power to make a woman suffer for the sake of an unborn child…A pregnant woman’s health is not a State resource to be allocated at the legislature’s whim”. 
+
+2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
+
+[https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5](https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5)

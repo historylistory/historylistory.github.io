@@ -328,3 +328,7 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html](https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html)
 
 [https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba](https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba)
+
+2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
+
+[https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5](https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5)

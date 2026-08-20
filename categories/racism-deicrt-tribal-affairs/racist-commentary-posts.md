@@ -719,3 +719,9 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections](https://www.ms.now/rachel-maddow-show/maddowblog/ogles-tennessee-primary-trump-republicans-gop-2026-midterm-elections)
 
 [https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/](https://rollcall.com/2026/08/06/embattled-rep-andy-ogles-loses-republican-primary-in-tennessee/)
+
+2026-08-13 Alex McFarland said America should outlaw Islam. 
+
+[https://www.youtube.com/watch?v=JV_oFoa1ZHo&list=WL&index=4](https://www.youtube.com/watch?v=JV_oFoa1ZHo&list=WL&index=4)
+
+[https://www.peoplefor.org/rightwingwatch/alex-mcfarland-says-america-should-outlaw-islam](https://www.peoplefor.org/rightwingwatch/alex-mcfarland-says-america-should-outlaw-islam)

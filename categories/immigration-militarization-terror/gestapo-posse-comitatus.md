@@ -471,3 +471,8 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 [https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves](https://www.theguardian.com/us-news/2026/aug/11/ice-electric-shock-gloves)
 
+2026-08-18 Minnesota has sued Texas Governor Abbott to force him to extradite an ICE agent to stand trial in Minnesota for felony assault charges and falsely reporting a crime. Prosecutors allege the ICE agent shot a man in the leg through his home then lied by claiming the assault was self-defense. Governor Abbot has refused to sign extradition. 
+
+[https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp](https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp)
+
+[https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)

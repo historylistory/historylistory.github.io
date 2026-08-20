@@ -243,3 +243,18 @@ PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark
 2026-07-15 AOC slams big pharma for gaming the US patent system at a health subcommittee hearing. 
 
 [https://www.youtube.com/watch?v=G-LGQJgTJv0&list=WL&index=1](https://www.youtube.com/watch?v=G-LGQJgTJv0&list=WL&index=1)
+
+### 2026 August
+
+2026-08-13 Trump held up an article from Washington Post about a drop in prescription prices, claimed it was his doing, and the White House ran with it. However, the article he held up reads, “Some experts said a Biden-era policy that requires Medicare to negotiate prices for some popular prescription drugs is more likely to be driving down costs”. 
+
+[https://www.youtube.com/watch?v=yce3HoRbNnk&list=WL&index=1](https://www.youtube.com/watch?v=yce3HoRbNnk&list=WL&index=1)
+
+THE ARTICLE [https://www.washingtonpost.com/business/2026/08/13/prescription-drug-prices-record-sharpest-drop-more-than-60-years/](https://www.washingtonpost.com/business/2026/08/13/prescription-drug-prices-record-sharpest-drop-more-than-60-years/)
+
+[https://www.firstpost.com/world/trump-flaunts-an-article-that-credits-biden-for-lower-drug-prices-and-not-him-14038489.html](https://www.firstpost.com/world/trump-flaunts-an-article-that-credits-biden-for-lower-drug-prices-and-not-him-14038489.html)
+
+[https://www.pbs.org/newshour/health/trump-is-taking-credit-for-sharply-declining-drug-prices-the-reality-is-more-complex](https://www.pbs.org/newshour/health/trump-is-taking-credit-for-sharply-declining-drug-prices-the-reality-is-more-complex)
+
+[https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices](https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices)
+

@@ -380,3 +380,11 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/](https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/)
 
 [https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions](https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions)
+
+2026-08-19 A Democratic socialist pulled off a stunning upset in Florida’s Senate primary. 
+
+[https://www.youtube.com/watch?v=_dv3iHLbgeo&list=WL&index=9](https://www.youtube.com/watch?v=_dv3iHLbgeo&list=WL&index=9)
+
+[https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms](https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms)
+
+[https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/](https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/)

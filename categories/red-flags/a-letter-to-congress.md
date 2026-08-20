@@ -149,6 +149,10 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-02-28 Pete Hegseth dismantled civilian casualty mitigation programs ahead of the Iran war by dismantling the Civilian Mitigation and Response Action Plan. On the first day of the war in Iran, the US launched a Tomahawk missile into an all-girls school and killed nearly 200 children. The US denied allegations of launching the missile, and Trump even claimed Iran might have bombed themselves during a Mar-a-Lago press conference on March 9th.  
 
+## 2025 March
+
+2025-03-31 Bodies of 15 paramedics and crushed emergency vehicles were found in a mass grave in Rafah. 
+
 ## 2025 April 
 
 2025-04-04 Irish residents say the US is slipping into fascism.
@@ -414,3 +418,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
 
 2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.
+
+2026-08-19 Israeli soldiers opened fire on a vehicle and murdered a 5-year-old Palestinian girl Hind Rajab. 

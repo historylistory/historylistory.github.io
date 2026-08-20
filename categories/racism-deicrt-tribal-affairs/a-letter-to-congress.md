@@ -781,3 +781,5 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-08-06 House Representative Andy Ogles lost his House primary.
 
 2026-08-12 The attorney for Southern Poverty Law’s Heidi Beirich stated, “A free and fair society does not use the justice system to silence its political opponents. Heidi Beirich has dedicated her life to fighting hate groups and extremist movements like the KKK, neo-Nazis, and other white supremacists. Her decades-long record of success dismantling hate groups – and the resulting threats to her life – speak volumes. For this, she has been indicted.”
+
+2026-08-13 Alex McFarland said America should outlaw Islam. 

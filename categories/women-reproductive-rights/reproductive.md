@@ -775,3 +775,7 @@ DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/54917
 [https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/](https://idahocapitalsun.com/2026/08/13/idaho-judge-ruling-allows-abortion-if-it-protects-mothers-health-prevents-self-harm/)
 
 [https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions](https://www.democracynow.org/2026/8/17/headlines/federal_judge_blocks_idaho_from_prosecuting_doctors_who_provide_health_saving_abortions)
+
+2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
+
+[https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5](https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5)

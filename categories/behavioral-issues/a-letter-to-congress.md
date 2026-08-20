@@ -667,3 +667,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-08-17 Trump threatened to “bomb the shit” out of Oman. 
 
 2026-08-19 Israel’s far-right minister Ben-Gvir demanded a “kill quota” in Gaza, stating, “I think targeted assassinations should be carried out in Gaza, taking down 30 to 40 every night, not just those who pose an immediate threat. There are people there who are not worthy of life. They shouldn’t live. They’re not even people”. 
+
+2026-08-19 Trump gave an impromptu 40-minute tour of helipad renovations including granite and marble plans.  

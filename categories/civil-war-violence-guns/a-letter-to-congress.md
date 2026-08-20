@@ -674,3 +674,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-10 A fist fight broke out during a Digital Social Hour podcast between a Republican candidate and former IDF soldier Yoseph Haddah. The Israeli soldier bragged about genocidal murders, and the candidate called Haddad a “genocidal freak”. 
 
 2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
+
+2026-08-20 The FBI arrested a woman who allegedly plotted to attack the New York State Capitol building. 

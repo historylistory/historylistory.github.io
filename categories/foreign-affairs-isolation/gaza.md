@@ -157,6 +157,17 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 {% include youtubePlayer.html id="PslOp883rfI" %}
 
+### 2025 March
+
+2025-03-31 Bodies of 15 paramedics and crushed emergency vehicles were found in a mass grave in Rafah. 
+
+[https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk](https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk)
+
+[https://en.wikipedia.org/wiki/Rafah_paramedic_massacre](https://en.wikipedia.org/wiki/Rafah_paramedic_massacre)
+
+[https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics](https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics)
+
+
 ### 2025 May
 
 2025-05-06 The Free Press - owned by Bari Weiss - published an article titled "**The Gaza Famine Myth**". Unrelated but worth noting, CBS offered her a job in September 2025.
@@ -705,4 +716,8 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 
 [https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)
 
+2026-08-19 Israeli soldiers opened fire on a vehicle and murdered a 5-year-old Palestinian girl Hind Rajab. 
 
+[https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes](https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes)
+
+[https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation](https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation)

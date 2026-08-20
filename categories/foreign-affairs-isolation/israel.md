@@ -66,6 +66,17 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism](https://www.npr.org/2025/04/10/nx-s1-5356481/mahmoud-khalil-dhs-evidence-detained-palestinian-protests-columbia-antisemitism)
 
+### 2025 March
+
+2025-03-31 Bodies of 15 paramedics and crushed emergency vehicles were found in a mass grave in Rafah. 
+
+[https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk](https://www.cnn.com/2025/03/31/middleeast/aid-workers-found-gaza-mass-grave-intl-hnk)
+
+[https://en.wikipedia.org/wiki/Rafah_paramedic_massacre](https://en.wikipedia.org/wiki/Rafah_paramedic_massacre)
+
+[https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics](https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics)
+
+
 ### 2025 July
 
 2025-07-16 Israeli soldiers beat to death 20-year-old US citizen Saif Musallet. 
@@ -595,3 +606,9 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 [https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/](https://baptistnews.com/article/netanyahu-drags-mamdani-into-his-reelection-campaign-as-face-of-antisemitism/)
 
 [https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/](https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/)
+
+2026-08-19 Israeli soldiers opened fire on a vehicle and murdered a 5-year-old Palestinian girl Hind Rajab. 
+
+[https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes](https://www.npr.org/2026/08/20/nx-s1-5939310/israeli-military-criminal-probes)
+
+[https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation](https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation)
