@@ -667,8 +667,12 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-13 Trump held up an article from Washington Post about a drop in prescription prices, claimed it was his doing, and the White House ran with it. However, the article he held up reads, “Some experts said a Biden-era policy that requires Medicare to negotiate prices for some popular prescription drugs is more likely to be driving down costs”. 
 
+2026-08-13 Grand Central Bakery voluntarily issued a recall of their potato sourdough for food safety concerns, and experts say the surge in recalls is connected to FDA staffing cuts. 
+
 2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
 
 2026-08-20 Moderna and Merck produced an experimental vaccine that might prevent skin cancer from returning. It relies on the same mRNA technology that led to the rapid deployment of lifesaving vaccines during the COVID pandemic. This came after the Trump administration slashed half a billion dollars in contracts to develop mRNA projects. 
 
 2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 
+
+2026-08-20 Frozen blueberries were upgraded to high risk by the FDA for E.coli contamination. The classification level is high enough to “likely cause serious harm or death”. 

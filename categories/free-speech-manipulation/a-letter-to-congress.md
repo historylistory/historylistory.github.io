@@ -207,6 +207,8 @@ The list below outlines my specific concerns. Some entries are included to provi
 
 ## 2025 February 
 
+2025-02-12 FCC’s Brendan Carr opened an investigation into Comcast and NBC for diversity practices.
+
 2025-02-13 After a series of pro-Palestinian demonstrations, The Committee on Education and Workforce targeted Columbia University, demanding case files and proposed and enacted sanctions in response to a list of alleged antisemitic incidents from April 2024 through January 2025.
 
 2025-02-15 The White House imposed bans on specific media outlets they deem biased or not aligned with the Trump agenda. As an example, any news outlet that refused to refer to the gulf as Gulf of America was banned from the White House press pool.
@@ -538,3 +540,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-08-11 Conservative media company Daily Wire released another propaganda movie manufacturing controversies about the WNBA and Zohran Mamdani. 
 
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
+
+2026-08-18 Disney and ABC filed a lawsuit against the FCC for violating the First Amendment. 

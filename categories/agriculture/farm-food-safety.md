@@ -161,3 +161,16 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/](https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/)
 
 [https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html](https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html)
+
+2026-08-13 Grand Central Bakery voluntarily issued a recall of their potato sourdough for food safety concerns, and experts say the surge in recalls is connected to FDA staffing cuts. 
+
+[https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/updated-grand-central-bakery-seattle-recalls-potato-sourdough-bread-due-possible-foreign-object](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/updated-grand-central-bakery-seattle-recalls-potato-sourdough-bread-due-possible-foreign-object)
+
+[https://www.usatoday.com/recalls/food-and-drug/FDA-9YK2PBLXYC4/](https://www.usatoday.com/recalls/food-and-drug/FDA-9YK2PBLXYC4/)
+
+2026-08-20 Frozen blueberries were upgraded to high risk by the FDA for E.coli contamination. The classification level is high enough to “likely cause serious harm or death”. 
+
+[https://fruitgrowersnews.com/news/frozen-blueberry-recall-upgraded-to-fdas-highest-risk-level/](https://fruitgrowersnews.com/news/frozen-blueberry-recall-upgraded-to-fdas-highest-risk-level/)
+
+[https://www.delish.com/food-news/a73481274/publix-blueberry-recall-fda/](https://www.delish.com/food-news/a73481274/publix-blueberry-recall-fda/)
+

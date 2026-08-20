@@ -384,6 +384,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-02-10 Pete Hegseth changed the name of Fort Liberty back to Fort Bragg, claiming this time it was after a PFC from WWII and had no Confederate ties. 
 
+2025-02-12 FCC’s Brendan Carr opened an investigation into Comcast and NBC for diversity practices.
+
 2025-02-20 Pastor Corey Brooks asserted on Fox that Black communities have lost self-reliance and are being seduced by dependency.
 
 2025-02-21 Trump fired General Charles Q. Brown from Chairman of the Joint Chiefs of Staff as part of the DEI agenda. 

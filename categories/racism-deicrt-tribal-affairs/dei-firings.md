@@ -14,6 +14,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/dei-firings/
 
 ### 2025 February 
 
+2025-02-12 FCC’s Brendan Carr opened an investigation into Comcast and NBC for diversity practices.
+
+[https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/](https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/)
+
+[https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html](https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html)
+
 2025-02-21 Trump fired Admiral Lisa Franchetti as part of the DEI agenda. 
 
 [https://www.war.gov/News/Releases/Release/Article/4074482/secretary-of-defense-pete-hegseth-statement-on-general-officer-nominations/](https://www.war.gov/News/Releases/Release/Article/4074482/secretary-of-defense-pete-hegseth-statement-on-general-officer-nominations/)

@@ -199,3 +199,7 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-08-12 There was a multi-state salmonella outbreak in jalapenos. 
 
 2026-08-12 When asked about the 30,000 pounds of beef at the border that was not reinspected Texas Ag Commissioner Sid Miller (R) stated, “Well basically the first time I ever disagreed with Trump about bringing in Argentine beef to start with”, “We also have an agriculture trade deficit. It was about $50B. So, buying more food from outside the US increased our deficit…”
+
+2026-08-13 Grand Central Bakery voluntarily issued a recall of their potato sourdough for food safety concerns, and experts say the surge in recalls is connected to FDA staffing cuts. 
+
+2026-08-20 Frozen blueberries were upgraded to high risk by the FDA for E.coli contamination. The classification level is high enough to “likely cause serious harm or death”. 

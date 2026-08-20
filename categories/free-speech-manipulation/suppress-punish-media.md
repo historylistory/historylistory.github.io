@@ -46,6 +46,13 @@ permalink: /categories/free-speech-manipulation/suppress-punish-media/
 
 ### 2025 February
 
+2025-02-12 FCC’s Brendan Carr opened an investigation into Comcast and NBC for diversity practices.
+
+[https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/](https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/)
+
+[https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html](https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html)
+
+
 2025-02-15 The White House imposed bans on specific media outlets they deem biased or not aligned with the Trump agenda. As an example, any news outlet that refused to refer to the gulf as Gulf of America was banned from the White House press pool.
 
 [https://www.npr.org/2025/02/26/nx-s1-5308628/trump-white-house-press-access-voa](https://www.npr.org/2025/02/26/nx-s1-5308628/trump-white-house-press-access-voa)
@@ -508,4 +515,13 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership](https://www.democracynow.org/2026/8/7/headlines/fcc_votes_to_lift_limits_on_tv_station_ownership)
 
 SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287](https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrapping-tv-ownership-cap-01027287)
+
+
+2026-08-18 Disney and ABC filed a lawsuit against the FCC for violating the First Amendment. 
+
+[https://www.cnbc.com/2026/08/18/disney-abc-first-amendment-lawsuit-fcc.html](https://www.cnbc.com/2026/08/18/disney-abc-first-amendment-lawsuit-fcc.html)
+
+[https://www.politico.com/news/2026/08/18/abc-disney-fcc-license-lawsuit-carr-01039988](https://www.politico.com/news/2026/08/18/abc-disney-fcc-license-lawsuit-carr-01039988)
+
+[https://www.mediaite.com/media/news/abc-claims-in-fcc-lawsuit-it-was-pressured-into-changing-network-content/](https://www.mediaite.com/media/news/abc-claims-in-fcc-lawsuit-it-was-pressured-into-changing-network-content/)
 

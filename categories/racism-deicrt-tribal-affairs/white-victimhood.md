@@ -19,6 +19,12 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-victimhood/
 
 [https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/](https://www.cjonline.com/videos/news/2025/02/03/u-s-sen-roger-marshall-r-kansas-talks-dei-role-in-plane-crash/78187109007/)
 
+2025-02-12 FCC’s Brendan Carr opened an investigation into Comcast and NBC for diversity practices.
+
+[https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/](https://www.reuters.com/business/media-telecom/fcc-open-probe-into-nbc-parent-comcast-over-promotion-dei-programs-2025-02-12/)
+
+[https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html](https://www.cnbc.com/2025/02/12/comcast-nbcuniversal-fcc-inquiry-dei.html)
+
 ### 2025 April
 
 2025-04-29 After Harvard refused to let the federal government do their unconstitutional audit of “viewpoint diversity”, The Department of Education launched an investigation into the Harvard Law Review and accused them of discrimination against white males.
