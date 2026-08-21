@@ -1148,3 +1148,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-20 The national debt surpassed $40TRN. For contrast, the national debt in 2016 was $19TRN.
 
 2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
+
+2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 

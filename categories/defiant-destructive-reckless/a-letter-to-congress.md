@@ -547,3 +547,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-20 During an impromptu helipad tour, Trump allegedly disclosed classified information about North Korea’s nuclear arsenal. 
 
 2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
+
+2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 

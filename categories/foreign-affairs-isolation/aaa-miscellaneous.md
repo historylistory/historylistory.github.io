@@ -52,3 +52,14 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490](https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490)
 
 [https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran](https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran)
+
+2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
+
+[https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor](https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor)
+
+ARTICLE FROM 2025 [https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/](https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/)
+
+ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor](https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor)
+
+ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)
+

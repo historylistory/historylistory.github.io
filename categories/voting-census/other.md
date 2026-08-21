@@ -242,3 +242,9 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 [https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms](https://www.axios.com/2026/08/19/democrats-florida-senate-angie-nixon-misterms)
 
 [https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/](https://thehill.com/homenews/campaign/6036787-nixon-vindman-peltola-primaries/)
+
+2026-08-20 Despite AIPAC spending $6M on a slander campaign, Aisha Wahab won a California special election. 
+
+[https://www.politico.com/news/2026/08/20/progressive-aisha-wahab-wins-eric-swalwells-former-house-seat-01045145](https://www.politico.com/news/2026/08/20/progressive-aisha-wahab-wins-eric-swalwells-former-house-seat-01045145)
+
+[https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6](https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6)

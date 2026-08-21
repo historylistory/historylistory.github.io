@@ -1108,3 +1108,14 @@ PAY WALL [https://www.cnn.com/2026/07/26/politics/graham-iran-trump-netanyahu-do
 [https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
 
 [https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)
+
+2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
+
+[https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor](https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor)
+
+ARTICLE FROM 2025 [https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/](https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/)
+
+ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor](https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor)
+
+ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)
+

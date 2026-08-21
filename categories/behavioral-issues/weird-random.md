@@ -377,6 +377,13 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 
 ### 2026 August
 
+2026-08-03 Trump prattled off an ad read for Miracle-Gro during a news interview. 
+
+[https://www.businessinsider.com/trump-touts-scotts-miracle-gro-company-did-white-house-favor-2026-8](https://www.businessinsider.com/trump-touts-scotts-miracle-gro-company-did-white-house-favor-2026-8)
+
+[https://www.dailykos.com/stories/2026/8/19/800086659/whitehouse/trump-gives-tacky-tour-of-white-house-he-gilded/](https://www.dailykos.com/stories/2026/8/19/800086659/whitehouse/trump-gives-tacky-tour-of-white-house-he-gilded/)
+
+
 2026-08-07 A Trump-backed youth competition The Trump Games was started by the administration. Some called it a test of patriotic branding; some compared it to the “Hunger Games” while others pointed out its similarity to those held by Hitler during Nazi-era Germany. 
 
 [https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding](https://www.cnn.com/2026/08/09/politics/patriot-games-trump-partisan-patriotic-branding)

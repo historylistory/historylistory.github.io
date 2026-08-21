@@ -577,6 +577,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-05-15 Trump announced a sculpture garden project in D.C.
 
+2026-05-15 IndyCar sold a shirt “One Nation – One Race”.
+
 2026-05-17 During a National Mall ceremony, podcaster Eric Metaxas praised Trump’s ballroom project in religious terms, “It’s hard to believe that it would take two centuries for the Lord to raise up a great man to bring that ballroom finally to stand where it needs to stand”.
 
 2026-05-22 Trump skipped Don Jr.’s wedding, citing duty to the country despite frequent resort trips during his presidency.
@@ -642,6 +644,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-02 RFK lashed out in a tantrum during a CNN interview after being questioned about his conspiracy theories. 
 
+2026-08-03 Trump prattled off an ad read for Miracle-Gro during a news interview. 
+
 2026-08-04 The Trump administration subjected at least 10 hunger-striking ICE prisoners to involuntary medical procedures. 
 
 2026-08-07 Federal courts ruled Trump cannot build his ballroom. Trump whined on social media “This unjust decision must be overturned by the Supreme Court in its entirety”. 
@@ -673,4 +677,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-08-19 Multiple stories emerged about the unhealthy relationship between Trump and his aide Natalie Harp. 
 
 2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
+
+2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
+
+2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 
 

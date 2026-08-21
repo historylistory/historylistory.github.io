@@ -525,3 +525,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 
 
 2026-08-19 A Democratic socialist pulled off a stunning upset in Florida’s Senate primary. 
+
+2026-08-20 Despite AIPAC spending $6M on a slander campaign, Aisha Wahab won a California special election. 

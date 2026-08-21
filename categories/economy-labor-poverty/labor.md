@@ -497,3 +497,13 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 [https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/](https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/)
 
 [https://nebraskapublicmedia.org/es/news/news-articles/last-days-approaching-for-workers-at-omaha-kelloggs-plant/](https://nebraskapublicmedia.org/es/news/news-articles/last-days-approaching-for-workers-at-omaha-kelloggs-plant/)
+
+2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
+
+[https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor](https://www.democracynow.org/2026/8/21/headlines/nyt_us_importing_dominican_sugar_from_trump_ally_despite_evidence_of_forced_labor)
+
+ARTICLE FROM 2025 [https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/](https://www.freedomunited.org/news/us-lifts-forced-labor-ban-sugar/)
+
+ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor](https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor)
+
+ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)

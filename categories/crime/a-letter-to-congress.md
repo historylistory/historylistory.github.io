@@ -738,3 +738,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-08-05 New Mexico sued the DOJ and Todd Blanche for “stonewalling” the state investigation into sex crimes at Jeffrey Epstein’s estate Zorro Ranch. 
 
 2026-08-05 The Senate Finance Committee released a report alleging more than a dozen bankers from JP Morgan Chase, Bank of America and Deutsche Bank failed to report hundreds of millions of dollars in suspicious transactions tied to Jeffrey Epstein. 
+
+2026-08-19 Florida’s Republican lawmaker Michael Caruso was arrested on 5 felony charges including kidnapping, molestation, enticing children, abuse and mental injury. 

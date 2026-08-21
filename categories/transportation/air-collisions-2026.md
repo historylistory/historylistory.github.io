@@ -85,3 +85,17 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.youtube.com/watch?v=m_F2hJ435ao&list=WL&index=1](https://www.youtube.com/watch?v=m_F2hJ435ao&list=WL&index=1)
 
 [https://abcnews.com/US/multiple-injured-1-critically-after-seaplane-11-aboard/story?id=135041520](https://abcnews.com/US/multiple-injured-1-critically-after-seaplane-11-aboard/story?id=135041520)
+
+### 2026 August
+
+2026-08-20 A small plane crashed into a state police helicopter. 
+
+[https://www.cbsnews.com/news/small-plane-state-police-helicopter-midair-collision-carlisle-pennsylvania/](https://www.cbsnews.com/news/small-plane-state-police-helicopter-midair-collision-carlisle-pennsylvania/)
+
+[https://local21news.com/news/local/emergency-crews-on-scene-of-plane-crash-at-carlisle-airport-dispatch-cumberland-county-psp](https://local21news.com/news/local/emergency-crews-on-scene-of-plane-crash-at-carlisle-airport-dispatch-cumberland-county-psp)
+
+2026-08-20 A charter plane crashed in Alaska, killing 8. 
+
+[https://www.nbcnews.com/news/us-news/charter-plane-carrying-8-crashes-western-alaska-rcna593687](https://www.nbcnews.com/news/us-news/charter-plane-carrying-8-crashes-western-alaska-rcna593687)
+
+[https://www.adn.com/alaska-news/aviation/2026/08/20/plane-carrying-pilot-and-7-passengers-crashes-in-southwest-alaska/](https://www.adn.com/alaska-news/aviation/2026/08/20/plane-carrying-pilot-and-7-passengers-crashes-in-southwest-alaska/)

@@ -345,6 +345,11 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 [https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks](https://www.mediamatters.org/white-nationalism/nick-fuentes-declares-we-live-n-hell-while-claiming-hes-repping-james-fishbacks)
 
+2026-05-15 IndyCar sold a shirt “One Nation – One Race”.
+
+[https://www.theguardian.com/sport/2026/may/14/indycar-shirt-trump-penske](https://www.theguardian.com/sport/2026/may/14/indycar-shirt-trump-penske)
+
+[https://www.reuters.com/world/us/indycar-t-shirt-withdrawn-after-slogan-causes-outrage-2026-05-07/](https://www.reuters.com/world/us/indycar-t-shirt-withdrawn-after-slogan-causes-outrage-2026-05-07/)
 
 2026-05-21 Applications opened for a $1.8 billion compensation fund benefiting January 6 defendants and other Trump allies, including Enrique Tarrio, Mike Lindell, George Santos, Rod Blagojevich, and Adam Johnson.
 

@@ -374,3 +374,8 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html](https://finance.yahoo.com/economy/policy/articles/trumps-white-house-construction-hits-152000451.html)
 
+2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 
+
+[https://www.indycar.com/news/2026/08/08-21-dc-favs-sleeps](https://www.indycar.com/news/2026/08/08-21-dc-favs-sleeps)
+
+[https://racer.com/2026/08/21/key-challenges-to-indycar-s-washington-d-c-circuit](https://racer.com/2026/08/21/key-challenges-to-indycar-s-washington-d-c-circuit)

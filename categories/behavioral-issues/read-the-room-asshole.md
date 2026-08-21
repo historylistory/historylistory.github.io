@@ -299,6 +299,14 @@ TIMESTAMP 1:20 [https://www.youtube.com/watch?v=M9YqAMyfwGM](https://www.youtube
 [https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp](https://www.huffpost.com/entry/jd-vance-donald-trump-americans-financial-situation_n_6a04f7b9e4b0cdaf88dd297b/amp)
 
 
+2026-05-15 IndyCar sold a shirt “One Nation – One Race”.
+
+[https://www.theguardian.com/sport/2026/may/14/indycar-shirt-trump-penske](https://www.theguardian.com/sport/2026/may/14/indycar-shirt-trump-penske)
+
+[https://www.reuters.com/world/us/indycar-t-shirt-withdrawn-after-slogan-causes-outrage-2026-05-07/](https://www.reuters.com/world/us/indycar-t-shirt-withdrawn-after-slogan-causes-outrage-2026-05-07/)
+
+
+
 
 2026-05-31 Minister Smotrich marched in the annual Israel Day parade in New York and received backlash for being uninvited due to sanctions for inciting violence against Palestinians and promoting genocide. Mamdani said, “You can see in the participation of the far-right Israeli minister Smotrich as well as a number of other ministers, a vision of annihilation, a complicity in genocide, and frankly a belief that does not have much value for even the sanctity of children in Gaza, and I am offended, as I know many New Yorkers are by their participation”.   
 

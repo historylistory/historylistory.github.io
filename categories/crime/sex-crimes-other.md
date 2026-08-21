@@ -197,3 +197,12 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
 
 [https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)
+
+### 2026 August
+
+2026-08-19 Florida’s Republican lawmaker Michael Caruso was arrested on 5 felony charges including kidnapping, molestation, enticing children, abuse and mental injury. 
+
+[https://www.wptv.com/news/local-news/our-community/west-palm-beach/seeking-justice-attorney-says-alleged-caruso-victim-was-between-3-and-5-years-old](https://www.wptv.com/news/local-news/our-community/west-palm-beach/seeking-justice-attorney-says-alleged-caruso-victim-was-between-3-and-5-years-old)
+
+[https://floridaphoenix.com/2026/08/18/court-clerk-former-lawmaker-charged-with-five-felonies-stemming-from-child-sex-abuse/](https://floridaphoenix.com/2026/08/18/court-clerk-former-lawmaker-charged-with-five-felonies-stemming-from-child-sex-abuse/)
+

@@ -229,3 +229,7 @@ Please put public safety ahead of privatization, retaliation, and political thea
 ## 2026 August
 
 2026-08-06 After a system outage at a major air traffic control facility in Minneapolis multiple airspaces were shut down. 
+
+2026-08-20 A small plane crashed into a state police helicopter. 
+
+2026-08-20 A charter plane crashed in Alaska, killing 8. 
