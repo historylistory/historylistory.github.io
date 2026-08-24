@@ -116,3 +116,6 @@ SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-w
 
 [https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)
 
+2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
+
+[https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html](https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html)

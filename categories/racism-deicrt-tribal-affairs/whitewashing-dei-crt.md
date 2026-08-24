@@ -294,3 +294,10 @@ A USC PDF [https://race.usc.edu/wp-content/uploads/2025/03/2025-Practice-Brief-F
 
 [https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/](https://www.wafb.com/2026/07/21/republicans-cry-woke-smithsonian/)
 
+### 2026 August
+
+2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
+[https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump](https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump)
+
+[https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667](https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667)

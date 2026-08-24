@@ -294,3 +294,6 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 
 [https://time.com/article/2026/08/10/trump-state-department-visa-revocations/](https://time.com/article/2026/08/10/trump-state-department-visa-revocations/)
 
+2026-08-22 A judge struck down Trump’s visa ban on 75 countries. 
+
+[https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban](https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban)

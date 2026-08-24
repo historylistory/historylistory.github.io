@@ -676,3 +676,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-12 Karoline Leavitt announced she would be stepping down end of August. 
 
 2026-08-20 The FBI arrested a woman who allegedly plotted to attack the New York State Capitol building. 
+
+2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 

@@ -492,6 +492,13 @@ PAY WALL [https://www.forbes.com/sites/tylerroush/2026/07/01/musk-escalates-unpr
 
 [https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/](https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/)
 
+2026-08-13 Tyson Foods shut down several more meat packing facilities, laying off more than 2500 workers.  This after Tyson Food CEO Donnie King made over $34M in 2025 according to the Securities and Exchange Commission.
+
+[https://www.reuters.com/business/retail-consumer/tyson-foods-will-close-or-sell-three-us-beef-facilities-industry-struggles-2026-08-13/](https://www.reuters.com/business/retail-consumer/tyson-foods-will-close-or-sell-three-us-beef-facilities-industry-struggles-2026-08-13/)
+
+[https://www.nbcchicago.com/news/local/tyson-foods-abruptly-closing-beef-plant-in-illinois-with-2500-workers-to-lose-their-jobs/3975332/](https://www.nbcchicago.com/news/local/tyson-foods-abruptly-closing-beef-plant-in-illinois-with-2500-workers-to-lose-their-jobs/3975332/)
+
+
 2026-08-18 Kellogg’s Omaha plant closed and laid off the remaining 350 employees. 
 
 [https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/](https://www.wowt.com/2026/08/18/kelloggs-omaha-plant-lay-off-remaining-employees-ahead-august-closure/)

@@ -128,4 +128,11 @@ permalink: /categories/children/immigrants/
 
 [https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue](https://www.npr.org/2026/08/12/nx-s1-5929456/migrant-children-our-rescue)
 
+2026-08-16 ICE arrested a 5-year-old boy and his father on their way to a soccer game in Austin Texas, then banned a Texas Congressmember from entering the detention center to check on the welfare of the child. 
+
+VIDEO [https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested-ice-texas-digvid-vrtc](https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested-ice-texas-digvid-vrtc)
+
+[https://www.commondreams.org/news/5-year-old-boy-detained-by-ice-in-texas](https://www.commondreams.org/news/5-year-old-boy-detained-by-ice-in-texas)
+
+[https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/](https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/)
 

@@ -478,3 +478,4 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-08-17 Hawaii was devastated by Hurricane Lala. 
 
+2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 

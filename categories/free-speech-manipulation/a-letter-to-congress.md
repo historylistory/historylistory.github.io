@@ -542,3 +542,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-08-11 Conservative media company Daily Wire published a genocide-denial article, writing, “a recently published survey backed by the United Nations shows acute manlnutrition among young children in Gaza at or below prewar levels…” and cited Fox News. 
 
 2026-08-18 Disney and ABC filed a lawsuit against the FCC for violating the First Amendment. 
+
+2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 

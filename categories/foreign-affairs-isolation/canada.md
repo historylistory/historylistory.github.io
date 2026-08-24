@@ -112,3 +112,11 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://www.reuters.com/business/canada-mark-gordie-howe-bridge-opening-without-us-after-trade-war-deepens-2026-07-24/](https://www.reuters.com/business/canada-mark-gordie-howe-bridge-opening-without-us-after-trade-war-deepens-2026-07-24/)
 
 [https://www.cbc.ca/news/canada/windsor/livestory/gordie-howe-international-bridge-2026-live-updates-9.7172299](https://www.cbc.ca/news/canada/windsor/livestory/gordie-howe-international-bridge-2026-live-updates-9.7172299)
+
+### 2026 August
+
+2026-08-22 The US launched an economic trade war with Canada starting with 50% tariffs on roughly $20B worth of imports. In response Canada did the same, start date September 8 2026. 
+
+[https://www.democracynow.org/2026/8/24/us_canada_trade_war](https://www.democracynow.org/2026/8/24/us_canada_trade_war)
+
+[https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/](https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/)

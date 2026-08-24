@@ -271,3 +271,9 @@ GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-o
 [https://www.bbc.com/news/articles/cyvl2d5j52lo](https://www.bbc.com/news/articles/cyvl2d5j52lo)
 
 [https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)
+
+2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
+[https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump](https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump)
+
+[https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667](https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667)

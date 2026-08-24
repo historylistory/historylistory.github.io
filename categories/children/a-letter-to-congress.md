@@ -379,3 +379,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-10 In response to Trump’s reducing childhood vaccines and tying vaccines to autism, The American Academy of Pediatrics stated, “There is no new evidence to justify significant changes to childhood immunization guidance. Dozens of studies involving millions of people show there is no link between vaccines and autism, and yet federal leaders continue to prom9ote this outdated, disproven idea to scare families”. 
 
 2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
+
+2026-08-16 ICE arrested a 5-year-old boy and his father on their way to a soccer game in Austin Texas, then banned a Texas Congressmember from entering the detention center to check on the welfare of the child. 

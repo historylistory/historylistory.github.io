@@ -866,3 +866,13 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/](https://www.cbsnews.com/news/north-korea-missile-launch-trump-kim-jong-un-nuclear-weapons/)
 
 [https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110](https://www.newsweek.com/nuclear-weapons-trump-said-quiet-part-out-loud-north-korea-12347110)
+
+2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
+
+[https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734](https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734)
+
+[https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)
+
+2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
+
+[https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html](https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html)

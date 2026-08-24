@@ -1143,6 +1143,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-13 Trump’s ballroom estimate (which Trump said would be privately paid for) ballooned to $900M in taxpayer money. 
 
+2026-08-13 Tyson Foods shut down several more meat packing facilities, laying off more than 2500 workers.  This after Tyson Food CEO Donnie King made over $34M in 2025 according to the Securities and Exchange Commission.
+
 2026-08-18 Kellogg’s Omaha plant closed and laid off the remaining 350 employees. 
 
 2026-08-20 The national debt surpassed $40TRN. For contrast, the national debt in 2016 was $19TRN.
@@ -1150,3 +1152,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
 
 2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
+
+2026-08-22 The US launched an economic trade war with Canada starting with 50% tariffs on roughly $20B worth of imports. In response Canada did the same, start date September 8 2026. 
+
+2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 

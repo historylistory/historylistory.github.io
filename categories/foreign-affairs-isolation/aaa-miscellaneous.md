@@ -63,3 +63,9 @@ ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-domini
 
 ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)
 
+
+2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
+
+[https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734](https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734)
+
+[https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)

@@ -525,3 +525,6 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 
 [https://www.mediaite.com/media/news/abc-claims-in-fcc-lawsuit-it-was-pressured-into-changing-network-content/](https://www.mediaite.com/media/news/abc-claims-in-fcc-lawsuit-it-was-pressured-into-changing-network-content/)
 
+2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
+
+[https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html](https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html)

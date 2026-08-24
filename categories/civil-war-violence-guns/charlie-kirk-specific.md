@@ -521,3 +521,10 @@ permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 [https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/](https://www.wideopencountry.com/charlie-kirk-memorial-highway-signs-relocated-after-outcry-from-vietman-vets/)
 
 PAY WALL [https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html](https://www.nytimes.com/2026/07/22/us/charlie-kirk-memorial-highway-signs.html)
+
+### 2026 August
+
+2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
+
+[https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html](https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html)
+

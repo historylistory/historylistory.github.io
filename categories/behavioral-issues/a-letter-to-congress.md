@@ -678,6 +678,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
 
+2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
 2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
 
 2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 

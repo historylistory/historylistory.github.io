@@ -906,4 +906,10 @@ Next
 
 2026-08-14 At Big Bend National Park in Texas bulldozers tore down portions of the environmental landmark as part of the Trump administration’s $46.5B effort to expand the border wall. 
 
+2026-08-16 ICE arrested a 5-year-old boy and his father on their way to a soccer game in Austin Texas, then banned a Texas Congressmember from entering the detention center to check on the welfare of the child. 
+
 2026-08-18 Minnesota has sued Texas Governor Abbott to force him to extradite an ICE agent to stand trial in Minnesota for felony assault charges and falsely reporting a crime. Prosecutors allege the ICE agent shot a man in the leg through his home then lied by claiming the assault was self-defense. Governor Abbot has refused to sign extradition. 
+
+2026-08-20 For the first deportation flight after ending TPS, the administration rounded up 160 Haitians and flew them out of the country. 
+
+2026-08-22 A judge struck down Trump’s visa ban on 75 countries. 

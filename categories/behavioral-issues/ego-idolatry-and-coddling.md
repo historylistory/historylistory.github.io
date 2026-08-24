@@ -421,3 +421,9 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol](https://kfoxtv.com/news/nation-world/kristi-noem-life-sized-bronze-statue-her-horse-iceman-unveiled-honoring-governor-south-dakota-family-official-portrait-politics-homeland-security-congress-trail-pierre-capitol)
 
 [https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/](https://www.thedailybeast.com/ice-barbie-shows-up-to-admire-statue-honoring-herself/)
+
+2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
+[https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump](https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump)
+
+[https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667](https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667)

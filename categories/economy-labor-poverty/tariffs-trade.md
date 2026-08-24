@@ -427,3 +427,15 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 
 [https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran](https://www.aljazeera.com/news/2026/8/20/tremendous-costs-can-trump-stop-other-countries-from-trading-with-iran)
 
+2026-08-22 The US launched an economic trade war with Canada starting with 50% tariffs on roughly $20B worth of imports. In response Canada did the same, start date September 8 2026. 
+
+[https://www.democracynow.org/2026/8/24/us_canada_trade_war](https://www.democracynow.org/2026/8/24/us_canada_trade_war)
+
+[https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/](https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/)
+
+2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
+
+[https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734](https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734)
+
+[https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)
+

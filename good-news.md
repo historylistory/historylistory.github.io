@@ -395,3 +395,10 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6](https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6)
 
+2026-08-22 A judge struck down Trump’s visa ban on 75 countries. 
+
+[https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban](https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban)
+
+2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
+
+[https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html](https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html)

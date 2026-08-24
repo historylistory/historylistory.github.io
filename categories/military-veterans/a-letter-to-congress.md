@@ -426,3 +426,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-08-12 Concern grew over food shortages and poor conditions aboard the USS Abraham Lincoln including incidents of attempted suicide which the Navy denied. 
 
 2026-08-17 USS Benfold was left stranded for several days in open waters after a power failure. 
+
+2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 

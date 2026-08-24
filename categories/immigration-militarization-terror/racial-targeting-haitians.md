@@ -100,3 +100,10 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/](https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/)
 
 CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests)
+
+2026-08-20 For the first deportation flight after ending TPS, the administration rounded up 160 Haitians and flew them out of the country. 
+
+[https://www.miamiherald.com/news/nation-world/world/americas/haiti/article316950850.html](https://www.miamiherald.com/news/nation-world/world/americas/haiti/article316950850.html)
+
+[https://www.theguardian.com/us-news/2026/aug/21/haiti-deportation-tps](https://www.theguardian.com/us-news/2026/aug/21/haiti-deportation-tps)
+

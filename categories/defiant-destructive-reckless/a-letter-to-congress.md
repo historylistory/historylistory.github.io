@@ -549,3 +549,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-20 Trump’s aid Natalie Harp refused to fill out forms for a security clearance. 
 
 2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 
+
+2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
+
+2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
