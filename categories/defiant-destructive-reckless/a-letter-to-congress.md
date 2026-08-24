@@ -553,3 +553,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
 
 2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
+
+2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 

@@ -876,3 +876,12 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
 
 [https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html](https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html)
+
+2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 
+
+[https://www.nbcnews.com/politics/congress/senate-leaders-reach-deal-avert-shutdown-2026-elections-rcna590564](https://www.nbcnews.com/politics/congress/senate-leaders-reach-deal-avert-shutdown-2026-elections-rcna590564)
+
+[https://www.thecentersquare.com/national/article_08201872-f0a8-4db5-a037-bbb89529d792.html](https://www.thecentersquare.com/national/article_08201872-f0a8-4db5-a037-bbb89529d792.html)
+
+REP STANSBURY [https://www.youtube.com/watch?v=p17qYY9IkEQ](https://www.youtube.com/watch?v=p17qYY9IkEQ)
+

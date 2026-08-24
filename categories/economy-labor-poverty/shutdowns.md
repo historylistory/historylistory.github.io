@@ -245,3 +245,14 @@ The October 2025 shutdown was because the **GOP did not want to continue afforda
 UNVERIFIED [https://www.freshfields.com/en/our-thinking/blogs/a-fresh-take/cfius-review-resumes-following-dhs-funding-102mrq0](https://www.freshfields.com/en/our-thinking/blogs/a-fresh-take/cfius-review-resumes-following-dhs-funding-102mrq0)
 
 PAY WALL [https://www.bbc.com/news/articles/ce3pw5x3z54o](https://www.bbc.com/news/articles/ce3pw5x3z54o)
+
+### 2026 August
+
+ 
+2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 
+
+[https://www.nbcnews.com/politics/congress/senate-leaders-reach-deal-avert-shutdown-2026-elections-rcna590564](https://www.nbcnews.com/politics/congress/senate-leaders-reach-deal-avert-shutdown-2026-elections-rcna590564)
+
+[https://www.thecentersquare.com/national/article_08201872-f0a8-4db5-a037-bbb89529d792.html](https://www.thecentersquare.com/national/article_08201872-f0a8-4db5-a037-bbb89529d792.html)
+
+REP STANSBURY [https://www.youtube.com/watch?v=p17qYY9IkEQ](https://www.youtube.com/watch?v=p17qYY9IkEQ)

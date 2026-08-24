@@ -1156,3 +1156,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-22 The US launched an economic trade war with Canada starting with 50% tariffs on roughly $20B worth of imports. In response Canada did the same, start date September 8 2026. 
 
 2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
+
+2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 
