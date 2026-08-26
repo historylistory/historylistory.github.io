@@ -26,7 +26,7 @@ permalink: /categories/j6/violence-death/
 
 [https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot](https://www.npr.org/2025/08/07/nx-s1-5493197/doj-trump-jan-6-defendant-jared-wise-capitol-riot)
 
-### 2026
+### 2026 April
 
 2026-04-14 The same DOJ that wants to fire people for speaking out about Charlie Kirk or deport people for protesting genocide MOVED TO VACATE the most serious J6 convictions by the Proud Boys and Oath Keepers, making it as though these most severe crimes never even happened. 
 
@@ -43,3 +43,14 @@ permalink: /categories/j6/violence-death/
 [https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/](https://www.usatoday.com/story/news/politics/2026/04/14/department-of-justice-looks-to-throw-out-convictions-related-to-jan-6/89615190007/)
 
 [https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers](https://www.theguardian.com/us-news/2026/apr/14/january-6-convictions-overturn-doj-proud-boys-oath-keepers)
+
+### 2026 August
+
+2026-08-22 White nationalist Jake Lang got his ass kicked by Spiderman. 
+
+[https://www.fox9.com/news/man-dressed-spider-man-costume-jake-lang-protest-charged-assault](https://www.fox9.com/news/man-dressed-spider-man-costume-jake-lang-protest-charged-assault)
+
+[https://www.minnpost.com/fact-briefs/2026/08/was-that-spider-man-throwing-punches-at-far-right-activists-rallying-in-minneapolis/](https://www.minnpost.com/fact-briefs/2026/08/was-that-spider-man-throwing-punches-at-far-right-activists-rallying-in-minneapolis/)
+
+[https://www.startribune.com/as-jake-lang-remains-jailed-spider-man-gives-his-side-of-city-hall-clash/601881900](https://www.startribune.com/as-jake-lang-remains-jailed-spider-man-gives-his-side-of-city-hall-clash/601881900)
+

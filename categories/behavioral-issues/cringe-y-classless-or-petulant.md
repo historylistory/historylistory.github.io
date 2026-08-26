@@ -894,3 +894,16 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://racer.com/2026/08/21/key-challenges-to-indycar-s-washington-d-c-circuit](https://racer.com/2026/08/21/key-challenges-to-indycar-s-washington-d-c-circuit)
 
+2026-08-25 Baby man-child Trump threatened to rename Lake Ontario “Lake America” during his trade war with Canada. 
+
+[https://www.cbc.ca/news/canada/toronto/trump-rename-lake-ontario-lake-america-9.7319351](https://www.cbc.ca/news/canada/toronto/trump-rename-lake-ontario-lake-america-9.7319351)
+
+[https://globalnews.ca/news/12035032/trump-threat-lake-ontario-history/](https://globalnews.ca/news/12035032/trump-threat-lake-ontario-history/)
+
+2026-08-25 During trade negotiations some US demands of Canada allegedly included reducing French-language media and eliminating French translations. 
+
+[https://www.cbc.ca/news/canada/montreal/trump-french-canada-9.7319337](https://www.cbc.ca/news/canada/montreal/trump-french-canada-9.7319337)
+
+[https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724](https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724)
+
+[https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/](https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/)

@@ -695,3 +695,5 @@ Manhattan grand jury in the hush-money case.
 2026-08-19 Netanyahu dragged Mamdani into his reelection campaign.
 
 2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
+
+2026-08-24 Ontario Premier Doug Ford sharply criticized Trump calling him a bully and dictator during a press conference in Hamilton Ontario. He stated, “I don’t respond to a dictator or a bully”. 

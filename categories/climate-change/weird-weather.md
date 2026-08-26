@@ -405,3 +405,10 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://www.civilbeat.org/2026/08/hurricane-lala-body-of-90-year-old-woman-found-in-field/](https://www.civilbeat.org/2026/08/hurricane-lala-body-of-90-year-old-woman-found-in-field/)
 
+2026-08-26 Devastating flash floods at the Nepal-China border killed at least 31 people and left hundreds missing. 
+
+[https://www.youtube.com/watch?v=W-VYCKrMGro&list=WL&index=2](https://www.youtube.com/watch?v=W-VYCKrMGro&list=WL&index=2)
+
+[https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/](https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/)
+
+[https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl](https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl)

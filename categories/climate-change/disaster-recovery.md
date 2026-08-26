@@ -119,3 +119,9 @@ SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-w
 2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
 
 [https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html](https://ca.news.yahoo.com/thousands-still-without-power-gary-201856647.html)
+
+2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
+
+[https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html)
+
+[https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover](https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover)

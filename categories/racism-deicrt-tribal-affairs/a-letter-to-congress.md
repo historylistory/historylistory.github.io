@@ -789,3 +789,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-08-13 Alex McFarland said America should outlaw Islam. 
 
 2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
+
+2026-08-22 White nationalist Jake Lang got his ass kicked by Spiderman. 
+
+2026-08-25 Protestors in New York gathered ahead of an upcoming visit from Hindu nationalist leader and head of RSS Moan Bhagwat. This is a far-right paramilitary organization. Democratic nominee Brad Landers stated, “This event harkens back to that 1939 Nazi rally that was hosted at Madison Square Garden with banners of swastikas and tens of thousands of people cheering ethnic and religious hatred and violence of a very similar sort to what Moad Bagwan and the RSS are proposing. And MSG said it wouldn’t do that again, that it wouldn’t host any more hate-filled, bigoted rallies”

@@ -471,3 +471,8 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://www.ms.now/news/trump-launches-personal-attack-on-cnns-kristen-holmes-in-oval-office](https://www.ms.now/news/trump-launches-personal-attack-on-cnns-kristen-holmes-in-oval-office)
 
+2026-08-24 Ontario Premier Doug Ford sharply criticized Trump calling him a bully and dictator during a press conference in Hamilton Ontario. He stated, “I don’t respond to a dictator or a bully”. 
+
+[https://www.youtube.com/watch?v=CnIsnTxXaD0](https://www.youtube.com/watch?v=CnIsnTxXaD0)
+
+[https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/](https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/)

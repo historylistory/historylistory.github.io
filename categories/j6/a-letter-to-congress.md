@@ -195,4 +195,5 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2026-08-01 Trump threatened to revive the anti-weaponization fund if Blanche’s AG nomination is blocked. This is the slush fund designed to reward J6 insurrectionists for storming the capitol. 
 
+2026-08-22 White nationalist Jake Lang got his ass kicked by Spiderman. 
 

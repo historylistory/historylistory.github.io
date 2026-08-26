@@ -174,3 +174,10 @@ PAY WALL [https://www.nytimes.com/2026/07/17/climate/trump-wildfire-smoke-health
 [https://www.facebook.com/watch/?v=2413085845847662](https://www.facebook.com/watch/?v=2413085845847662)
 
 [https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5](https://www.youtube.com/watch?v=_Z4WuWiqBTo&list=WL&index=5)
+
+2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
+
+[https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html)
+
+[https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover](https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover)
+

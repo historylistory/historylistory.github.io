@@ -684,3 +684,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 
 
+2026-08-25 Baby man-child Trump threatened to rename Lake Ontario “Lake America” during his trade war with Canada. 
+
+2026-08-25 During trade negotiations some US demands of Canada allegedly included reducing French-language media and eliminating French translations. 
+
+
+

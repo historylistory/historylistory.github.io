@@ -104,6 +104,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 ## 2017 
 
+2017-05-24 Trump repealed the NAFTA trade agreement between the US, Canada and Mexico during his first term so he could reinvent the wheel in recreating the exact same policy and take credit. 
+
 2017-06-05 Trump proposed firing 30,000 FAA workers from the federal payroll and privatizing the entire air traffic control system.
 
 2017-11-01 The Tax Cuts and Jobs Act of 2017 reduced corporate tax from 35% to 21%. As a result, the richest people took their own tax breaks while inflating their own wealth, it was the largest stock buyback in history, it caused a 120% billionaire boom, and it widened the deficit. 
@@ -1158,3 +1160,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-24 Bessent launched “Operation Economic Outcast” to isolate and target Iran and so-called enablers. 
 
 2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 
+
+2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 

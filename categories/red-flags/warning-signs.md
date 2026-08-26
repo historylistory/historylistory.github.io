@@ -469,3 +469,8 @@ HERE IS THE PDF, Start on page 40 (or 42) Section 224 [https://armedservices.hou
 
 [https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/](https://www.timesofisrael.com/liveblog_entry/netanyahu-campaign-billboard-places-nycs-mamdani-alongside-leaders-of-iran-and-hezbollah/)
 
+2026-08-25 Protestors in New York gathered ahead of an upcoming visit from Hindu nationalist leader and head of RSS Moan Bhagwat. This is a far-right paramilitary organization. Democratic nominee Brad Landers stated, “This event harkens back to that 1939 Nazi rally that was hosted at Madison Square Garden with banners of swastikas and tens of thousands of people cheering ethnic and religious hatred and violence of a very similar sort to what Moad Bagwan and the RSS are proposing. And MSG said it wouldn’t do that again, that it wouldn’t host any more hate-filled, bigoted rallies”
+
+TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1)
+
+[https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/](https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/)

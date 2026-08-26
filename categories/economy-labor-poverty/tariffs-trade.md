@@ -18,6 +18,15 @@ permalink: /categories/economy-labor-poverty/tariffs-trade/
 
 [https://www.instagram.com/reel/DIAJLh9xmp-/?hl=en](https://www.instagram.com/reel/DIAJLh9xmp-/?hl=en)
 
+### 2017
+
+2017-05-24 Trump repealed the NAFTA trade agreement between the US, Canada and Mexico during his first term so he could reinvent the wheel in recreating the exact same policy and take credit. 
+
+[https://www.congress.gov/crs-product/R42965](https://www.congress.gov/crs-product/R42965)
+
+[https://www.pon.harvard.edu/daily/dealmaking-daily/redoing-the-deal-lessons-from-the-nafta-renegotiations-nb/](https://www.pon.harvard.edu/daily/dealmaking-daily/redoing-the-deal-lessons-from-the-nafta-renegotiations-nb/)
+
+
 ### 2018
 
 2018-03-01 Trump imposed tariffs on foreign steel and aluminum from China.

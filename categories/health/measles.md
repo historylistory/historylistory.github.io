@@ -66,3 +66,10 @@ SUB WALL [https://www.politico.com/news/2025/04/06/kennedy-support-measles-vacci
 
 [https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm](https://www.techtimes.com/articles/322724/20260802/kennedy-disputes-vaccine-science-cnn-measles-hits-35-year-us-high.htm)
 
+### 2026 August
+
+2026-08-25 Two unvaccinated people died from measles in Pennsylvania. 
+
+[https://www.cidrap.umn.edu/measles/measles-related-deaths-pennsylvania-mark-first-2-us-fatalities-year](https://www.cidrap.umn.edu/measles/measles-related-deaths-pennsylvania-mark-first-2-us-fatalities-year)
+
+[https://www.nbcnews.com/health/health-news/measles-pennsylvania-deaths-two-outbreak-rfk-jr-rcna594296](https://www.nbcnews.com/health/health-news/measles-pennsylvania-deaths-two-outbreak-rfk-jr-rcna594296)

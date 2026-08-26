@@ -676,3 +676,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 
 
 2026-08-20 Frozen blueberries were upgraded to high risk by the FDA for E.coli contamination. The classification level is high enough to “likely cause serious harm or death”. 
+
+
+2026-08-25 Two unvaccinated people died from measles in Pennsylvania. 

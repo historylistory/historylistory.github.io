@@ -141,3 +141,14 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 [https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/6832740](https://www.c-span.org/program/news-conference/secy-of-state-rubio-speaks-to-reporters-following-meeting-with-southeast-asian-foreign-ministers/683274)
 
 [https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd](https://apnews.com/article/asean-rubio-south-china-sea-iran-war-12b3a257be0b6af9d96356dd78be3cfd)
+
+### 2026 August
+
+2026-08-26 Devastating flash floods at the Nepal-China border killed at least 31 people and left hundreds missing. 
+
+[https://www.youtube.com/watch?v=W-VYCKrMGro&list=WL&index=2](https://www.youtube.com/watch?v=W-VYCKrMGro&list=WL&index=2)
+
+[https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/](https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/)
+
+[https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl](https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl)
+

@@ -6,6 +6,15 @@ subcategory_slug: canada
 permalink: /categories/foreign-affairs-isolation/canada/
 ---
 
+### 2017
+
+2017-05-24 Trump repealed the NAFTA trade agreement between the US, Canada and Mexico during his first term so he could reinvent the wheel in recreating the exact same policy and take credit. 
+
+[https://www.congress.gov/crs-product/R42965](https://www.congress.gov/crs-product/R42965)
+
+[https://www.pon.harvard.edu/daily/dealmaking-daily/redoing-the-deal-lessons-from-the-nafta-renegotiations-nb/](https://www.pon.harvard.edu/daily/dealmaking-daily/redoing-the-deal-lessons-from-the-nafta-renegotiations-nb/)
+
+
 ### 2025 March
 
 2025-03-10 Canadian visitors boycotted tourism in the U.S., possibly causing a long-term loss in the U.S. economy.
@@ -120,3 +129,23 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://www.democracynow.org/2026/8/24/us_canada_trade_war](https://www.democracynow.org/2026/8/24/us_canada_trade_war)
 
 [https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/](https://fortune.com/2026/08/24/trump-canada-dumb-trade-war-us-carney/)
+
+2026-08-24 Ontario Premier Doug Ford sharply criticized Trump calling him a bully and dictator during a press conference in Hamilton Ontario. He stated, “I don’t respond to a dictator or a bully”. 
+
+[https://www.youtube.com/watch?v=CnIsnTxXaD0](https://www.youtube.com/watch?v=CnIsnTxXaD0)
+
+[https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/](https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/)
+
+2026-08-25 Baby man-child Trump threatened to rename Lake Ontario “Lake America” during his trade war with Canada. 
+
+[https://www.cbc.ca/news/canada/toronto/trump-rename-lake-ontario-lake-america-9.7319351](https://www.cbc.ca/news/canada/toronto/trump-rename-lake-ontario-lake-america-9.7319351)
+
+[https://globalnews.ca/news/12035032/trump-threat-lake-ontario-history/](https://globalnews.ca/news/12035032/trump-threat-lake-ontario-history/)
+
+2026-08-25 During trade negotiations some US demands of Canada allegedly included reducing French-language media and eliminating French translations. 
+
+[https://www.cbc.ca/news/canada/montreal/trump-french-canada-9.7319337](https://www.cbc.ca/news/canada/montreal/trump-french-canada-9.7319337)
+
+[https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724](https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724)
+
+[https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/](https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/)

@@ -402,3 +402,21 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
 
 [https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html](https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html)
+
+2026-08-22 White nationalist Jake Lang got his ass kicked by Spiderman. 
+
+[https://www.fox9.com/news/man-dressed-spider-man-costume-jake-lang-protest-charged-assault](https://www.fox9.com/news/man-dressed-spider-man-costume-jake-lang-protest-charged-assault)
+
+[https://www.minnpost.com/fact-briefs/2026/08/was-that-spider-man-throwing-punches-at-far-right-activists-rallying-in-minneapolis/](https://www.minnpost.com/fact-briefs/2026/08/was-that-spider-man-throwing-punches-at-far-right-activists-rallying-in-minneapolis/)
+
+[https://www.startribune.com/as-jake-lang-remains-jailed-spider-man-gives-his-side-of-city-hall-clash/601881900](https://www.startribune.com/as-jake-lang-remains-jailed-spider-man-gives-his-side-of-city-hall-clash/601881900)
+
+2026-08-22 White nationalist Eoin Richard tried to hold an Islamophobic protest in LA in front of an Islamic center. When he was confronted by numerous counter-protestors he tried to take refuge in a Catholic church, where the church staff had to physically throw him out kicking and screaming. Then he tried to hide in a Starbucks where he was met with other counter-protestors who threw blue paint on him. 
+
+[https://www.facebook.com/watch/?v=910577801666511](https://www.facebook.com/watch/?v=910577801666511)
+
+[https://www.ewtnnews.com/world/us/man-in-viral-church-video-was-removed-by-outsiders-los-angeles-archdiocese-says](https://www.ewtnnews.com/world/us/man-in-viral-church-video-was-removed-by-outsiders-los-angeles-archdiocese-says)
+
+[https://www.theblaze.com/news/anti-islam-activist-thrown-out-of-church-assaulted-by-black-clad-suspects](https://www.theblaze.com/news/anti-islam-activist-thrown-out-of-church-assaulted-by-black-clad-suspects)
+
+[https://leftcoastrightwatch.org/articles/two-man-hate-rally-fails-to-find-solace-in-mosque-church-starbucks/](https://leftcoastrightwatch.org/articles/two-man-hate-rally-fails-to-find-solace-in-mosque-church-starbucks/)

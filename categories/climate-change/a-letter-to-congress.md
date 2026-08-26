@@ -479,3 +479,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-17 Hawaii was devastated by Hurricane Lala. 
 
 2026-08-24 Thousands of homes and businesses in Indiana remained without power two weeks after torrential rain. 
+
+2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
+
+2026-08-26 Devastating flash floods at the Nepal-China border killed at least 31 people and left hundreds missing. 
