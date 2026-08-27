@@ -371,3 +371,8 @@ ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-fa
 
 [https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text](https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text)
 
+2026-08-25 The Kentucky Cattlemen’s Association argued letting 300K metric tons of imported beef into the US supply chain is bad policy. 
+
+[https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s](https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s)
+
+[https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/](https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/)

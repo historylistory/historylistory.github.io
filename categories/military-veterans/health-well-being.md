@@ -113,3 +113,12 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 [https://www.bbc.com/news/articles/cyvl2d5j52lo](https://www.bbc.com/news/articles/cyvl2d5j52lo)
 
 [https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions](https://www.npr.org/2026/08/13/g-s1-138591/uss-abraham-lincoln-conditions)
+
+2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 
+
+[https://www.youtube.com/watch?v=d_1SGE7frFk&list=WL&index=3&t=50s](https://www.youtube.com/watch?v=d_1SGE7frFk&list=WL&index=3&t=50s)
+
+[https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay](https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay)
+
+[https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66](https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66)
+

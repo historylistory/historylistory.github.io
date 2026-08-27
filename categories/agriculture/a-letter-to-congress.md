@@ -203,3 +203,7 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-08-13 Grand Central Bakery voluntarily issued a recall of their potato sourdough for food safety concerns, and experts say the surge in recalls is connected to FDA staffing cuts. 
 
 2026-08-20 Frozen blueberries were upgraded to high risk by the FDA for E.coli contamination. The classification level is high enough to “likely cause serious harm or death”. 
+
+2026-08-25 The Kentucky Cattlemen’s Association argued letting 300K metric tons of imported beef into the US supply chain is bad policy. 
+
+2026-08-27 The internet speculated about horse meat mixed with Argentine beef. 

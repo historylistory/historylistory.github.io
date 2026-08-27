@@ -428,3 +428,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-08-17 USS Benfold was left stranded for several days in open waters after a power failure. 
 
 2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
+
+2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 

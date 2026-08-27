@@ -174,3 +174,12 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 
 [https://www.delish.com/food-news/a73481274/publix-blueberry-recall-fda/](https://www.delish.com/food-news/a73481274/publix-blueberry-recall-fda/)
 
+2026-08-27 The internet speculated about horse meat mixed with Argentine beef. 
+
+[https://www.newsnationnow.com/politics/fact-check-argentine-beef-unsafe-horse-meat/](https://www.newsnationnow.com/politics/fact-check-argentine-beef-unsafe-horse-meat/)
+
+[https://www.salon.com/2026/08/27/trumps-mystery-meat-problem/](https://www.salon.com/2026/08/27/trumps-mystery-meat-problem/)
+
+[https://www.snopes.com/news/2026/08/26/trump-ground-beef-wild-horses/](https://www.snopes.com/news/2026/08/26/trump-ground-beef-wild-horses/)
+
+

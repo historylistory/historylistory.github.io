@@ -514,3 +514,12 @@ ARTICLE FROM 2025 [https://www.freedomunited.org/news/us-lifts-forced-labor-ban-
 ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor](https://www.npr.org/2022/11/29/1139765236/u-s-bans-dominican-sugar-company-over-forced-labor)
 
 ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)
+
+2026-08-24 An economic research firm Ludwig Institute released new information finding that the actual unemployment rate of US workers is 25% when considering the “functionally unemployed”, or those who live at or below the poverty line. 
+
+[https://www.youtube.com/watch?v=-y2gKIGFTns&list=WL&index=2](https://www.youtube.com/watch?v=-y2gKIGFTns&list=WL&index=2)
+
+[https://www.lisep.org/](https://www.lisep.org/)
+
+[https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/](https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/)
+

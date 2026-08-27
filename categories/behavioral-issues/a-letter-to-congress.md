@@ -688,5 +688,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-25 During trade negotiations some US demands of Canada allegedly included reducing French-language media and eliminating French translations. 
 
+2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 
+
 
 

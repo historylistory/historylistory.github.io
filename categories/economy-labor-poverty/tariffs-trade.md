@@ -448,3 +448,8 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 
 [https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)
 
+2026-08-25 The Kentucky Cattlemen’s Association argued letting 300K metric tons of imported beef into the US supply chain is bad policy. 
+
+[https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s](https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s)
+
+[https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/](https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/)

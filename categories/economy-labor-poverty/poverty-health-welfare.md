@@ -733,3 +733,13 @@ ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-fa
 [https://eyeonhousing.org/2026/08/u-s-labor-market-softens-in-july/](https://eyeonhousing.org/2026/08/u-s-labor-market-softens-in-july/)
 
 [https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/](https://thehill.com/business/6015291-us-jobs-23k-losses-bls-report-july/)
+
+2026-08-24 An economic research firm Ludwig Institute released new information finding that the actual unemployment rate of US workers is 25% when considering the “functionally unemployed”, or those who live at or below the poverty line. 
+
+[https://www.youtube.com/watch?v=-y2gKIGFTns&list=WL&index=2](https://www.youtube.com/watch?v=-y2gKIGFTns&list=WL&index=2)
+
+[https://www.lisep.org/](https://www.lisep.org/)
+
+[https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/](https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/)
+
+
