@@ -134,3 +134,8 @@ SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-w
 
 [https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood](https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood)
 
+2026-08-29 Two people died and several people went missing at Grand Canyon National Park after flash floods 
+
+[https://time.com/article/2026/08/31/grand-canyon-flash-flood/](https://time.com/article/2026/08/31/grand-canyon-flash-flood/)
+
+

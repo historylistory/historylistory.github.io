@@ -445,3 +445,10 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 [https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled](https://www.insidehighered.com/news/quick-takes/2026/08/07/u-minnesota-pays-holocaust-scholar-after-job-offer-pulled)
 
 [https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement](https://ccrjustice.org/home/press-center/press-releases/victory-academic-freedom-university-minnesota-reaches-settlement)
+
+2026-08-31 US District Judge Noel Wise wrote, “In the United States, free speech, including the freedom to criticize the government and its leaders, is not a sign of our democracy’s fragility. It is evidence of its strength”. The judge ruled that Trump has violated Constitutional rights and that immigration law cannot be used to retaliate against people for being pro-Palestinian. 
+
+[https://thedailyrecord.com/2026/08/31/judge-rules-unconstitutional-trump-deportations-pro-palestinian-activists/](https://thedailyrecord.com/2026/08/31/judge-rules-unconstitutional-trump-deportations-pro-palestinian-activists/)
+
+[https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/](https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/)
+

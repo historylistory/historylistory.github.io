@@ -29,4 +29,9 @@ TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](htt
 [https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/](https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/)
 
 
+2026-08-30 Thousands of New Yorkers rallied at Madison Square Garden to protest the visit of chief far-right RSS leader Mohan Bhagwat. 
+
+[https://www.democracynow.org/2026/8/31/headlines/protesters_rally_against_rss_event_at_madison_square_garden](https://www.democracynow.org/2026/8/31/headlines/protesters_rally_against_rss_event_at_madison_square_garden)
+
+[https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city](https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city)
 

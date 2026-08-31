@@ -420,3 +420,17 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 [https://www.theblaze.com/news/anti-islam-activist-thrown-out-of-church-assaulted-by-black-clad-suspects](https://www.theblaze.com/news/anti-islam-activist-thrown-out-of-church-assaulted-by-black-clad-suspects)
 
 [https://leftcoastrightwatch.org/articles/two-man-hate-rally-fails-to-find-solace-in-mosque-church-starbucks/](https://leftcoastrightwatch.org/articles/two-man-hate-rally-fails-to-find-solace-in-mosque-church-starbucks/)
+
+2026-08-30 Thousands of New Yorkers rallied at Madison Square Garden to protest the visit of chief far-right RSS leader Mohan Bhagwat. 
+
+[https://www.democracynow.org/2026/8/31/headlines/protesters_rally_against_rss_event_at_madison_square_garden](https://www.democracynow.org/2026/8/31/headlines/protesters_rally_against_rss_event_at_madison_square_garden)
+
+[https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city](https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city)
+
+
+2026-08-31 US District Judge Noel Wise wrote, “In the United States, free speech, including the freedom to criticize the government and its leaders, is not a sign of our democracy’s fragility. It is evidence of its strength”. The judge ruled that Trump has violated Constitutional rights and that immigration law cannot be used to retaliate against people for being pro-Palestinian. 
+
+[https://thedailyrecord.com/2026/08/31/judge-rules-unconstitutional-trump-deportations-pro-palestinian-activists/](https://thedailyrecord.com/2026/08/31/judge-rules-unconstitutional-trump-deportations-pro-palestinian-activists/)
+
+[https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/](https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/)
+

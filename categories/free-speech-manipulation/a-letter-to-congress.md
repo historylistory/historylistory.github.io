@@ -548,3 +548,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
 
 2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
+
+2026-08-30 Trump threatened to report NBC’s Kristen Welker to the FCC for comments about Trump’s endorsement of GOP candidates. 
+
+
+2026-08-31 US District Judge Noel Wise wrote, “In the United States, free speech, including the freedom to criticize the government and its leaders, is not a sign of our democracy’s fragility. It is evidence of its strength”. The judge ruled that Trump has violated Constitutional rights and that immigration law cannot be used to retaliate against people for being pro-Palestinian. 

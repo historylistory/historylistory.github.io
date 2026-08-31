@@ -674,3 +674,10 @@ FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-u
 
 [https://www.dw.com/en/israel-idf-gaza-criminal-investigation-hind-rajab-un-msf-wck/a-78429726](https://www.dw.com/en/israel-idf-gaza-criminal-investigation-hind-rajab-un-msf-wck/a-78429726)
 
+2026-08-27 An Israeli Air Force officer was quoted in an interview to Haaretz, “You see the State of Israel, the IDFT and Shin Bet sending armed, trained militias to commit war crimes, and I’m the one who has to protect them during their operations, so they don’t get hurt”. 
+
+TIMESTAMP 6:46 [https://www.youtube.com/watch?v=bWyBY-r3tQw](https://www.youtube.com/watch?v=bWyBY-r3tQw)
+
+[https://www.haaretz.com/israel-news/security-aviation/2026-08-27/ty-article-magazine/.premium/gaza-israel-sending-militias-commit-war-crimes-i-have-to-protect-them/0000019f-f0f0-df61-a3ff-f9fe6ca70000](https://www.haaretz.com/israel-news/security-aviation/2026-08-27/ty-article-magazine/.premium/gaza-israel-sending-militias-commit-war-crimes-i-have-to-protect-them/0000019f-f0f0-df61-a3ff-f9fe6ca70000)
+
+[https://www.democracynow.org/2026/8/31/headlines/israeli_strikes_kill_two_palestinians_including_3_year_old_boy_in_gaza](https://www.democracynow.org/2026/8/31/headlines/israeli_strikes_kill_two_palestinians_including_3_year_old_boy_in_gaza)

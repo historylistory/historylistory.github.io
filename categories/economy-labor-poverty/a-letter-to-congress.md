@@ -1166,3 +1166,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
 
 2026-08-25 The Kentucky Cattlemen’s Association argued letting 300K metric tons of imported beef into the US supply chain is bad policy. 
+
+2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
+
+2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 

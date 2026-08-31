@@ -834,3 +834,14 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 
 [https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states](https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states)
 
+### 2026 August
+
+2026-08-30 Trump threatened to report NBC’s Kristen Welker to the FCC for comments about Trump’s endorsement of GOP candidates. 
+
+[https://www.politico.com/news/2026/08/30/trump-kristen-welker-fcc-punish-01056440](https://www.politico.com/news/2026/08/30/trump-kristen-welker-fcc-punish-01056440)
+
+[https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc](https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc)
+
+[https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/](https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/)
+
+

@@ -424,3 +424,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-08-19 Israel ran a synthetic “think-tank” to influence AI search results. It turned out that the “Hanover Institute” was Israel-funded AI slop. 
 
 2026-08-25 Protestors in New York gathered ahead of an upcoming visit from Hindu nationalist leader and head of RSS Moan Bhagwat. This is a far-right paramilitary organization. Democratic nominee Brad Landers stated, “This event harkens back to that 1939 Nazi rally that was hosted at Madison Square Garden with banners of swastikas and tens of thousands of people cheering ethnic and religious hatred and violence of a very similar sort to what Moad Bagwan and the RSS are proposing. And MSG said it wouldn’t do that again, that it wouldn’t host any more hate-filled, bigoted rallies”
+
+2026-08-27 An Israeli Air Force officer was quoted in an interview to Haaretz, “You see the State of Israel, the IDFT and Shin Bet sending armed, trained militias to commit war crimes, and I’m the one who has to protect them during their operations, so they don’t get hurt”. 
+
+2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 

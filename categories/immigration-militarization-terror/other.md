@@ -156,3 +156,9 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 [https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?](https://www.riverbender.com/news/details/duckworth-lawmakers-slam-trumps-efforts-to-tear-apart-military-families-convert-military-bases-into-deportation-traps-95823.cfm?)
 
 [https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146](https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146)
+
+2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
+
+[https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/](https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/)
+
+

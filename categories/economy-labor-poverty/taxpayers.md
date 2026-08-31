@@ -713,3 +713,9 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html)
 
 [https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover](https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover)
+
+2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
+
+[https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/](https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/)
+
+

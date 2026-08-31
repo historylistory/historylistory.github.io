@@ -303,3 +303,11 @@ SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-c
 ABOUT THAT CASE [https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/](https://time.com/article/2026/08/11/us-supreme-court-suncor-v-boulder-climate-accountability/)
 
 THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/](https://www.spencerfane.com/insight/climate-change-on-trial-why-suncor-energy-v-boulder-county-matters/)
+
+2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
+
+[https://www.axios.com/2026/08/29/trump-venezuela-oil-deal](https://www.axios.com/2026/08/29/trump-venezuela-oil-deal)
+
+[https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442](https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442)
+
+[https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e](https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e)

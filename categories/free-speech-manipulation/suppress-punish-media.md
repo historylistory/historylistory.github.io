@@ -528,3 +528,11 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
 
 [https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html](https://ca.news.yahoo.com/washington-post-ordered-rehire-columnist-122816116.html)
+
+2026-08-30 Trump threatened to report NBC’s Kristen Welker to the FCC for comments about Trump’s endorsement of GOP candidates. 
+
+[https://www.politico.com/news/2026/08/30/trump-kristen-welker-fcc-punish-01056440](https://www.politico.com/news/2026/08/30/trump-kristen-welker-fcc-punish-01056440)
+
+[https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc](https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc)
+
+[https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/](https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/)

@@ -913,3 +913,5 @@ Next
 2026-08-20 For the first deportation flight after ending TPS, the administration rounded up 160 Haitians and flew them out of the country. 
 
 2026-08-22 A judge struck down Trump’s visa ban on 75 countries. 
+
+2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 

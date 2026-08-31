@@ -487,3 +487,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-28 Trump announced plans to give a piece of protected Yosemite park land to a private developer. 
 
 2026-08-28 A lake formed from the Nepal flood as the death toll surpassed 900 people.
+
+2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
+
+2026-08-29 Two people died and several people went missing at Grand Canyon National Park after flash floods 
