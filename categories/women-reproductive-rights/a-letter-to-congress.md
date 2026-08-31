@@ -434,6 +434,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 
 
+2026-08-09 AOC shared her personal plan to freeze her eggs to break the stigma preventing women from talking about their own reproductive choices. She received immediate and sharp backlash from right wing figures, Republican strategists, and MAGA influencers. 
+
 2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 
 
 2026-08-12 Caitlin Clark spoke out against a recent influx of racist, misogynistic, transphobic and abusive online hate speech directed at the WNBA.

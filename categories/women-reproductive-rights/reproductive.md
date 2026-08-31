@@ -756,6 +756,21 @@ THE CALL WAS POSTED THEN TAKEN DOWN [https://www.youtube.com/watch?v=GSgPBOlRyuU
 
 DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/](https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/)
 
+2026-08-09 AOC shared her personal plan to freeze her eggs to break the stigma preventing women from talking about their own reproductive choices. She received immediate and sharp backlash from right wing figures, Republican strategists, and MAGA influencers. 
+
+[https://www.pbs.org/newshour/politics/ocasio-cortez-says-shes-freezing-her-eggs-as-she-considers-her-political-career](https://www.pbs.org/newshour/politics/ocasio-cortez-says-shes-freezing-her-eggs-as-she-considers-her-political-career)
+
+MAGA BACKLASH [https://www.rollingstone.com/politics/politics-news/aoc-freezes-eggs-right-wing-weird-1235606270/](https://www.rollingstone.com/politics/politics-news/aoc-freezes-eggs-right-wing-weird-1235606270/)
+
+MAGA BACKLASH [https://www.thedailybeast.com/maga-melts-down-over-congresswomans-family-planning/](https://www.thedailybeast.com/maga-melts-down-over-congresswomans-family-planning/)
+
+MAGA BACKLASH [https://www.newyorker.com/culture/the-lede/aoc-eggs-and-the-working-womans-inconvenient-truth](https://www.newyorker.com/culture/the-lede/aoc-eggs-and-the-working-womans-inconvenient-truth)
+
+MAGA BACKLASH [https://www.thetimes.com/us/news-today/article/aoc-frozen-eggs-maga-gender-war-qwvscmtwn](https://www.thetimes.com/us/news-today/article/aoc-frozen-eggs-maga-gender-war-qwvscmtwn)
+
+PAY WALL [https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html](https://www.nytimes.com/2026/08/09/nyregion/nyc-alexandria-ocasio-cortez-freezing-eggs.html)
+
+
 2026-08-11 Massachusetts expanded late term abortion access when its necessary to save the pregnant person’s life. 
 
 [https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access](https://www.democracynow.org/2026/8/11/headlines/massachusetts_expands_late_term_abortion_access)
