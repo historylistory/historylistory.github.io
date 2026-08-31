@@ -613,6 +613,21 @@ PAY WALL [https://www.nytimes.com/2026/08/07/world/middleeast/gaza-flotilla-isra
 
 [https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation](https://time.com/article/2026/08/19/israel-gaza-idf-hind-rajab-death-criminal-investigation)
 
+2026-08-19 Israel ran a synthetic “think-tank” to influence AI search results. It turned out that the “Hanover Institute” was Israel-funded AI slop. 
+
+[https://www.404media.co/israel-is-running-a-synthetic-think-tank-to-influence-ai-search-results/](https://www.404media.co/israel-is-running-a-synthetic-think-tank-to-influence-ai-search-results/)
+
+[https://www.aa.com.tr/en/middle-east/israel-creates-fake-think-tank-in-apparent-bid-to-influence-ai-chatbots-report/4032085](https://www.aa.com.tr/en/middle-east/israel-creates-fake-think-tank-in-apparent-bid-to-influence-ai-chatbots-report/4032085)
+
+[https://www.theguardian.com/world/2026/aug/26/fake-thinktank-israel-ai-propaganda](https://www.theguardian.com/world/2026/aug/26/fake-thinktank-israel-ai-propaganda)
+
+[https://cybernews.com/security/hanover-institute-influencing-ai-analysis/](https://cybernews.com/security/hanover-institute-influencing-ai-analysis/)
+
+[https://responsiblestatecraft.org/israel-influence-chatgpt/](https://responsiblestatecraft.org/israel-influence-chatgpt/)
+
+[https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports](https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports)
+
+
 2026-08-20 Israel said it would not be investigating the attack that killed aid workers from World Central Kitchen, MSF and Doctors Without Borders. 
 
 [https://www.doctorswithoutborders.org/latest/msf-condemns-israeli-military-decision-deny-investigation-killings-our-staff-gaza](https://www.doctorswithoutborders.org/latest/msf-condemns-israeli-military-decision-deny-investigation-killings-our-staff-gaza)

@@ -412,3 +412,11 @@ permalink: /categories/climate-change/weird-weather/
 [https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/](https://www.reuters.com/business/environment/what-triggered-catastrophic-flood-nepal-tibet-border-2026-08-26/)
 
 [https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl](https://www.cnn.com/2026/08/26/world/live-news/nepal-flash-flooding-floods-intl)
+
+2026-08-28 A lake formed from the Nepal flood as the death toll surpassed 900 people.
+
+[https://www.youtube.com/watch?v=SmvPMSc0ezs](https://www.youtube.com/watch?v=SmvPMSc0ezs)
+
+[https://www.cbc.ca/news/climate/nepal-tibet-glacier-flood-climate-disaster-9.7323295](https://www.cbc.ca/news/climate/nepal-tibet-glacier-flood-climate-disaster-9.7323295)
+
+[https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood](https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood)

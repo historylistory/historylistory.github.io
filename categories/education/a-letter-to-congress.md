@@ -359,3 +359,5 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-08-14 A federal judge dismissed Trump’s lawsuit against Harvard of anti-Semitism accusations.
 
 2026-08-20 Former Justice Department attorney Haley Van Erem filed a complaint against the Trump administration, writing that the government probes into schools were, “an unlawful process designed to achieve predetermined political goals”. 
+
+2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 

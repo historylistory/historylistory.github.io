@@ -543,4 +543,8 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-08-18 Disney and ABC filed a lawsuit against the FCC for violating the First Amendment. 
 
+2026-08-19 Israel ran a synthetic “think-tank” to influence AI search results. It turned out that the “Hanover Institute” was Israel-funded AI slop. 
+
 2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
+
+2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 

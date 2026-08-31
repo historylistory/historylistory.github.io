@@ -99,3 +99,11 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.nbcnews.com/news/us-news/charter-plane-carrying-8-crashes-western-alaska-rcna593687](https://www.nbcnews.com/news/us-news/charter-plane-carrying-8-crashes-western-alaska-rcna593687)
 
 [https://www.adn.com/alaska-news/aviation/2026/08/20/plane-carrying-pilot-and-7-passengers-crashes-in-southwest-alaska/](https://www.adn.com/alaska-news/aviation/2026/08/20/plane-carrying-pilot-and-7-passengers-crashes-in-southwest-alaska/)
+
+2026-08-27 A DHL cargo jet erupted in flames when its landing gear caught fire at LAX. 
+
+[https://www.yahoo.com/news/weather-news/articles/dhl-cargo-jet-erupts-flames-121338251.html](https://www.yahoo.com/news/weather-news/articles/dhl-cargo-jet-erupts-flames-121338251.html)
+
+[https://www.youtube.com/watch?v=B7OolPcSkmQ](https://www.youtube.com/watch?v=B7OolPcSkmQ)
+
+

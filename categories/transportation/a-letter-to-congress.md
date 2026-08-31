@@ -233,3 +233,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-08-20 A small plane crashed into a state police helicopter. 
 
 2026-08-20 A charter plane crashed in Alaska, killing 8. 
+
+2026-08-27 A DHL cargo jet erupted in flames when its landing gear caught fire at LAX. 

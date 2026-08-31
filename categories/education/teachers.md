@@ -75,3 +75,13 @@ permalink: /categories/education/teachers/
 [https://mashable.com/tech/new-york-school-testing-robot-teacher](https://mashable.com/tech/new-york-school-testing-robot-teacher)
 
 [https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians](https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians)
+
+### 2026 August
+
+2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
+
+[https://www.youtube.com/watch?v=L-Ctt6NEZXM&list=WL&index=1](https://www.youtube.com/watch?v=L-Ctt6NEZXM&list=WL&index=1)
+
+[https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
+
+FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)

@@ -167,3 +167,14 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life](https://www.wired.me/story/how-the-oman-oil-spill-could-affect-marine-life)
 
 [https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast](https://www.aljazeera.com/economy/2026/8/13/oman-says-oil-spill-from-stricken-tanker-has-reached-its-coast)
+
+2026-08-28 Trump announced plans to give a piece of protected Yosemite park land to a private developer. 
+
+[https://www.youtube.com/watch?v=y5JCvRfWoGw&list=WL&index=2](https://www.youtube.com/watch?v=y5JCvRfWoGw&list=WL&index=2)
+
+[https://www.theguardian.com/us-news/2026/aug/28/yosemite-national-park-private-developer](https://www.theguardian.com/us-news/2026/aug/28/yosemite-national-park-private-developer)
+
+[https://www.cnbc.com/2026/08/29/trump-yosemite-land-swap-kingsbarn.html](https://www.cnbc.com/2026/08/29/trump-yosemite-land-swap-kingsbarn.html)
+
+[https://www.notus.org/agencies/trump-administration-yosemite-private-developer-deal](https://www.notus.org/agencies/trump-administration-yosemite-private-developer-deal)
+

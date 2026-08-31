@@ -483,3 +483,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
 
 2026-08-26 Devastating flash floods at the Nepal-China border killed at least 31 people and left hundreds missing. 
+
+2026-08-28 Trump announced plans to give a piece of protected Yosemite park land to a private developer. 
+
+2026-08-28 A lake formed from the Nepal flood as the death toll surpassed 900 people.

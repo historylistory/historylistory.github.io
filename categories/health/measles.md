@@ -73,3 +73,16 @@ SUB WALL [https://www.politico.com/news/2025/04/06/kennedy-support-measles-vacci
 [https://www.cidrap.umn.edu/measles/measles-related-deaths-pennsylvania-mark-first-2-us-fatalities-year](https://www.cidrap.umn.edu/measles/measles-related-deaths-pennsylvania-mark-first-2-us-fatalities-year)
 
 [https://www.nbcnews.com/health/health-news/measles-pennsylvania-deaths-two-outbreak-rfk-jr-rcna594296](https://www.nbcnews.com/health/health-news/measles-pennsylvania-deaths-two-outbreak-rfk-jr-rcna594296)
+
+2026-08-26 RFK suggested the measles deaths were “fabricated” and accused Pennsylvania officials of lying. 
+
+[https://globalbiodefense.com/2026/08/29/when-the-nations-top-health-official-becomes-the-outbreaks-biggest-obstacle/](https://globalbiodefense.com/2026/08/29/when-the-nations-top-health-official-becomes-the-outbreaks-biggest-obstacle/)
+
+[https://www.pbs.org/newshour/health/measles-deaths-reported-in-pennsylvania-spark-feud-among-politicians-and-health-officials](https://www.pbs.org/newshour/health/measles-deaths-reported-in-pennsylvania-spark-feud-among-politicians-and-health-officials)
+
+[https://www.forbes.com/sites/maryroeloffs/2026/08/29/rfk-jr-says-pennsylvania-lied-about-so-called-measles-deaths/](https://www.forbes.com/sites/maryroeloffs/2026/08/29/rfk-jr-says-pennsylvania-lied-about-so-called-measles-deaths/)
+
+[https://www.npr.org/2026/08/29/nx-s1-5946842/pennsylvania-measles-deaths-ignite-clash-over-rfk-jr-s-vaccination-claims](https://www.npr.org/2026/08/29/nx-s1-5946842/pennsylvania-measles-deaths-ignite-clash-over-rfk-jr-s-vaccination-claims)
+
+PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/](https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/)
+

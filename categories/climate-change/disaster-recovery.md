@@ -125,3 +125,12 @@ SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-w
 [https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html)
 
 [https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover](https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover)
+
+2026-08-28 A lake formed from the Nepal flood as the death toll surpassed 900 people.
+
+[https://www.youtube.com/watch?v=SmvPMSc0ezs](https://www.youtube.com/watch?v=SmvPMSc0ezs)
+
+[https://www.cbc.ca/news/climate/nepal-tibet-glacier-flood-climate-disaster-9.7323295](https://www.cbc.ca/news/climate/nepal-tibet-glacier-flood-climate-disaster-9.7323295)
+
+[https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood](https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood)
+

@@ -557,4 +557,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-24 Republicans still had not passed a federal budget and announced plans to instead vote on a continuing resolution to get the US to December without a shutdown. 
 
 2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
- 
+
+2026-08-26 RFK suggested the measles deaths were “fabricated” and accused Pennsylvania officials of lying. 

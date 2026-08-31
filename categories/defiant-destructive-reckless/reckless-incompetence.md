@@ -890,3 +890,15 @@ REP STANSBURY [https://www.youtube.com/watch?v=p17qYY9IkEQ](https://www.youtube.
 [https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html](https://www.independent.co.uk/news/world/americas/us-politics/trump-national-parks-workers-dc-projects-b3038934.html)
 
 [https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover](https://www.cnn.com/2026/08/25/politics/doug-burgum-trump-washington-makeover)
+
+2026-08-26 RFK suggested the measles deaths were “fabricated” and accused Pennsylvania officials of lying. 
+
+[https://globalbiodefense.com/2026/08/29/when-the-nations-top-health-official-becomes-the-outbreaks-biggest-obstacle/](https://globalbiodefense.com/2026/08/29/when-the-nations-top-health-official-becomes-the-outbreaks-biggest-obstacle/)
+
+[https://www.pbs.org/newshour/health/measles-deaths-reported-in-pennsylvania-spark-feud-among-politicians-and-health-officials](https://www.pbs.org/newshour/health/measles-deaths-reported-in-pennsylvania-spark-feud-among-politicians-and-health-officials)
+
+[https://www.forbes.com/sites/maryroeloffs/2026/08/29/rfk-jr-says-pennsylvania-lied-about-so-called-measles-deaths/](https://www.forbes.com/sites/maryroeloffs/2026/08/29/rfk-jr-says-pennsylvania-lied-about-so-called-measles-deaths/)
+
+[https://www.npr.org/2026/08/29/nx-s1-5946842/pennsylvania-measles-deaths-ignite-clash-over-rfk-jr-s-vaccination-claims](https://www.npr.org/2026/08/29/nx-s1-5946842/pennsylvania-measles-deaths-ignite-clash-over-rfk-jr-s-vaccination-claims)
+
+PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/](https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/)

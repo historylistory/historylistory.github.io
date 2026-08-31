@@ -131,3 +131,11 @@ The publication “A Short History of the Department of State” was retired.
 [https://www.kctv5.com/2026/08/06/advocates-proposed-head-start-changes-risk-teacher-layoffs-weakened-standards/](https://www.kctv5.com/2026/08/06/advocates-proposed-head-start-changes-risk-teacher-layoffs-weakened-standards/)
 
 SUB WALL [https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html](https://www.nytimes.com/2026/07/31/us/politics/head-start-deregulation.html)
+
+2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
+
+[https://www.youtube.com/watch?v=L-Ctt6NEZXM&list=WL&index=1](https://www.youtube.com/watch?v=L-Ctt6NEZXM&list=WL&index=1)
+
+[https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
+
+FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)

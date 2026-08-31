@@ -697,3 +697,5 @@ Manhattan grand jury in the hush-money case.
 2026-08-20 Dr Faucci plead guilty to conspiring to evade public records laws and conceal documents related to the COVID-19 pandemic. He faces 5 years in prison. 
 
 2026-08-24 Ontario Premier Doug Ford sharply criticized Trump calling him a bully and dictator during a press conference in Hamilton Ontario. He stated, “I don’t respond to a dictator or a bully”. 
+
+2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 

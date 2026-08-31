@@ -680,4 +680,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-25 Two unvaccinated people died from measles in Pennsylvania. 
 
+2026-08-26 RFK suggested the measles deaths were “fabricated” and accused Pennsylvania officials of lying. 
+
 2026-08-27 The internet speculated about horse meat mixed with Argentine beef. 
