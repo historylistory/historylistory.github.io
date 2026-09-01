@@ -1169,4 +1169,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
 
+2026-08-30 The gambling industry set out to end prediction markets. 
+
 2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
+
+2026-08-31 Kalshi permanently banned George Santos over illegal trading. 
+
+2026-08-31 GOP candidate Laurie Buckhout was suspended for betting on herself on Kalshi prediction markets. 

@@ -758,6 +758,12 @@ TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 
 [https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests])https://www.ms.now/news/veeps-security-detail-fed-up-with-hastily-arranged-personal-and-family-travel-requests
 
+2026-07-16 The Pentagon faced scrutiny for unnecessarily low flyovers. 
+
+[https://www.cbsnews.com/news/navys-blue-angels-low-flyover-pensacola-beach-florida-video/](https://www.cbsnews.com/news/navys-blue-angels-low-flyover-pensacola-beach-florida-video/)
+
+[https://apnews.com/article/hegseth-blue-angels-military-flyovers-safety-c2601ce50f433996c919464f1de7985c](https://apnews.com/article/hegseth-blue-angels-military-flyovers-safety-c2601ce50f433996c919464f1de7985c)
+
 2026-07-28 Reports showed that US boat strikes in international waters as part of “Operation Southern Spear” did not reduce the amount of cocaine flow into the US. 
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/trump-administration-boat-strikes-cocaine-trafficking-hegseth-trump-military](https://www.ms.now/rachel-maddow-show/maddowblog/trump-administration-boat-strikes-cocaine-trafficking-hegseth-trump-military)

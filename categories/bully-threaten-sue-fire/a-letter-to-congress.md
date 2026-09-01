@@ -701,3 +701,7 @@ Manhattan grand jury in the hush-money case.
 2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
 
 2026-08-30 Trump threatened to report NBC’s Kristen Welker to the FCC for comments about Trump’s endorsement of GOP candidates. 
+
+## 2026 September
+
+2026-09-01 JD Vance called Michigan Senate candidate El-Sayed “evil”. 

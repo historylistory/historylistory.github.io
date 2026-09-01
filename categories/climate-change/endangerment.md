@@ -243,3 +243,11 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/](https://www.telegraph.co.uk/us/politics/2026/07/29/trump-claims-burnham-promised-north-sea-oil-drilling/)
 
 [https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html](https://www.independent.co.uk/news/business/andy-burnham-donald-trump-north-sea-keir-starmer-ed-miliband-b3024141.html)
+
+### 2026 September
+
+2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
+
+From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/](https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/)
+
+[https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/](https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/)

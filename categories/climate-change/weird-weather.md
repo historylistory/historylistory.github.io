@@ -424,3 +424,14 @@ permalink: /categories/climate-change/weird-weather/
 2026-08-29 Two people died and several people went missing at Grand Canyon National Park after flash floods 
 
 [https://time.com/article/2026/08/31/grand-canyon-flash-flood/](https://time.com/article/2026/08/31/grand-canyon-flash-flood/)
+
+### 2026 September 
+
+2026-09-01 England hit the hottest weather on record since record-keeping started in 1884. 
+
+[https://www.theguardian.com/environment/2026/jul/01/england-hottest-june-on-record-met-office-data](https://www.theguardian.com/environment/2026/jul/01/england-hottest-june-on-record-met-office-data)
+
+[https://www.bbc.com/weather/articles/c99dypl3jgmo](https://www.bbc.com/weather/articles/c99dypl3jgmo)
+
+[https://news.sky.com/story/unprecedented-climate-change-facing-uk-with-extreme-temperatures-here-to-stay-13563560](https://news.sky.com/story/unprecedented-climate-change-facing-uk-with-extreme-temperatures-here-to-stay-13563560)
+

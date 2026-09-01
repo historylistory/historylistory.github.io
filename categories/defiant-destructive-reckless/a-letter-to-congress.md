@@ -491,6 +491,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-07-15 Vance and his family allegedly misused taxpayer-funded resources such as federal helicopters for personal use. 
 
+2026-07-16 The Pentagon faced scrutiny for unnecessarily low flyovers. 
+
 2026-07-24 The Trump administration imposed more emergency tariffs despite a SCOTUS ruling striking down earlier emergency power tariffs. 
 
 2026-07-28 An advisory council of Trump allies voted to weaken federal oversight of construction projects at historic sites. 

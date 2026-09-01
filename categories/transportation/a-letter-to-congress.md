@@ -235,3 +235,9 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-08-20 A charter plane crashed in Alaska, killing 8. 
 
 2026-08-27 A DHL cargo jet erupted in flames when its landing gear caught fire at LAX. 
+
+2026-08-31 Airlines scramble to defend low flyovers. 
+
+## 2026 September
+
+2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 

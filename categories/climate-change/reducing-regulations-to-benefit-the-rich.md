@@ -513,3 +513,11 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.cnbc.com/2026/08/29/trump-yosemite-land-swap-kingsbarn.html](https://www.cnbc.com/2026/08/29/trump-yosemite-land-swap-kingsbarn.html)
 
 [https://www.notus.org/agencies/trump-administration-yosemite-private-developer-deal](https://www.notus.org/agencies/trump-administration-yosemite-private-developer-deal)
+
+### 2026 September
+
+2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
+
+From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/](https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/)
+
+[https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/](https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/)

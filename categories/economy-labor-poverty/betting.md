@@ -276,3 +276,26 @@ UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.yout
 [https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html](https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html)
 
 [https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting](https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting)
+
+2026-08-30 The gambling industry set out to end prediction markets. 
+
+[https://www.gamblinginsider.com/news/193655/prediction-markets-weekly-roundup-state-fights-new-deals](https://www.gamblinginsider.com/news/193655/prediction-markets-weekly-roundup-state-fights-new-deals)
+
+Other article [https://www.mediaite.com/media/news/donald-trump-jr-encouraged-state-ags-to-leave-prediction-market-regulation-to-the-feds-report/](https://www.mediaite.com/media/news/donald-trump-jr-encouraged-state-ags-to-leave-prediction-market-regulation-to-the-feds-report/)
+
+PAY WALL [https://www.cnn.com/2026/08/30/business/kalshi-polymarket-casino-vegas-trump](https://www.cnn.com/2026/08/30/business/kalshi-polymarket-casino-vegas-trump)
+
+SUB WALL [https://civicmedia.us/news/2026/08/20/prediction-market-firm-sues-to-escape-wisconsin-gambling-law](https://civicmedia.us/news/2026/08/20/prediction-market-firm-sues-to-escape-wisconsin-gambling-law)
+
+2026-08-31 Kalshi permanently banned George Santos over illegal trading. 
+
+[https://www.cnbc.com/2026/08/31/kalshi-perman.html](https://www.cnbc.com/2026/08/31/kalshi-perman.html)
+
+[https://www.politico.com/news/2026/08/31/george-santos-kalshi-ban-01057232](https://www.politico.com/news/2026/08/31/george-santos-kalshi-ban-01057232)
+
+2026-08-31 GOP candidate Laurie Buckhout was suspended for betting on herself on Kalshi prediction markets. 
+
+[https://spectrumlocalnews.com/nc/charlotte/news/2026/08/31/kalshi-suspends-gop-candidate-buckhout--](https://spectrumlocalnews.com/nc/charlotte/news/2026/08/31/kalshi-suspends-gop-candidate-buckhout--)
+
+[https://thehill.com/policy/technology/6061531-kalshi-prediction-market-ban-laurie-buckhout-north-carolina-gop-house-race/](https://thehill.com/policy/technology/6061531-kalshi-prediction-market-ban-laurie-buckhout-north-carolina-gop-house-race/)
+

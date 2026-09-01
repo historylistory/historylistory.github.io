@@ -548,4 +548,14 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://www.npr.org/2026/08/04/nx-s1-5919238/jeffrey-epstein-jpmorgan-bank-of-america-deutsche-bank-senate-democrats](https://www.npr.org/2026/08/04/nx-s1-5919238/jeffrey-epstein-jpmorgan-bank-of-america-deutsche-bank-senate-democrats)
 
+### 2026 September
+
+2026-09-01 Thomas Massie listed 14 Epstein conspirators who should be investigated. 
+
+[https://www.newsweek.com/thomas-massie-names-14-people-he-says-should-be-investigated-over-epstein-12389523](https://www.newsweek.com/thomas-massie-names-14-people-he-says-should-be-investigated-over-epstein-12389523)
+
+[https://www.aa.com.tr/en/americas/us-congressman-massie-demands-prosecution-of-alleged-epstein-co-conspirators/4043548](https://www.aa.com.tr/en/americas/us-congressman-massie-demands-prosecution-of-alleged-epstein-co-conspirators/4043548)
+
+
+
 

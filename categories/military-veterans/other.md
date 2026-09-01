@@ -278,6 +278,12 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 
 [https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/](https://www.upi.com/Top_News/World-News/2026/06/15/latam-ecuador-prosecutor-lkilled/5591781540127/)
 
+2026-07-16 The Pentagon faced scrutiny for unnecessarily low flyovers. 
+
+[https://www.cbsnews.com/news/navys-blue-angels-low-flyover-pensacola-beach-florida-video/](https://www.cbsnews.com/news/navys-blue-angels-low-flyover-pensacola-beach-florida-video/)
+
+[https://apnews.com/article/hegseth-blue-angels-military-flyovers-safety-c2601ce50f433996c919464f1de7985c](https://apnews.com/article/hegseth-blue-angels-military-flyovers-safety-c2601ce50f433996c919464f1de7985c)
+
 
 ### 2026 August
 

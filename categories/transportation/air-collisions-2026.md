@@ -106,4 +106,11 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.youtube.com/watch?v=B7OolPcSkmQ](https://www.youtube.com/watch?v=B7OolPcSkmQ)
 
+2026-08-31 Airlines scramble to defend low flyovers. 
+
+[https://www.euronews.com/2026/08/31/south-african-airline-airlink-defends-dramatic-stadium-flyover](https://www.euronews.com/2026/08/31/south-african-airline-airlink-defends-dramatic-stadium-flyover)
+
+[https://www.flightradar24.com/blog/flight-tracking-news/special-event/airlinks-low-flypast-over-rugby-match-in-cape-town/](https://www.flightradar24.com/blog/flight-tracking-news/special-event/airlinks-low-flypast-over-rugby-match-in-cape-town/)
+
+[https://www.flyingmag.com/airlink-flyover-50-feet-stadium-south-africa/](https://www.flyingmag.com/airlink-flyover-50-feet-stadium-south-africa/)
 

@@ -37,3 +37,14 @@ permalink: /categories/zzz/where-to-file/
 [https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1](https://www.youtube.com/watch?v=-2SH4LQc0RQ&list=WL&index=1)
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html](https://www.the-independent.com/news/world/americas/us-politics/trump-merchandise-store-out-of-business-b3033705.html)
+
+### 2026 September
+
+2026-09-01 Republicans prepped for a Trump-a-palooza event in Texas to re-energize voters amidst record low approval ratings. 
+
+From June [https://www.texastribune.org/2026/06/16/texas-republican-midterm-convention-dallas-rnc/](https://www.texastribune.org/2026/06/16/texas-republican-midterm-convention-dallas-rnc/)
+
+From July [https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2026/07/01/rnc-chair-discusses-plans-for-national-convention-in-dallas](https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2026/07/01/rnc-chair-discusses-plans-for-national-convention-in-dallas)
+
+From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-convention-dallas/](https://thehill.com/homenews/campaign/6058289-rnc-midterm-convention-dallas/)
+

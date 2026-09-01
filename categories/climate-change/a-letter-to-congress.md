@@ -491,3 +491,9 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
 
 2026-08-29 Two people died and several people went missing at Grand Canyon National Park after flash floods 
+
+## 2026 September 
+
+2026-09-01 England hit the hottest weather on record since record-keeping started in 1884. 
+
+2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 

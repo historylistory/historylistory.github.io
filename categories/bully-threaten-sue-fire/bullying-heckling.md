@@ -476,3 +476,11 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.youtube.com/watch?v=CnIsnTxXaD0](https://www.youtube.com/watch?v=CnIsnTxXaD0)
 
 [https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/](https://globalnews.ca/news/12032734/doug-ford-united-states-trade-war-comments/)
+
+### 2026 September
+
+2026-09-01 JD Vance called Michigan Senate candidate El-Sayed “evil”. 
+
+[https://www.bbc.com/news/articles/cn9w39py48xo](https://www.bbc.com/news/articles/cn9w39py48xo)
+
+[https://www.cnn.com/2026/08/31/politics/jd-vance-abdul-el-sayed](https://www.cnn.com/2026/08/31/politics/jd-vance-abdul-el-sayed)
