@@ -56,6 +56,22 @@ permalink: /categories/health/other/
 
 [https://www.whitehouse.gov/presidential-actions/2025/12/increasing-medical-marijuana-and-cannabidiol-research/](https://www.whitehouse.gov/presidential-actions/2025/12/increasing-medical-marijuana-and-cannabidiol-research/)
 
+### 2026 January
+
+2026-01-06 Chat GPT gave medical advice to a teenager to keep taking kratom while on Xanax. 
+
+[https://futurism.com/artificial-intelligence/chatgpt-teenager-drug-overdose](https://futurism.com/artificial-intelligence/chatgpt-teenager-drug-overdose)
+
+2026-01-07 OpenAI announced Chat GPT Health. 
+
+[https://openai.com/index/introducing-chatgpt-health/](https://openai.com/index/introducing-chatgpt-health/)
+
+[https://www.npr.org/2026/03/11/nx-s1-5744035/chatgpt-might-give-you-bad-medical-advice-studies-warn](https://www.npr.org/2026/03/11/nx-s1-5744035/chatgpt-might-give-you-bad-medical-advice-studies-warn)
+
+[https://www.bbc.com/news/articles/cwylp3nxp5yo](https://www.bbc.com/news/articles/cwylp3nxp5yo)
+
+[https://people.com/chatgpt-sued-man-claims-harmful-medical-advice-12024719](https://people.com/chatgpt-sued-man-claims-harmful-medical-advice-12024719)
+
 ### 2026 February
 
 2026-02-17 RFK and Kid Rock made a shirtless workout video together. 

@@ -462,6 +462,10 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-01-06 The CDC dropped several crucial and common vaccines from the vaccine schedule for children including for meningitis, an illness which can be lethal to children in under 24 hours.
 
+2026-01-06 Chat GPT gave medical advice to a teenager to keep taking kratom while on Xanax. 
+
+2026-01-07 OpenAI announced Chat GPT Health. 
+
 2026-01-07 RFK unveiled a new upside-down food pyramid promoting protein.
 
 2026-01-09 Lindsey Graham said “Because I’m pro-life doesn’t mean I won’t kill you” at a pro-life dinner hosted by South Carolina Citizens for Life.

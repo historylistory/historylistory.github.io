@@ -264,6 +264,10 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-01-03 Grok reportedly generated revenge porn, fake nude images, and CSAM-style material after federal AI restrictions were weakened.
 
+2026-01-06 Chat GPT gave medical advice to a teenager to keep taking kratom while on Xanax. 
+
+2026-01-07 OpenAI announced Chat GPT Health. 
+
 2026-01-12 The DOD awarded a Pentagon integration contract to Grok despite reports of glitches and explicit content.
 
 2026-01-12 Malaysia and Indonesia banned Grok over explicit and nonconsensual content concerns.
