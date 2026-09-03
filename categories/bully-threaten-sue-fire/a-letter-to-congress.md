@@ -703,7 +703,7 @@ Manhattan grand jury in the hush-money case.
 2026-08-30 Trump threatened to report NBC’s Kristen Welker to the FCC for comments about Trump’s endorsement of GOP candidates. 
 
 2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
-
+ 
 ## 2026 September
 
 2026-09-01 JD Vance called Michigan Senate candidate El-Sayed “evil”. 

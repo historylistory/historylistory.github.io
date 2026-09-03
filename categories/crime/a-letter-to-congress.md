@@ -746,3 +746,4 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-09-01 Thomas Massie listed 14 Epstein conspirators who should be investigated. 
 
 2026-09-01 GOP representative Chuck Edwards was formally censured over harassment allegations. 
+ 

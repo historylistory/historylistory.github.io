@@ -917,3 +917,4 @@ Next
 2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
 
 2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
+ 

@@ -686,3 +686,4 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 ## 2026 September
 
 2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
+ 

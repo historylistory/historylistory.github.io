@@ -213,3 +213,4 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.npr.org/2026/09/01/nx-s1-5951561/chuck-edwards-house-censure-vote](https://www.npr.org/2026/09/01/nx-s1-5951561/chuck-edwards-house-censure-vote)
 
 [https://www.nbcnews.com/politics/congress/house-censures-rep-chuck-edwards-inappropriate-conduct-female-staff-rcna595365](https://www.nbcnews.com/politics/congress/house-censures-rep-chuck-edwards-inappropriate-conduct-female-staff-rcna595365)
+ 
