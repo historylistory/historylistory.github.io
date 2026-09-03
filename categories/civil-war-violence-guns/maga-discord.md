@@ -649,7 +649,7 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1](https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1)
 
 ### 2026 September
-
+ 
 2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
 
 [https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8](https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8)

@@ -689,3 +689,4 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-08-27 The internet speculated about horse meat mixed with Argentine beef. 
 
 2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
+ 

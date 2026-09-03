@@ -147,3 +147,4 @@ THAT INTERVIEW, SUB WALL: [https://www.nytimes.com/2026/01/11/us/trump-voting-ma
 ABOUT LETTER FROM Gen. Dan Caine to Sen. Slotkin [https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/](https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/)
 
 FROM 2025 [https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places](https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places)
+ 
