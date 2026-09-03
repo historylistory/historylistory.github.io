@@ -430,5 +430,27 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://www.aclu.org/press-releases/federal-court-blocks-u-s-postal-service-from-implementing-executive-order-restricting-mail-voting](https://www.aclu.org/press-releases/federal-court-blocks-u-s-postal-service-from-implementing-executive-order-restricting-mail-voting)
 
+### 2026 September
+
+2026-09-02 A whistleblower warned about problems with Trump’s new USPS federal ballot mail portal is gravely untested and flawed. 
+
+[https://www.nbcnews.com/politics/elections/whistleblower-usps-systems-mail-ballots-flawed-rcna595361](https://www.nbcnews.com/politics/elections/whistleblower-usps-systems-mail-ballots-flawed-rcna595361)
+
+[https://www.npr.org/2026/09/01/nx-s1-5950869/trump-mail-in-voting-usps](https://www.npr.org/2026/09/01/nx-s1-5950869/trump-mail-in-voting-usps)
+
+[https://abcnews.com/Politics/catastrophic-failures-whistleblower-warns-trump-proposed-usps-mail/story?id=136114901](https://abcnews.com/Politics/catastrophic-failures-whistleblower-warns-trump-proposed-usps-mail/story?id=136114901)
+
+[https://www.pbs.org/newshour/politics/whistleblower-postal-services-work-to-comply-with-trump-order-is-rushed-and-sloppy](https://www.pbs.org/newshour/politics/whistleblower-postal-services-work-to-comply-with-trump-order-is-rushed-and-sloppy)
+
+[https://mashable.com/tech/whistleblower-alleges-mail-in-ballot-system-rushed-not-ready](https://mashable.com/tech/whistleblower-alleges-mail-in-ballot-system-rushed-not-ready)
+
+2026-09-02 Three Republican commissioners in Texas voted to slash the number of available polling sites. 
+
+[https://www.nbcnews.com/politics/2026-election/tarrant-county-texas-votes-slash-polling-sites-midterms-rcna595338](https://www.nbcnews.com/politics/2026-election/tarrant-county-texas-votes-slash-polling-sites-midterms-rcna595338)
+
+[https://www.democracydocket.com/news-alerts/a-deliberate-barrier-texas-battleground-county-cuts-30-of-midterm-voting-locations/](https://www.democracydocket.com/news-alerts/a-deliberate-barrier-texas-battleground-county-cuts-30-of-midterm-voting-locations/)
+
+[https://www.fox4news.com/news/community-reacts-tarrant-countys-reduction-polling-sites](https://www.fox4news.com/news/community-reacts-tarrant-countys-reduction-polling-sites)
+
 
 

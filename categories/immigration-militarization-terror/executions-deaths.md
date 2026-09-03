@@ -413,3 +413,13 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/](https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/)
 
+### 2026 September
+
+
+2026-09-02 In Springfield Ohio 20-year-old Haitian immigrant Pierre Damas Bel died by suicide. Family said his death was driven in part by feelings of despair and humiliation after ICE fitted him with an ankle monitor. He had just begun his freshman year at a University where he was recruited to play soccer and had plans to become a neurosurgeon. 
+
+[https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/](https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/)
+
+[https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552](https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552)
+
+[https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor](https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor)

@@ -178,3 +178,16 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 
 [https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-infections-rise-above-4000-first-time-outbreak-2026-08-07/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-infections-rise-above-4000-first-time-outbreak-2026-08-07/)
 
+### 2026 September
+
+2026-09-01 The World Food Programme had to slash food assistance in half due to funding. 
+
+[https://www.democracynow.org/2026/9/2/headlines/world_food_programme_announces_it_will_halve_its_food_assistance_in_the_occupied_west_bank](https://www.democracynow.org/2026/9/2/headlines/world_food_programme_announces_it_will_halve_its_food_assistance_in_the_occupied_west_bank)
+
+[https://www.wfp.org/news/funding-shortfall-forces-world-food-programme-cut-food-assistance-half-west-bank](https://www.wfp.org/news/funding-shortfall-forces-world-food-programme-cut-food-assistance-half-west-bank)
+
+2026-09-01 The Ebola death toll in the Democratic Republic of the Congo reached 3000. 
+
+[https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring](https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/)

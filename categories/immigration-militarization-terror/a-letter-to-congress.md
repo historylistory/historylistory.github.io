@@ -917,4 +917,13 @@ Next
 2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
 
 2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
- 
+
+## 2026 September
+
+2026-09-02 ICE has refused to release documented permanent US resident 76-year-old Loretto Javar. Javar has been held since June 2026. He has no criminal record and has been battling stage 4 prostate cancer. 
+
+
+2026-09-02 In Springfield Ohio 20-year-old Haitian immigrant Pierre Damas Bel died by suicide. Family said his death was driven in part by feelings of despair and humiliation after ICE fitted him with an ankle monitor. He had just begun his freshman year at a University where he was recruited to play soccer and had plans to become a neurosurgeon. 
+
+2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
+

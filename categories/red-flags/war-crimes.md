@@ -171,6 +171,15 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 ### 2026 March
 
+2026-03-12 Israel dropped charges against five soldiers accused of assaulting and gang-raping a Palestinian man in 2024. 
+
+[https://apnews.com/article/israel-gaza-war-palestinians-prison-abuse-b11e5f0639b7fe51c5ea101f4b320f56](https://apnews.com/article/israel-gaza-war-palestinians-prison-abuse-b11e5f0639b7fe51c5ea101f4b320f56)
+
+[https://www.nbcnews.com/world/israel/israel-soldiers-prisoner-sexual-abuse-video-charges-dropped-rcna263165](https://www.nbcnews.com/world/israel/israel-soldiers-prisoner-sexual-abuse-video-charges-dropped-rcna263165)
+
+[https://www.middleeasteye.net/news/israeli-soldiers-suspected-raping-palestinian-detainee-allowed-return-service](https://www.middleeasteye.net/news/israeli-soldiers-suspected-raping-palestinian-detainee-allowed-return-service)
+
+
 2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
 
 [https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya](https://www.amnesty.org/en/petition/release-dr-hussam-abu-safiya)
@@ -681,3 +690,26 @@ TIMESTAMP 6:46 [https://www.youtube.com/watch?v=bWyBY-r3tQw](https://www.youtube
 [https://www.haaretz.com/israel-news/security-aviation/2026-08-27/ty-article-magazine/.premium/gaza-israel-sending-militias-commit-war-crimes-i-have-to-protect-them/0000019f-f0f0-df61-a3ff-f9fe6ca70000](https://www.haaretz.com/israel-news/security-aviation/2026-08-27/ty-article-magazine/.premium/gaza-israel-sending-militias-commit-war-crimes-i-have-to-protect-them/0000019f-f0f0-df61-a3ff-f9fe6ca70000)
 
 [https://www.democracynow.org/2026/8/31/headlines/israeli_strikes_kill_two_palestinians_including_3_year_old_boy_in_gaza](https://www.democracynow.org/2026/8/31/headlines/israeli_strikes_kill_two_palestinians_including_3_year_old_boy_in_gaza)
+
+### 2026 September
+
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. 
+
+[https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit](https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit)
+
+[https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735](https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735)
+
+[https://www.bbc.com/news/articles/cj06q4ynpmjo](https://www.bbc.com/news/articles/cj06q4ynpmjo)
+
+2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
+
+[https://www.democracynow.org/2026/9/2/headlines/israeli_court_brings_criminal_charges_against_a_dozen_guards_accused_of_beating_palestinian_prisoners](https://www.democracynow.org/2026/9/2/headlines/israeli_court_brings_criminal_charges_against_a_dozen_guards_accused_of_beating_palestinian_prisoners)
+
+FROM 2025 [https://arabamericannews.com/2025/11/20/palestinian-deaths-in-israeli-custody-have-surged-a-prison-guard-describes-rampant-abuse/](https://arabamericannews.com/2025/11/20/palestinian-deaths-in-israeli-custody-have-surged-a-prison-guard-describes-rampant-abuse/)
+
+FROM 2024 [https://www.haaretz.com/israel-news/2024-09-07/ty-article/.premium/israeli-guards-filmed-abusing-detainees-prison-service-says-its-a-routine-exercise/00000191-cb71-d359-a5f9-dffd26f60000](https://www.haaretz.com/israel-news/2024-09-07/ty-article/.premium/israeli-guards-filmed-abusing-detainees-prison-service-says-its-a-routine-exercise/00000191-cb71-d359-a5f9-dffd26f60000)
+
+FROM 2024 [https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e](https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e)
+
+FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested/](https://time.com/6548068/palestinian-children-israeli-prison-arrested/)
+

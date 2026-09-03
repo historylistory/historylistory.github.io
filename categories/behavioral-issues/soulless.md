@@ -592,6 +592,14 @@ TIMESTAMP 4:53 [https://www.youtube.com/watch?v=QP9WuYbSMjk&list=WL&index=1&t=32
 
 [https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1](https://www.youtube.com/watch?v=IT_thvf4cXc&list=WL&index=1)
 
+2026-03-12 Israel dropped charges against five soldiers accused of assaulting and gang-raping a Palestinian man in 2024. 
+
+[https://apnews.com/article/israel-gaza-war-palestinians-prison-abuse-b11e5f0639b7fe51c5ea101f4b320f56](https://apnews.com/article/israel-gaza-war-palestinians-prison-abuse-b11e5f0639b7fe51c5ea101f4b320f56)
+
+[https://www.nbcnews.com/world/israel/israel-soldiers-prisoner-sexual-abuse-video-charges-dropped-rcna263165](https://www.nbcnews.com/world/israel/israel-soldiers-prisoner-sexual-abuse-video-charges-dropped-rcna263165)
+
+[https://www.middleeasteye.net/news/israeli-soldiers-suspected-raping-palestinian-detainee-allowed-return-service](https://www.middleeasteye.net/news/israeli-soldiers-suspected-raping-palestinian-detainee-allowed-return-service)
+
 2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
 [https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub](https://www.theguardian.com/world/2026/mar/14/us-kharg-island-oil-export-hub)
@@ -1126,3 +1134,29 @@ ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-do
 [https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay](https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay)
 
 [https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66](https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66)
+
+### 2026 September
+
+2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
+
+[https://www.democracynow.org/2026/9/2/headlines/israeli_court_brings_criminal_charges_against_a_dozen_guards_accused_of_beating_palestinian_prisoners](https://www.democracynow.org/2026/9/2/headlines/israeli_court_brings_criminal_charges_against_a_dozen_guards_accused_of_beating_palestinian_prisoners)
+
+FROM 2025 [https://arabamericannews.com/2025/11/20/palestinian-deaths-in-israeli-custody-have-surged-a-prison-guard-describes-rampant-abuse/](https://arabamericannews.com/2025/11/20/palestinian-deaths-in-israeli-custody-have-surged-a-prison-guard-describes-rampant-abuse/)
+
+FROM 2024 [https://www.haaretz.com/israel-news/2024-09-07/ty-article/.premium/israeli-guards-filmed-abusing-detainees-prison-service-says-its-a-routine-exercise/00000191-cb71-d359-a5f9-dffd26f60000](https://www.haaretz.com/israel-news/2024-09-07/ty-article/.premium/israeli-guards-filmed-abusing-detainees-prison-service-says-its-a-routine-exercise/00000191-cb71-d359-a5f9-dffd26f60000)
+
+FROM 2024 [https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e](https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e)
+
+FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested/](https://time.com/6548068/palestinian-children-israeli-prison-arrested/)
+
+2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
+
+[https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash](https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash)
+
+[https://en.royanews.tv/news/73187/Ben-Gvir-posts-then-deletes-AI-video-celebrating-starvation-of-Palestinian-detainees](https://en.royanews.tv/news/73187/Ben-Gvir-posts-then-deletes-AI-video-celebrating-starvation-of-Palestinian-detainees)
+
+[https://news.antiwar.com/2026/08/31/israels-ben-gvir-posts-ai-video-depicting-starving-palestinian-prisoners/](https://news.antiwar.com/2026/08/31/israels-ben-gvir-posts-ai-video-depicting-starving-palestinian-prisoners/)
+
+[https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/](https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/)
+
+TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s](https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s)

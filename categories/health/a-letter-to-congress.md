@@ -690,3 +690,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
  
+ ## 2026 September
+
+ 
+2026-09-01 The Ebola death toll in the Democratic Republic of the Congo reached 3000. 

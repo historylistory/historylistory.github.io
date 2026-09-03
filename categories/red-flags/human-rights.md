@@ -73,3 +73,17 @@ This is specifically for any Global Human Right council activity or events.
 [https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html](https://www.elconstitucional.es/en/international/netanyahu-government-hardens-repression-in-gaza-suggests-killing-30-or-40-palestinians-every-night_7151_102.html)
 
 [https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by](https://www.tehrantimes.com/news/529125/Ben-Gvir-says-Palestinian-detainees-should-be-hanged-one-by)
+
+### 2026 September
+
+2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
+
+[https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash](https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash)
+
+[https://en.royanews.tv/news/73187/Ben-Gvir-posts-then-deletes-AI-video-celebrating-starvation-of-Palestinian-detainees](https://en.royanews.tv/news/73187/Ben-Gvir-posts-then-deletes-AI-video-celebrating-starvation-of-Palestinian-detainees)
+
+[https://news.antiwar.com/2026/08/31/israels-ben-gvir-posts-ai-video-depicting-starving-palestinian-prisoners/](https://news.antiwar.com/2026/08/31/israels-ben-gvir-posts-ai-video-depicting-starving-palestinian-prisoners/)
+
+[https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/](https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/)
+
+TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s](https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s)

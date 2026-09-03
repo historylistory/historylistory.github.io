@@ -549,3 +549,13 @@ VIDEO [https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested
 [https://www.commondreams.org/news/5-year-old-boy-detained-by-ice-in-texas](https://www.commondreams.org/news/5-year-old-boy-detained-by-ice-in-texas)
 
 [https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/](https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/)
+
+### 2026 September
+
+2026-09-02 ICE has refused to release documented permanent US resident 76-year-old Loretto Javar. Javar has been held since June 2026. He has no criminal record and has been battling stage 4 prostate cancer. 
+
+[https://www.theguardian.com/us-news/2026/sep/01/ice-stage-4-cancer-filipino-national](https://www.theguardian.com/us-news/2026/sep/01/ice-stage-4-cancer-filipino-national)
+
+2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
+
+[https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars](https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars)

@@ -360,3 +360,18 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 [https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/](https://www.cincinnati.com/story/news/2026/08/02/ice-gives-ohio-haitians-ankle-monitors-after-trump-terminates-tps/91140896007/)
 
 CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests)
+
+### 2026 September
+
+
+2026-09-02 In Springfield Ohio 20-year-old Haitian immigrant Pierre Damas Bel died by suicide. Family said his death was driven in part by feelings of despair and humiliation after ICE fitted him with an ankle monitor. He had just begun his freshman year at a University where he was recruited to play soccer and had plans to become a neurosurgeon. 
+
+[https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/](https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/)
+
+[https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552](https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552)
+
+[https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor](https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor)
+
+2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
+
+[https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars](https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars)

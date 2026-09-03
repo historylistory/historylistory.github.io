@@ -453,3 +453,15 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 [https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s](https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s)
 
 [https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/](https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/)
+
+### 2026 September
+
+2026-09-01 Putin announced continued support for Iran and countering US sanction. 
+
+[https://www.npr.org/2026/09/02/nx-s1-5953036/putin-signals-support-for-iran-in-ongoing-war-with-the-u-s](https://www.npr.org/2026/09/02/nx-s1-5953036/putin-signals-support-for-iran-in-ongoing-war-with-the-u-s)
+
+2026-09-01 Treasury Secretary Scott Bessent threatened to impose secondary sanctions against Iran’s trading partners. Afterwards Russia’s Finance Minister attended the Summit of Central Bankers summit in North Carolina for the first time in four years since their invasion of Ukraine. 
+
+[https://home.treasury.gov/news/press-releases/sb0613](https://home.treasury.gov/news/press-releases/sb0613)
+
+[https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe](https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe)

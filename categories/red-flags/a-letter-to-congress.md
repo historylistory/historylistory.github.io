@@ -246,6 +246,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 ## 2026 March 
 
+2026-03-12 Israel dropped charges against five soldiers accused of assaulting and gang-raping a Palestinian man in 2024. 
+
 2026-03-24 North Korean leaders accuse the US of crossing the line through state-sponsored terrorism.
 
 2026-03-24 The UN demanded Israel immediately release Dr. Hussam Abu Safiya, citing severe abuse and torture. Dr. Safiya had been detained by Israeli forces since December 27 2024 after refusing to abandon his patients during an Israeli raid at a hospital.
@@ -428,3 +430,11 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-08-27 An Israeli Air Force officer was quoted in an interview to Haaretz, “You see the State of Israel, the IDFT and Shin Bet sending armed, trained militias to commit war crimes, and I’m the one who has to protect them during their operations, so they don’t get hurt”. 
 
 2026-08-28 Trump announced a deal was struck with Venezuela to control 65 billion barrels of Venezuelan oil. Economists warned Venezuelans will not see benefit from the agreement. Senator Chris Van Hollen stated, “This is proof Trump put our service members at risk to get Venezuelan oil for his billionaire buddies. Putting our soldiers’ lives on the line for private profit is a gross dereliction of his constitutional duty”. 
+
+## 2026 September
+
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. 
+
+2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
+
+2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  

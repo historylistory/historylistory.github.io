@@ -437,6 +437,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-03-11 Senator John Husted said, “People living in poverty are not experienced at navigating the real world”.
 
+2026-03-12 Israel dropped charges against five soldiers accused of assaulting and gang-raping a Palestinian man in 2024. 
+
 2026-03-15 Trump reportedly joked about bombing Iran during a phone interview with NBC, ““…we may hit it a few more times just for fun”.
 
 2026-03-16 Trump publicly revealed Florida Representative Neal Dunn’s terminal diagnosis.
@@ -694,5 +696,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 ## 2026 September
 
+2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
+
 2026-09-02 Trump had his face minted on the $1 coin. 
+
+2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
 

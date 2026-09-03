@@ -434,3 +434,8 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 
 [https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/](https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/)
 
+### 2026 September
+
+2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
+
+[https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars](https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars)

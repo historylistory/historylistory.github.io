@@ -1179,3 +1179,11 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
  
+
+## 2026 September
+
+2026-09-01 Putin announced continued support for Iran and countering US sanction. 
+
+2026-09-01 Treasury Secretary Scott Bessent threatened to impose secondary sanctions against Iran’s trading partners. Afterwards Russia’s Finance Minister attended the Summit of Central Bankers summit in North Carolina for the first time in four years since their invasion of Ukraine. 
+
+2026-09-01 The World Food Programme had to slash food assistance in half due to funding. 

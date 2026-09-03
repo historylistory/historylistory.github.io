@@ -2135,3 +2135,23 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734](https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734)
 
 [https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)
+
+### 2026 September
+
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. 
+
+[https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit](https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit)
+
+[https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735](https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735)
+
+[https://www.bbc.com/news/articles/cj06q4ynpmjo](https://www.bbc.com/news/articles/cj06q4ynpmjo)
+
+2026-09-01 Putin announced continued support for Iran and countering US sanction. 
+
+[https://www.npr.org/2026/09/02/nx-s1-5953036/putin-signals-support-for-iran-in-ongoing-war-with-the-u-s](https://www.npr.org/2026/09/02/nx-s1-5953036/putin-signals-support-for-iran-in-ongoing-war-with-the-u-s)
+
+2026-09-01 Treasury Secretary Scott Bessent threatened to impose secondary sanctions against Iran’s trading partners. Afterwards Russia’s Finance Minister attended the Summit of Central Bankers summit in North Carolina for the first time in four years since their invasion of Ukraine. 
+
+[https://home.treasury.gov/news/press-releases/sb0613](https://home.treasury.gov/news/press-releases/sb0613)
+
+[https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe](https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe)

@@ -179,3 +179,12 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/](https://www.reuters.com/legal/litigation/whole-foods-recalls-food-containing-jalapenos-potential-salmonella-contamination-2026-08-12/)
 
 [https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html](https://www.cdc.gov/salmonella/outbreaks/javiana-08-26/index.html)
+
+### 2026 September
+
+
+2026-09-01 The Ebola death toll in the Democratic Republic of the Congo reached 3000. 
+
+[https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring](https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring)
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/)

@@ -529,4 +529,9 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-08-20 Despite AIPAC spending $6M on a slander campaign, Aisha Wahab won a California special election. 
 
 2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
- 
+
+## 2026 September
+
+2026-09-02 A whistleblower warned about problems with Trump’s new USPS federal ballot mail portal is gravely untested and flawed. 
+
+2026-09-02 Three Republican commissioners in Texas voted to slash the number of available polling sites. 

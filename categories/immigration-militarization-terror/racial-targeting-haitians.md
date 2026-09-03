@@ -107,3 +107,13 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 
 [https://www.theguardian.com/us-news/2026/aug/21/haiti-deportation-tps](https://www.theguardian.com/us-news/2026/aug/21/haiti-deportation-tps)
 
+### 2026 September
+
+2026-09-02 In Springfield Ohio 20-year-old Haitian immigrant Pierre Damas Bel died by suicide. Family said his death was driven in part by feelings of despair and humiliation after ICE fitted him with an ankle monitor. He had just begun his freshman year at a University where he was recruited to play soccer and had plans to become a neurosurgeon. 
+
+[https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/](https://www.cbsnews.com/news/20-year-old-haitian-immigrant-ice-crackdown/)
+
+[https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552](https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552)
+
+[https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor](https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor)
+
