@@ -690,5 +690,9 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 
 
+2026-08-28 Trump posted a grading chart of himself and several historical leaders, placing himself at the top of the ranking pyramid labeled “THE GREATEST”. 
 
+## 2026 September
+
+2026-09-02 Trump had his face minted on the $1 coin. 
 

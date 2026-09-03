@@ -1176,3 +1176,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-31 Kalshi permanently banned George Santos over illegal trading. 
 
 2026-08-31 GOP candidate Laurie Buckhout was suspended for betting on herself on Kalshi prediction markets. 
+
+2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 

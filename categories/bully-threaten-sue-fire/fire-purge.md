@@ -446,3 +446,13 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://thehill.com/homenews/administration/5971187-donald-trump-roger-rogoff-washington-state-prosecutor-firing/](https://thehill.com/homenews/administration/5971187-donald-trump-roger-rogoff-washington-state-prosecutor-firing/)
 
 [https://apnews.com/article/seattle-us-attorney-fired-trump-8a032be7b44b9b3d927d17e1ccbd1f4a](https://apnews.com/article/seattle-us-attorney-fired-trump-8a032be7b44b9b3d927d17e1ccbd1f4a)
+
+### 2026 August
+
+2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
+
+[https://apnews.com/article/driscoll-departure-army-secretary-hegseth-4853c46840a522911da5a510b01966d2](https://apnews.com/article/driscoll-departure-army-secretary-hegseth-4853c46840a522911da5a510b01966d2)
+
+[https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says](https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says)
+
+[https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1](https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1)

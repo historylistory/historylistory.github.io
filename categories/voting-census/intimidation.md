@@ -133,3 +133,17 @@ THAT INTERVIEW, SUB WALL: [https://www.nytimes.com/2026/01/11/us/trump-voting-ma
 [https://apnews.com/article/trump-elections-mullin-dhs-voter-fraud-save-6871e13d3f0e2caadaf56f9b2bc1580d](https://apnews.com/article/trump-elections-mullin-dhs-voter-fraud-save-6871e13d3f0e2caadaf56f9b2bc1580d)
 
 [https://www.nbcnews.com/politics/elections/homeland-security-secretary-markwayne-mullin-threatens-states-election-rcna588002](https://www.nbcnews.com/politics/elections/homeland-security-secretary-markwayne-mullin-threatens-states-election-rcna588002)
+
+### 2026 August
+
+2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
+
+[https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s](https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s)
+
+[https://www.youtube.com/watch?v=Psm63PGqOXQ&list=WL&index=5](https://www.youtube.com/watch?v=Psm63PGqOXQ&list=WL&index=5)
+
+[https://www.reuters.com/legal/government/no-plans-deploy-troops-midterm-elections-polling-sites-top-us-general-says-2026-08-31/](https://www.reuters.com/legal/government/no-plans-deploy-troops-midterm-elections-polling-sites-top-us-general-says-2026-08-31/)
+
+ABOUT LETTER FROM Gen. Dan Caine to Sen. Slotkin [https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/](https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/)
+
+FROM 2025 [https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places](https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places)

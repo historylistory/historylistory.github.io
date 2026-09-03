@@ -223,3 +223,8 @@ PAY WALL [https://www.seattletimes.com/business/consumers-are-running-out-of-mon
 
 INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s](https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s)
 
+2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
+
+[https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s](https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s)
+
+[https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/)

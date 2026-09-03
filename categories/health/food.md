@@ -312,3 +312,9 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.salon.com/2026/08/27/trumps-mystery-meat-problem/](https://www.salon.com/2026/08/27/trumps-mystery-meat-problem/)
 
 [https://www.snopes.com/news/2026/08/26/trump-ground-beef-wild-horses/](https://www.snopes.com/news/2026/08/26/trump-ground-beef-wild-horses/)
+
+2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
+
+[https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s](https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s)
+
+[https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/)

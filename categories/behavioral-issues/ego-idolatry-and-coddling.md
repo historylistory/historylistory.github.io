@@ -427,3 +427,20 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump](https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump)
 
 [https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667](https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667)
+
+
+2026-08-28 Trump posted a grading chart of himself and several historical leaders, placing himself at the top of the ranking pyramid labeled “THE GREATEST”. 
+
+[https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree](https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree)
+
+[https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga](https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga)
+
+[https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135](https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135)
+
+### 2026 September
+
+2026-09-02 Trump had his face minted on the $1 coin. 
+
+[https://fortune.com/2026/09/02/trump-one-dollar-coin-us-mint/](https://fortune.com/2026/09/02/trump-one-dollar-coin-us-mint/)
+
+[https://www.pbs.org/newshour/politics/heads-or-tails-1-coin-with-trumps-face-and-gold-finish-go-on-sale](https://www.pbs.org/newshour/politics/heads-or-tails-1-coin-with-trumps-face-and-gold-finish-go-on-sale)

@@ -432,3 +432,9 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-08-21 Under direction of Pete Hegseth the US Navy leadership reportedly planned to rename an aircraft carrier once honoring a heroic sailor after Trump. 
 
 2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 
+
+2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
+
+## 2026 September
+
+2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.

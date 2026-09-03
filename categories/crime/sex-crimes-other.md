@@ -206,3 +206,10 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 
 [https://floridaphoenix.com/2026/08/18/court-clerk-former-lawmaker-charged-with-five-felonies-stemming-from-child-sex-abuse/](https://floridaphoenix.com/2026/08/18/court-clerk-former-lawmaker-charged-with-five-felonies-stemming-from-child-sex-abuse/)
 
+### 2026 September
+
+2026-09-01 GOP representative Chuck Edwards was formally censured over harassment allegations. 
+
+[https://www.npr.org/2026/09/01/nx-s1-5951561/chuck-edwards-house-censure-vote](https://www.npr.org/2026/09/01/nx-s1-5951561/chuck-edwards-house-censure-vote)
+
+[https://www.nbcnews.com/politics/congress/house-censures-rep-chuck-edwards-inappropriate-conduct-female-staff-rcna595365](https://www.nbcnews.com/politics/congress/house-censures-rep-chuck-edwards-inappropriate-conduct-female-staff-rcna595365)

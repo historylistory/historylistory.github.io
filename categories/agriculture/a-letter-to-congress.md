@@ -207,3 +207,5 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-08-25 The Kentucky Cattlemen’s Association argued letting 300K metric tons of imported beef into the US supply chain is bad policy. 
 
 2026-08-27 The internet speculated about horse meat mixed with Argentine beef. 
+
+2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 

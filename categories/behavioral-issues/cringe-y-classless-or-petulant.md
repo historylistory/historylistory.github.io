@@ -907,3 +907,13 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724](https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724)
 
 [https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/](https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/)
+
+### 2026 September
+
+2026-08-28 Trump posted a grading chart of himself and several historical leaders, placing himself at the top of the ranking pyramid labeled “THE GREATEST”. 
+
+[https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree](https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree)
+
+[https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga](https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga)
+
+[https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135](https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135)

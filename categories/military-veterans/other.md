@@ -302,3 +302,19 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 [https://abcnews.com/Politics/navy-ship-power-4-days-south-china-sea/story?id=135744480](https://abcnews.com/Politics/navy-ship-power-4-days-south-china-sea/story?id=135744480)
 
 [https://www.cbsnews.com/news/uss-benfold-navy-days-without-power-south-china-sea/](https://www.cbsnews.com/news/uss-benfold-navy-days-without-power-south-china-sea/)
+
+2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
+
+[https://apnews.com/article/driscoll-departure-army-secretary-hegseth-4853c46840a522911da5a510b01966d2](https://apnews.com/article/driscoll-departure-army-secretary-hegseth-4853c46840a522911da5a510b01966d2)
+
+[https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says](https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says)
+
+[https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1](https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1)
+
+### 2026 September
+
+2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
+
+[https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8](https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8)
+
+[https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/](https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/)

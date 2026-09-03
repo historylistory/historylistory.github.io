@@ -476,3 +476,15 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 [https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp](https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp)
 
 [https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)
+
+2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
+
+[https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s](https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s)
+
+[https://www.youtube.com/watch?v=Psm63PGqOXQ&list=WL&index=5](https://www.youtube.com/watch?v=Psm63PGqOXQ&list=WL&index=5)
+
+[https://www.reuters.com/legal/government/no-plans-deploy-troops-midterm-elections-polling-sites-top-us-general-says-2026-08-31/](https://www.reuters.com/legal/government/no-plans-deploy-troops-midterm-elections-polling-sites-top-us-general-says-2026-08-31/)
+
+ABOUT LETTER FROM Gen. Dan Caine to Sen. Slotkin [https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/](https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/)
+
+FROM 2025 [https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places](https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places)

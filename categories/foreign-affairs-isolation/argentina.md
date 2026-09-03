@@ -80,3 +80,9 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/](https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/)
 
+
+2026-08-31 Allegedly China rejected Argentine beef its high levels of chloramphenicol. 
+
+[https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s](https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s)
+
+[https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/)

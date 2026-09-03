@@ -455,3 +455,16 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1)
 
 [https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/](https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/)
+
+### 2026 September
+
+2026-09-01 During an event at the Orlando Florida Kia Center a fighter came out with an Israeli flag. In response, several in the crowd pulled out nazi flags and shared nazi salutes across the crowd in support of opponent Paul Miller (sporting an SS tattoo). 
+
+[https://www.youtube.com/watch?v=QCk9hiyoeGE&list=WL&index=2](https://www.youtube.com/watch?v=QCk9hiyoeGE&list=WL&index=2)
+
+[https://www.wesh.com/article/nazi-flag-salutes-crowd-fights-at-kia-center-event-in-orlando/73585196](https://www.wesh.com/article/nazi-flag-salutes-crowd-fights-at-kia-center-event-in-orlando/73585196)
+
+[https://www.orlandosentinel.com/2026/09/02/outrage-spreads-after-nazi-salutes-and-swastika-waving-at-orlandos-kia-center/](https://www.orlandosentinel.com/2026/09/02/outrage-spreads-after-nazi-salutes-and-swastika-waving-at-orlandos-kia-center/)
+
+[https://www.theguardian.com/us-news/2026/sep/02/mma-florida-antisemitic-comments-paul-miller-ben-azoulay](https://www.theguardian.com/us-news/2026/sep/02/mma-florida-antisemitic-comments-paul-miller-ben-azoulay)
+

@@ -561,3 +561,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-08-25 A natural disaster emergency response team was sent to Washington DC to work on Trump’s pet projects including the reflecting pool, fountain renovations, and removing debris on the East Potomac golf course. At the directive of Trump, around 300 workers will be used for private vanity projects and cleaning up Trump’s reflecting pool mess at the expense of taxpayers. Meanwhile the Western US confronted the most wildfires in a decade. 
 
 2026-08-26 RFK suggested the measles deaths were “fabricated” and accused Pennsylvania officials of lying. 
+
+2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
+
+## 2026 September 
+
+2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.

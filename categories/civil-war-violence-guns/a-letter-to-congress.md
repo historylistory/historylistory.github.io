@@ -680,3 +680,9 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-08-24 A private arbitrator ordered the Washington Post to rehire columnist Karen Attiah with backpay after she was fired for making comments about Charlie Kirk. 
 
 2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
+
+2026-08-31 Army Secretary Dan Driscoll resigned after months of tension with Pete Hegseth and concerns over firing several senior leaders. 
+
+## 2026 September
+
+2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
