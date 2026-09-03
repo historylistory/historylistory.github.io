@@ -920,6 +920,11 @@ Next
 
 ## 2026 September
 
+2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 
+
+
+2026-09-01 Global tech giant Cisco was accused of Islamophobia and violating civil rights of Middle Eastern and Muslim workers. 
+
 2026-09-02 ICE has refused to release documented permanent US resident 76-year-old Loretto Javar. Javar has been held since June 2026. He has no criminal record and has been battling stage 4 prostate cancer. 
 
 

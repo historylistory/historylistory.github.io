@@ -191,3 +191,12 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring](https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring)
 
 [https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/)
+
+2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
+
+[https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump](https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump)
+
+[https://www.jpost.com/middle-east/iran-news/article-907272](https://www.jpost.com/middle-east/iran-news/article-907272)
+
+[https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/](https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/)
+

@@ -2155,3 +2155,12 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://home.treasury.gov/news/press-releases/sb0613](https://home.treasury.gov/news/press-releases/sb0613)
 
 [https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe](https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe)
+
+2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
+
+[https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump](https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump)
+
+[https://www.jpost.com/middle-east/iran-news/article-907272](https://www.jpost.com/middle-east/iran-news/article-907272)
+
+[https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/](https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/)
+

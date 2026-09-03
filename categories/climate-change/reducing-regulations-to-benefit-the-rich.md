@@ -521,3 +521,8 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/](https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/)
 
 [https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/](https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/)
+
+2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 
+
+[https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park](https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park)
+

@@ -585,3 +585,13 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 [https://responsiblestatecraft.org/israel-influence-chatgpt/](https://responsiblestatecraft.org/israel-influence-chatgpt/)
 
 [https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports](https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports)
+
+### 2026 September
+
+2026-09-01 The Washington Post reported several conservative veteran social media influencers receiving secret Pentagon jobs to promote Hegseth’s agenda and attack critics. 
+
+[https://www.military.com/pentagon-hires-conservative-veterans-influencers-into-inspecified-roles](https://www.military.com/pentagon-hires-conservative-veterans-influencers-into-inspecified-roles)
+
+[https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs](https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/](https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/)

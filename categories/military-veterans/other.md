@@ -313,9 +313,16 @@ BACK IN APRIL [https://mashable.com/video/seth-meyers-eric-trump-pentagon-deal-r
 
 ### 2026 September
 
+2026-09-01 The Washington Post reported several conservative veteran social media influencers receiving secret Pentagon jobs to promote Hegseth’s agenda and attack critics. 
+
+[https://www.military.com/pentagon-hires-conservative-veterans-influencers-into-inspecified-roles](https://www.military.com/pentagon-hires-conservative-veterans-influencers-into-inspecified-roles)
+
+[https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs](https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/](https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/)
+
 2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
 
 [https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8](https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8)
 
 [https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/](https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/)
-  

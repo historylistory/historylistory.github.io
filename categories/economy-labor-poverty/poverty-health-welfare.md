@@ -750,3 +750,12 @@ ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-fa
 
 [https://www.wfp.org/news/funding-shortfall-forces-world-food-programme-cut-food-assistance-half-west-bank](https://www.wfp.org/news/funding-shortfall-forces-world-food-programme-cut-food-assistance-half-west-bank)
 
+2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
+
+[https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump](https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump)
+
+[https://www.jpost.com/middle-east/iran-news/article-907272](https://www.jpost.com/middle-east/iran-news/article-907272)
+
+[https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/](https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/)
+
+

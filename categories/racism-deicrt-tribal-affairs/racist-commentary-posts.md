@@ -725,3 +725,14 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 [https://www.youtube.com/watch?v=JV_oFoa1ZHo&list=WL&index=4](https://www.youtube.com/watch?v=JV_oFoa1ZHo&list=WL&index=4)
 
 [https://www.peoplefor.org/rightwingwatch/alex-mcfarland-says-america-should-outlaw-islam](https://www.peoplefor.org/rightwingwatch/alex-mcfarland-says-america-should-outlaw-islam)
+
+### 2026 September
+
+2026-09-01 Global tech giant Cisco was accused of Islamophobia and violating civil rights of Middle Eastern and Muslim workers. 
+
+[https://www.aljazeera.com/economy/2026/9/1/cisco-accused-of-fostering-a-hostile-workplace-for-muslim-and-arab-employees](https://www.aljazeera.com/economy/2026/9/1/cisco-accused-of-fostering-a-hostile-workplace-for-muslim-and-arab-employees)
+
+[https://www.theguardian.com/technology/2026/aug/31/cisco-civil-rights-palestine-advocacy-violation](https://www.theguardian.com/technology/2026/aug/31/cisco-civil-rights-palestine-advocacy-violation)
+
+[https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees](https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees)
+

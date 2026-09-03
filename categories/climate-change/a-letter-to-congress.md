@@ -497,3 +497,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-01 England hit the hottest weather on record since record-keeping started in 1884. 
 
 2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
+
+2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 

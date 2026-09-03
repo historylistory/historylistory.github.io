@@ -553,3 +553,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 
 2026-08-31 US District Judge Noel Wise wrote, “In the United States, free speech, including the freedom to criticize the government and its leaders, is not a sign of our democracy’s fragility. It is evidence of its strength”. The judge ruled that Trump has violated Constitutional rights and that immigration law cannot be used to retaliate against people for being pro-Palestinian. 
+
+## 2026 September
+
+2026-09-01 The Washington Post reported several conservative veteran social media influencers receiving secret Pentagon jobs to promote Hegseth’s agenda and attack critics. 

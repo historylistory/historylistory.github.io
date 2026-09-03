@@ -798,4 +798,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 ## 2026 September
 
 2026-09-01 During an event at the Orlando Florida Kia Center a fighter came out with an Israeli flag. In response, several in the crowd pulled out nazi flags and shared nazi salutes across the crowd in support of opponent Paul Miller (sporting an SS tattoo). 
- 
+
+
+2026-09-01 Global tech giant Cisco was accused of Islamophobia and violating civil rights of Middle Eastern and Muslim workers. 

@@ -151,3 +151,10 @@ SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-w
 [https://www.npca.org/articles/11477-administration-begins-bulldozing-through-big-bend-national-park](https://www.npca.org/articles/11477-administration-begins-bulldozing-through-big-bend-national-park)
 
 [https://www.usatoday.com/story/news/politics/2026/08/11/big-bend-border-wall-trump-protests/91248748007/](https://www.usatoday.com/story/news/politics/2026/08/11/big-bend-border-wall-trump-protests/91248748007/)
+
+### 2026 September
+
+2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 
+
+[https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park](https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park)
+

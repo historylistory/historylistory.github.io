@@ -228,3 +228,14 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s](https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s)
 
 [https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/) 
+
+### 2026 September
+
+2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
+
+[https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump](https://www.theguardian.com/world/2026/aug/31/iran-economy-crisis-usa-launches-sanctions-inflation-trump)
+
+[https://www.jpost.com/middle-east/iran-news/article-907272](https://www.jpost.com/middle-east/iran-news/article-907272)
+
+[https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/](https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/)
+

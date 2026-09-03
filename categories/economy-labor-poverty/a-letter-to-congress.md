@@ -1187,3 +1187,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-01 Treasury Secretary Scott Bessent threatened to impose secondary sanctions against Iran’s trading partners. Afterwards Russia’s Finance Minister attended the Summit of Central Bankers summit in North Carolina for the first time in four years since their invasion of Ukraine. 
 
 2026-09-01 The World Food Programme had to slash food assistance in half due to funding. 
+
+2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
