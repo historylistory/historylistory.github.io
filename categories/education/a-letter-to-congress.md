@@ -361,3 +361,9 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-08-20 Former Justice Department attorney Haley Van Erem filed a complaint against the Trump administration, writing that the government probes into schools were, “an unlawful process designed to achieve predetermined political goals”. 
 
 2026-08-27 After a superintendent gave a politically loaded speech in Cobb County hundreds of teachers walked out in protest. Afterwards the school district forced teachers who didn't align with the superintendent to explain why they walked out. 
+
+## 2026 September
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 

@@ -311,3 +311,15 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442](https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442)
 
 [https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e](https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e)
+
+### 2026 September
+
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+[https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3](https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit](https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit)
+
+[https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
+
+[https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)

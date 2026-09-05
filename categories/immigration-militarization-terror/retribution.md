@@ -33,4 +33,10 @@ permalink: /categories/immigration-militarization-terror/retribution/
 
 [https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars](https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars)
 
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
 
+[https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/](https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/)
+
+[https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds](https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds)
+
+[https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people](https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people)

@@ -440,4 +440,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-09-01 The Washington Post reported several conservative veteran social media influencers receiving secret Pentagon jobs to promote Hegseth’s agenda and attack critics. 
 
 2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
-  
+
+2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”

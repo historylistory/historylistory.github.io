@@ -360,3 +360,14 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 [https://marylandmatters.org/2026/08/05/maryland-republicans-predict-legal-challenge-to-constitutional-amendment-on-redistricting/](https://marylandmatters.org/2026/08/05/maryland-republicans-predict-legal-challenge-to-constitutional-amendment-on-redistricting/)
 
 [https://www.wbaltv.com/article/maryland-constitutional-amendment-redistricting-bill-passes/73348816](https://www.wbaltv.com/article/maryland-constitutional-amendment-redistricting-bill-passes/73348816)
+
+### 2026 September
+
+2026-09-03 Missouri Supreme Court ruled that the GOP-drawn map to gerrymander votes will not be used in November’s mid-term elections.
+
+[https://apnews.com/article/redistricting-congress-missouri-trump-gerrymandering-5034c87f2161baa933ea337408e4c5b4](https://apnews.com/article/redistricting-congress-missouri-trump-gerrymandering-5034c87f2161baa933ea337408e4c5b4)
+
+[https://missouriindependent.com/2026/09/03/missouri-supreme-court-blocks-gerrymandered-congressional-map-orders-referendum-vote/](https://missouriindependent.com/2026/09/03/missouri-supreme-court-blocks-gerrymandered-congressional-map-orders-referendum-vote/)
+
+SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420](https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420)
+

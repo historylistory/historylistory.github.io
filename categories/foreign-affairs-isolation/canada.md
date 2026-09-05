@@ -149,3 +149,15 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724](https://www.politico.com/news/2026/08/25/trump-canada-quebec-french-01048724)
 
 [https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/](https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/)
+
+### 2026 September
+
+2026-09-01 Pete Hegseth cyberbullied cadets in a Canadian youth program. 
+
+[https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/](https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/)
+
+[https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html](https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html)
+
+[https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post](https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post)
+
+[https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)

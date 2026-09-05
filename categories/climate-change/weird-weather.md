@@ -435,3 +435,23 @@ permalink: /categories/climate-change/weird-weather/
 
 [https://news.sky.com/story/unprecedented-climate-change-facing-uk-with-extreme-temperatures-here-to-stay-13563560](https://news.sky.com/story/unprecedented-climate-change-facing-uk-with-extreme-temperatures-here-to-stay-13563560)
 
+2026-09-02 The UN warned the Himalayas are warming twice as fast as the global average. 
+
+[https://time.com/article/2026/09/02/climate-change-melting-glaciers-himalayas-floods-nepal-danger-/](https://time.com/article/2026/09/02/climate-change-melting-glaciers-himalayas-floods-nepal-danger-/)
+
+2025 WARNINGS [https://news.un.org/en/story/2025/08/1165597](https://news.un.org/en/story/2025/08/1165597)
+
+2025 WARNINGS [https://wmo.int/news/media-centre/rising-temperatures-and-extreme-weather-hit-asia-hard](https://wmo.int/news/media-centre/rising-temperatures-and-extreme-weather-hit-asia-hard)
+
+2026 WARNINGS [https://www.science.org/doi/10.1126/science.adg8401]
+(https://www.science.org/doi/10.1126/science.adg8401)
+
+2026-09-02 The UN warned nations will fail to limit global heating to 1.5 degrees Celsius above pre-industrial levels. A report by the UN Environment Programme found that even under the most optimistic scenario, global temperatures are set to rise by at least 1.8. 
+
+[https://news.un.org/en/story/2026/09/1168240](https://news.un.org/en/story/2026/09/1168240)
+
+[https://theconversation.com/a-landmark-un-report-says-the-world-will-overshoot-the-1-5-c-climate-target-what-happens-now-290818](https://theconversation.com/a-landmark-un-report-says-the-world-will-overshoot-the-1-5-c-climate-target-what-happens-now-290818)
+
+[https://healthpolicy-watch.news/world-has-missed-1-5c-warming-target-un-declares/](https://healthpolicy-watch.news/world-has-missed-1-5c-warming-target-un-declares/)
+
+[https://www.aa.com.tr/en/world/un-warns-global-warming-likely-to-exceed-15c-within-next-few-years/4045481](https://www.aa.com.tr/en/world/un-warns-global-warming-likely-to-exceed-15c-within-next-few-years/4045481)

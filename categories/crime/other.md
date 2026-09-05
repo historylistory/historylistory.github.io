@@ -166,3 +166,16 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 [https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
 
 [https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)
+
+### 2026 September
+
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+[https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3](https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit](https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit)
+
+[https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
+
+[https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
+

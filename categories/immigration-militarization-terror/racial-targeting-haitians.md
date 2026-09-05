@@ -117,3 +117,8 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 
 [https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor](https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor)
 
+2026-09-03 Consecutive deportation flights landed in Haiti with deported immigrants. 
+
+[https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/](https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/)
+
+[https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054](https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054)

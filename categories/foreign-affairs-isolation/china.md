@@ -166,3 +166,13 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/)
  
+### 2026 September
+
+2026-09-02 A Chinese immigrant was found dead only hours after being booked into ICE detention. 
+
+[https://www.npr.org/2026/09/02/nx-s1-5953128/ice-detention-death-lianyong-wei](https://www.npr.org/2026/09/02/nx-s1-5953128/ice-detention-death-lianyong-wei)
+
+[https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody](https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody)
+
+PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody](https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody)
+

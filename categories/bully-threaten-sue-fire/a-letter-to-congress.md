@@ -707,3 +707,8 @@ Manhattan grand jury in the hush-money case.
 ## 2026 September
 
 2026-09-01 JD Vance called Michigan Senate candidate El-Sayed “evil”. 
+
+2026-09-01 Pete Hegseth cyberbullied cadets in a Canadian youth program. 
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+

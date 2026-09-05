@@ -844,4 +844,13 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 
 [https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/](https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/)
 
+### 2026 September
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+[https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/](https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/)
+
+[https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds](https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds)
+
+[https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people](https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people)
 

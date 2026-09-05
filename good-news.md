@@ -444,3 +444,27 @@ SUB WALL [https://www.nytimes.com/2026/07/23/business/media/new-york-times-subpo
 2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
 
 [https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars](https://www.democracynow.org/2026/9/2/headlines/activist_yaakub_vijandre_wins_right_to_challenge_ice_detention_after_nearly_1_year_behind_bars)
+
+2026-09-03 Missouri Supreme Court ruled that the GOP-drawn map to gerrymander votes will not be used in November’s mid-term elections.
+
+[https://apnews.com/article/redistricting-congress-missouri-trump-gerrymandering-5034c87f2161baa933ea337408e4c5b4](https://apnews.com/article/redistricting-congress-missouri-trump-gerrymandering-5034c87f2161baa933ea337408e4c5b4)
+
+[https://missouriindependent.com/2026/09/03/missouri-supreme-court-blocks-gerrymandered-congressional-map-orders-referendum-vote/](https://missouriindependent.com/2026/09/03/missouri-supreme-court-blocks-gerrymandered-congressional-map-orders-referendum-vote/)
+
+SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420](https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420)
+
+2026-09-03 The ICE agent who shot a Venezuelan immigrant in Minnesota was taken into federal custody on charges of making false statements to investigators. 
+
+[https://www.propublica.org/article/doj-blocks-charges-ice-agent-minneapolis-julio-cesar-sosa-celis](https://www.propublica.org/article/doj-blocks-charges-ice-agent-minneapolis-julio-cesar-sosa-celis)
+
+[https://www.pbs.org/newshour/nation/ice-officer-pleads-not-guilty-to-lying-about-shooting-and-is-ordered-released-from-custody](https://www.pbs.org/newshour/nation/ice-officer-pleads-not-guilty-to-lying-about-shooting-and-is-ordered-released-from-custody)
+
+[https://apnews.com/article/ice-officer-justice-department-false-statements-charge-ec67b349c8c01e6289e3f1b89a2821e4](https://apnews.com/article/ice-officer-justice-department-false-statements-charge-ec67b349c8c01e6289e3f1b89a2821e4)
+
+[https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/](https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/)
+
+[https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/](https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/)
+
+2026-09-04 ICE released 76-year-old green card holder Loreto Javar who has stage-4 cancer. He was detained for over 2 months. 
+
+[https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail](https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail)

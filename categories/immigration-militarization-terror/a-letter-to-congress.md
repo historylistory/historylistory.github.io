@@ -932,3 +932,15 @@ Next
 
 2026-09-02 A federal judge blocked Trump’s attempt to block DACA recipient Ya’akub Vijandre from seeking release from ICE custody. He was targeted for his photojournalism on Gaza and arrested by gunpoint in October. 
 
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+
+2026-09-02 A Chinese immigrant was found dead only hours after being booked into ICE detention. 
+
+2026-09-03 Consecutive deportation flights landed in Haiti with deported immigrants. 
+
+
+2026-09-03 The ICE agent who shot a Venezuelan immigrant in Minnesota was taken into federal custody on charges of making false statements to investigators. 
+
+2026-09-04 ICE released 76-year-old green card holder Loreto Javar who has stage-4 cancer. He was detained for over 2 months. 
+

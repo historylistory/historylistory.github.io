@@ -908,8 +908,6 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/](https://thehill.com/policy/international/6048489-donald-trump-mark-carney-us-canada-trade-war-talks-french/)
 
-### 2026 September
-
 2026-08-28 Trump posted a grading chart of himself and several historical leaders, placing himself at the top of the ranking pyramid labeled “THE GREATEST”. 
 
 [https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree](https://www.theguardian.com/us-news/2026/sep/03/greatest-president-trump-historians-disagree)
@@ -917,3 +915,17 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga](https://www.cnn.com/2026/08/28/politics/trump-presidential-ranking-maga)
 
 [https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135](https://people.com/trump-shares-chart-ranking-himself-as-greatest-president-12071135)
+
+### 2026 September
+
+2026-09-01 Pete Hegseth cyberbullied cadets in a Canadian youth program. 
+
+[https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/](https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/)
+
+[https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html](https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html)
+
+[https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post](https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post)
+
+[https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)
+
+

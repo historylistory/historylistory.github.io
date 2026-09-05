@@ -138,3 +138,15 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj](https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj)
 
 [https://www.whitehouse.gov/administration/cabinet/](https://www.whitehouse.gov/administration/cabinet/)
+
+### 2026 September
+
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+[https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3](https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit](https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit)
+
+[https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
+
+[https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)

@@ -149,3 +149,11 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 2026-07-28 Since January 2025, the Office of Refugee Resettlement has shared more than 460,000 leads to immigration authorities. 
 
 [https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/](https://www.reuters.com/legal/government/thousands-children-sponsors-arrested-by-ice-after-tips-us-child-migrant-agency-2026-07-28/)
+
+### 2026 September
+
+2026-09-03 Consecutive deportation flights landed in Haiti with deported immigrants. 
+
+[https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/](https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/)
+
+[https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054](https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054)

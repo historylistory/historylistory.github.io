@@ -499,3 +499,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
 
 2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 
+
+2026-09-02 The UN warned the Himalayas are warming twice as fast as the global average. 
+
+2026-09-02 The UN warned nations will fail to limit global heating to 1.5 degrees Celsius above pre-industrial levels. A report by the UN Environment Programme found that even under the most optimistic scenario, global temperatures are set to rise by at least 1.8. 

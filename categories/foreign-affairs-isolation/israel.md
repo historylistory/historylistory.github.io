@@ -675,3 +675,21 @@ FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested
 [https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/](https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/)
 
 TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s](https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s)
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
+
+[https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/](https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/)
+
+[https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
+
+[https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)
+
+2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
+
+[https://www.taipeitimes.com/News/world/archives/2026/09/05/2003863741](https://www.taipeitimes.com/News/world/archives/2026/09/05/2003863741)
+
+[https://www.timesofisrael.com/ben-gvir-unveils-voluntary-emigration-plan-to-remove-most-palestinians-from-gaza/](https://www.timesofisrael.com/ben-gvir-unveils-voluntary-emigration-plan-to-remove-most-palestinians-from-gaza/)
+
+[https://www.democracynow.org/2026/9/4/headlines/israels_national_security_minister_outlines_plan_to_expel_all_palestinians_from_gaza_strip](https://www.democracynow.org/2026/9/4/headlines/israels_national_security_minister_outlines_plan_to_expel_all_palestinians_from_gaza_strip)
+
+[https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza](https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza)

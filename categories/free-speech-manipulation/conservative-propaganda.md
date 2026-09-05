@@ -595,3 +595,11 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 [https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs](https://www.democracynow.org/2026/9/1/headlines/wapo_conservative_veterans_given_secret_pentagon_jobs)
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/](https://www.washingtonpost.com/national-security/2026/08/30/pentagon-secretly-installs-military-influencers-civilian-roles/)
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
+
+[https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/](https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/)
+
+[https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
+
+[https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)

@@ -810,3 +810,15 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/](https://www.reuters.com/world/middle-east/kushner-hold-talks-with-netanyahu-after-rare-meeting-with-hamas-2026-08-17/)
 
 [https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan](https://www.aljazeera.com/news/2026/8/17/kushner-to-meet-netanyahu-to-push-trump-gaza-plan)
+
+### 2026 September
+
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+[https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3](https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit](https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit)
+
+[https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
+
+[https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)

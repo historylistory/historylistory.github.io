@@ -423,3 +423,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552](https://www.nbcnews.com/news/us-news/springfield-ohio-haitian-student-dies-suicide-ice-mandates-ankle-monit-rcna595552)
 
 [https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor](https://www.cnn.com/2026/09/02/us/pierre-damas-bel-death-ankle-monitor)
+
+
+2026-09-02 A Chinese immigrant was found dead only hours after being booked into ICE detention. 
+
+[https://www.npr.org/2026/09/02/nx-s1-5953128/ice-detention-death-lianyong-wei](https://www.npr.org/2026/09/02/nx-s1-5953128/ice-detention-death-lianyong-wei)
+
+[https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody](https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody)
+
+PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody](https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody)

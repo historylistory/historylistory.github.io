@@ -186,3 +186,21 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 2026-08-20 Former Justice Department attorney Haley Van Erem filed a complaint against the Trump administration, writing that the government probes into schools were, “an unlawful process designed to achieve predetermined political goals”. 
 
 [https://www.cbsnews.com/news/justice-department-harvard-brown-columbia-haley-van-erem-whistleblower/](https://www.cbsnews.com/news/justice-department-harvard-brown-columbia-haley-van-erem-whistleblower/)
+
+### 2026 September
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+[https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/](https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/)
+
+[https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds](https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds)
+
+[https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people](https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people)
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
+
+[https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/](https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/)
+
+[https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
+
+[https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)

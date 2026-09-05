@@ -713,3 +713,26 @@ FROM 2024 [https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custo
 
 FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested/](https://time.com/6548068/palestinian-children-israeli-prison-arrested/)
 
+2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
+
+TIMESTAMP 1:30 [https://www.youtube.com/watch?v=9L5p6hk8jYc](https://www.youtube.com/watch?v=9L5p6hk8jYc)
+
+ABC7 VIDEO [https://www.youtube.com/watch?v=c5MLTejXTKQ](https://www.youtube.com/watch?v=c5MLTejXTKQ)
+
+AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/watch?v=8pTOCCTcpQ8)
+
+[https://abc7ny.com/story/vice-president-jd-vance-says-iran-fight-isnt-war-trump-tries-navigate-unpopular-conflict-election-nears/19789369/](https://abc7ny.com/story/vice-president-jd-vance-says-iran-fight-isnt-war-trump-tries-navigate-unpopular-conflict-election-nears/19789369/)
+
+[https://time.com/article/2026/09/03/vance-iran-war-press-briefing/](https://time.com/article/2026/09/03/vance-iran-war-press-briefing/)
+
+[https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/](https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/)
+
+2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
+
+[https://www.taipeitimes.com/News/world/archives/2026/09/05/2003863741](https://www.taipeitimes.com/News/world/archives/2026/09/05/2003863741)
+
+[https://www.timesofisrael.com/ben-gvir-unveils-voluntary-emigration-plan-to-remove-most-palestinians-from-gaza/](https://www.timesofisrael.com/ben-gvir-unveils-voluntary-emigration-plan-to-remove-most-palestinians-from-gaza/)
+
+[https://www.democracynow.org/2026/9/4/headlines/israels_national_security_minister_outlines_plan_to_expel_all_palestinians_from_gaza_strip](https://www.democracynow.org/2026/9/4/headlines/israels_national_security_minister_outlines_plan_to_expel_all_palestinians_from_gaza_strip)
+
+[https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza](https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza)

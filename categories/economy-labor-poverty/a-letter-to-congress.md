@@ -1189,3 +1189,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-01 The World Food Programme had to slash food assistance in half due to funding. 
 
 2026-09-01 Iranians faced dire economic conditions as runaway food inflation caused food prices to rise well over 300%. 
+
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 

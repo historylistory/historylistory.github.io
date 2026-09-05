@@ -48,3 +48,12 @@ From July [https://spectrumlocalnews.com/tx/south-texas-el-paso/news/2026/07/01/
 
 From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-convention-dallas/](https://thehill.com/homenews/campaign/6058289-rnc-midterm-convention-dallas/)
 
+2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+[https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3](https://www.youtube.com/watch?v=SQ7pLwc8U7g&list=WL&index=3)
+
+[https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit](https://www.theguardian.com/us-news/2026/aug/30/krsm-freedom-fuel-discount-gas-stations-stolen-lawsuit)
+
+[https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
+
+[https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)

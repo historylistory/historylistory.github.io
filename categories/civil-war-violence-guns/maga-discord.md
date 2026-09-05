@@ -655,3 +655,12 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8](https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8)
 
 [https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/](https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/)
+
+2026-09-03 Fox news announced they were letting go of longtime conservative host and Trump supporter Maria Bartiromo. 
+
+[https://www.youtube.com/watch?v=XdESvOgoI1k&list=WL&index=2](https://www.youtube.com/watch?v=XdESvOgoI1k&list=WL&index=2)
+
+[https://www.usatoday.com/story/entertainment/tv/2026/09/03/maria-bartiromo-abruptly-leaves-fox-what-we-know/91599711007/](https://www.usatoday.com/story/entertainment/tv/2026/09/03/maria-bartiromo-abruptly-leaves-fox-what-we-know/91599711007/)
+
+[https://www.nbcnews.com/business/media/fox-news-maria-bartiromo-rcna595954](https://www.nbcnews.com/business/media/fox-news-maria-bartiromo-rcna595954)
+

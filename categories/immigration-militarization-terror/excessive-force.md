@@ -455,3 +455,17 @@ PAY WALL [https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilt
 [https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp](https://www.ag.state.mn.us/Office/Communications/2026/08/18_Castro.asp)
 
 [https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)
+
+### 2026 September
+
+2026-09-03 The ICE agent who shot a Venezuelan immigrant in Minnesota was taken into federal custody on charges of making false statements to investigators. 
+
+[https://www.propublica.org/article/doj-blocks-charges-ice-agent-minneapolis-julio-cesar-sosa-celis](https://www.propublica.org/article/doj-blocks-charges-ice-agent-minneapolis-julio-cesar-sosa-celis)
+
+[https://www.pbs.org/newshour/nation/ice-officer-pleads-not-guilty-to-lying-about-shooting-and-is-ordered-released-from-custody](https://www.pbs.org/newshour/nation/ice-officer-pleads-not-guilty-to-lying-about-shooting-and-is-ordered-released-from-custody)
+
+[https://apnews.com/article/ice-officer-justice-department-false-statements-charge-ec67b349c8c01e6289e3f1b89a2821e4](https://apnews.com/article/ice-officer-justice-department-false-statements-charge-ec67b349c8c01e6289e3f1b89a2821e4)
+
+[https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/](https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/)
+
+[https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/](https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/)

@@ -569,3 +569,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-09-01 A judge extended a temporary order to pause expansion of the border wall over Big Bend National Park. 
 
 2026-09-03 Republican Senator Thom Tillis said in a statement about Pete Hegseth, “I have never witnessed more inept management of the brave men and women who serve our country. He is intimidated by competence and retreats to ginning up culture wars…find a new leader at the Pentagon…”.
+
+2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”

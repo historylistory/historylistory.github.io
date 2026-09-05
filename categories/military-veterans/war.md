@@ -506,3 +506,19 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/05/trump-hegs
 [https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay](https://www.military.com/navy-sailor-who-jumped-off-uss-abraham-lincoln-faces-disciplinary-charges-could-lose-pay)
 
 [https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66](https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66)
+
+### 2026 September
+
+2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
+
+TIMESTAMP 1:30 [https://www.youtube.com/watch?v=9L5p6hk8jYc](https://www.youtube.com/watch?v=9L5p6hk8jYc)
+
+ABC7 VIDEO [https://www.youtube.com/watch?v=c5MLTejXTKQ](https://www.youtube.com/watch?v=c5MLTejXTKQ)
+
+AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/watch?v=8pTOCCTcpQ8)
+
+[https://abc7ny.com/story/vice-president-jd-vance-says-iran-fight-isnt-war-trump-tries-navigate-unpopular-conflict-election-nears/19789369/](https://abc7ny.com/story/vice-president-jd-vance-says-iran-fight-isnt-war-trump-tries-navigate-unpopular-conflict-election-nears/19789369/)
+
+[https://time.com/article/2026/09/03/vance-iran-war-press-briefing/](https://time.com/article/2026/09/03/vance-iran-war-press-briefing/)
+
+[https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/](https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/)

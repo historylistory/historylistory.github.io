@@ -452,3 +452,12 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 
 [https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/](https://www.courthousenews.com/judge-rules-trump-admin-cannot-punish-noncitizens-for-protected-speech/)
 
+### 2026 September
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
+
+[https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/](https://www.reuters.com/world/us/us-house-passes-bill-crack-down-university-boycotts-israel-2026-09-03/)
+
+[https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
+
+[https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)

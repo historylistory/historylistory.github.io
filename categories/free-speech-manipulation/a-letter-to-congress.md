@@ -557,3 +557,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 ## 2026 September
 
 2026-09-01 The Washington Post reported several conservative veteran social media influencers receiving secret Pentagon jobs to promote Hegseth’s agenda and attack critics. 
+
+2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 

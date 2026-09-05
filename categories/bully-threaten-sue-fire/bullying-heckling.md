@@ -484,3 +484,14 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.bbc.com/news/articles/cn9w39py48xo](https://www.bbc.com/news/articles/cn9w39py48xo)
 
 [https://www.cnn.com/2026/08/31/politics/jd-vance-abdul-el-sayed](https://www.cnn.com/2026/08/31/politics/jd-vance-abdul-el-sayed)
+
+2026-09-01 Pete Hegseth cyberbullied cadets in a Canadian youth program. 
+
+[https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/](https://globalnews.ca/news/12043336/pete-hegseth-targets-canadian-cadet-program/)
+
+[https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html](https://www.stripes.com/theaters/asia_pacific/2026-09-03/hegseth-canada-cadet-social-media-22737579.html)
+
+[https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post](https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post)
+
+[https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)
+

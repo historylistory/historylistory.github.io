@@ -161,4 +161,14 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 
 [https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/](https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/)
 
+### 2026 September
+
+2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+[https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/](https://www.reuters.com/legal/government/trumps-doj-threatens-cut-aid-states-unless-they-report-migrants-without-legal-2026-09-02/)
+
+[https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds](https://www.cnn.com/2026/09/02/politics/justice-memo-undocumented-immigrants-federal-funds)
+
+[https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people](https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people)
+
 
