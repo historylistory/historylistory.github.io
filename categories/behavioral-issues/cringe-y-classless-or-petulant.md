@@ -929,3 +929,12 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)
 
 
+2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
+
+[https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris](https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris)
+
+[https://apnews.com/article/trump-white-house-video-game-arcade-d540ff089ed5b1d432715a4209b16a23](https://apnews.com/article/trump-white-house-video-game-arcade-d540ff089ed5b1d432715a4209b16a23)
+
+[https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch](https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch)
+
+[https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/](https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/)

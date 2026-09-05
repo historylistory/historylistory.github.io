@@ -418,3 +418,14 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 
 [https://people.com/natalie-harp-brother-speaks-out-on-her-trump-role-12063290](https://people.com/natalie-harp-brother-speaks-out-on-her-trump-role-12063290)
 
+### 2026 September
+
+2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
+
+[https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris](https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris)
+
+[https://apnews.com/article/trump-white-house-video-game-arcade-d540ff089ed5b1d432715a4209b16a23](https://apnews.com/article/trump-white-house-video-game-arcade-d540ff089ed5b1d432715a4209b16a23)
+
+[https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch](https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch)
+
+[https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/](https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/)

@@ -95,6 +95,10 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2019-01-01 Alt-right women’s magazine Evie was founded by the Hugoboom family. Its 2024 cover featured “Ballerina Farm” and “The Importance of Being Sexy,” promoting the trad-wife movement. Hugoboom also launched the “Toxic Breakup” supplement, marketed to “detox the body” after stopping birth control. In 2022, the owners launched a menstrual-tracking app funded by Peter Thiel that drew controversy for its pro-life rhetoric.
 
+2019-06-11 Biden made a promise to cure cancer during his campaign. 
+
+2019-06-18 During a kickoff rally in Orlando Florida Trump claimed he would come up with the cure to cancer. 
+
 ## 2020 
 
 2020-03-24 Trump falsely claimed that COVID would “disappear” by Easter.

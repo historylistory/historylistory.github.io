@@ -1127,6 +1127,14 @@ ALSO HAPPENED IN 2022 [https://www.npr.org/2022/11/29/1139765236/u-s-bans-domini
 
 ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor](https://www.pbs.org/newshour/economy/u-s-to-detain-dominican-sugar-import-amid-accusations-of-forced-labor)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
+
+
 2026-08-26 The sailor who jumped off USS Lincoln on August 3 in an attempted suicide after a 270-day deployment received disciplinary action and pay reduction from the Navy. 
 
 [https://www.youtube.com/watch?v=d_1SGE7frFk&list=WL&index=3&t=50s](https://www.youtube.com/watch?v=d_1SGE7frFk&list=WL&index=3&t=50s)
@@ -1148,6 +1156,15 @@ FROM 2024 [https://www.haaretz.com/israel-news/2024-09-07/ty-article/.premium/is
 FROM 2024 [https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e](https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custody-hamas-abuse-a68be97e)
 
 FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested/](https://time.com/6548068/palestinian-children-israeli-prison-arrested/)
+
+2026-09-01 Right wing representative Michele Bachmen claimed that the main problem in Gaza today is that refugees are getting too fat,” Their calorie count is over 3,000 calories per person a day from all the food that’s coming in and the biggest problem they’re dealing with most recently in Gaza is obesity”. 
+
+THE VIDEO [https://www.youtube.com/watch?v=Nl8b8JhkV_w&list=WL&index=2](https://www.youtube.com/watch?v=Nl8b8JhkV_w&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/michele-bachmann-says-biggest-problem-gaza-today-obesity-too-much-food](https://www.peoplefor.org/rightwingwatch/michele-bachmann-says-biggest-problem-gaza-today-obesity-too-much-food)
+
+[https://crooksandliars.com/2026/09/crazy-michelle-bachman-problem-gaza-too](https://crooksandliars.com/2026/09/crazy-michelle-bachman-problem-gaza-too)
+
 
 2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
 

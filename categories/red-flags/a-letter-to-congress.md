@@ -425,6 +425,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-08-19 Israel ran a synthetic “think-tank” to influence AI search results. It turned out that the “Hanover Institute” was Israel-funded AI slop. 
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
 2026-08-25 Protestors in New York gathered ahead of an upcoming visit from Hindu nationalist leader and head of RSS Moan Bhagwat. This is a far-right paramilitary organization. Democratic nominee Brad Landers stated, “This event harkens back to that 1939 Nazi rally that was hosted at Madison Square Garden with banners of swastikas and tens of thousands of people cheering ethnic and religious hatred and violence of a very similar sort to what Moad Bagwan and the RSS are proposing. And MSG said it wouldn’t do that again, that it wouldn’t host any more hate-filled, bigoted rallies”
 
 2026-08-27 An Israeli Air Force officer was quoted in an interview to Haaretz, “You see the State of Israel, the IDFT and Shin Bet sending armed, trained militias to commit war crimes, and I’m the one who has to protect them during their operations, so they don’t get hurt”. 
@@ -436,6 +438,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
 
 2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
+
+2026-09-01 Right wing representative Michele Bachmen claimed that the main problem in Gaza today is that refugees are getting too fat,” Their calorie count is over 3,000 calories per person a day from all the food that’s coming in and the biggest problem they’re dealing with most recently in Gaza is obesity”. 
 
 2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
 

@@ -157,6 +157,12 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 
 [https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146](https://houlahan.house.gov/news/documentsingle.aspx?DocumentID=5146)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
 2026-08-31 ICE announced plans to spend $2M on robot dogs to aid in immigration enforcement. 
 
 [https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/](https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/)

@@ -6,6 +6,32 @@ subcategory_slug: politicizing-health
 permalink: /categories/health/politicizing-health/
 ---
 
+### 2019 
+
+2019-06-11 Biden made a promise to cure cancer during his campaign. 
+
+[https://www.youtube.com/watch?v=pB4BxNjMb7Q](https://www.youtube.com/watch?v=pB4BxNjMb7Q)
+
+[https://www.factcheck.org/2019/07/unpacking-bidens-and-trumps-big-cancer-promises/](https://www.factcheck.org/2019/07/unpacking-bidens-and-trumps-big-cancer-promises/)
+
+[https://www.reuters.com/article/fact-check/joe-biden-did-not-say-his-administration-cured-cancer-idUSL1N39D27V/](https://www.reuters.com/article/fact-check/joe-biden-did-not-say-his-administration-cured-cancer-idUSL1N39D27V/)
+
+[https://www.statnews.com/2022/02/02/biden-once-pledged-to-cure-cancer-his-new-approach-is-far-more-modest/](https://www.statnews.com/2022/02/02/biden-once-pledged-to-cure-cancer-his-new-approach-is-far-more-modest/)
+
+TIMESTAMP 2:38 [https://www.youtube.com/watch?v=x9u__DaAbmw&list=WL&index=3&t=134s](https://www.youtube.com/watch?v=x9u__DaAbmw&list=WL&index=3&t=134s)
+
+2019-06-18 During a kickoff rally in Orlando Florida Trump claimed he would come up with the cure to cancer. 
+
+[https://rollcall.com/factbase/transcript/donald-trump-speech-maga-rally-reelection-orlando-june-18-2019](https://rollcall.com/factbase/transcript/donald-trump-speech-maga-rally-reelection-orlando-june-18-2019)
+
+[https://www.businessinsider.com/trump-jr-mocks-biden-cure-cancer-trump-makes-same-promise-2019-6](https://www.businessinsider.com/trump-jr-mocks-biden-cure-cancer-trump-makes-same-promise-2019-6)
+
+[https://www.businessinsider.com/trump-2020-rally-pledges-cure-cancer-put-man-on-mars-2019-6](https://www.businessinsider.com/trump-2020-rally-pledges-cure-cancer-put-man-on-mars-2019-6)
+
+[https://www.factcheck.org/2019/07/unpacking-bidens-and-trumps-big-cancer-promises/](https://www.factcheck.org/2019/07/unpacking-bidens-and-trumps-big-cancer-promises/)
+
+TIMESTAMP 2:38 [https://www.youtube.com/watch?v=x9u__DaAbmw&list=WL&index=3&t=134s](https://www.youtube.com/watch?v=x9u__DaAbmw&list=WL&index=3&t=134s)
+
 ### 2025 January
 
 2025-01-20 Page 483 of Project 2025 condemns - with baseless merit - that family caregivers are "overly focused" on racial and LGBTQ equity. 

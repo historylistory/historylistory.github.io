@@ -413,6 +413,12 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 
 [https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/](https://www.njspotlightnews.org/2026/08/death-shows-delaney-not-adequate-in-emergency-mciver-says/)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
 ### 2026 September
 
 

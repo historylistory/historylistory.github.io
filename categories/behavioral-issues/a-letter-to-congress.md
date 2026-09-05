@@ -684,6 +684,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-08-21 A major Dominican sugar producer with ties to Trump was accused of forced labor. 
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
 2026-08-22 A Trump-backed IndyCar race was scheduled to take place at the National Mall. 
 
 2026-08-25 Baby man-child Trump threatened to rename Lake Ontario “Lake America” during his trade war with Canada. 
@@ -700,6 +702,8 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-09-01 Pete Hegseth cyberbullied cadets in a Canadian youth program. 
 
+2026-09-01 Right wing representative Michele Bachmen claimed that the main problem in Gaza today is that refugees are getting too fat,” Their calorie count is over 3,000 calories per person a day from all the food that’s coming in and the biggest problem they’re dealing with most recently in Gaza is obesity”. 
+
 2026-09-02 Trump had his face minted on the $1 coin. 
 
 2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
@@ -707,3 +711,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
 
 2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
+
+2026-09-05 The White House launched an online MAGA-themed arcade on their website. 

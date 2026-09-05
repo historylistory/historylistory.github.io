@@ -744,6 +744,14 @@ FROM 2024 [https://www.wsj.com/world/middle-east/palestinian-deaths-israel-custo
 
 FROM 2023 [https://time.com/6548068/palestinian-children-israeli-prison-arrested/](https://time.com/6548068/palestinian-children-israeli-prison-arrested/)
 
+2026-09-01 Right wing representative Michele Bachmen claimed that the main problem in Gaza today is that refugees are getting too fat,” Their calorie count is over 3,000 calories per person a day from all the food that’s coming in and the biggest problem they’re dealing with most recently in Gaza is obesity”. 
+
+THE VIDEO [https://www.youtube.com/watch?v=Nl8b8JhkV_w&list=WL&index=2](https://www.youtube.com/watch?v=Nl8b8JhkV_w&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/michele-bachmann-says-biggest-problem-gaza-today-obesity-too-much-food](https://www.peoplefor.org/rightwingwatch/michele-bachmann-says-biggest-problem-gaza-today-obesity-too-much-food)
+
+[https://crooksandliars.com/2026/09/crazy-michelle-bachman-problem-gaza-too](https://crooksandliars.com/2026/09/crazy-michelle-bachman-problem-gaza-too)
+
 2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
 
 [https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash](https://www.middleeasteye.net/trending/ben-gvir-deletes-ai-video-showing-emaciated-palestinian-prisoners-after-backlash)

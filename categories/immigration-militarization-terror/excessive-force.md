@@ -456,6 +456,12 @@ PAY WALL [https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilt
 
 [https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
 ### 2026 September
 
 2026-09-03 The ICE agent who shot a Venezuelan immigrant in Minnesota was taken into federal custody on charges of making false statements to investigators. 

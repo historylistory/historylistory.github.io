@@ -361,6 +361,12 @@ SUB WALL [https://www.nytimes.com/2026/04/26/us/family-ice-detention-released-di
 
 CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
 ### 2026 September
 
 

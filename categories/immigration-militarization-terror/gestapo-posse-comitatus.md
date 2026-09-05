@@ -477,6 +477,12 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 [https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/](https://www.texastribune.org/2026/08/18/minnesota-sues-abbott-texas-ice-agent-extradition-lawsuit/)
 
+2026-08-21 In response to a post about Greek Minister of Immigration calling to shoot migrants, sink boats, and deny food or water, Elon Musk responded with a slang approval “Based”. 
+
+[https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s](https://www.youtube.com/watch?v=E2_QyP16PUI&list=WL&index=4&t=14s)
+
+[https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/](https://www.facebook.com/GreeceHighDefinition/posts/elon-musks-based-response-to-controversial-remarks-by-greek-migration-ministeron/1645439133702564/)
+
 2026-08-31 The Trump administration asserted that they will NOT be assigning military members to polling places.  
 
 [https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s](https://www.youtube.com/watch?v=E4lAfy-uNYI&list=WL&index=11&t=79s)
