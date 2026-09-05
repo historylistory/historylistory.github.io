@@ -329,3 +329,13 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue](https://shafaq.com/en/Middle-East/Israel-wounds-Gaza-student-as-West-Bank-operations-continue)
 
 [https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319](https://www.aa.com.tr/en/middle-east/israeli-bullet-pierces-hand-of-palestinian-6th-grade-student-inside-school-in-gaza/4017319)
+
+### 2026 September
+
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
+
+[https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit](https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit)
+
+[https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735](https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735)
+
+[https://www.bbc.com/news/articles/cj06q4ynpmjo](https://www.bbc.com/news/articles/cj06q4ynpmjo)

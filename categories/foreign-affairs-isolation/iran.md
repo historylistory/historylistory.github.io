@@ -2138,7 +2138,7 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 ### 2026 September
 
-2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. 
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
 
 [https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit](https://www.pbs.org/newshour/world/iran-fires-on-its-gulf-neighbors-retaliating-for-u-s-strikes-after-a-wedding-was-hit)
 

@@ -433,7 +433,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 ## 2026 September
 
-2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. 
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
 
 2026-09-01 Israeli courts brought charges against a dozen guards accused of beating nine Palestinian prisoners, including one who was beaten to death. 
 

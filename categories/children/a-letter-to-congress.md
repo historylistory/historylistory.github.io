@@ -381,3 +381,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-08-12 The Trump administration awarded a $158M contract to a group founded by a former ICE agent to legally represent unaccompanied immigrant children in the US. 
 
 2026-08-16 ICE arrested a 5-year-old boy and his father on their way to a soccer game in Austin Texas, then banned a Texas Congressmember from entering the detention center to check on the welfare of the child. 
+
+## 2026 September 
+
+2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
