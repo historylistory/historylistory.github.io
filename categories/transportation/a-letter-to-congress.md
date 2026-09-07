@@ -241,3 +241,6 @@ Please put public safety ahead of privatization, retaliation, and political thea
 ## 2026 September
 
 2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
+
+
+2026-09-06 Five people were injured and 5 more were killed after an Amazon cargo plane overturned the Miami runway. 

@@ -434,6 +434,8 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 2026-09-02 A whistleblower warned about problems with Trump’s new USPS federal ballot mail portal is gravely untested and flawed. 
 
+Lawmaker response September 6 2026 [https://www.youtube.com/watch?v=7r17VPQI1Gg&list=WL&index=4](https://www.youtube.com/watch?v=7r17VPQI1Gg&list=WL&index=4)
+
 [https://www.nbcnews.com/politics/elections/whistleblower-usps-systems-mail-ballots-flawed-rcna595361](https://www.nbcnews.com/politics/elections/whistleblower-usps-systems-mail-ballots-flawed-rcna595361)
 
 [https://www.npr.org/2026/09/01/nx-s1-5950869/trump-mail-in-voting-usps](https://www.npr.org/2026/09/01/nx-s1-5950869/trump-mail-in-voting-usps)

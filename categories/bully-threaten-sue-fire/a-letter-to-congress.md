@@ -712,3 +712,6 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
 
+
+2026-09-03 Missouri Republican candidate Thomas Christopher Ross was charged for conspiring to plant cocaine and Adderall on his opponent. 
+

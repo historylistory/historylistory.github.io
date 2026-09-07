@@ -537,3 +537,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-02 Three Republican commissioners in Texas voted to slash the number of available polling sites. 
 
 2026-09-03 Missouri Supreme Court ruled that the GOP-drawn map to gerrymander votes will not be used in November’s mid-term elections.
+
+2026-09-06 Republicans secured an area of Dallas for the first RNC midterm convention ahead of November. 

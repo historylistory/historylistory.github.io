@@ -551,3 +551,12 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.the-independent.com/news/world/americas/us-politics/isis-threat-new-york-capitol-fbi-b3036621.html](https://www.the-independent.com/news/world/americas/us-politics/isis-threat-new-york-capitol-fbi-b3036621.html)
 
+### 2026 September
+
+2026-09-03 Christian podcaster Azariah Southworth was arrested for multiple public threats to kill Trump. 
+
+[https://thenationaldesk.com/news/americas-news-now/gay-christian-podcaster-arrested-for-allegedly-threatening-to-kill-trump-stalking-lawyer-los-angeles-fbi-secret-service-assassination](https://thenationaldesk.com/news/americas-news-now/gay-christian-podcaster-arrested-for-allegedly-threatening-to-kill-trump-stalking-lawyer-los-angeles-fbi-secret-service-assassination)
+
+[https://idahonews.com/news/nation-world/gay-christian-podcaster-arrested-for-allegedly-threatening-to-kill-trump-stalking-lawyer-los-angeles-fbi-secret-service-assassination](https://idahonews.com/news/nation-world/gay-christian-podcaster-arrested-for-allegedly-threatening-to-kill-trump-stalking-lawyer-los-angeles-fbi-secret-service-assassination)
+
+[https://www.nbclosangeles.com/news/local/podcaster-trump-threat-arrest/3937280/](https://www.nbclosangeles.com/news/local/podcaster-trump-threat-arrest/3937280/)

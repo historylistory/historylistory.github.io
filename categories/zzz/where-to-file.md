@@ -57,3 +57,13 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 [https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
 
 [https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
+
+2026-09-03 Missouri Republican candidate Thomas Christopher Ross was charged for conspiring to plant cocaine and Adderall on his opponent. 
+
+[https://www.kcra.com/article/missouri-candidate-plant-cocaine-on-rival/73607298](https://www.kcra.com/article/missouri-candidate-plant-cocaine-on-rival/73607298)
+
+[https://www.nbcnews.com/news/us-news/missouri-candidate-allegedly-wanted-campaign-manager-plant-cocaine-opp-rcna596022](https://www.nbcnews.com/news/us-news/missouri-candidate-allegedly-wanted-campaign-manager-plant-cocaine-opp-rcna596022)
+
+[https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/](https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/)
+
+[https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0](https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0)

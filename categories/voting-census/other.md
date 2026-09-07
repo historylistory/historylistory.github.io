@@ -248,3 +248,14 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 [https://www.politico.com/news/2026/08/20/progressive-aisha-wahab-wins-eric-swalwells-former-house-seat-01045145](https://www.politico.com/news/2026/08/20/progressive-aisha-wahab-wins-eric-swalwells-former-house-seat-01045145)
 
 [https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6](https://apnews.com/article/aisha-wahab-eric-swalwell-election-melissa-hernandez-17e1183d99f385000ea95e73d7670de6)
+
+### 2026 September
+
+2026-09-06 Republicans secured an area of Dallas for the first RNC midterm convention ahead of November. 
+
+[https://www.youtube.com/watch?v=FkpsqPiQhdM&list=WL&index=1](https://www.youtube.com/watch?v=FkpsqPiQhdM&list=WL&index=1)
+
+[https://fortworthreport.org/2026/09/04/the-2026-republican-midterm-convention-will-be-hosted-in-north-texas-why-dallas-and-not-fort-worth/](https://fortworthreport.org/2026/09/04/the-2026-republican-midterm-convention-will-be-hosted-in-north-texas-why-dallas-and-not-fort-worth/)
+
+[https://www.nbcdfw.com/news/local/what-to-know-security-street-closures-rnc-midterm-convention-dallas/4072543/](https://www.nbcdfw.com/news/local/what-to-know-security-street-closures-rnc-midterm-convention-dallas/4072543/)
+

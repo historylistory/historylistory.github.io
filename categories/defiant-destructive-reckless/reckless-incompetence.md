@@ -938,3 +938,16 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://time.com/article/2026/09/03/vance-iran-war-press-briefing/](https://time.com/article/2026/09/03/vance-iran-war-press-briefing/)
 
 [https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/](https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/)
+
+2026-09-04 Representatives responded after a WSJ report claimed Senator John Fettrerman “shows little interest in the job”. 
+
+[https://www.youtube.com/watch?v=0vUaCyJsPUs&list=WL&index=2](https://www.youtube.com/watch?v=0vUaCyJsPUs&list=WL&index=2)
+
+[https://www.youtube.com/shorts/0vUaCyJsPUs](https://www.youtube.com/shorts/0vUaCyJsPUs)
+
+[https://www.spotlightpa.org/news/2026/09/fetterman-wsj-investigation-democrats-react-federal-government/](https://www.spotlightpa.org/news/2026/09/fetterman-wsj-investigation-democrats-react-federal-government/)
+
+[https://www.wsj.com/politics/policy/john-fetterman-little-interest-senator-be74e7a3](https://www.wsj.com/politics/policy/john-fetterman-little-interest-senator-be74e7a3)
+
+[https://www.usatoday.com/story/news/politics/2026/09/06/john-fetterman-senate-wall-street-journal/91642202007/](https://www.usatoday.com/story/news/politics/2026/09/06/john-fetterman-senate-wall-street-journal/91642202007/)
+

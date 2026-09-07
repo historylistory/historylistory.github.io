@@ -114,3 +114,13 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.flyingmag.com/airlink-flyover-50-feet-stadium-south-africa/](https://www.flyingmag.com/airlink-flyover-50-feet-stadium-south-africa/)
 
+### 2026 September
+
+2026-09-06 Five people were injured and 5 more were killed after an Amazon cargo plane overturned the Miami runway. 
+
+[https://www.youtube.com/watch?v=gwXcePXD3sw&list=WL&index=3](https://www.youtube.com/watch?v=gwXcePXD3sw&list=WL&index=3)
+
+[https://www.nbcmiami.com/news/local/video-appears-to-show-crashed-amazon-plane-on-runway-at-mia/3855448/](https://www.nbcmiami.com/news/local/video-appears-to-show-crashed-amazon-plane-on-runway-at-mia/3855448/)
+
+[https://www.nbcmiami.com/video/nbc-6-news/5-dead-5-injured-after-amazon-cargo-plane-overruns-runway-at-mia-sheriff-says/3855566/](https://www.nbcmiami.com/video/nbc-6-news/5-dead-5-injured-after-amazon-cargo-plane-overruns-runway-at-mia-sheriff-says/3855566/)
+

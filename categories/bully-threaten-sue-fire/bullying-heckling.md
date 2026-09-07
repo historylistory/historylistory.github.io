@@ -495,3 +495,13 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)
 
+
+2026-09-03 Missouri Republican candidate Thomas Christopher Ross was charged for conspiring to plant cocaine and Adderall on his opponent. 
+
+[https://www.kcra.com/article/missouri-candidate-plant-cocaine-on-rival/73607298](https://www.kcra.com/article/missouri-candidate-plant-cocaine-on-rival/73607298)
+
+[https://www.nbcnews.com/news/us-news/missouri-candidate-allegedly-wanted-campaign-manager-plant-cocaine-opp-rcna596022](https://www.nbcnews.com/news/us-news/missouri-candidate-allegedly-wanted-campaign-manager-plant-cocaine-opp-rcna596022)
+
+[https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/](https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/)
+
+[https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0](https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0)
