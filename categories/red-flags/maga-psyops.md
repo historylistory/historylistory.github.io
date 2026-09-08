@@ -34,6 +34,8 @@ permalink: /categories/red-flags/maga-psyops/
 2. It falsely suggests that since no one is completely blameless, all criticism is hypocritical and can be dismissed. 
 3. The goal is not to have a constructive debate, but to muddy the waters. 
 
+[https://www.washingtonpost.com/politics/2020/05/26/kayleigh-mcenanys-latest-briefing-is-case-study-gaslighting-whataboutism-false-claims/](https://www.washingtonpost.com/politics/2020/05/26/kayleigh-mcenanys-latest-briefing-is-case-study-gaslighting-whataboutism-false-claims/)
+
 ### Ad Hominems
 1. the debate tactic of invalidating someone's argument because they cannot draw something from memory is a form of an ad hominem fallacy. The essence of this tactic is to attack the person, rather than the substance of their argument. ***Attack on character/ability:*** The tactic shifts the focus away from the topic and onto a personal trait—the opponent's inability to draw from memory. This artistic or memory-retrieval skill has no bearing on the validity of their actual argument. ***False relevance:*** It creates a false sense of relevance by implying that a person's lack of a specific, irrelevant skill (drawing) proves their argument is weak. ***For example,*** a person does not need to be able to draw a perfect map of a country to be correct about its political history. ***Undermining credibility:*** The goal is to undermine the opponent's overall credibility and distract the audience from the actual points being debated. By mocking their artistic skills, the attacker frames them as generally incompetent, hoping that the audience will transfer that judgment to their position in the debate.
 

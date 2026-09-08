@@ -139,6 +139,9 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 ## 2022 
 
+2022-07-28 People spread false rumors that President Biden images and videos were deepfakes, suggested Biden wasn’t real, and in some cases even claimed that Biden was Jim Carey in a mask. In 2020 Trump began rumors that Biden was “executed” and replaced with other “entities”.
+
+
 2022-12-02 Alex Jones filed two chapter 11 bankruptcies. 
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
@@ -250,6 +253,8 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 2025-05-15 Representative Warren Davidson and Representative Barry Moore introduced Bill HR3432 the so-called “Trump Derangement Syndrome Research Act of 2025”, claiming that anyone who isn’t aligned with the Trump agenda must be suffering from a mental illness. This was not the first use of this phraseology - it was also found in an opinion article in 2023 “Bari Weiss Derangement Syndrome”.
 
 ## 2025 June
+
+2025-06-02 Trump reposted a baseless claim on Truth Social that Biden was executed in 2020 and replaced with clones, body doubles, or robots. 
 
 2025-06-06 News Talk WRNO posted "Mike Howell, President of the Oversight Project and the leading figure in uncovering the autopen scandal, is now weighing in on the Trump Administration's news that they officially opened an investigation into whether Joe Biden was competent when he used an autopen". On the 23rd of June, Mike Howell wrote, “Now may I please direct your attention back to the autopen scandal”.
 
