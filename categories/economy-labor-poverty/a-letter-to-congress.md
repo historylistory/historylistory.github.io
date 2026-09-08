@@ -1193,3 +1193,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
 
 2026-09-02 The DOJ issued a statement warning that any state resisting Trump’s mass deportation program will lose funding for Temporary Assistance for Needy Families (TANF) and the Supplemental Security Income program (SSI). 
+
+2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 

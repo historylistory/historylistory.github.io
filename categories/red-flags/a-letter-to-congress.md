@@ -448,3 +448,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
 
 2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
+
+2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 

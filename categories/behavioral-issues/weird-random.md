@@ -420,6 +420,14 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 
 ### 2026 September
 
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
+[https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8](https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8)
+
+[https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/](https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/)
+
+[https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/](https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/)
+
 2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
 
 [https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris](https://www.npr.org/2026/09/04/g-s1-142045/white-house-arcade-games-maga-tetris)

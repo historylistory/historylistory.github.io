@@ -148,3 +148,9 @@ ARCHIVED 1996 [https://www.justice.gov/archives/atr/speech/antitrust-enforcement
 
 INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s](https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&index=4&t=84s)
 
+### 2026 September
+
+2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
+
+[https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)
+

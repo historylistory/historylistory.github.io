@@ -455,3 +455,10 @@ permalink: /categories/climate-change/weird-weather/
 [https://healthpolicy-watch.news/world-has-missed-1-5c-warming-target-un-declares/](https://healthpolicy-watch.news/world-has-missed-1-5c-warming-target-un-declares/)
 
 [https://www.aa.com.tr/en/world/un-warns-global-warming-likely-to-exceed-15c-within-next-few-years/4045481](https://www.aa.com.tr/en/world/un-warns-global-warming-likely-to-exceed-15c-within-next-few-years/4045481)
+
+2026-09-07 Hurricane Lowell pummeled Hawaii.
+
+AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just-west-niihau-damaging-wind-heavy-rain-expected-overnight/](https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just-west-niihau-damaging-wind-heavy-rain-expected-overnight/)
+
+h[ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai](ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai)
+

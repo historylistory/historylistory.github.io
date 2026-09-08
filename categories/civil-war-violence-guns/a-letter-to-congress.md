@@ -690,3 +690,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-09-03 Fox news announced they were letting go of longtime conservative host and Trump supporter Maria Bartiromo. 
 
 2026-09-03 Christian podcaster Azariah Southworth was arrested for multiple public threats to kill Trump. 
+
+2026-09-06 An armed man charged after Democratic candidate in Ohio. 

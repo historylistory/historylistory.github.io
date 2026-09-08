@@ -801,3 +801,5 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 
 2026-09-01 Global tech giant Cisco was accused of Islamophobia and violating civil rights of Middle Eastern and Muslim workers. 
+
+2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 

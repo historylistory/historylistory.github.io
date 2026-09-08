@@ -140,3 +140,16 @@ permalink: /categories/foreign-affairs-isolation/aaa-un/
 
 [https://x.com/FranceONUGeneve/status/2081064968586232263](https://x.com/FranceONUGeneve/status/2081064968586232263)
 
+### 2026 September
+
+2026-09-04 The US rejected the UN’s new global map which properly displays countries in their proper proportions. 
+
+[https://www.youtube.com/watch?v=z6OQEhKPiFU&list=WL&index=6](https://www.youtube.com/watch?v=z6OQEhKPiFU&list=WL&index=6)
+
+[https://news.un.org/en/story/2026/09/1168284](https://news.un.org/en/story/2026/09/1168284)
+
+[https://abcnews.com/International/wireStory/general-assembly-endorses-new-world-map-shows-accurately-136217039](https://abcnews.com/International/wireStory/general-assembly-endorses-new-world-map-shows-accurately-136217039)
+
+US REJECTS [https://thehill.com/policy/international/6072979-us-opposes-un-map-resolution-africa/](https://thehill.com/policy/international/6072979-us-opposes-un-map-resolution-africa/)
+
+US REJECTS [https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth-map-us-brands-radical-ideological-project](https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth-map-us-brands-radical-ideological-project)

@@ -239,3 +239,6 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 
 [https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/](https://iranwire.com/en/features/156995-inflation-is-pushing-tehrans-traditional-cuisine-off-the-menu/)
 
+2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
+
+[https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)

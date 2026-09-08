@@ -708,8 +708,12 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-09-02 Ben Gvir posted, then deleted, a propaganda campaign of an AI generated animation showing him denying food to Palestinian prisoners and then forcing prisoners onto a conveyor belt into a concentration camp.  
 
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
 2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
 
 2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
 
 2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
+
+2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 

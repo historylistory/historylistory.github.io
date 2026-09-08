@@ -715,3 +715,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-03 Missouri Republican candidate Thomas Christopher Ross was charged for conspiring to plant cocaine and Adderall on his opponent. 
 
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
+2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
+

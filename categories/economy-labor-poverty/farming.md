@@ -376,3 +376,9 @@ ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-fa
 [https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s](https://www.youtube.com/watch?v=8l55aODZG-8&list=WL&index=1&t=17s)
 
 [https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/](https://www.wkyt.com/2026/08/24/kentucky-cattle-farmers-react-trumps-beef-import-plan/)
+
+### 2026 September
+
+2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
+
+[https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)

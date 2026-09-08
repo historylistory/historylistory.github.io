@@ -503,3 +503,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-02 The UN warned the Himalayas are warming twice as fast as the global average. 
 
 2026-09-02 The UN warned nations will fail to limit global heating to 1.5 degrees Celsius above pre-industrial levels. A report by the UN Environment Programme found that even under the most optimistic scenario, global temperatures are set to rise by at least 1.8. 
+
+2026-09-07 Hurricane Lowell pummeled Hawaii.

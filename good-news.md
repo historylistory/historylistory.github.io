@@ -465,6 +465,16 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 
 [https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/](https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/)
 
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
+[https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8](https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8)
+
+[https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/](https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/)
+
+[https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/](https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/)
+
 2026-09-04 ICE released 76-year-old green card holder Loreto Javar who has stage-4 cancer. He was detained for over 2 months. 
 
 [https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail](https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail)
+
+

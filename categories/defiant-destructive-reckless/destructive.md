@@ -392,3 +392,10 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park](https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park)
 
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
+[https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8](https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8)
+
+[https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/](https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/)
+
+[https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/](https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/)

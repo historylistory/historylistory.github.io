@@ -67,3 +67,6 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 [https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/](https://missouriindependent.com/2026/09/03/missouri-house-candidate-charged-in-plot-to-plant-drugs-on-republican-primary-opponent/)
 
 [https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0](https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0)
+
+
+

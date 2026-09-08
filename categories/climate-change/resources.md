@@ -186,5 +186,10 @@ permalink: /categories/climate-change/resources/
 
 [https://www.euronews.com/my-europe/2026/08/10/drought-forces-water-restrictions-across-nearly-70-of-france-government-says](https://www.euronews.com/my-europe/2026/08/10/drought-forces-water-restrictions-across-nearly-70-of-france-government-says)
 
+### 2026 September
+
+2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
+
+[https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)
 
 

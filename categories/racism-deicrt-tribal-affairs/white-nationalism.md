@@ -468,4 +468,22 @@ TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](htt
 
 [https://www.theguardian.com/us-news/2026/sep/02/mma-florida-antisemitic-comments-paul-miller-ben-azoulay](https://www.theguardian.com/us-news/2026/sep/02/mma-florida-antisemitic-comments-paul-miller-ben-azoulay)
 
- 
+2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 
+
+[https://www.youtube.com/watch?v=MEMUraFGT2c&list=WL&index=5](https://www.youtube.com/watch?v=MEMUraFGT2c&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=wdV2olQZOFE&list=WL&index=7](https://www.youtube.com/watch?v=wdV2olQZOFE&list=WL&index=7)
+
+[https://www.youtube.com/watch?v=t_yG2bqfoC4&list=WL&index=4](https://www.youtube.com/watch?v=t_yG2bqfoC4&list=WL&index=4)
+
+[https://www.dw.com/en/ulrich-siegmund-afd-saxony-anhalt-germany/svideo-79064962](https://www.dw.com/en/ulrich-siegmund-afd-saxony-anhalt-germany/svideo-79064962)
+
+[https://www.npr.org/2026/09/06/nx-s1-5955677/german-afd-far-right](https://www.npr.org/2026/09/06/nx-s1-5955677/german-afd-far-right)
+
+[https://www.reuters.com/world/europe/far-right-afd-courts-conservative-support-after-historic-german-state-election-2026-09-07/](https://www.reuters.com/world/europe/far-right-afd-courts-conservative-support-after-historic-german-state-election-2026-09-07/)
+
+[https://www.axios.com/2026/09/06/afd-saxony-anhalt-germany-far-right-firewall](https://www.axios.com/2026/09/06/afd-saxony-anhalt-germany-far-right-firewall)
+
+[https://www.timesofisrael.com/german-far-right-afd-partys-projected-win-puts-jews-between-the-left-and-a-hard-place/](https://www.timesofisrael.com/german-far-right-afd-partys-projected-win-puts-jews-between-the-left-and-a-hard-place/)
+
+MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951](https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951)

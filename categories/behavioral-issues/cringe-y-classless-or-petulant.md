@@ -938,3 +938,11 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch](https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch)
 
 [https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/](https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/)
+
+2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
+
+[https://www.youtube.com/watch?v=3D7ByMVGDxk&list=WL&index=3&t=40s](https://www.youtube.com/watch?v=3D7ByMVGDxk&list=WL&index=3&t=40s)
+
+[https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747](https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747)
+
+[https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/](https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/)

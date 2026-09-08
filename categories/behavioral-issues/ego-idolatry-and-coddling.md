@@ -444,3 +444,19 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://fortune.com/2026/09/02/trump-one-dollar-coin-us-mint/](https://fortune.com/2026/09/02/trump-one-dollar-coin-us-mint/)
 
 [https://www.pbs.org/newshour/politics/heads-or-tails-1-coin-with-trumps-face-and-gold-finish-go-on-sale](https://www.pbs.org/newshour/politics/heads-or-tails-1-coin-with-trumps-face-and-gold-finish-go-on-sale)
+
+2026-09-03 MapQuest rejected Trumps executive order to change the name of one of the Great Lakes to Lake America. Afterwards they received the number 1 spot in app store downloads. 
+
+[https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8](https://www.youtube.com/watch?v=BE5GwPE9WmI&list=WL&index=8)
+
+[https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/](https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/)
+
+[https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/](https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/)
+
+2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
+
+[https://www.youtube.com/watch?v=3D7ByMVGDxk&list=WL&index=3&t=40s](https://www.youtube.com/watch?v=3D7ByMVGDxk&list=WL&index=3&t=40s)
+
+[https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747](https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747)
+
+[https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/](https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/)
