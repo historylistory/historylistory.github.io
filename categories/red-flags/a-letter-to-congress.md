@@ -450,3 +450,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
 
 2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 

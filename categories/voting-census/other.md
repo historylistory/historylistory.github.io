@@ -251,6 +251,18 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 ### 2026 September
 
+2026-09-05 MAGA Inc. released its first political contributions to Del Rey Media, $5M for pro-Paxton campaign ads and another $5M against Talarico. Keep in mind, Paxton has been charged with felony securities fraud and released a confessed child rapist. 
+
+[https://www.houstonpublicmedia.org/articles/news/2015/08/03/121253/paxton-surrenders-in-securities-fraud-indictment/](https://www.houstonpublicmedia.org/articles/news/2015/08/03/121253/paxton-surrenders-in-securities-fraud-indictment/)
+
+[https://www.texastribune.org/2024/03/26/ken-paxton-plea-deal-securities-fraud-felony/](https://www.texastribune.org/2024/03/26/ken-paxton-plea-deal-securities-fraud-felony/)
+
+[https://www.snopes.com/fact-check/ken-paxton-child-sex-abuse-plea/](https://www.snopes.com/fact-check/ken-paxton-child-sex-abuse-plea/)
+
+[https://www.texastribune.org/2026/05/19/ken-paxton-waco-plea-deal-child-sex-abuse-texas-attorney-general/](https://www.texastribune.org/2026/05/19/ken-paxton-waco-plea-deal-child-sex-abuse-texas-attorney-general/)
+
+
+
 2026-09-06 Republicans secured an area of Dallas for the first RNC midterm convention ahead of November. 
 
 [https://www.youtube.com/watch?v=FkpsqPiQhdM&list=WL&index=1](https://www.youtube.com/watch?v=FkpsqPiQhdM&list=WL&index=1)
@@ -258,4 +270,11 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 [https://fortworthreport.org/2026/09/04/the-2026-republican-midterm-convention-will-be-hosted-in-north-texas-why-dallas-and-not-fort-worth/](https://fortworthreport.org/2026/09/04/the-2026-republican-midterm-convention-will-be-hosted-in-north-texas-why-dallas-and-not-fort-worth/)
 
 [https://www.nbcdfw.com/news/local/what-to-know-security-street-closures-rnc-midterm-convention-dallas/4072543/](https://www.nbcdfw.com/news/local/what-to-know-security-street-closures-rnc-midterm-convention-dallas/4072543/)
+
+2026-09-08 Talarico raised $68M to Paxton’s $9M. Meanwhile, Texas plans to close polling places. 
+
+[https://www.wsj.com/politics/policy/talarico-is-out-fundraising-paxton-and-flooding-the-airwaves-in-texas-senate-race-ec9277c9](https://www.wsj.com/politics/policy/talarico-is-out-fundraising-paxton-and-flooding-the-airwaves-in-texas-senate-race-ec9277c9)
+
+[https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/](https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/)
+
 

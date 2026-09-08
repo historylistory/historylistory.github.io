@@ -538,4 +538,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-09-03 Missouri Supreme Court ruled that the GOP-drawn map to gerrymander votes will not be used in November’s mid-term elections.
 
+2026-09-05 MAGA Inc. released its first political contributions to Del Rey Media, $5M for pro-Paxton campaign ads and another $5M against Talarico. Keep in mind, Paxton has been charged with felony securities fraud and released a confessed child rapist. 
+
 2026-09-06 Republicans secured an area of Dallas for the first RNC midterm convention ahead of November. 
+
+2026-09-08 Talarico raised $68M to Paxton’s $9M. Meanwhile, Texas plans to close polling places. 

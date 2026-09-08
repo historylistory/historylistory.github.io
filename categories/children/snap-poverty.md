@@ -135,3 +135,15 @@ GOOD VIDEO CLIP [https://www.youtube.com/watch?v=yZkwQnFYw-Q&list=WL&index=3](ht
 ARTICLE FROM 2014 [https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/](https://www.pbs.org/video/njtoday-booker-disagrees-passage-farm-bill/)
 
 [https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text](https://www.booker.senate.gov/news/press/booker-statement-on-republican-farm-bill-text)
+
+### 2026 September
+
+2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
+
+FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-programs-that-help-ordinary-americans-and-sinks-that-money-toward-war/](https://www.americanprogress.org/article/trumps-budget-request-cuts-programs-that-help-ordinary-americans-and-sinks-that-money-toward-war/)
+
+[https://www.benzinga.com/news/politics/26/09/61650645/trump-administration-drafts-plan-to-redirect-child-care-funds-toward-married-couples-with-one-stay-at-home-parent-report](https://www.benzinga.com/news/politics/26/09/61650645/trump-administration-drafts-plan-to-redirect-child-care-funds-toward-married-couples-with-one-stay-at-home-parent-report)
+
+[https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/](https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/)
+
+[https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)

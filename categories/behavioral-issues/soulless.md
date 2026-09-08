@@ -1188,3 +1188,18 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=1
 
 [https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza](https://www.theguardian.com/world/2026/sep/03/israel-far-right-minister-itamar-ben-gvir-plan-removal-palestinians-gaza)
 
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
+[https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/](https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/)
+
+[https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/](https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/)
+
+[https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
+
+[https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+[https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
+
+HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)

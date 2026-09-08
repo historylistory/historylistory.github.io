@@ -188,6 +188,16 @@ permalink: /categories/climate-change/resources/
 
 ### 2026 September
 
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
+[https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/](https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/)
+
+[https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/](https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/)
+
+[https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
+
+[https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)
+
 2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
 
 [https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)

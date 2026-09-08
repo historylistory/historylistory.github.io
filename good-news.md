@@ -477,4 +477,8 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 
 [https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail](https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail)
 
+2026-09-08 Talarico raised $68M to Paxton’s $9M. Meanwhile, Texas plans to close polling places. 
 
+[https://www.wsj.com/politics/policy/talarico-is-out-fundraising-paxton-and-flooding-the-airwaves-in-texas-senate-race-ec9277c9](https://www.wsj.com/politics/policy/talarico-is-out-fundraising-paxton-and-flooding-the-airwaves-in-texas-senate-race-ec9277c9)
+
+[https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/](https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/)

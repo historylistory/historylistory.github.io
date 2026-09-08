@@ -101,3 +101,9 @@ THE VIDEO [https://www.youtube.com/watch?v=Nl8b8JhkV_w&list=WL&index=2](https://
 [https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/](https://www.firstpost.com/videos/general-news-videos/israels-ben-gvir-shows-video-palestinians-put-in-ai-concentration-camp-firstpost-america--vd2115118/amp/)
 
 TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s](https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=10s)
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+[https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
+
+HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)

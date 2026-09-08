@@ -504,4 +504,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-09-02 The UN warned nations will fail to limit global heating to 1.5 degrees Celsius above pre-industrial levels. A report by the UN Environment Programme found that even under the most optimistic scenario, global temperatures are set to rise by at least 1.8. 
 
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
 2026-09-07 Hurricane Lowell pummeled Hawaii.
+
+2026-09-08 Sweeping US cuts to worldwide early warning systems allegedly impacted monitoring of the glacier collapse which killed thousands in Nepal. 

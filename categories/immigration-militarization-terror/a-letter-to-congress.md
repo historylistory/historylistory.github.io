@@ -947,3 +947,5 @@ Next
 2026-09-04 ICE released 76-year-old green card holder Loreto Javar who has stage-4 cancer. He was detained for over 2 months. 
 
 2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 

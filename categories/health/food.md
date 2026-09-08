@@ -318,4 +318,16 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s](https://www.youtube.com/watch?v=a-wIz4s2Xs0&list=WL&index=7&t=64s)
 
 [https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/](https://www.alreporter.com/2026/08/27/sparks-urges-tougher-testing-of-imported-beef/)
- 
+
+
+### 2026 September
+
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
+[https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/](https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/)
+
+[https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/](https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/)
+
+[https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
+
+[https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)

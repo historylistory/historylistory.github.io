@@ -526,3 +526,12 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 
 [https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park](https://www.democracynow.org/2026/9/1/headlines/federal_judge_extends_order_temporarily_pausing_border_wall_construction_at_big_bend_national_park)
 
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
+[https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/](https://www.usatoday.com/story/news/nation/2026/09/07/court-constitution-right-clean-water/91649488007/)
+
+[https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/](https://www.usatoday.com/videos/news/2026/09/08/u-s-constitution-denies-guarantee-to-clean-drinking-water/91654913007/)
+
+[https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
+
+[https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)

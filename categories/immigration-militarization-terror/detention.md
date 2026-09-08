@@ -563,3 +563,9 @@ VIDEO [https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested
 2026-09-04 ICE released 76-year-old green card holder Loreto Javar who has stage-4 cancer. He was detained for over 2 months. 
 
 [https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail](https://www.democracynow.org/2026/9/4/headlines/76_year_old_green_card_holder_with_cancer_freed_after_two_months_in_ice_jail)
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+[https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
+
+HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)

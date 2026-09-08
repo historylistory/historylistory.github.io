@@ -447,3 +447,7 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
 
 2026-08-20 Trump appointed anti-abortionist Dr. Heidi Overton to the FDA. 
+
+## 2026 September
+
+2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 

@@ -714,6 +714,10 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-09-04 Israel’s National Security Minister Ben-Gvir presented plans to remove all Palestinians from Gaza. 
 
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
 2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
 
 2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 

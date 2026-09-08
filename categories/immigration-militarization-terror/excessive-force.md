@@ -475,3 +475,10 @@ PAY WALL [https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilt
 [https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/](https://www.cbsnews.com/news/ice-officer-charged-doj-christian-castro-minnesota/)
 
 [https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/](https://www.cbsnews.com/minnesota/news/ice-agent-christian-castro-minneapolis-shooting-unsealed-indictment/)
+
+2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+[https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
+
+HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
+

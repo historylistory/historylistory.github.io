@@ -698,3 +698,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
  
 2026-09-01 The Ebola death toll in the Democratic Republic of the Congo reached 3000. 
+
+2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
+
+2026-09-08 Clorox Puerto Rico recalled 6 million bottles of scented multi-purpose cleaners due to bacterial contamination.

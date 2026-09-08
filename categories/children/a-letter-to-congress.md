@@ -385,3 +385,6 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 ## 2026 September 
 
 2026-09-01 The US launched a wave of attacks across southern Iran including a civilian home where a wedding was in progress. The death toll from the US strike on the wedding reached 5, including a 6-year-old boy. 
+
+2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
+

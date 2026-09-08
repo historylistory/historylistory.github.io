@@ -69,3 +69,19 @@ ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-do
 [https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734](https://news.sky.com/video/us-launches-operation-economic-outcast-against-iran-13576734)
 
 [https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers](https://www.euronews.com/2026/08/24/us-launches-operation-economic-outcast-as-washington-targets-irans-enablers)
+
+### 2026 September
+
+2026-09-08 Sweeping US cuts to worldwide early warning systems allegedly impacted monitoring of the glacier collapse which killed thousands in Nepal. 
+
+[https://www.americanprogress.org/article/how-trumps-cuts-to-fema-and-nws-are-leaving-communities-defenseless-against-extreme-weather-disasters/](https://www.americanprogress.org/article/how-trumps-cuts-to-fema-and-nws-are-leaving-communities-defenseless-against-extreme-weather-disasters/)
+
+[https://www.cfr.org/articles/cuts-early-warning-systems-are-leaving-us-unprepared-summer-floods](https://www.cfr.org/articles/cuts-early-warning-systems-are-leaving-us-unprepared-summer-floods)
+
+[https://www.trees-dla.ac.uk/projects/digital-twins-disaster-early-warning-systems](https://www.trees-dla.ac.uk/projects/digital-twins-disaster-early-warning-systems)
+
+[https://www.preventionweb.net/news/cuts-noaa-increase-risk-deadly-weather-tragedies](https://www.preventionweb.net/news/cuts-noaa-increase-risk-deadly-weather-tragedies)
+
+[https://www.nature.com/articles/d41586-026-02716-w](https://www.nature.com/articles/d41586-026-02716-w)
+
+[https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump](https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump)

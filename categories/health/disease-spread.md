@@ -188,3 +188,12 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring](https://www.cidrap.umn.edu/ebola/ebola-kills-3000-dr-congo-control-efforts-aren-t-measuring)
 
 [https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/](https://www.reuters.com/business/healthcare-pharmaceuticals/congos-ebola-outbreak-kills-more-than-3000-government-figures-show-2026-09-02/)
+
+2026-09-08 Clorox Puerto Rico recalled 6 million bottles of scented multi-purpose cleaners due to bacterial contamination.
+
+[https://www.yahoo.com/news/us/articles/6-3m-cleaning-products-sold-162334545.html](https://www.yahoo.com/news/us/articles/6-3m-cleaning-products-sold-162334545.html)
+
+[https://www.medicaldaily.com/clorox-mistolin-lestoil-recall-pseudomonas-puerto-rico-478212](https://www.medicaldaily.com/clorox-mistolin-lestoil-recall-pseudomonas-puerto-rico-478212)
+
+[https://www.cloroxpro.com/news/new-product-safety-recall/](https://www.cloroxpro.com/news/new-product-safety-recall/)
+
