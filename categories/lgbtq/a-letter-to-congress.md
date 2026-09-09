@@ -276,3 +276,7 @@ The following sections outline my concerns in greater detail. Some of the inform
 ## 2026 August
 
 2026-08-12 Caitlin Clark spoke out against a recent influx of racist, misogynistic, transphobic and abusive online hate speech directed at the WNBA.
+
+## 2026 September
+
+2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 

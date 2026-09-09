@@ -109,3 +109,22 @@ permalink: /categories/foreign-affairs-isolation/aaa-global-security/
 [https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks](https://www.mprnews.org/story/2026/07/31/walz-rejects-trumps-unfounded-claims-minnesota-behind-water-system-cyberattacks)
 
 SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161](https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-iran-01021161)
+
+### 2026 September
+
+2026-09-06 US Energy Secretary Chris Wright admitted during an interview there is no nuclear deal between the US and Iran. 
+
+[https://abcnews.com/Politics/energy-secretary-nuclear-agreement-iran/story?id=136237933](https://abcnews.com/Politics/energy-secretary-nuclear-agreement-iran/story?id=136237933)
+
+[https://www.cnbc.com/2026/09/06/iran-us-response-oil-tanker-strikes.html](https://www.cnbc.com/2026/09/06/iran-us-response-oil-tanker-strikes.html)
+
+
+2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 
+
+[https://www.democracynow.org/2026/9/8/headlines/us_govt_investigators_administer_polygraph_exams_to_50_people_on_the_militarys_joint_staff](https://www.democracynow.org/2026/9/8/headlines/us_govt_investigators_administer_polygraph_exams_to_50_people_on_the_militarys_joint_staff)
+
+[https://www.aljazeera.com/news/2026/9/5/why-has-the-trump-administration-ordered-staff-to-take-polygraph-tests](https://www.aljazeera.com/news/2026/9/5/why-has-the-trump-administration-ordered-staff-to-take-polygraph-tests)
+
+[https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/](https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/)
+
+PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html](https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html)

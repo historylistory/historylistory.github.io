@@ -736,3 +736,11 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 [https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees](https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees)
 
+2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
+
+[https://www.nbcnews.com/news/us-news/man-accused-midair-racist-outburst-loses-job-duct-tape-flight-newark-rcna596673](https://www.nbcnews.com/news/us-news/man-accused-midair-racist-outburst-loses-job-duct-tape-flight-newark-rcna596673)
+
+[https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape](https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape)
+
+[https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2](https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2)
+

@@ -277,3 +277,19 @@ GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-o
 [https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump](https://www.cnn.com/2026/08/20/politics/navy-weighs-renaming-carrier-black-war-hero-to-trump)
 
 [https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667](https://www.nbcnews.com/politics/trump-administration/navy-discusses-renaming-aircraft-carrier-trump-black-uss-doris-miller-rcna593667)
+
+### 2026 September
+
+2026-09-04 Representatives responded after a WSJ report claimed Senator John Fettrerman “shows little interest in the job”. In June he cancelled a meeting with 3 paralyzed veterans saying he "didn't feel well", then showed up an hour later to interview with Fox News about Israel. 
+
+[https://www.youtube.com/watch?v=0vUaCyJsPUs&list=WL&index=2](https://www.youtube.com/watch?v=0vUaCyJsPUs&list=WL&index=2)
+
+[https://www.youtube.com/shorts/0vUaCyJsPUs](https://www.youtube.com/shorts/0vUaCyJsPUs)
+
+[https://www.spotlightpa.org/news/2026/09/fetterman-wsj-investigation-democrats-react-federal-government/](https://www.spotlightpa.org/news/2026/09/fetterman-wsj-investigation-democrats-react-federal-government/)
+
+[https://www.wsj.com/politics/policy/john-fetterman-little-interest-senator-be74e7a3](https://www.wsj.com/politics/policy/john-fetterman-little-interest-senator-be74e7a3)
+
+[https://www.usatoday.com/story/news/politics/2026/09/06/john-fetterman-senate-wall-street-journal/91642202007/](https://www.usatoday.com/story/news/politics/2026/09/06/john-fetterman-senate-wall-street-journal/91642202007/)
+
+[https://newrepublic.com/post/215127/john-fetterman-paralyzed-veterans-sick-children-fox-news-israel](https://newrepublic.com/post/215127/john-fetterman-paralyzed-veterans-sick-children-fox-news-israel)

@@ -242,5 +242,6 @@ Please put public safety ahead of privatization, retaliation, and political thea
 
 2026-09-01 Sean Duffy praised EPA Lee Zeldin for eliminating an Obama-era start-stop feature on automobiles. The purpose of this feature was to lower emissions and save gas when the vehicle is not moving. 
 
+2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
 
 2026-09-06 Five people were injured and 5 more were killed after an Amazon cargo plane overturned the Miami runway. 

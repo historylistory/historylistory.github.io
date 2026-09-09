@@ -15,6 +15,11 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 
 ### 2023
 
+2023-01-01 The more you know: You can’t enroll in a Medicare supplement if you’re already on SSDI. If you enroll in a Marketplace plan before getting Medicare, you lose certain benefits from the Marketplace plan. 
+
+[https://www.healthcare.gov/people-with-disabilities/ssdi-and-medicare/](https://www.healthcare.gov/people-with-disabilities/ssdi-and-medicare/)
+
+
 2023-02-08 During a State of the Union address, Biden was booed and heckled for predicting that Republicans would make Medicare and Medicaid cuts.
 
 {% include youtubePlayer.html id="1A9EZh2aVpw" %}

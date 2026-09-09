@@ -574,4 +574,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-09-04 When asked about the war in Iran, JD Vance stated, “Well again, I don’t – I wouldn’t call it a war. Right now there is no active shooting. I recognize there is – there have been places where this has flared up, uh…major combat operations… again, major combat operations lasted for about six weeks…”
 
-2026-09-04 Representatives responded after a WSJ report claimed Senator John Fettrerman “shows little interest in the job”. 
+2026-09-04 Representatives responded after a WSJ report claimed Senator John Fettrerman “shows little interest in the job”. In June he cancelled a meeting with 3 paralyzed veterans saying he "didn't feel well", then showed up an hour later to interview with Fox News about Israel. 
+
+2026-09-04 Hegseth had not held any Pentagon briefings since May 5th. 
+
+
+2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 

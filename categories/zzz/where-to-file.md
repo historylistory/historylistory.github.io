@@ -68,5 +68,12 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 
 [https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0](https://www.justice.gov/usao-wdmo/pr/missouri-state-congressional-candidate-charged-conspiring-distribute-cocaine-frame-0)
 
+2026-09-08 Mamdani released 170,000 newly uncovered documents of the September 11th attacks showed air quality contamination reports were hidden and only recently found last year. Juliani attacked Mamdani on Newsmax, claiming Mamdani was part of an alleged Muslim plot aimed at taking over America. 
+
+[https://www.cnn.com/2026/09/09/us/9-11-documents-misled-air-what-we-know](https://www.cnn.com/2026/09/09/us/9-11-documents-misled-air-what-we-know)
+
+[https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5](https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4](https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4)
 
 

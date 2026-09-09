@@ -475,3 +475,8 @@ h[ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawai
 [https://www.nature.com/articles/d41586-026-02716-w](https://www.nature.com/articles/d41586-026-02716-w)
 
 [https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump](https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump)
+
+2026-09-09 Residents called for an emergency declaration after Hurricane Marie. 
+
+[https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1](https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1)
+

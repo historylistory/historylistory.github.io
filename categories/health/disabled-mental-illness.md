@@ -6,6 +6,13 @@ subcategory_slug: disabled-mental-illness
 permalink: /categories/health/disabled-mental-illness/
 ---
 
+### 2023 
+
+2023-01-01 The more you know: You can’t enroll in a Medicare supplement if you’re already on SSDI. If you enroll in a Marketplace plan before getting Medicare, you lose certain benefits from the Marketplace plan. 
+
+[https://www.healthcare.gov/people-with-disabilities/ssdi-and-medicare/](https://www.healthcare.gov/people-with-disabilities/ssdi-and-medicare/)
+
+
 ### 2024
 
 2024-08-22 After Tim Walz's son Gus became emotional during the Democratic National Convention, several conservative commentators were criticized for mocking him despite his documented mental health conditions

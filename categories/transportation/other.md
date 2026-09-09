@@ -159,3 +159,12 @@ PAYWALL [https://www.bloomberg.com/news/articles/2026-04-20/spirit-floats-us-gov
 From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/](https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-impact/)
 
 [https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/](https://thehill.com/homenews/administration/6062792-sean-duffy-lee-zeldin-start-stop-features-cars-emissions-rules/)
+
+2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
+
+[https://www.nbcnews.com/news/us-news/man-accused-midair-racist-outburst-loses-job-duct-tape-flight-newark-rcna596673](https://www.nbcnews.com/news/us-news/man-accused-midair-racist-outburst-loses-job-duct-tape-flight-newark-rcna596673)
+
+[https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape](https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape)
+
+[https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2](https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2)
+

@@ -802,4 +802,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-09-01 Global tech giant Cisco was accused of Islamophobia and violating civil rights of Middle Eastern and Muslim workers. 
 
+2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
+
 2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 
