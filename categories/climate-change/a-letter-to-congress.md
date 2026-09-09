@@ -509,3 +509,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-07 Hurricane Lowell pummeled Hawaii.
 
 2026-09-08 Sweeping US cuts to worldwide early warning systems allegedly impacted monitoring of the glacier collapse which killed thousands in Nepal. 
+
+2026-09-09 Residents called for an emergency declaration after Hurricane Marie. 
