@@ -543,3 +543,9 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-06 Republicans secured an area of Dallas for the first RNC midterm convention ahead of November. 
 
 2026-09-08 Talarico raised $68M to Paxton’s $9M. Meanwhile, Texas plans to close polling places. 
+
+
+2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
+
+
+2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 

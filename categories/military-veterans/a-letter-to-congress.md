@@ -449,3 +449,6 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 
 2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 
+
+
+2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 

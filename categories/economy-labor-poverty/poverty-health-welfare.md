@@ -775,3 +775,12 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/](https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/)
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
+
+
+2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
+
+[https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926](https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926)
+
+[https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
+
+[https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)

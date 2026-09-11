@@ -2200,3 +2200,11 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/](https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/)
 
 PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html](https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html)
+
+
+2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 
+
+[https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/](https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/)
+
+SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
+

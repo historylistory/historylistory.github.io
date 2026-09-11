@@ -353,3 +353,12 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://time.com/article/2026/09/03/vance-iran-war-press-briefing/](https://time.com/article/2026/09/03/vance-iran-war-press-briefing/)
 
 [https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/](https://thehill.com/homenews/administration/6069975-vance-refuses-iran-war-label/)
+
+
+2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
+
+[https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims](https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims)
+
+[https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
+
+SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)

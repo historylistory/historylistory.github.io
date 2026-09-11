@@ -493,3 +493,12 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 
 [https://www.thetimes.com/business/economics/article/many-at-fed-wanted-to-raise-rates-vhbzhbn78](https://www.thetimes.com/business/economics/article/many-at-fed-wanted-to-raise-rates-vhbzhbn78)
 
+### 2026 September
+
+2026-09-10 Bessent announced plans to triple bond buybacks. 
+
+[https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury](https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury)
+
+[https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury](https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury)
+
+[https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html](https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html)

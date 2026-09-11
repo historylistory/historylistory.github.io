@@ -272,3 +272,12 @@ FROM JAN 2026: [https://www.cnn.com/2026/01/23/business/donald-trump-jr-conflict
 [https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/](https://thehill.com/business/6005468-capital-one-trump-accounts-debanking-money-laundering/)
 
 [https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering](https://www.cnn.com/2026/08/03/business/capital-one-trump-org-money-laundering)
+
+### 2026 September
+
+2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
+
+[https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html](https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html)
+
+[https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926](https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926)
+

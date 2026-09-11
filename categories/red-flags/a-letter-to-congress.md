@@ -452,3 +452,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-07 Germany’s far-right AFD candidate Ulrich Siegmund won in Saxony-Anhalt. He was du dubbed “Germany’s most dangerous man”. This puts MAGA-aligned AFD within reach of power since Nazi Germany. One of their more controversial policies is a remigration of foreigners. 
 
 2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
+
+
+2026-09-09 The US carried out another boat strike on Venezuela. 

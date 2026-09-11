@@ -323,3 +323,10 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
 
 [https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
+
+2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
+
+[https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html](https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html)
+
+[https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926](https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926)
+

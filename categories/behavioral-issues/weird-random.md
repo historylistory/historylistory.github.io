@@ -437,3 +437,12 @@ SUB WALL [https://www.washingtonpost.com/investigations/2026/06/21/tulsi-gabbard
 [https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch](https://www.foxnews.com/politics/white-house-classic-arcade-games-maga-makeover-online-launch)
 
 [https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/](https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/)
+
+
+2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
+
+[https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims](https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims)
+
+[https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
+
+SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)

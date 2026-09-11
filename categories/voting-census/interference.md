@@ -455,4 +455,21 @@ Lawmaker response September 6 2026 [https://www.youtube.com/watch?v=7r17VPQI1Gg&
 [https://www.fox4news.com/news/community-reacts-tarrant-countys-reduction-polling-sites](https://www.fox4news.com/news/community-reacts-tarrant-countys-reduction-polling-sites)
 
 
+2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
+
+[https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926](https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926)
+
+[https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
+
+[https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
+
+
+2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 
+
+[https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/](https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/)
+
+SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
+
+
+
 

@@ -85,3 +85,13 @@ permalink: /categories/education/teachers/
 [https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
 
 FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)
+
+### 2026 September
+
+2026-09-08 US reading scores fell 14 points since 2022. 
+
+[https://www.youtube.com/watch?v=IVhWcC18eio&list=WL&index=4](https://www.youtube.com/watch?v=IVhWcC18eio&list=WL&index=4)
+
+[https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199](https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199)
+
+[https://wng.org/sift/u-s-reading-scores-1788968351](https://wng.org/sift/u-s-reading-scores-1788968351)

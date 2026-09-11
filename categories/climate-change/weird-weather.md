@@ -476,6 +476,15 @@ h[ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawai
 
 [https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump](https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump)
 
+
+2026-09-08 Torrential rain in Japan caused manholes to erupt. 
+
+[https://www.youtube.com/watch?v=tVB8HzAD7dY&list=WL&index=5](https://www.youtube.com/watch?v=tVB8HzAD7dY&list=WL&index=5)
+
+[https://weather.com/2026/09/09/news/weather/video/japan-flooding-record-rainfall-manhole](https://weather.com/2026/09/09/news/weather/video/japan-flooding-record-rainfall-manhole)
+
+
+
 2026-09-09 Residents called for an emergency declaration after Hurricane Marie. 
 
 [https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1](https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1)

@@ -204,3 +204,12 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 [https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
 
 [https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)
+
+2026-09-08 US reading scores fell 14 points since 2022. 
+
+[https://www.youtube.com/watch?v=IVhWcC18eio&list=WL&index=4](https://www.youtube.com/watch?v=IVhWcC18eio&list=WL&index=4)
+
+[https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199](https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199)
+
+[https://wng.org/sift/u-s-reading-scores-1788968351](https://wng.org/sift/u-s-reading-scores-1788968351)
+

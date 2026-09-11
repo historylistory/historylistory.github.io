@@ -406,3 +406,12 @@ FROM APRIL [https://www.theguardian.com/global-development/2026/apr/21/ecuador-u
 [https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442](https://www.politico.com/news/2026/08/28/trump-says-us-has-a-deal-to-take-huge-stake-in-venezuelas-oil-reserves-01055442)
 
 [https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e](https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e)
+
+### 2026 September
+
+2026-09-09 The US carried out another boat strike on Venezuela. 
+
+[https://www.cbsnews.com/news/us-destroys-alleged-drug-boat-rubio-defends-deadly-strikes/](https://www.cbsnews.com/news/us-destroys-alleged-drug-boat-rubio-defends-deadly-strikes/)
+
+[https://news.usni.org/2026/09/10/3-killed-in-strike-on-alleged-drug-boat](https://news.usni.org/2026/09/10/3-killed-in-strike-on-alleged-drug-boat)
+

@@ -227,3 +227,16 @@ PAY WALL [https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-s
 [https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237](https://www.nbcnews.com/business/economy/trump-order-quantum-computer-rcna351237)
 
 [https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/](https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/)
+
+### 2026 September
+
+2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
+
+[https://www.youtube.com/watch?v=ZhA-N7LYwbk&list=WL&index=7&t=119s](https://www.youtube.com/watch?v=ZhA-N7LYwbk&list=WL&index=7&t=119s)
+
+[https://www.youtube.com/watch?v=ARq3P2LV508&list=WL&index=6](https://www.youtube.com/watch?v=ARq3P2LV508&list=WL&index=6)
+
+[https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/](https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/)
+
+[https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
+

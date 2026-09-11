@@ -161,3 +161,13 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post](https://www.theguardian.com/us-news/2026/sep/02/pete-hegseth-body-shaming-post)
 
 [https://www.bbc.com/news/articles/clyk32nr1emo](https://www.bbc.com/news/articles/clyk32nr1emo)
+
+2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
+
+[https://www.youtube.com/watch?v=ZhA-N7LYwbk&list=WL&index=7&t=119s](https://www.youtube.com/watch?v=ZhA-N7LYwbk&list=WL&index=7&t=119s)
+
+[https://www.youtube.com/watch?v=ARq3P2LV508&list=WL&index=6](https://www.youtube.com/watch?v=ARq3P2LV508&list=WL&index=6)
+
+[https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/](https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/)
+
+[https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)

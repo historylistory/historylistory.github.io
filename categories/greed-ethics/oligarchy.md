@@ -71,3 +71,11 @@ https://www.oxfamamerica.org/explore/issues/economic-justice/is-the-us-witnessin
 
 [https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)
 
+### 2026 September
+
+2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
+
+[https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html](https://finance.yahoo.com/energy/articles/trump-oil-gas-holdings-gained-115846187.html)
+
+[https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926](https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926)
+

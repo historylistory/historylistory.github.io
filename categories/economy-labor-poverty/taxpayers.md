@@ -719,3 +719,13 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/](https://www.newsnationnow.com/us-news/military/ice-plans-robot-dogs-use/)
 
 
+### 2026 September
+
+
+2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
+
+[https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926](https://www.newsweek.com/donald-trump-dividend-checks-who-qualifies-12423926)
+
+[https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
+
+[https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)

@@ -1197,3 +1197,12 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
 
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
+
+2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
+
+2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
+
+
+2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
+
+2026-09-10 Bessent announced plans to triple bond buybacks. 

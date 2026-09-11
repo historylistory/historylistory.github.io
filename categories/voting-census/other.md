@@ -277,4 +277,9 @@ PAY WALL [https://www.nytimes.com/2025/09/03/nyregion/trump-adams-sliwa-quit-nyc
 
 [https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/](https://www.nbcdfw.com/news/local/republicans-paxton-talarico-race/4072587/)
 
+2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 
+
+[https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/](https://www.cbsnews.com/live-updates/iran-war-us-tankers-attacks-strikes-strait-of-hormuz-oil-price/)
+
+SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
 

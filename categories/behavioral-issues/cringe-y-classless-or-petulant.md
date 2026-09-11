@@ -946,3 +946,21 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747](https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747)
 
 [https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/](https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/)
+
+2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
+
+[https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims](https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims)
+
+[https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
+
+SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)
+
+
+
+2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
+
+[https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims](https://www.cnn.com/2026/09/08/politics/fact-check-trump-9-11-claims)
+
+[https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
+
+SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)

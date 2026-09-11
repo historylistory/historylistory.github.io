@@ -155,3 +155,14 @@ permalink: /categories/economy-labor-poverty/social-security-retirement/
 [https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html](https://www.yahoo.com/news/us/article/most-gen-z-investors-have-used-long-term-investment-cash-for-sports-betting-according-to-a-new-poll-165715287.html)
 
 [https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting](https://www.audacy.com/krld/news/local/survey-more-than-half-of-gen-z-investors-put-money-into-sports-betting)
+
+### 2026 September
+
+2026-09-10 Bessent announced plans to triple bond buybacks. 
+
+[https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury](https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury)
+
+[https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury](https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury)
+
+[https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html](https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html)
+
