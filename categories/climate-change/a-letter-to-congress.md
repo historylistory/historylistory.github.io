@@ -513,3 +513,6 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-08 Torrential rain in Japan caused manholes to erupt. 
 
 2026-09-09 Residents called for an emergency declaration after Hurricane Marie. 
+
+
+2026-09-11 A new climate study uncovered climate feedback loops including melting permafrost, warmer wetlands and lakes, and raging wildfires that will add to an overheating planet. 

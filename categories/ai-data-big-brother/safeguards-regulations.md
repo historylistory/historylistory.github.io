@@ -191,3 +191,13 @@ TIMESTAMP 5:00 [https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1](htt
 [https://www.axios.com/2026/07/27/anthropic-claude-public-chats-google-search](https://www.axios.com/2026/07/27/anthropic-claude-public-chats-google-search)
 
 [https://www.youtube.com/watch?v=EUPXgeRVP9g&list=WL&index=1&t=69s](https://www.youtube.com/watch?v=EUPXgeRVP9g&list=WL&index=1&t=69s)
+
+### 2026 September
+
+2026-09-09 A former AI researcher reported that AI has more than a 10% chance of “killing all humans”. 
+
+[https://www.cnbc.com/2026/09/09/anthropic-researcher-quits-ai-safety.html](https://www.cnbc.com/2026/09/09/anthropic-researcher-quits-ai-safety.html)
+
+[https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development](https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development)
+
+[https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/](https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/)

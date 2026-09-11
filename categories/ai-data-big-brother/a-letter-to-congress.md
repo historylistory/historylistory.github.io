@@ -480,6 +480,9 @@ Technology should serve the public—not become a tool for political retaliation
 
 
 
+## 2026 September
+
+2026-09-09 A former AI researcher reported that AI has more than a 10% chance of “killing all humans”. 
 
 
 

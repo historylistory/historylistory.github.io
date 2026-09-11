@@ -72,3 +72,11 @@ BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/wat
 [https://www.theguardian.com/technology/2026/aug/31/cisco-civil-rights-palestine-advocacy-violation](https://www.theguardian.com/technology/2026/aug/31/cisco-civil-rights-palestine-advocacy-violation)
 
 [https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees](https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees)
+
+2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
+
+[https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/](https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/)
+
+[https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
+
+[https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight](https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight)

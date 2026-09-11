@@ -315,3 +315,13 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 [https://responsiblestatecraft.org/israel-influence-chatgpt/](https://responsiblestatecraft.org/israel-influence-chatgpt/)
 
 [https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports](https://aiweekly.co/alerts/israel-funded-hanover-institute-feeds-ai-chatbots-synthetic-reports)
+
+### 2026 September
+
+2026-09-09 A former AI researcher reported that AI has more than a 10% chance of “killing all humans”. 
+
+[https://www.cnbc.com/2026/09/09/anthropic-researcher-quits-ai-safety.html](https://www.cnbc.com/2026/09/09/anthropic-researcher-quits-ai-safety.html)
+
+[https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development](https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development)
+
+[https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/](https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/)

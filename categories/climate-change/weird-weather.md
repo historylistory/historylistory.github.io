@@ -489,3 +489,9 @@ h[ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawai
 
 [https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1](https://www.youtube.com/watch?v=YAcvOQnTc5E&list=WL&index=1)
 
+
+2026-09-11 A new climate study uncovered climate feedback loops including melting permafrost, warmer wetlands and lakes, and raging wildfires that will add to an overheating planet. 
+
+[https://www.democracynow.org/2026/9/11/headlines/study_warns_climate_feedback_loops_could_worsen_global_heating_by_30](https://www.democracynow.org/2026/9/11/headlines/study_warns_climate_feedback_loops_could_worsen_global_heating_by_30)
+
+[https://phys.org/news/2026-09-unaccounted-climate-feedback-loops-amplify.html](https://phys.org/news/2026-09-unaccounted-climate-feedback-loops-amplify.html)

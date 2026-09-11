@@ -563,3 +563,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
 
 2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
+
+2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
