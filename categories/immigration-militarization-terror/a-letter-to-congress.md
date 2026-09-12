@@ -950,4 +950,8 @@ Next
 
 2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
 
+2026-09-07 Thousands of New Yorkers petitioned to ask Mamdani not to attend the 9/11 ceremony because he is Muslim. 
+
+2026-09-08 Mamdani released 170,000 newly uncovered documents of the September 11th attacks showed air quality contamination reports were hidden and only recently found last year. Juliani attacked Mamdani on Newsmax, claiming Mamdani was part of an alleged Muslim plot aimed at taking over America. 
+
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 

@@ -704,3 +704,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-09-04 A Trump-appointed judge ruled 10-to-5 that the Constitution does not guarantee Americans a right to clean drinking water. This was in relation to a lawsuit from Mississippi residents related to lead-contamination in their drinking water. 
 
 2026-09-08 Clorox Puerto Rico recalled 6 million bottles of scented multi-purpose cleaners due to bacterial contamination.
+
+2026-09-08 Mamdani released 170,000 newly uncovered documents of the September 11th attacks showed air quality contamination reports were hidden and only recently found last year. Juliani attacked Mamdani on Newsmax, claiming Mamdani was part of an alleged Muslim plot aimed at taking over America. 

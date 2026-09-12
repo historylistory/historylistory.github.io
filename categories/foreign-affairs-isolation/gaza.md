@@ -793,3 +793,8 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=1
 
 [https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
 
+2026-09-10 Article reads CUNY for Palestine disclosed investments in Israeli apartheid. 
+
+[https://truthout.org/articles/cuny-discloses-investments-in-israeli-apartheid-after-years-long-campaign/](https://truthout.org/articles/cuny-discloses-investments-in-israeli-apartheid-after-years-long-campaign/)
+
+FROM 2025 [https://www.nyclu.org/press-release/cuny-must-release-investment-records-to-pro-palestine-student-organizers-court-rules](https://www.nyclu.org/press-release/cuny-must-release-investment-records-to-pro-palestine-student-organizers-court-rules)

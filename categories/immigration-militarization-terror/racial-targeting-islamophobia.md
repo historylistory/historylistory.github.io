@@ -73,6 +73,24 @@ BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/wat
 
 [https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees](https://www.democracynow.org/2026/9/1/headlines/eeoc_finds_cisco_violated_civil_rights_of_middle_eastern_and_muslim_employees)
 
+2026-09-07 Thousands of New Yorkers petitioned to ask Mamdani not to attend the 9/11 ceremony because he is Muslim. 
+
+[https://abc7ny.com/post/george-pataki-rudy-giuliani-911-families-oppose-mamdanis-attendance-fridays-wtc-ceremony/19801658/](https://abc7ny.com/post/george-pataki-rudy-giuliani-911-families-oppose-mamdanis-attendance-fridays-wtc-ceremony/19801658/)
+
+[https://abcnews4.com/news/nation-world/911-victim-families-100000-other-petitioners-dont-want-mamdani-at-memorial-ceremonies](https://abcnews4.com/news/nation-world/911-victim-families-100000-other-petitioners-dont-want-mamdani-at-memorial-ceremonies)
+
+PAY WALL [https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html](https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html)
+
+
+2026-09-08 Mamdani released 170,000 newly uncovered documents of the September 11th attacks showed air quality contamination reports were hidden and only recently found last year. Juliani attacked Mamdani on Newsmax, claiming Mamdani was part of an alleged Muslim plot aimed at taking over America. 
+
+[https://www.cnn.com/2026/09/09/us/9-11-documents-misled-air-what-we-know](https://www.cnn.com/2026/09/09/us/9-11-documents-misled-air-what-we-know)
+
+[https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5](https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4](https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4)
+
+
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
 
 [https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/](https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/)

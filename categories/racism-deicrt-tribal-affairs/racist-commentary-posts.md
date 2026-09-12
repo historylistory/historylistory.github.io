@@ -744,6 +744,14 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 [https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2](https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2)
 
+2026-09-07 Thousands of New Yorkers petitioned to ask Mamdani not to attend the 9/11 ceremony because he is Muslim. 
+
+[https://abc7ny.com/post/george-pataki-rudy-giuliani-911-families-oppose-mamdanis-attendance-fridays-wtc-ceremony/19801658/](https://abc7ny.com/post/george-pataki-rudy-giuliani-911-families-oppose-mamdanis-attendance-fridays-wtc-ceremony/19801658/)
+
+[https://abcnews4.com/news/nation-world/911-victim-families-100000-other-petitioners-dont-want-mamdani-at-memorial-ceremonies](https://abcnews4.com/news/nation-world/911-victim-families-100000-other-petitioners-dont-want-mamdani-at-memorial-ceremonies)
+
+PAY WALL [https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html](https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html)
+
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
 
 [https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/](https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/)

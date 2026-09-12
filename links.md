@@ -157,18 +157,6 @@ permalink: /links/
 
 ---
 
-[GET INVOLVED/IMMIGRATION: MIRAC](https://www.miracmn.com/)
-
-[GET INVOLEVD/IMMIGRATION: FIEL Houston](https://fielhouston.org/)
-
-[GET INVOLVED/IMMIGRATION: HavenWatch](https://havenwatch.org/)
-
-[GT INVOLVED/IMMIGRATION: WOLA.org](https://www.wola.org/)
-
-[GET INVOLVED/IMMIGRATION: Immigrant Legal Resource Center](https://www.ilrc.org/)
-
----
-
 
 [GET INVOLVED/PETITION: Change.org](https://www.change.org/)
 
@@ -278,6 +266,19 @@ permalink: /links/
 
 ---
 
+[IMMIGRATION: MIRAC](https://www.miracmn.com/)
+
+[IMMIGRATION: FIEL Houston](https://fielhouston.org/)
+
+[IMMIGRATION: HavenWatch](https://havenwatch.org/)
+
+[IMMIGRATION: WOLA.org](https://www.wola.org/)
+
+[IMMIGRATION: Immigrant Legal Resource Center](https://www.ilrc.org/)
+
+[IMMIGRATION: National TPS Alliance](https://www.nationaltpsalliance.org/)
+
+---
 
 [LGBTQ: ACLU Legislation Tracker for Attacks on LGBTQ Rights](https://www.aclu.org/legislative-attacks-on-lgbtq-rights-2026)
 
