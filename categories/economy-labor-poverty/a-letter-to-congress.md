@@ -1206,3 +1206,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
 
 2026-09-10 Bessent announced plans to triple bond buybacks. 
+
+
+2026-09-12 Saudi shut down a major crude oil pipeline. 

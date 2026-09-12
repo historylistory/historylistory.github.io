@@ -1203,3 +1203,8 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=1
 [https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
 
 HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
+
+
+2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
+
+[https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)

@@ -547,5 +547,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
 
+2026-09-10 Behind closed doors JD Vance urged battleground state Republicans to nationalize midterm elections. 
+
 
 2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 

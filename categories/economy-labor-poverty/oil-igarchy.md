@@ -330,3 +330,11 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 
 [https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926](https://qz.com/trump-oil-gas-holdings-iran-war-gains-090926)
 
+
+2026-09-12 Saudi shut down a major crude oil pipeline. 
+
+[https://www.reuters.com/business/energy/saudis-shut-down-oil-pipeline-houthis-tighten-grip-red-sea-shipping-2026-09-12/](https://www.reuters.com/business/energy/saudis-shut-down-oil-pipeline-houthis-tighten-grip-red-sea-shipping-2026-09-12/)
+
+[https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html](https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html)
+
+[https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362](https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362)

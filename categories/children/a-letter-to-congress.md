@@ -388,3 +388,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
 
+
+2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 

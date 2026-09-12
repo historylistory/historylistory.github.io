@@ -248,3 +248,12 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 
 [https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c](https://apnews.com/article/saudi-arabia-turkey-pakistan-defense-agreement-58048d4a100befd4d2c18e0cbae58b7c)
 
+### 2026 September
+
+2026-09-12 Saudi shut down a major crude oil pipeline. 
+
+[https://www.reuters.com/business/energy/saudis-shut-down-oil-pipeline-houthis-tighten-grip-red-sea-shipping-2026-09-12/](https://www.reuters.com/business/energy/saudis-shut-down-oil-pipeline-houthis-tighten-grip-red-sea-shipping-2026-09-12/)
+
+[https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html](https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html)
+
+[https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362](https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362)

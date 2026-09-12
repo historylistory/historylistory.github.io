@@ -721,3 +721,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
 
 2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
+
+
+2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 

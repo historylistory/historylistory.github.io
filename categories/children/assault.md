@@ -143,3 +143,10 @@ PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/ne
 [https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210](https://www.nbcnews.com/world/united-kingdom/tate-brothers-arrested-us-face-additional-rape-charges-uk-rcna588210)
 
 [https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/](https://www.cbsnews.com/miami/news/social-media-influencers-andrew-and-tristan-tate-arrested-in-miami-uk-charges/)
+
+### 2026 September
+
+
+2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
+
+[https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)

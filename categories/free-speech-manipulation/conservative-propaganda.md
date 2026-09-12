@@ -627,3 +627,16 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 [https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
 
 [https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight](https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight)
+
+2026-09-10 The FCC threatened Jimmy Kimmel Live about interviewing Talarico, saying if ABC aired the interview they would be fined. The network had to move the interview to YouTube. 
+
+[https://www.nbcnews.com/politics/trump-administration/jimmy-kimmel-abc-tv-show-wont-air-james-talarico-interview-fcc-threats-rcna596994](https://www.nbcnews.com/politics/trump-administration/jimmy-kimmel-abc-tv-show-wont-air-james-talarico-interview-fcc-threats-rcna596994)
+
+[https://www.texastribune.org/2026/09/10/jimmy-kimmel-james-talarico-fcc-interview/](https://www.texastribune.org/2026/09/10/jimmy-kimmel-james-talarico-fcc-interview/)
+
+[https://www.cnbc.com/2026/09/10/abc-kimmel-talarico-fcc.html](https://www.cnbc.com/2026/09/10/abc-kimmel-talarico-fcc.html)
+
+[https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/](https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/)
+
+THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.com/watch?v=WLDE9LrGpNk)
+

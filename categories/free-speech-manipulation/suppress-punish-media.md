@@ -536,3 +536,17 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 [https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc](https://www.democracynow.org/2026/8/31/headlines/trump_threatens_to_report_nbcs_kristen_welker_to_the_fcc)
 
 [https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/](https://www.forbes.com/sites/zacharyfolk/2026/08/30/trump-threatens-to-report-meet-the-press-host-kristen-welker-to-fcc/)
+
+### 2026 September
+
+2026-09-10 The FCC threatened Jimmy Kimmel Live about interviewing Talarico, saying if ABC aired the interview they would be fined. The network had to move the interview to YouTube. 
+
+[https://www.nbcnews.com/politics/trump-administration/jimmy-kimmel-abc-tv-show-wont-air-james-talarico-interview-fcc-threats-rcna596994](https://www.nbcnews.com/politics/trump-administration/jimmy-kimmel-abc-tv-show-wont-air-james-talarico-interview-fcc-threats-rcna596994)
+
+[https://www.texastribune.org/2026/09/10/jimmy-kimmel-james-talarico-fcc-interview/](https://www.texastribune.org/2026/09/10/jimmy-kimmel-james-talarico-fcc-interview/)
+
+[https://www.cnbc.com/2026/09/10/abc-kimmel-talarico-fcc.html](https://www.cnbc.com/2026/09/10/abc-kimmel-talarico-fcc.html)
+
+[https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/](https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/)
+
+THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.com/watch?v=WLDE9LrGpNk)

@@ -35,3 +35,11 @@ TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](htt
 
 [https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city](https://www.middleeasteye.net/news/hundreds-protest-hindu-nationalist-paramilitary-leader-mohan-bhagwat-visit-new-york-city)
 
+### 2026 September
+
+2026-09-12 India held the annual BRICS summit in New Delhi.
+
+[https://www.aljazeera.com/news/2026/9/12/brics-meets-in-india-whats-on-the-agenda-why-it-matters](https://www.aljazeera.com/news/2026/9/12/brics-meets-in-india-whats-on-the-agenda-why-it-matters)
+
+[https://www.npr.org/2026/09/12/g-s1-143054/brics-leaders-meet-in-india](https://www.npr.org/2026/09/12/g-s1-143054/brics-leaders-meet-in-india)
+

@@ -325,3 +325,8 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 [https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development](https://www.pbs.org/newshour/science/anthropic-researchers-resignation-sends-warning-about-the-dangers-of-ai-development)
 
 [https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/](https://fortune.com/2026/09/09/anthropic-researcher-resigns-warn-ai-companies-gambling-with-lives/)
+
+2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
+
+[https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)
+
