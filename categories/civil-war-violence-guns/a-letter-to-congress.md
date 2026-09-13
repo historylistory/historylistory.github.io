@@ -691,6 +691,6 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-09-03 Christian podcaster Azariah Southworth was arrested for multiple public threats to kill Trump. 
 
-2026-09-06 An armed man charged after Democratic candidate in Ohio. 
+2026-09-06 An armed man charged after Democratic candidate Amy Acton in Ohio. 
 
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 

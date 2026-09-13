@@ -561,7 +561,7 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 
 [https://www.nbclosangeles.com/news/local/podcaster-trump-threat-arrest/3937280/](https://www.nbclosangeles.com/news/local/podcaster-trump-threat-arrest/3937280/)
 
-2026-09-06 An armed man charged after Democratic candidate in Ohio. 
+2026-09-06 An armed man charged after Democratic candidate Amy Acton in Ohio. 
 
 [https://www.pbs.org/newshour/politics/armed-man-charged-toward-democratic-candidate-for-ohio-governor-at-fair-law-enforcement-says](https://www.pbs.org/newshour/politics/armed-man-charged-toward-democratic-candidate-for-ohio-governor-at-fair-law-enforcement-says)
 
