@@ -16,6 +16,24 @@ permalink: /categories/economy-labor-poverty/dividends/
 
 {% include youtubePlayer.html id="Fb7yKvOQE_c" %}
 
+### 2025 November
+
+2025-11-10 Trump promised a $2000 tariff dividend check. 
+
+[https://www.investopedia.com/trump-promises-a-usd2-000-tariff-dividend-but-the-check-isn-t-in-the-mail-just-yet-11846786](https://www.investopedia.com/trump-promises-a-usd2-000-tariff-dividend-but-the-check-isn-t-in-the-mail-just-yet-11846786)
+
+### 2025 December
+
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
+
+[https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/](https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/)
+
+[https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html](https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html)
+
+[https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375](https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375)
+
+[https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c](https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c)
+
 
 ### 2026 April
 
@@ -44,3 +62,17 @@ permalink: /categories/economy-labor-poverty/dividends/
 [https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
+
+2026-09-10 Trump promised a $500 Obamacare rebate check. 
+
+[https://www.wsaw.com/2026/09/10/trump-promises-500-obamacare-rebate-checks-blames-joe-biden-overcharging/](https://www.wsaw.com/2026/09/10/trump-promises-500-obamacare-rebate-checks-blames-joe-biden-overcharging/)
+
+2026-09-12 Laura Ingraham asked Trump why he wouldn’t issue the $5000 now instead of pledging to wait until after the election. Trump blamed that on Democrats. After the pledge, Trump told CBS Texas he didn’t think the payments would require Congressional approval. 
+
+[https://www.yahoo.com/news/politics/articles/laura-ingraham-actually-challenged-trump-151602738.html](https://www.yahoo.com/news/politics/articles/laura-ingraham-actually-challenged-trump-151602738.html)
+
+[https://www.cbsnews.com/news/trump-5000-dividend-checks-midterms/](https://www.cbsnews.com/news/trump-5000-dividend-checks-midterms/)
+
+[https://www.cbsnews.com/texas/news/president-donald-trump-dallas-texas-republican-midterm-convention-interview/](https://www.cbsnews.com/texas/news/president-donald-trump-dallas-texas-republican-midterm-convention-interview/)
+
+[https://www.mediaite.com/media/news/foxs-laura-ingraham-confronts-trump-about-his-proposed-5k-giveaway-why-not-just-give-the-money-now/](https://www.mediaite.com/media/news/foxs-laura-ingraham-confronts-trump-about-his-proposed-5k-giveaway-why-not-just-give-the-money-now/)

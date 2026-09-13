@@ -455,5 +455,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
 
+2026-09-08 Elon Musk’s voter registration VoteSafe.org (run by AmericaPAC) intensely tracks numerous types of personal information including every link you click and every page you look at.
+
 
 2026-09-09 The US carried out another boat strike on Venezuela. 

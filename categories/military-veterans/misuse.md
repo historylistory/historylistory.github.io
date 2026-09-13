@@ -123,6 +123,18 @@ A military state to suppress people and prevent an uprising
 
 {% include youtubePlayer.html id="my2T8H20N-I" %}
 
+### 2025 December
+
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
+
+[https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/](https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/)
+
+[https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html](https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html)
+
+[https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375](https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375)
+
+[https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c](https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c)
+
 ### 2026 February
 
 2026-02-17 Kristi Noem allegedly diverted Coast Guard resources from a rescue mission to immigration enforcement.

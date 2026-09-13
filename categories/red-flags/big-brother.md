@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Surveillance
+title: Big Brother
 category_slug: red-flags
-subcategory_slug: surveillance
-permalink: /categories/foreign-affairs-isolation/surveillance/
+subcategory_slug: big-brother
+permalink: /categories/foreign-affairs-isolation/big-brother/
 ---
 
 ### 1967
@@ -451,3 +451,11 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 [https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/](https://www.bostonglobe.com/2026/08/13/nation/federal-surveillance-operation-in-minnesota-targeted-unions-groups/)
 
 PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html](https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration-protests-minnesota.html)
+
+### 2026 September
+
+
+2026-09-08 Elon Musk’s voter registration VoteSafe.org (run by AmericaPAC) intensely tracks numerous types of personal information including every link you click and every page you look at.
+
+[https://popular.info/p/the-hidden-dangers-of-musks-votesafeorg](https://popular.info/p/the-hidden-dangers-of-musks-votesafeorg)
+

@@ -6,6 +6,19 @@ subcategory_slug: education-and-benefits
 permalink: /categories/military-veterans/education-and-benefits/
 ---
 
+### 2025 December
+
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
+
+[https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/](https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/)
+
+[https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html](https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html)
+
+[https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375](https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375)
+
+[https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c](https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c)
+
+
 ### 2026 February
 
 2026-02-27 Pete Hegseth said the US Armed Forces will only support Scouting America if it complies with EO 14173 to end DEI and ban trans kids. He wrote, “Boy scouts should go back to being the Boy Scouts as originally founded, a group that develops boys into men”.

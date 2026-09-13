@@ -227,6 +227,8 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 2025-12-15 Another 35,000 VA jobs were cut.
 
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
+
 2025-12-22 Trump announced “Trump-class” battleships (i.e. USS Defiant).
 
 ## 2026 January 

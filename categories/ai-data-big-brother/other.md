@@ -133,3 +133,14 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 [https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers](https://aiweekly.co/alerts/israels-45m-ai-op-targets-us-voters-and-chatbot-answers)
 
 [https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza](https://www.democracynow.org/2026/7/30/headlines/drop_site_news_trumps_former_campaign_manager_working_to_influence_how_ai_chatbots_talk_about_gaza)
+
+### 2026 August
+
+2026-08-02 Reports found that China’s DeepSeek flagship Ai model is far less expensive to run than American models by about 10-to-35 times. 
+
+[https://www.reuters.com/business/retail-consumer/deepseeks-new-ai-model-is-by-far-cheapest-well-known-models-run-research-firm-2026-08-03/](https://www.reuters.com/business/retail-consumer/deepseeks-new-ai-model-is-by-far-cheapest-well-known-models-run-research-firm-2026-08-03/)
+
+[https://www.businesstimes.com.sg/startups-tech/technology/deepseeks-low-cost-model-deals-fresh-blow-rivals-openai-z-ai-hits-memory-makers](https://www.businesstimes.com.sg/startups-tech/technology/deepseeks-low-cost-model-deals-fresh-blow-rivals-openai-z-ai-hits-memory-makers)
+
+[https://thenextweb.com/news/deepseek-v4-1-flash-launch-v4-pro-retired-price-cut](https://thenextweb.com/news/deepseek-v4-1-flash-launch-v4-pro-retired-price-cut)
+

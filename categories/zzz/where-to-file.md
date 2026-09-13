@@ -6,6 +6,15 @@ subcategory_slug: where-to-file
 permalink: /categories/zzz/where-to-file/
 ---
 
+### 2020
+
+2020-08-27 40 broken promises and a MAGA-meter
+
+[https://prospect.org/2020/08/27/trumps-40-biggest-broken-promises/](https://prospect.org/2020/08/27/trumps-40-biggest-broken-promises/)
+
+[https://politifact.com/truth-o-meter/promises/maga-meter-tracking-donald-trumps-2024-promises/](https://politifact.com/truth-o-meter/promises/maga-meter-tracking-donald-trumps-2024-promises/)
+
+
 ### 2026 July
 
 

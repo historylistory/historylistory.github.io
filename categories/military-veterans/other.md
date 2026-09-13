@@ -68,6 +68,17 @@ permalink: /categories/military-veterans/other/
 
 [https://www.cbsnews.com/news/trump-says-he-could-send-army-navy-air-force-marines-to-us-cities/](https://www.cbsnews.com/news/trump-says-he-could-send-army-navy-air-force-marines-to-us-cities/)
 
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
+
+[https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/](https://www.war.gov/News/News-Stories/Article/Article/4382089/1776-warrior-dividend-tax-free-irs-confirms/)
+
+[https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html](https://www.military.com/feature/2025/12/23/pentagon-uses-military-housing-funds-1776-warrior-dividend.html)
+
+[https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375](https://www.politico.com/news/2025/12/18/trump-warrior-dividend-troops-congress-00697375)
+
+[https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c](https://apnews.com/article/trump-military-dividend-housing-5990b3810a704e46e2b93152253f439c)
+
+
 ### 2026 January
 
 2026-01-26 Trump kept referring to some sort of secret-weapon he deemed a “discombobulator” that would disable equipment. 

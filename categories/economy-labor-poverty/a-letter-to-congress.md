@@ -568,6 +568,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2025-11-10 Eight Democratic senators joined Republicans in voting to reopen the government without additional concessions, and nobody voted to take back the $40B bailout that Trump gave to Argentina.
 
+2025-11-10 Trump promised a $2000 tariff dividend check. 
+
 2025-11-11 Trump threatened to dock pay for air traffic controllers who called out sick during the government shutdown. Air traffic controllers were out looking for second jobs to help pay for bills and groceries. 
 
 2025-11-12 The Trump Administration ended penny production.
@@ -601,6 +603,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2025-12-16 Four Republicans joined Democrats to stop Obamacare subsidies from expiring, but Congress sent lawmakers home before the vote could happen. 
 
 2025-12-17 Trump held an 18-minute press conference to fixate on Biden, deflect affordability concerns, and tout a so-called “great economy”. 
+
+2025-12-18 Trump issued $1776 checks to servicemembers. The funds were reallocated housing funds already intended for military housing. 
 
 2025-12-31 Just 181,000 jobs were added in 2025, compared to 1.46M jobs in 2024 under Biden. 
 
@@ -1209,5 +1213,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-09-10 Bessent announced plans to triple bond buybacks. 
 
+2026-09-10 Trump promised a $500 Obamacare rebate check. 
+
 
 2026-09-12 Saudi shut down a major crude oil pipeline. 
+
+2026-09-12 Laura Ingraham asked Trump why he wouldn’t issue the $5000 now instead of pledging to wait until after the election. Trump blamed that on Democrats. After the pledge, Trump told CBS Texas he didn’t think the payments would require Congressional approval. 
