@@ -752,7 +752,7 @@ TIMESTAMP 1:02 [https://www.youtube.com/watch?v=Py_jhRSEBRE&list=WL&index=4](htt
 
 PAY WALL [https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html](https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html)
 
-2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
+2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
 
 [https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/](https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/)
 

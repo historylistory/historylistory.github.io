@@ -620,7 +620,7 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 
 [https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/](https://thehill.com/homenews/6070969-white-house-unveils-trump-policy-arcade/)
 
-2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
+2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
 
 [https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/](https://abc7news.com/story/vice-president-jd-vance-deliver-keynote-address-final-day-republican-midterm-convention-dallas-texas/19816642/)
 

@@ -564,6 +564,6 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-09-05 The White House launched an online MAGA-themed arcade on their website. 
 
-2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. 
+2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
 
 2026-09-10 The FCC threatened Jimmy Kimmel Live about interviewing Talarico, saying if ABC aired the interview they would be fined. The network had to move the interview to YouTube. 
