@@ -59,6 +59,11 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
+2016-02-25 Trump delivered repeated ridicule toward Marco Rubio. Rubio called him a con artist. 
+
+
+2016-05-03 Trump repeatedly launched insults on Ted Cruz’s father. 
+
 2016-07-06 Trump posted an image of Hillary Clinton in front of cash and a Star of David captioned, “Most Corrupt Candidate Ever.”
 
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
@@ -719,3 +724,4 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
 
+2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.

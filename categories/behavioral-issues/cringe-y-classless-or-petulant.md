@@ -35,6 +35,18 @@ THE ATLANTIC’S TAKE: [https://www.theatlantic.com/politics/archive/2018/02/bar
 
 {% include youtubePlayer.html id="owYgF4RbNlA" %}
 
+### 2020
+
+2020-02-29 Trump publicly made out with the American flag. 
+
+[https://www.youtube.com/watch?v=XOSaJhRDCDI](https://www.youtube.com/watch?v=XOSaJhRDCDI)
+
+[https://www.gettyimages.com/photos/trump-hugging-flag](https://www.gettyimages.com/photos/trump-hugging-flag)
+
+[https://www.c-span.org/clip/campaign-2024/user-clip-trump-kissing-the-flag/5108371](https://www.c-span.org/clip/campaign-2024/user-clip-trump-kissing-the-flag/5108371)
+
+
+
 ### 2021
 
 2021-11-01 Doug Wilson flamethrower videos.
@@ -134,6 +146,13 @@ TIMESTAMP 15:14 [https://www.youtube.com/watch?v=_iBnfLloO5Q&list=WL&index=2&t=8
 {% include youtubePlayer.html id="YjJXS_KOJCc" %}
 
 ### 2024 October
+
+2024-10-19 Trump obsessed over Arnold Palmer’s genitals. 
+
+[https://deadline.com/2024/10/trump-arnold-palmer-size-1236121195/](https://deadline.com/2024/10/trump-arnold-palmer-size-1236121195/)
+
+[https://www.theguardian.com/us-news/2024/oct/22/donald-trump-rally-arnold-palmer-penis](https://www.theguardian.com/us-news/2024/oct/22/donald-trump-rally-arnold-palmer-penis)
+
 
 2024-10-23 Tucker Carlson delivered an embarrassing “daddy’s home” speech at the RNC and referenced spankings. 
 
@@ -351,6 +370,10 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 
 
 ### 2025 November
+
+2025-11-04 Trump repeatedly remarked about the size of his father’s testicles. 
+
+[https://www.lgbtqnation.com/2025/11/donald-jr-bizarrely-brags-about-the-size-of-his-fathers-genitals/](https://www.lgbtqnation.com/2025/11/donald-jr-bizarrely-brags-about-the-size-of-his-fathers-genitals/)
 
 2025-11-20 Karoline Leavitt reportedly had Getty remove a photo of her because it was too unflattering.
 

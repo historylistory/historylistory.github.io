@@ -24,6 +24,25 @@ permalink: /categories/bully-threaten-sue-fire/bullying-heckling/
 
 ### 2016
 
+2016-02-25 Trump delivered repeated ridicule toward Marco Rubio. Rubio called him a con artist. 
+
+[https://www.bbc.com/news/world-us-canada-35674780](https://www.bbc.com/news/world-us-canada-35674780)
+
+[https://www.politico.com/story/2016/02/republican-debate-february-2016-219807](https://www.politico.com/story/2016/02/republican-debate-february-2016-219807)
+
+[https://www.texastribune.org/2016/02/26/dallas-rubio-eviscerates-con-artist-trump/](https://www.texastribune.org/2016/02/26/dallas-rubio-eviscerates-con-artist-trump/)
+
+[https://www.facebook.com/watch/?v=725674686773235](https://www.facebook.com/watch/?v=725674686773235)
+
+2016-05-03 Trump repeatedly launched insults on Ted Cruz’s father. 
+
+[https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
+
+[https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/05/trump-ted-cruz-father-222730](https://www.politico.com/blogs/2016-gop-primary-live-updates-and-results/2016/05/trump-ted-cruz-father-222730)
+
+[https://abcnews.com/Politics/donald-trump-apologize-implying-cruz-father-kennedy-assassin/story?id=38865084](https://abcnews.com/Politics/donald-trump-apologize-implying-cruz-father-kennedy-assassin/story?id=38865084)
+
+
 2016-07-06 Trump posted an image of Hillary Clinton in front of cash and a Star of David captioned, “Most Corrupt Candidate Ever.”
 
 [https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161](https://www.nbcnews.com/politics/2016-election/donald-trump-s-star-david-tweet-about-hillary-clinton-posted-n603161)
@@ -522,3 +541,8 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 
 [https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/](https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/)
 
+2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.
+
+[https://www.yahoo.com/news/politics/articles/trump-implies-ken-paxton-ugly-160909138.html](https://www.yahoo.com/news/politics/articles/trump-implies-ken-paxton-ugly-160909138.html)
+
+[https://newrepublic.com/post/215068/donald-trump-vote-ken-paxton-dumb-ugly](https://newrepublic.com/post/215068/donald-trump-vote-ken-paxton-dumb-ugly)

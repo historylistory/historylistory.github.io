@@ -84,6 +84,11 @@ Below are examples of which events highlight these concerns. Some of the points 
 
 ## 2016
 
+2016-02-25 Trump delivered repeated ridicule toward Marco Rubio. Rubio called him a con artist. 
+
+
+2016-05-03 Trump repeatedly launched insults on Ted Cruz’s father. 
+
 2016-08-09 During a campaign rally in Wilmington NC, Trump remarked “maybe the Second Amendment supporters should ‘do’ something about Hillary Clinton”.
 
 2016-08-22 During a speech Trump said, “You could go to war zones in countries we’re fighting and it’s safer than living in some of our inner cities that are run by the Democrats”.

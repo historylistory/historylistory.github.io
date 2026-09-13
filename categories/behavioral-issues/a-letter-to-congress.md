@@ -61,6 +61,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2016-02-16 After Pope Francis criticized Trump’s wall rhetoric, Trump said the Pope would “wish and pray” for his presidency.
 
+2016-03-04 Trump repeatedly remarked about the size of his own male parts. 
+
 ## 2018
 
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.
@@ -76,6 +78,8 @@ The American people deserve leadership focused on service, competence, compassio
 2019-08-21 Trump referred to himself as “the chosen one.”
 
 ## 2020
+
+2020-02-29 Trump publicly made out with the American flag. 
 
 2020-04-01 Karoline Leavitt leveraged “blue-collar roots,” though reports said her family business received $250,635 in two Paycheck Protection Program loans in February and April 2020, as well as two Economic Injury Disaster (EIDL) Loans totaling $160,000, also in April 2020.
 
@@ -149,7 +153,10 @@ The American people deserve leadership focused on service, competence, compassio
 
 2024-09-19 James O’Keefe described Laura Loomer as fearless and shameless in the foreword to her book. He wrote, “She isn’t wired like other people. It’s as if her brain doesn’t process information like the rest of us. She appears to be functionally immune to fear, to shame, and to embarrassment”. He kept her on at Project Veritas to continue operations for them.
 
+2024-10-19 Trump obsessed over Arnold Palmer’s genitals. 
+
 2024-10-23 Tucker Carlson delivered an embarrassing “daddy’s home” speech at the RNC and referenced spankings. 
+
 
 2024-11-25 Pete Hegseth wrote in his book that the U.S. should ignore Geneva Convention limits and abide by our ‘own rules’. 
 
@@ -324,6 +331,8 @@ included “Democrats Have Shut Down the Government” and “The Radical Left a
 
 2025-11-04 Nancy Mace defended her airport confrontation in a video, “if you’re not man enough to take my feedback – my constructive feedback for you not 
 doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airport”.
+
+2025-11-04 Trump repeatedly remarked about the size of his father’s testicles. 
 
 2025-11-05 Nancy Mace threatened to sue Charleston Airport for defamation.
 

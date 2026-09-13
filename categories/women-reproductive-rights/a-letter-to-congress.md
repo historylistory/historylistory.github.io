@@ -113,6 +113,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 ## 2016 
 
+2016-03-04 Trump repeatedly remarked about the size of his own male parts. 
+
 2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.
 
 ## 2017 
@@ -233,6 +235,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2024-09-23 A woman was accused of murder after losing her pregnancy. Women are charged with murder for miscarriages and stillbir5ths under Fetal Personhood laws.
 
+2024-10-19 Trump obsessed over Arnold Palmer’s genitals. 
+
 2024-10-30 Josseli Barnica died in Texas after being told it would be a “crime” to intervene in her miscarriage.
 
 2024-11-01 Nevaeh Crain died after she was refused lifesaving treatment due to anti-abortion laws.
@@ -322,6 +326,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2025-10-01 In a Movember Foundation report 60% of young men interact with content from men and masculinity influencers.
 
 ## 2025 November 
+
+2025-11-04 Trump repeatedly remarked about the size of his father’s testicles. 
 
 2025-11-13 A new Gallup survey showed a record number of women want to leave the United States.
 
