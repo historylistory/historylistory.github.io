@@ -6,6 +6,13 @@ subcategory_slug: charlie-kirk-specific
 permalink: /categories/civil-war-violence-guns/charlie-kirk-specific/
 ---
 
+### Quote
+
+Quote, “Charlie Kirk was not a debater. He was a propagandist who sowed hate through manipulative bad faith rhetoric”. 
+
+[https://www.youtube.com/watch?v=kGkhmfIFM8E&list=WL&index=1&t=119s](https://www.youtube.com/watch?v=kGkhmfIFM8E&list=WL&index=1&t=119s)
+
+
 ### Charlie Kirk Said...
 
 2022-07-06 Charlie Kirk said, “There is no separation of church and state. It’s a fabrication, it’s a fiction, it’s not in the constitution. It’s made up by secular humanists.”

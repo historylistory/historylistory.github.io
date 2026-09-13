@@ -59,6 +59,43 @@ permalink: /categories/red-flags/maga-psyops/
 
 ## Tactics
 
+### Inflammatory Statements (a.k.a. Dog Whistle or Anchor)
+
+A political dog whistle is coded language that sends one meaning to the general public and a different, specific message to a targeted subgroup. 
+
+1. Double meaning: The words sound safe or normal to most people.
+2. Coded signal: Primed listeners hear a deeper, often divisive meaning.
+3. Plausible deniability: Speakers can deny any bad intent because the surface words look innocent. 
+
+1. Avoids backlash: Politicians use coded words to share controversial ideas without facing public anger.
+2. Bypasses rules: Online groups use coded phrases to break rules or avoid content filters.
+3. Sparks emotion: It activates hidden fears or biases to build group loyalty
+
+### Inoculating
+
+Inoculating in a debate means preemptively addressing and refuting an opponent’s expected arguments before they are even raised.
+
+1. The Threat (Forewarning): You warn the audience or judges that an opposing argument is coming and point out that it may sound convincing at first. 
+2. Refutational Preemption: You introduce a weakened version of your opponent's counterargument and immediately dismantle it with evidence or logic. 
+3. Mental Antibodies: Just like a medical vaccine builds physical immunity, this early exposure helps the audience resist the opponent's stronger claims later. 
+
+1. Neutralize Attacks: It blunts the impact of your rival's main offensive moves during a cross-examination or rebuttal.
+2. Control the Framing: It forces your opponent to fight on your terms rather than introducing completely fresh surprises.
+3. Boost Credibility: It shows foresight and deep preparation.
+
+### Moral Laundering 
+
+"Moral Laundering" is a term used to describe when individuals, corporations, or groups use charitable donations, cultural sponsorships, or public relations to clean up a tarnished reputation or disguise the origins of unethical behavior.
+
+1. Corporate Philanthropy: Companies implicated in public harm (such as opioid manufacturers or fossil fuel conglomerates) donate to museums, galleries, or educational institutions to buy social legitimacy and distract from controversies. 
+2. Reputation Laundering: Wealthy figures or political actors use high-profile philanthropy, elite sponsorships, and luxury investments to project an image of civic virtue. 
+3. Psychological Rationalization: In behavioral science, "mental money laundering" occurs when people compartmentalize unethically earned money by channeling it toward a good cause, allowing them to feel absolved of guilt.
+
+Basically gives listeners a chance to weaponize part of the argument and scapegoat with the second. 
+
+[https://www.youtube.com/watch?v=kGkhmfIFM8E&list=WL&index=1&t=119s](https://www.youtube.com/watch?v=kGkhmfIFM8E&list=WL&index=1&t=119s)
+
+
 ### Controlled Opposition
 
 1. a strategy where an authority or power base secretly controls, influences, or leads the very movements meant to oppose it. 
