@@ -463,6 +463,8 @@ Lawmaker response September 6 2026 [https://www.youtube.com/watch?v=7r17VPQI1Gg&
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
 
+
+
 2026-09-10 Behind closed doors JD Vance urged battleground state Republicans to nationalize midterm elections. 
 
 [https://www.nbcnews.com/politics/jd-vance/vance-battleground-state-republicans-nationalize-midterms-rcna597070](https://www.nbcnews.com/politics/jd-vance/vance-battleground-state-republicans-nationalize-midterms-rcna597070)
