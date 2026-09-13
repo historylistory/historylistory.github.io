@@ -247,3 +247,14 @@ PAY WALL [https://www.nytimes.com/2022/05/25/world/europe/gun-laws-australia-bri
 [https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496](https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496)
 
 [https://loxandloaded.org/](https://loxandloaded.org/)
+
+### 2026 September
+
+2026-09-08 A National Guard member was arrested for pulling a gun on a fellow soldier. 
+
+[https://newrepublic.com/post/215174/national-guard-arrested-gun-fellow-soldier-argument-hair](https://newrepublic.com/post/215174/national-guard-arrested-gun-fellow-soldier-argument-hair)
+
+[https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/](https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/)
+
+[https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/](https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/)
+

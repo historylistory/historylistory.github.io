@@ -6,6 +6,14 @@ subcategory_slug: other
 permalink: /categories/military-veterans/other/
 ---
 
+### 2008
+
+2008-08-04 Pete Hegseth ran a pro-Iraq war organization Vets for Freedom. 
+
+[https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom](https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom)
+
+[https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/](https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/)
+
 ### 2025 
 
 2025-07-16 The National Guard pulled 2000 troops back out of Los Angeles after numerous protests and allegations that the Trump administration was violating the Posse Comitatus Act.
@@ -337,3 +345,11 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 [https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8](https://www.youtube.com/watch?v=WHixQumJvnA&list=WL&index=8)
 
 [https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/](https://time.com/article/2026/09/02/trump-hegseth-tillis-driscoll-resignation-pentagon/)
+
+2026-09-08 A National Guard member was arrested for pulling a gun on a fellow soldier. 
+
+[https://newrepublic.com/post/215174/national-guard-arrested-gun-fellow-soldier-argument-hair](https://newrepublic.com/post/215174/national-guard-arrested-gun-fellow-soldier-argument-hair)
+
+[https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/](https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/)
+
+[https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/](https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/)

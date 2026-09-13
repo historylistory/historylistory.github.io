@@ -56,6 +56,12 @@ The examples below explain the basis for my concerns. Some are included for hist
 
 1964-1968 Trump received five deferments to serving the Army: four student deferments and one medical deferment for bone spurs.
 
+## 2008
+
+2008-08-04 Pete Hegseth ran a pro-Iraq war organization Vets for Freedom. 
+
+
+
 ## 2015 
 
 2015-07-18 Trump said about John McCain, “He’s not a war hero. He’s a war hero because he was captured. I like people that weren’t captured”. In March of 
@@ -452,5 +458,6 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 
 2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 
 
+2026-09-08 A National Guard member was arrested for pulling a gun on a fellow soldier. 
 
 2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 

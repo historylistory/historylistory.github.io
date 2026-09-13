@@ -6,6 +6,14 @@ subcategory_slug: iraq
 permalink: /categories/foreign-affairs-isolation/iraq/
 ---
 
+### 2008
+
+2008-08-04 Pete Hegseth ran a pro-Iraq war organization Vets for Freedom. 
+
+[https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom](https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom)
+
+[https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/](https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/)
+
 ### 2011
 
 2011-04-17 Trump said he wanted to seize oil fields in Libya and Iraq.

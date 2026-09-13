@@ -27,6 +27,15 @@ The Pentagon is actively enlisting Silicon Valley startups and tech giants to bu
 
 [https://responsiblestatecraft.org/ai-weapons-silicon-valley/](https://responsiblestatecraft.org/ai-weapons-silicon-valley/)
 
+### 2008
+
+2008-08-04 Pete Hegseth ran a pro-Iraq war organization Vets for Freedom. 
+
+[https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom](https://www.npr.org/2008/08/04/93023658/profile-vets-for-freedom)
+
+[https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/](https://www.cbsnews.com/news/pete-hegseth-concerned-veterans-for-america-jessie-jane-duff/)
+
+
 ### 2025 September
 
 2025-09-06 JD Vance posted on social media, “killing cartel members who poison our fellow citizens is the highest and best use of our military”. Brian Krassenstein replied, “killing the citizens of another nation who are civilians without any due process is called a war crime”. JD Vance responded, “I don’t give a shit what you call it”. Vance also wrote, “Democrats:let’s send your kids to die in Russia…Republicans:actually let’s protect our people from the scum of the earth”.
