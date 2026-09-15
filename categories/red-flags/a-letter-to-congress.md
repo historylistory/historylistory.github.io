@@ -459,3 +459,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 
 2026-09-09 The US carried out another boat strike on Venezuela. 
+
+2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 

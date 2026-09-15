@@ -523,3 +523,13 @@ ANOTHER ARTICLE FROM 2022 [https://www.pbs.org/newshour/economy/u-s-to-detain-do
 
 [https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/](https://www.cbsnews.com/news/functional-unemployment-us-labor-market-analysis/)
 
+### 2026 September
+
+2026-09-12 Ted Cruz was booed during his appearance at ESPN’s College GameDay as he tried to push a new college sports act aimed to set new rules, give antitrust exemptions, and ban unions. Disney also lobbied for the new legislation. 
+
+[https://sports.yahoo.com/articles/college-gameday-crowd-booed-ted-150052918.html](https://sports.yahoo.com/articles/college-gameday-crowd-booed-ted-150052918.html)
+
+[https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php](https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php)
+
+[https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/](https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/)
+

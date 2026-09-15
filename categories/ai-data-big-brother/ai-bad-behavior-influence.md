@@ -330,3 +330,12 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 
 [https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)
 
+2026-09-12 Anthropic’s CEO urged AI companies to slow down on AI development over the alarming HuggingFace hack. Mike Johnson pushed back during a CNN interview. 
+
+[https://www.bbc.com/news/articles/c14dpgm0rg4o](https://www.bbc.com/news/articles/c14dpgm0rg4o)
+
+[https://www.reuters.com/business/anthropic-ceo-urges-ai-companies-slow-model-development-2026-09-12/](https://www.reuters.com/business/anthropic-ceo-urges-ai-companies-slow-model-development-2026-09-12/)
+
+[https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/0](https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/)
+
+[https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/](https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/)

@@ -155,3 +155,10 @@ SUB WALL [https://www.politico.com/news/2026/08/08/dei-dispute-wildfire-grants-w
 [https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump](https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump)
 
 
+2026-09-12 A judge ruled that Trump’s FEMA staff cuts were illegal. 
+
+[https://abcnews.com/US/wireStory/federal-judge-rules-trump-dhs-plan-50-fema-136397387](https://abcnews.com/US/wireStory/federal-judge-rules-trump-dhs-plan-50-fema-136397387)
+
+[https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules](https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules)
+
+[https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/](https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/)

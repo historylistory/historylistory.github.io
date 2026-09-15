@@ -128,3 +128,10 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/](https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/)
 
 PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html](https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html)
+
+2026-09-14 Iran was blocked from joining UN talks in Vienna.
+
+[https://www.jpost.com/middle-east/iran-news/article-908489](https://www.jpost.com/middle-east/iran-news/article-908489)
+
+[https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting](https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting)
+

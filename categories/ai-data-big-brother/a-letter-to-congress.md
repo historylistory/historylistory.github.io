@@ -489,6 +489,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
+2026-09-12 Anthropic’s CEO urged AI companies to slow down on AI development over the alarming HuggingFace hack. Mike Johnson pushed back during a CNN interview. 
 
 
 

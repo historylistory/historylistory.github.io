@@ -213,3 +213,9 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://www.nature.com/articles/d41586-026-02716-w](https://www.nature.com/articles/d41586-026-02716-w)
 
 [https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump](https://www.cnn.com/2026/09/02/climate/nepal-disaster-grant-canceled-trump)
+
+2026-09-11 Ebola cases in the DRC surpassed 7000. 
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/ebola-infections-top-7000-congo-virus-spreads-new-province-2026-09-11/](https://www.reuters.com/business/healthcare-pharmaceuticals/ebola-infections-top-7000-congo-virus-spreads-new-province-2026-09-11/)
+
+[https://www.africanews.com/2026/09/14/drc-ebola-outbreak-passes-7000-cases-but-officials-say-spread-may-have-peaked/](https://www.africanews.com/2026/09/14/drc-ebola-outbreak-passes-7000-cases-but-officials-say-spread-may-have-peaked/)

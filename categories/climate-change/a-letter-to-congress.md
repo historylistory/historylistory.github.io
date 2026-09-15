@@ -516,3 +516,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 
 2026-09-11 A new climate study uncovered climate feedback loops including melting permafrost, warmer wetlands and lakes, and raging wildfires that will add to an overheating planet. 
+
+2026-09-12 A judge ruled that Trump’s FEMA staff cuts were illegal. 
+
+2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 

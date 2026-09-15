@@ -85,4 +85,10 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 
 [https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4](https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4)
 
+2026-09-12 Ted Cruz was booed during his appearance at ESPN’s College GameDay as he tried to push a new college sports act aimed to set new rules, give antitrust exemptions, and ban unions. Disney also lobbied for the new legislation. 
 
+[https://sports.yahoo.com/articles/college-gameday-crowd-booed-ted-150052918.html](https://sports.yahoo.com/articles/college-gameday-crowd-booed-ted-150052918.html)
+
+[https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php](https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php)
+
+[https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/](https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/)

@@ -753,3 +753,13 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://www.cbsnews.com/news/us-destroys-alleged-drug-boat-rubio-defends-deadly-strikes/](https://www.cbsnews.com/news/us-destroys-alleged-drug-boat-rubio-defends-deadly-strikes/)
 
 [https://news.usni.org/2026/09/10/3-killed-in-strike-on-alleged-drug-boat](https://news.usni.org/2026/09/10/3-killed-in-strike-on-alleged-drug-boat)
+
+2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 
+
+[https://www.haaretz.com/west-bank/2026-09-14/ty-article/.premium/btselem-israel-running-elimination-project-against-west-bank-palestinians/000001a0-a11c-de76-a1f7-bb5c377a0000](https://www.haaretz.com/west-bank/2026-09-14/ty-article/.premium/btselem-israel-running-elimination-project-against-west-bank-palestinians/000001a0-a11c-de76-a1f7-bb5c377a0000)
+
+[https://www.lemonde.fr/en/international/article/2026/09/14/israel-pursuing-elimination-project-of-palestinians-in-the-occupied-west-bank-ngo-b-tselem-says_6757493_4.html](https://www.lemonde.fr/en/international/article/2026/09/14/israel-pursuing-elimination-project-of-palestinians-in-the-occupied-west-bank-ngo-b-tselem-says_6757493_4.html)
+
+[https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report](https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report)
+
+[https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank](https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank)

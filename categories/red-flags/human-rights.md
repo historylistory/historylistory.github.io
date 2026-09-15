@@ -107,3 +107,14 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=1
 [https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
 
 HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
+
+2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 
+
+[https://www.haaretz.com/west-bank/2026-09-14/ty-article/.premium/btselem-israel-running-elimination-project-against-west-bank-palestinians/000001a0-a11c-de76-a1f7-bb5c377a0000](https://www.haaretz.com/west-bank/2026-09-14/ty-article/.premium/btselem-israel-running-elimination-project-against-west-bank-palestinians/000001a0-a11c-de76-a1f7-bb5c377a0000)
+
+[https://www.lemonde.fr/en/international/article/2026/09/14/israel-pursuing-elimination-project-of-palestinians-in-the-occupied-west-bank-ngo-b-tselem-says_6757493_4.html](https://www.lemonde.fr/en/international/article/2026/09/14/israel-pursuing-elimination-project-of-palestinians-in-the-occupied-west-bank-ngo-b-tselem-says_6757493_4.html)
+
+[https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report](https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report)
+
+[https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank](https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank)
+

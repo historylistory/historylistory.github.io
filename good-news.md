@@ -490,3 +490,11 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5](https://www.youtube.com/watch?v=-JcP_CqVAHs&list=WL&index=5)
 
 [https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4](https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4)
+
+2026-09-12 A judge ruled that Trump’s FEMA staff cuts were illegal. 
+
+[https://abcnews.com/US/wireStory/federal-judge-rules-trump-dhs-plan-50-fema-136397387](https://abcnews.com/US/wireStory/federal-judge-rules-trump-dhs-plan-50-fema-136397387)
+
+[https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules](https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules)
+
+[https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/](https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/)

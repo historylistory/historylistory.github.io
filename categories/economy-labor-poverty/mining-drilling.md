@@ -150,3 +150,12 @@ SUB WALL [https://www.nytimes.com/2026/06/22/climate/trump-drilling-public-lands
 [https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
 
 [https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
+
+
+2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 
+
+[https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146](https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146)
+
+[https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/](https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/)
+
+[https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)

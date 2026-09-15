@@ -186,3 +186,12 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 
 [https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e](https://apnews.com/article/trump-venezuela-oil-reserves-eb0ed5a1e99602c21a7f690c3368020e)
 
+### 2026 September
+
+2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 
+
+[https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146](https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146)
+
+[https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/](https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/)
+
+[https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)

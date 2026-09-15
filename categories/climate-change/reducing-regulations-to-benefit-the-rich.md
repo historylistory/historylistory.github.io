@@ -535,3 +535,11 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 [https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
 
 [https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)
+
+2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 
+
+[https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146](https://www.politico.com/news/2026/09/14/epa-power-plant-climate-rules-01069146)
+
+[https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/](https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/)
+
+[https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)

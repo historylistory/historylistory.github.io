@@ -724,4 +724,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-07 Trump made several trolling posts renaming New Mexico as New America. 
 
+2026-09-09 Lonnie Bunch was bullied out of the Smithsonian. 
+
 2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.
+

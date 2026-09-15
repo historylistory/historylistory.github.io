@@ -2208,3 +2208,8 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 
 SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
 
+2026-09-14 Iran was blocked from joining UN talks in Vienna.
+
+[https://www.jpost.com/middle-east/iran-news/article-908489](https://www.jpost.com/middle-east/iran-news/article-908489)
+
+[https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting](https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting)

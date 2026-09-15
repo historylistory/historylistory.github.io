@@ -456,3 +456,16 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says](https://www.pbs.org/newshour/politics/army-secretary-dan-driscoll-is-stepping-down-after-18-months-on-the-job-white-house-says)
 
 [https://www.youtube.com/watch?v=u0WsIqs_p0Q&list=WL&index=1](https://www.youtube.com/watch?v=u0WsIqs_p0Q&list= WL&index=1)
+
+### 2026 September
+
+2026-09-09 Lonnie Bunch was bullied out of the Smithsonian. 
+
+[https://newsone.com/6871337/lonnie-bunch-smithsonian-resignation/](https://newsone.com/6871337/lonnie-bunch-smithsonian-resignation/)
+
+[https://www.theatlantic.com/culture/2026/09/lonnie-bunch-smithsonian-legacy/688550/](https://www.theatlantic.com/culture/2026/09/lonnie-bunch-smithsonian-legacy/688550/)
+
+[https://rollcall.com/2026/07/09/trump-threatens-smithsonian-congress-sidelines/](https://rollcall.com/2026/07/09/trump-threatens-smithsonian-congress-sidelines/)
+
+[https://www.nbcnews.com/politics/trump-administration/white-house-report-brands-smithsonian-leadership-radical-activists-can-rcna353090](https://www.nbcnews.com/politics/trump-administration/white-house-report-brands-smithsonian-leadership-radical-activists-can-rcna353090)
+
