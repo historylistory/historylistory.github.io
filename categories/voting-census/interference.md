@@ -482,5 +482,10 @@ SUB WALL [https://www.politico.com/news/2026/09/10/vance-met-with-48-chants-in-c
 SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
 
 
+2026-09-14 SCOTUS blocked Trump’s effort to restrict mail-in voting ahead of midterms.
+
+[https://www.democracydocket.com/news-alerts/supreme-court-rejects-trump-bid-to-revive-mail-voting-restrictions-ahead-of-midterms-in-huge-win-for-voters/](https://www.democracydocket.com/news-alerts/supreme-court-rejects-trump-bid-to-revive-mail-voting-restrictions-ahead-of-midterms-in-huge-win-for-voters/)
+
+[https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f](https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f)
 
 

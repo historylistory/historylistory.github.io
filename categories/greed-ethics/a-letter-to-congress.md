@@ -436,3 +436,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
 
 2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
+
+2026-09-14 Donald Trump Jr’s Bahama destination wedding was bankrolled by Russian oligarchs. 

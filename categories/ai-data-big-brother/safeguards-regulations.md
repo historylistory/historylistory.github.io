@@ -211,3 +211,16 @@ TIMESTAMP 5:00 [https://www.youtube.com/watch?v=uYDfBbEOjaQ&list=WL&index=1](htt
 [https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/0](https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/)
 
 [https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/](https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/)
+
+2026-09-14 Trump pushed back against Anthropic’s plea for guardrails, writing, “The only control or guardrails that AI needs is a STRONG AND SMART (High IQ!) PRESIDENT, and the U.S.A. has that, in spades! … There is a SICK conspiracy going on against AI and Data Centers, and the only one that is happy about it is China. WHOEVER WINS AI, WINS!”
+
+[https://www.axios.com/2026/09/14/trump-ai-safety-anthropic-dario-amodei](https://www.axios.com/2026/09/14/trump-ai-safety-anthropic-dario-amodei)
+
+[https://www.youtube.com/watch?v=BinWMUNMtf0](https://www.youtube.com/watch?v=BinWMUNMtf0)
+
+[https://www.youtube.com/watch?v=U5-JNn4yyzg](https://www.youtube.com/watch?v=U5-JNn4yyzg)
+
+[https://www.pbs.org/newshour/politics/trump-says-the-only-ai-guardrails-the-u-s-needs-is-him-as-president](https://www.pbs.org/newshour/politics/trump-says-the-only-ai-guardrails-the-u-s-needs-is-him-as-president)
+
+SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pushback-01074230](https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pushback-01074230)
+

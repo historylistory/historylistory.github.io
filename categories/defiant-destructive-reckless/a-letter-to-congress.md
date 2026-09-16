@@ -580,3 +580,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 
 2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 
+
+2026-09-14 Trump pushed back against Anthropic’s plea for guardrails, writing, “The only control or guardrails that AI needs is a STRONG AND SMART (High IQ!) PRESIDENT, and the U.S.A. has that, in spades! … There is a SICK conspiracy going on against AI and Data Centers, and the only one that is happy about it is China. WHOEVER WINS AI, WINS!”

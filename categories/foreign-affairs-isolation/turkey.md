@@ -36,3 +36,11 @@ permalink: /categories/foreign-affairs-isolation/turkey/
 
 [https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/](https://www.reuters.com/business/aerospace-defense/trump-flew-secretly-turkey-due-iranian-threat-washington-post-reports-2026-08-11/)
 
+### 2026 September
+
+2026-09-14 In Turkey authorities detained 162 people in a series of raids on LGBTQ bars and homes as part of a homophobic campaign called “Keep My Family Safe”. 
+
+[https://www.aljazeera.com/news/2026/9/14/turkish-authorities-launch-anti-lgbtq-raids-detaining-dozens](https://www.aljazeera.com/news/2026/9/14/turkish-authorities-launch-anti-lgbtq-raids-detaining-dozens)
+
+[https://www.democracynow.org/2026/9/15/headlines/turkish_authorities_detain_at_least_162_people_in_raids_of_gay_bars_and_homes_of_lgbtq_activists](https://www.democracynow.org/2026/9/15/headlines/turkish_authorities_detain_at_least_162_people_in_raids_of_gay_bars_and_homes_of_lgbtq_activists)
+

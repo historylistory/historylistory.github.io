@@ -555,3 +555,6 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 
 2026-09-11 Trump claimed the war in Iran would end immediately after midterms. 
+
+
+2026-09-14 SCOTUS blocked Trump’s effort to restrict mail-in voting ahead of midterms.

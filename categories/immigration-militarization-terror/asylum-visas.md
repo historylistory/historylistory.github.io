@@ -297,3 +297,11 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 2026-08-22 A judge struck down Trump’s visa ban on 75 countries. 
 
 [https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban](https://www.france24.com/en/americas/20260822-contrary-to-law-us-judge-strikes-down-trump-s-75-country-visa-ban)
+
+### 2026 September
+
+2026-09-14 A federal judge blocked Trump from enforcing VISA limit lengths on international students in Massachusetts.
+
+[https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/](https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/)
+
+[https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists](https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists)

@@ -2213,3 +2213,11 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.jpost.com/middle-east/iran-news/article-908489](https://www.jpost.com/middle-east/iran-news/article-908489)
 
 [https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting](https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting)
+
+2026-09-14 JD Vance claimed the US was “on top of the situation” and in talks with Houthis. 
+
+[https://www.democracynow.org/2026/9/15/headlines/saudi_crown_prince_mbs_meets_centcom_chief_as_houthis_consolidate_control_over_red_sea_coast](https://www.democracynow.org/2026/9/15/headlines/saudi_crown_prince_mbs_meets_centcom_chief_as_houthis_consolidate_control_over_red_sea_coast)
+
+[https://www.iranintl.com/en/202609141692](https://www.iranintl.com/en/202609141692)
+
+TIMESTAMP 3:45 [https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s](https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s)

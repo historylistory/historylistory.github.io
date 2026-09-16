@@ -491,6 +491,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-12 Anthropic’s CEO urged AI companies to slow down on AI development over the alarming HuggingFace hack. Mike Johnson pushed back during a CNN interview. 
 
+2026-09-14 Trump pushed back against Anthropic’s plea for guardrails, writing, “The only control or guardrails that AI needs is a STRONG AND SMART (High IQ!) PRESIDENT, and the U.S.A. has that, in spades! … There is a SICK conspiracy going on against AI and Data Centers, and the only one that is happy about it is China. WHOEVER WINS AI, WINS!”
+
 
 
 

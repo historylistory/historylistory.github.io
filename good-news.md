@@ -498,3 +498,16 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules](https://www.cnn.com/2026/09/12/politics/fema-staffers-trump-judge-rules)
 
 [https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/](https://www.reuters.com/legal/government/us-judge-rules-that-trump-plan-halve-fema-workforce-violated-law-2026-09-12/)
+
+2026-09-14 SCOTUS blocked Trump’s effort to restrict mail-in voting ahead of midterms.
+
+[https://www.democracydocket.com/news-alerts/supreme-court-rejects-trump-bid-to-revive-mail-voting-restrictions-ahead-of-midterms-in-huge-win-for-voters/](https://www.democracydocket.com/news-alerts/supreme-court-rejects-trump-bid-to-revive-mail-voting-restrictions-ahead-of-midterms-in-huge-win-for-voters/)
+
+[https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f](https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f)
+
+2026-09-14 A federal judge blocked Trump from enforcing VISA limit lengths on international students in Massachusetts.
+
+[https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/](https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/)
+
+[https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists](https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists)
+

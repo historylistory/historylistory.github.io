@@ -822,3 +822,12 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit](https://www.foxbusiness.com/economy/mansfield-oil-krsm-freedom-fuel-payment-lawsuit)
 
 [https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
+
+2026-09-14 Donald Trump Jr’s Bahama destination wedding was bankrolled by Russian oligarchs. 
+
+[https://www.propublica.org/article/donald-trump-jr-wedding-bankrolled-russian-oligarch-umar-kremlev-putin](https://www.propublica.org/article/donald-trump-jr-wedding-bankrolled-russian-oligarch-umar-kremlev-putin)
+
+[https://www.abc.net.au/news/2026-09-16/donald-trump-junior-wedding-parties-russian-oligarch-probe-/107157956](https://www.abc.net.au/news/2026-09-16/donald-trump-junior-wedding-parties-russian-oligarch-probe-/107157956)
+
+[https://www.cbsnews.com/news/donald-trump-jr-wife-wedding-russian-umar-kremlev/](https://www.cbsnews.com/news/donald-trump-jr-wife-wedding-russian-umar-kremlev/)
+
