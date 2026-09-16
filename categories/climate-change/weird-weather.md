@@ -21,7 +21,9 @@ permalink: /categories/climate-change/weird-weather/
 
 2025-08-31 Reports of flash flooding, rip currents, heat waves, and wildfires surged nationwide.
 
-[https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves](https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves)
+THE EPA REMOVED THIS, IT WON'T EVEN COME UP IN THE WAYBACK ARCHIVES [https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves](https://www.epa.gov/climate-indicators/climate-change-indicators-heat-waves)
+
+BUT HERE IS A PDF OF THAT REPORT FROM 2021 [https://19january2021snapshot.epa.gov/sites/static/files/2016-08/documents/ci-full-2010.pdf](https://19january2021snapshot.epa.gov/sites/static/files/2016-08/documents/ci-full-2010.pdf)
 
 [https://yaleclimateconnections.org/2025/08/deadliest-in-generations-the-texas-floods-are-the-latest-in-a-disturbing-pattern/](https://yaleclimateconnections.org/2025/08/deadliest-in-generations-the-texas-floods-are-the-latest-in-a-disturbing-pattern/)
 
