@@ -50,6 +50,8 @@ permalink: /links/
 
 [Climate Change: National Drought Mitigation Center](https://drought.unl.edu/Publications/AnnualReports.aspx)
 
+[Climate Change: Trump's Rollbacks Tracker](https://www.actonclimate.com/trumptracker/)
+
 ---
 
 [NCJRS Crime Data](https://www.ojp.gov/ncjrs/virtual-library/abstracts/hunting-humans-encyclopedia-modern-serial-killers) *NOTICE*: It appears the DOJ rerouted this link so the study doesn't appear. However, if you hit the little [archive] link next to it, it will take you to the so-called "Way Back Machine" where you should still be able to see the study in part. 

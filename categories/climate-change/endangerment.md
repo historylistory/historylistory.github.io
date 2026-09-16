@@ -270,3 +270,10 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 
 [https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)
 
+2026-09-15 Air pollution spiked after the Trump administration ended embassy monitoring. 
+
+[https://www.npr.org/2026/09/15/nx-s1-5966503/air-pollution-spiked-after-the-trump-administration-stopped-embassy-monitoring](https://www.npr.org/2026/09/15/nx-s1-5966503/air-pollution-spiked-after-the-trump-administration-stopped-embassy-monitoring)
+
+2025 [https://www.cnn.com/2025/08/20/weather/noaa-satellites-climate-trump](https://www.cnn.com/2025/08/20/weather/noaa-satellites-climate-trump)
+
+TRACKER [https://www.actonclimate.com/trumptracker/](https://www.actonclimate.com/trumptracker/)

@@ -520,3 +520,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-12 A judge ruled that Trump’s FEMA staff cuts were illegal. 
 
 2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 
+
+2026-09-15 Air pollution spiked after the Trump administration ended embassy monitoring. 

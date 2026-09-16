@@ -391,7 +391,6 @@ BUT HERE IS A PDF OF THAT REPORT FROM 2021 [https://19january2021snapshot.epa.go
 
 [https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/](https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/)
 
-[https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/](https://www.cbsnews.com/news/floodwaters-submerge-midwest-neighborhoods-bracing-more-severe-storms/)
 
 2026-08-13 Record-breaking rainfall and floods killed 8 people in Japan. 
 
@@ -462,7 +461,7 @@ BUT HERE IS A PDF OF THAT REPORT FROM 2021 [https://19january2021snapshot.epa.go
 
 AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just-west-niihau-damaging-wind-heavy-rain-expected-overnight/](https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just-west-niihau-damaging-wind-heavy-rain-expected-overnight/)
 
-h[ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai](ttps://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai)
+[https://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai](https://weather.com/2026/09/08/storms/hurricane/hurricane-lowell-forecast-hawaii-kauai)
 
 2026-09-08 Sweeping US cuts to worldwide early warning systems allegedly impacted monitoring of the glacier collapse which killed thousands in Nepal. 
 
