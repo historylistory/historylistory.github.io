@@ -16,6 +16,14 @@ permalink: /categories/behavioral-issues/cringe-y-classless-or-petulant/
 
 [https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans](https://newschannel9.com/news/entertainment/on-broadway-obama-takes-a-bow-mocking-republicans)
 
+### 2016
+
+2016-10-20 Trump repeatedly whined the Emmys were rigged against him. 
+
+[https://www.bbc.com/news/entertainment-arts-37714299](https://www.bbc.com/news/entertainment-arts-37714299)
+
+[https://www.vanityfair.com/hollywood/2016/10/emmy-winners-donald-trump?srsltid=AU7gw4V-cScFXP6Vhsh_w_xm_aHdPy98mMmswXTelokKnFsp2ryngewc](https://www.vanityfair.com/hollywood/2016/10/emmy-winners-donald-trump?srsltid=AU7gw4V-cScFXP6Vhsh_w_xm_aHdPy98mMmswXTelokKnFsp2ryngewc)
+
 ### 2018 
 
 2018-02-12 After Mirai Nagasu landed a triple axel at the Winter Olympics, Bari Weiss posted, “Immigrants: They get the job done”. 

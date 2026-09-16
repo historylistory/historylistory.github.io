@@ -97,6 +97,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2016-10-01 Trump’s former attorney Michael Cohen paid Stormy Daniels $130,000 to remain silent about an alleged affair with Trump. In 2018, Cohen plead guilty to campaign finance violations related to the payment.
 
+2016-11-19 Trump claimed the courts overseeing the class action lawsuit into Trump University for racketeering and fraud were rigged.
+
 ## 2017 
 
 2017-01-20 Trump ordered 238 pardons and commutations in his first term. In his second year of his first term he ordered 2000.
@@ -748,3 +750,5 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-09-01 GOP representative Chuck Edwards was formally censured over harassment allegations. 
 
 2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+2026-09-13 Pardon brokers and lobbyists were caught on hidden camera selling their ties to Trump for large fees to those seeking pardons. 

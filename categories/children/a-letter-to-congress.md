@@ -245,6 +245,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-11-20 Israeli forces killed a 15-year-old Palestinian Jaja Dullah. Video shows that Israeli forces shot the child in the back, then stood around and watch the child struggle in agony as he bled to death for over 30 minutes before he finally died.
 
+2025-11-20 After the FDA claimed the American infant formula supply was safe, at least 52 babies were hospitalized during two outbreaks for botulism. 
+
 2025-11-24 By the end of 2025, ICE placed a record 600 immigrant kids into detention shelters.
 
 ## 2025 December

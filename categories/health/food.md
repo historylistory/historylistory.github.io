@@ -119,6 +119,15 @@ Brian Johnson the Liver King: [Wikipedia](https://en.wikipedia.org/wiki/Liver_Ki
 
 ### 2025 November
 
+2025-11-20 After the FDA claimed the American infant formula supply was safe, at least 52 babies were hospitalized during two outbreaks for botulism. 
+
+[https://www.youtube.com/watch?v=MttAsXR-B7g&list=WL&index=3&t=27s](https://www.youtube.com/watch?v=MttAsXR-B7g&list=WL&index=3&t=27s)
+
+[https://fox17.com/news/spotlight-on-america/fda-infant-formula-safe-parents-babies-botulism-bill-marler-us-food-and-drug-administration-usda](https://fox17.com/news/spotlight-on-america/fda-infant-formula-safe-parents-babies-botulism-bill-marler-us-food-and-drug-administration-usda)
+
+[https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-infant-botulism-infant-formula-november-2025](https://www.fda.gov/food/outbreaks-foodborne-illness/outbreak-investigation-infant-botulism-infant-formula-november-2025)
+
+
 2025-11-24 The EPA approved two new pesticides with “forever chemicals” that would be used on food.
 
 [https://www.foodandwine.com/epa-approves-pesticides-containing-forever-chemicals-pfas-11855500](https://www.foodandwine.com/epa-approves-pesticides-containing-forever-chemicals-pfas-11855500)

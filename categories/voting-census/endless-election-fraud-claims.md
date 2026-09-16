@@ -28,11 +28,25 @@ GOP FRAUD CLAIMS [https://www.cato.org/testimony/motor-voter-act-voter-fraud](ht
 
 ### 2016
 
+2016-02-03 Trump accused Ted Cruz of fraud and claimed the Iowa Caucus was rigged. 
+
+[https://www.politico.com/story/2016/02/trump-cruz-stole-iowa-tweet-deleted-218674](https://www.politico.com/story/2016/02/trump-cruz-stole-iowa-tweet-deleted-218674)
+
+[https://time.com/4205867/trump-cruz-illegally-stole-iowa-caucus-win/](https://time.com/4205867/trump-cruz-illegally-stole-iowa-caucus-win/)
+
+
 2016-10-16 Trump posted, "The election is absolutely being rigged by the dishonest and distorted media pushing Crooked Hillary - but also at many polling places - SAD."
 
 [https://www.cnn.com/2016/10/15/politics/donald-trump-rigged-election-hillary-clinton](https://www.cnn.com/2016/10/15/politics/donald-trump-rigged-election-hillary-clinton)
 
 [https://www.bbc.com/news/election-us-2016-37673797](https://www.bbc.com/news/election-us-2016-37673797)
+
+2016-11-27 Trump claimed Wisconsin primaries were rigged. 
+
+[https://www.bbc.com/news/world-us-canada-38121264](https://www.bbc.com/news/world-us-canada-38121264)
+
+[https://www.npr.org/2020/11/05/931930379/fact-check-trump-falsely-claims-widespread-fraud-in-latest-election-speech](https://www.npr.org/2020/11/05/931930379/fact-check-trump-falsely-claims-widespread-fraud-in-latest-election-speech)
+
 
 2016-11-27 Trump posted, “In addition to winning the Electoral College in a landslide, I won the popular vote if you deduct the millions of people who voted illegally” the posted accusations of voter fraud in  Virginia, New Hampshire, and California. 
 

@@ -24,6 +24,13 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 [https://www.cnn.com/videos/politics/2016/01/23/donald-trump-iowa-rally-shooting-sot.cnn](https://www.cnn.com/videos/politics/2016/01/23/donald-trump-iowa-rally-shooting-sot.cnn)
 
+2016-10-20 Trump repeatedly whined the Emmys were rigged against him. 
+
+[https://www.bbc.com/news/entertainment-arts-37714299](https://www.bbc.com/news/entertainment-arts-37714299)
+
+[https://www.vanityfair.com/hollywood/2016/10/emmy-winners-donald-trump?srsltid=AU7gw4V-cScFXP6Vhsh_w_xm_aHdPy98mMmswXTelokKnFsp2ryngewc](https://www.vanityfair.com/hollywood/2016/10/emmy-winners-donald-trump?srsltid=AU7gw4V-cScFXP6Vhsh_w_xm_aHdPy98mMmswXTelokKnFsp2ryngewc)
+
+
 ### 2019 "The Chosen One"
 
 2019-08-21 Trump referred to himself as "the chosen one".

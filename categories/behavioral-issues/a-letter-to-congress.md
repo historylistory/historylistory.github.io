@@ -63,6 +63,8 @@ The American people deserve leadership focused on service, competence, compassio
 
 2016-03-04 Trump repeatedly remarked about the size of his own male parts. 
 
+2016-10-20 Trump repeatedly whined the Emmys were rigged against him. 
+
 ## 2018
 
 2018-01-30 Steve Bannon told Michael Lewis, “The Democrats don’t matter. The real opposition is the media. And the way to deal with them is to flood the zone with shit”.

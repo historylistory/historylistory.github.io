@@ -48,6 +48,19 @@ permalink: /categories/crime/legal-trouble-trump/
 
 [https://www.usatoday.com/pages/interactives/trump-lawsuits/](https://www.usatoday.com/pages/interactives/trump-lawsuits/)
 
+2016-11-19 Trump claimed the courts overseeing the class action lawsuit into Trump University for racketeering and fraud were rigged.
+
+[https://www.presidency.ucsb.edu/documents/rubio-campaign-press-release-trump-university-absolute-scam-get-the-facts-about-pending](https://www.presidency.ucsb.edu/documents/rubio-campaign-press-release-trump-university-absolute-scam-get-the-facts-about-pending)
+
+[https://abcnews.com/US/judge-finalizes-25-million-settlement-victims-donald-trumps/story?id=54347237](https://abcnews.com/US/judge-finalizes-25-million-settlement-victims-donald-trumps/story?id=54347237)
+
+[https://www.bbc.com/news/world-us-canada-38021820](https://www.bbc.com/news/world-us-canada-38021820)
+
+[https://www.politico.com/blogs/under-the-radar/2016/06/donald-trump-racketeering-claim-trump-university-224517](https://www.politico.com/blogs/under-the-radar/2016/06/donald-trump-racketeering-claim-trump-university-224517)
+
+[https://www.youtube.com/watch?v=DlnMiNVFwss](https://www.youtube.com/watch?v=DlnMiNVFwss)
+
+
 ### 2019
 
 2019-11-04 Approximate starting date of lawsuits between E. Jean Carroll and Trump for sexual assault and defamation.

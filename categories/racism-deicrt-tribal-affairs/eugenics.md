@@ -55,4 +55,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/eugenics/
 
 {% include youtubePlayer.html id="YzVYyDehMUY" %}
 
- 
+### The Great Replacement Theory
+
+see also The Great Replacement Theory section

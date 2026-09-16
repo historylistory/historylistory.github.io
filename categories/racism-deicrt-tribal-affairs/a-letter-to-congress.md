@@ -809,3 +809,7 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-09-07 Thousands of New Yorkers petitioned to ask Mamdani not to attend the 9/11 ceremony because he is Muslim. 
 
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
+
+2026-09-13 Trump’s proposed Space Force uniforms were designed after the movie Starship Troopers. The Starship Troopers movie designed those uniforms after Nazi SS troops.
+
+2026-09-14 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 

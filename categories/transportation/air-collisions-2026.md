@@ -124,3 +124,8 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.nbcmiami.com/video/nbc-6-news/5-dead-5-injured-after-amazon-cargo-plane-overruns-runway-at-mia-sheriff-says/3855566/](https://www.nbcmiami.com/video/nbc-6-news/5-dead-5-injured-after-amazon-cargo-plane-overruns-runway-at-mia-sheriff-says/3855566/)
 
+2026-09-16 An NBC chopper crashed in Los Angeles. 
+
+[https://www.youtube.com/watch?v=nnpcQgjPNvs&list=WL&index=2](https://www.youtube.com/watch?v=nnpcQgjPNvs&list=WL&index=2)
+
+[https://www.nbclosangeles.com/news/local/nbc4-and-telemundo-52-statement-on-chatsworth-helicopter-crash/3942829/](https://www.nbclosangeles.com/news/local/nbc4-and-telemundo-52-statement-on-chatsworth-helicopter-crash/3942829/)

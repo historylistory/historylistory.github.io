@@ -460,4 +460,6 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-09 The US carried out another boat strike on Venezuela. 
 
+2026-09-13 Trump’s proposed Space Force uniforms were designed after the movie Starship Troopers. The Starship Troopers movie designed those uniforms after Nazi SS troops.
+
 2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 

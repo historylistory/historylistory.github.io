@@ -95,11 +95,16 @@ The examples below illustrate these concerns. For example, Trump spread misinfor
 
 2016-06-16 Trump promoted the claim that Obama helped found ISIS, telling CNBC, “No, I meant that he’s the founder of ISIS. I do. He was the most valuable player. I gave him the most valuable player award”.
 
+
+2016-07-05 Trump claimed the FBI investigation into Clinton emails was rigged. 
+
 2016-12-02 Pizzagate spread online after leaked Podesta emails were falsely interpreted as code for a Clinton-linked child sex ring.
+
+
+## 2017 
 
 2017-01-20 Though it originated in 1990, the Deep State conspiracy gained a lot of traction during Trump’s first presidency. The theory alleges a shadow government of unelected officials and corporate elites manipulate and run the country. 
 
-## 2017 
 
 2017-08-15 Trump called Unite the Right activists “very fine people”. David Duke submitted a social media post thanking Trump for his kind words about the protesters at the Unite the Right rally. Duke wrote, “Thank you President Trump for your honesty and courage to tell the truth about #Charlottesville & condemn the leftist terrorists in BLM/Antifa”.
 

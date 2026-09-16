@@ -245,3 +245,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
 
 2026-09-06 Five people were injured and 5 more were killed after an Amazon cargo plane overturned the Miami runway. 
+
+2026-09-16 An NBC chopper crashed in Los Angeles. 

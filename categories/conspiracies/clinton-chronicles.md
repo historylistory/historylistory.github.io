@@ -21,3 +21,16 @@ permalink: /categories/conspiracies/clinton-chronicles/
 [https://www.motherjones.com/politics/2015/03/ted-cruz-liberty-university-falwell-clinton-bodycount/](https://www.motherjones.com/politics/2015/03/ted-cruz-liberty-university-falwell-clinton-bodycount/)
 
 [https://www.vanityfair.com/news/2022/01/inside-jerry-falwell-jr-unlikely-rise-and-precipitous-fall?srsltid=AfmBOoqlafoeNhCf5df1nc2j5ea_FWEggauIGEDsRPoVW-RFBaDOq6e7](https://www.vanityfair.com/news/2022/01/inside-jerry-falwell-jr-unlikely-rise-and-precipitous-fall?srsltid=AfmBOoqlafoeNhCf5df1nc2j5ea_FWEggauIGEDsRPoVW-RFBaDOq6e7)
+
+### 2016
+
+2016-07-05 Trump claimed the FBI investigation into Clinton emails was rigged. 
+
+[https://time.com/4205867/trump-cruz-illegally-stole-iowa-caucus-win/](https://time.com/4205867/trump-cruz-illegally-stole-iowa-caucus-win/)
+
+[https://www.nbcphiladelphia.com/news/national-international/trump-calls-system-rigged-after-fbi-recommends-no-charges-against-clinton/2049527/](https://www.nbcphiladelphia.com/news/national-international/trump-calls-system-rigged-after-fbi-recommends-no-charges-against-clinton/2049527/)
+
+PAY WALL [https://www.washingtonpost.com/world/national-security/trump-charges-that-clinton-email-probe-was-rigged-based-on-when-comey-drafted-statement-about-it/2017/09/01/382eea60-8f2b-11e7-8df5-c2e5cf46c1e2_story.html](https://www.washingtonpost.com/world/national-security/trump-charges-that-clinton-email-probe-was-rigged-based-on-when-comey-drafted-statement-about-it/2017/09/01/382eea60-8f2b-11e7-8df5-c2e5cf46c1e2_story.html)\
+
+SUB WALL [https://www.politico.com/story/2017/09/01/trump-tweet-james-comey-clinton-email-exoneration-242248](https://www.politico.com/story/2017/09/01/trump-tweet-james-comey-clinton-email-exoneration-242248)
+

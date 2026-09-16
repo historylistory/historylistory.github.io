@@ -451,3 +451,17 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.notus.org/money/pardon-lobbyists-president-donald-trump](https://www.notus.org/money/pardon-lobbyists-president-donald-trump)
 
 [https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/](https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/)
+
+### 2026 September
+
+2026-09-13 Pardon brokers and lobbyists were caught on hidden camera selling their ties to Trump for large fees to those seeking pardons. 
+
+[https://www.youtube.com/watch?v=Aulhdx6Zx7w&list=WL&index=5&t=62s](https://www.youtube.com/watch?v=Aulhdx6Zx7w&list=WL&index=5&t=62s)
+
+[https://finance.yahoo.com/economy/policy/articles/pardon-brokers-caught-hidden-camera-213000600.html](https://finance.yahoo.com/economy/policy/articles/pardon-brokers-caught-hidden-camera-213000600.html)
+
+[https://www.cbsnews.com/news/trump-pardon-economy-60-minutes-transcript/](https://www.cbsnews.com/news/trump-pardon-economy-60-minutes-transcript/)
+
+[https://www.cbsnews.com/news/trump-pardon-lobbyists-60-minutes/](https://www.cbsnews.com/news/trump-pardon-lobbyists-60-minutes/)
+
+[https://people.com/60-minutes-returns-with-hidden-camera-report-on-maga-pardon-brokers-12120757](https://people.com/60-minutes-returns-with-hidden-camera-report-on-maga-pardon-brokers-12120757)

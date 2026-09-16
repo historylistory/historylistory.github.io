@@ -231,3 +231,16 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 [https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853](https://www.ibtimes.co.uk/controversial-pastor-revives-discredited-doctrine-1807853)
 
 [https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)
+
+### 2026 September
+
+2026-09-14 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
+
+[https://www.youtube.com/watch?v=mlZhdBn9LHk&list=WL&index=1](https://www.youtube.com/watch?v=mlZhdBn9LHk&list=WL&index=1)
+
+[https://www.texastribune.org/2026/09/14/bo-french-university-texas-austin-students/](https://www.texastribune.org/2026/09/14/bo-french-university-texas-austin-students/)
+
+[https://www.houstonpublicmedia.org/articles/news/politics/election-2026/2026/09/14/561685/several-texas-republicans-condemn-bo-frenchs-racist-posts-calling-asian-students-at-ut-a-problem/](https://www.houstonpublicmedia.org/articles/news/politics/election-2026/2026/09/14/561685/several-texas-republicans-condemn-bo-frenchs-racist-posts-calling-asian-students-at-ut-a-problem/)
+
+[https://www.fox4news.com/news/statewide-gop-nominee-bo-french-sparks-outrage-after-targeting-ut-football-fans-online](https://www.fox4news.com/news/statewide-gop-nominee-bo-french-sparks-outrage-after-targeting-ut-football-fans-online)
+

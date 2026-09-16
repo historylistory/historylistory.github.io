@@ -487,3 +487,14 @@ TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](htt
 [https://www.timesofisrael.com/german-far-right-afd-partys-projected-win-puts-jews-between-the-left-and-a-hard-place/](https://www.timesofisrael.com/german-far-right-afd-partys-projected-win-puts-jews-between-the-left-and-a-hard-place/)
 
 MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951](https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951)
+
+2026-09-13 Trump’s proposed Space Force uniforms were designed after the movie Starship Troopers. The Starship Troopers movie designed those uniforms after Nazi SS troops.
+
+[https://www.youtube.com/watch?v=FAOkUojI1lg&list=WL&index=6](https://www.youtube.com/watch?v=FAOkUojI1lg&list=WL&index=6)
+
+[https://www.military.com/trump-says-new-space-force-uniforms-inspired-sci-fi-film-nazi-undertones](https://www.military.com/trump-says-new-space-force-uniforms-inspired-sci-fi-film-nazi-undertones)
+
+[https://www.forbes.com/sites/petersuciu/2026/09/07/proposed-us-space-force-uniforms-earn-sci-fi-fascist-comparisons/](https://www.forbes.com/sites/petersuciu/2026/09/07/proposed-us-space-force-uniforms-earn-sci-fi-fascist-comparisons/)
+
+PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html](https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html)
+

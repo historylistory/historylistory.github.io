@@ -84,7 +84,11 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
+2016-02-03 Trump accused Ted Cruz of fraud and claimed the Iowa Caucus was rigged. 
+
 2016-10-16 Trump posted, "The election is absolutely being rigged by the dishonest and distorted media pushing Crooked Hillary - but also at many polling places - SAD."
+
+2016-11-27 Trump claimed Wisconsin primaries were rigged. 
 
 2016-11-27 Trump posted, “In addition to winning the Electoral College in a landslide, I won the popular vote if you deduct the millions of people who voted illegally” the posted accusations of voter fraud in  Virginia, New Hampshire, and California. 
 

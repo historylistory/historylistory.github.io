@@ -436,6 +436,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-11-20 Reports indicated that the USAID shut down directly led to roughly 600,000 or more preventable deaths worldwide. 
 
+2025-11-20 After the FDA claimed the American infant formula supply was safe, at least 52 babies were hospitalized during two outbreaks for botulism. 
+
 2025-11-24 The EPA approved two new pesticides with “forever chemicals” that would be used on food.
 
 2025-11-27 The State Department directed its employees and grant-recipients to not commemorate World Aids Day.
