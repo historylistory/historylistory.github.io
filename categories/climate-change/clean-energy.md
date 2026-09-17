@@ -79,6 +79,9 @@ Oil dependency is the bottom-line for investors, which is why they repeatedly bl
 
 2025-08-26 Trump cancelled a nearly complete offshore wind project (Revolution Wind in RI and CT) and announced his plans to “drill-baby-drill” stating, “We don’t call it coal, we call it clean coal, and even very very clean coal”.
 
+[https://apnews.com/article/offshore-revolution-wind-project-stopped-trump-33214b9efb8f3f7a98c58299581bff9f](https://apnews.com/article/offshore-revolution-wind-project-stopped-trump-33214b9efb8f3f7a98c58299581bff9f)
+
+
 [https://www.youtube.com/watch?v=sp97kSwaBfQ](https://www.youtube.com/watch?v=sp97kSwaBfQ)
 
 {% include youtubePlayer.html id="sp97kSwaBfQ" %}
@@ -148,8 +151,6 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 ### 2026 May
 
 2026-05-18 The White House passed legislation for a national annual $130 registration fee for electric vehicles. 
-
-[https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/](https://www.nvidia.com/en-us/geforce/forums/game-ready-drivers/13/584070/announcing-geforce-hotfix-driver-59602-released-32/)
 
 [https://finance.yahoo.com/economy/policy/articles/house-lawmakers-propose-130-annual-173816714.html](https://finance.yahoo.com/economy/policy/articles/house-lawmakers-propose-130-annual-173816714.html)
 

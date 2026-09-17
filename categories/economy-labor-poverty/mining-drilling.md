@@ -22,6 +22,10 @@ permalink: /categories/economy-labor-poverty/mining-drilling/
 
 2025-08-26 Trump cancelled a nearly complete offshore wind project (Revolution Wind in RI and CT) and announced his plans to “drill-baby-drill” stating, “We don’t call it coal, we call it clean coal, and even very very clean coal”.
 
+[https://apnews.com/article/offshore-revolution-wind-project-stopped-trump-33214b9efb8f3f7a98c58299581bff9f](https://apnews.com/article/offshore-revolution-wind-project-stopped-trump-33214b9efb8f3f7a98c58299581bff9f)
+
+[https://www.youtube.com/watch?v=sp97kSwaBfQ](https://www.youtube.com/watch?v=sp97kSwaBfQ)
+
 {% include youtubePlayer.html id="sp97kSwaBfQ" %}
 
 ### 2025 October
