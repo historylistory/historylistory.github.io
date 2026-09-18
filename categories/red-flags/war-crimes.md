@@ -763,3 +763,9 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report](https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report)
 
 [https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank](https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank)
+
+2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
+
+[https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment](https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment)
+
+[https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/](https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/)

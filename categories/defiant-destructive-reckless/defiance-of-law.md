@@ -666,3 +666,11 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/](https://www.tmz.com/2026/08/19/donald-trump-aide-natalie-harp-worked-without-security-clearance/)
 
+### 2026 September
+
+2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
+
+[https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment](https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment)
+
+[https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/](https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/)
+

@@ -981,3 +981,15 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 [https://www.pbs.org/newshour/politics/trump-says-the-only-ai-guardrails-the-u-s-needs-is-him-as-president](https://www.pbs.org/newshour/politics/trump-says-the-only-ai-guardrails-the-u-s-needs-is-him-as-president)
 
 SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pushback-01074230](https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pushback-01074230)
+
+2026-09-15 Kash Patel was questioned about lowering FBI standards
+
+[https://www.cbsnews.com/live-updates/fbi-director-kash-patel-testify-senate-panel/](https://www.cbsnews.com/live-updates/fbi-director-kash-patel-testify-senate-panel/)
+
+[https://federalnewsnetwork.com/workforce/2026/09/fbi-chief-kash-patel-is-set-to-face-off-with-democrats-critical-of-his-leadership-at-senate-hearing/](https://federalnewsnetwork.com/workforce/2026/09/fbi-chief-kash-patel-is-set-to-face-off-with-democrats-critical-of-his-leadership-at-senate-hearing/)
+
+2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
+
+[https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment](https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment)
+
+[https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/](https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/)

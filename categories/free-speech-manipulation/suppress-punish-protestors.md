@@ -461,3 +461,16 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 [https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
 
 [https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)
+
+2026-09-14 After rapper Macklemore defended Palestinian rights Ed Sheeran kicked him off the tour after pressure from stadium owner Robert Kraft. 
+
+[https://www.rollingstone.com/music/music-news/macklemore-dropped-ed-sheeran-tour-pro-palestine-statements-1235625967/](https://www.rollingstone.com/music/music-news/macklemore-dropped-ed-sheeran-tour-pro-palestine-statements-1235625967/)
+
+[https://www.npr.org/2026/09/16/g-s1-143549/ed-sheeran-tour-trouble](https://www.npr.org/2026/09/16/g-s1-143549/ed-sheeran-tour-trouble)
+
+[https://pitchfork.com/story/macklemore-kicked-off-ed-sheeran-tour-for-pro-palestine-comments/](https://pitchfork.com/story/macklemore-kicked-off-ed-sheeran-tour-for-pro-palestine-comments/)
+
+ROBERT KRAFT PROSTITUTION BUST [https://www.tmz.com/2026/02/08/jordon-hudson-robert-kraft-prostitution-bust-t-shirt/](https://www.tmz.com/2026/02/08/jordon-hudson-robert-kraft-prostitution-bust-t-shirt/)
+
+HYPOCRISY AFTER KRAFT LET KANYE WEST SING HEIL HITLER [https://www.ms.now/opinion/macklemore-ed-sheeran-robert-kraft-free-palestine](https://www.ms.now/opinion/macklemore-ed-sheeran-robert-kraft-free-palestine)
+

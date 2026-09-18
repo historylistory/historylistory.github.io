@@ -399,3 +399,13 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/](https://www.facebook.com/mynbc15/posts/mapquest-hits-no-1-in-app-stores-after-refusing-to-rename-lake-ontario/1550500230447597/)
 
 [https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/](https://www.uppermichiganssource.com/2026/09/02/mapquest-reports-surge-downloads-while-apple-google-change-name-lake-america-us-users/)
+
+2026-09-17 Trump threatened to tear down the Kennedy Center if a judge won’t let him put his name on it. 
+
+[https://www.npr.org/2026/09/17/nx-s1-5973036/trump-threat-tear-down-kennedy-center](https://www.npr.org/2026/09/17/nx-s1-5973036/trump-threat-tear-down-kennedy-center)
+
+[https://apnews.com/video/senators-defend-kennedy-center-as-trump-threatens-to-demolish-it-42681bfea0fc40aca3e780cb325da293](https://apnews.com/video/senators-defend-kennedy-center-as-trump-threatens-to-demolish-it-42681bfea0fc40aca3e780cb325da293)
+
+[https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/](https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/)
+
+[https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html](https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html)

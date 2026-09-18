@@ -995,3 +995,14 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 [https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
 
 SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)
+
+2026-09-17 Trump threatened to tear down the Kennedy Center if a judge won’t let him put his name on it. 
+
+[https://www.npr.org/2026/09/17/nx-s1-5973036/trump-threat-tear-down-kennedy-center](https://www.npr.org/2026/09/17/nx-s1-5973036/trump-threat-tear-down-kennedy-center)
+
+[https://apnews.com/video/senators-defend-kennedy-center-as-trump-threatens-to-demolish-it-42681bfea0fc40aca3e780cb325da293](https://apnews.com/video/senators-defend-kennedy-center-as-trump-threatens-to-demolish-it-42681bfea0fc40aca3e780cb325da293)
+
+[https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/](https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/)
+
+[https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html](https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html)
+

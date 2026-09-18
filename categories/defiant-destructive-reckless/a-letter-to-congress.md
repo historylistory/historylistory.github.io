@@ -582,3 +582,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-09-08 Investigators polygraphed about 50 military leaders amidst reports of shrinking weapon supplies such as Patriot interceptors and long range missiles. They were interrogated about sharing information with media. 
 
 2026-09-14 Trump pushed back against Anthropic’s plea for guardrails, writing, “The only control or guardrails that AI needs is a STRONG AND SMART (High IQ!) PRESIDENT, and the U.S.A. has that, in spades! … There is a SICK conspiracy going on against AI and Data Centers, and the only one that is happy about it is China. WHOEVER WINS AI, WINS!”
+
+2026-09-15 Kash Patel was questioned about lowering FBI standards
+
+2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
+
+2026-09-17 Trump threatened to tear down the Kennedy Center if a judge won’t let him put his name on it. 

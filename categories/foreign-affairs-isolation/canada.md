@@ -171,3 +171,10 @@ permalink: /categories/foreign-affairs-isolation/canada/
 [https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/](https://time.com/article/2026/09/08/why-the-u-k-canada-and-france-are-banning-trade-with-israeli-settlements/)
 
 [https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
+
+2026-09-16 Canada formally applied to join a UK-led Joint Expeditionary Force. 
+
+[https://www.reuters.com/world/canada-applies-join-uk-led-military-coalition-says-carneys-office-2026-09-16/](https://www.reuters.com/world/canada-applies-join-uk-led-military-coalition-says-carneys-office-2026-09-16/)
+
+[https://www.cbc.ca/news/politics/canada-britain-military-expeditionary-force-nato-9.7347144](https://www.cbc.ca/news/politics/canada-britain-military-expeditionary-force-nato-9.7347144)
+

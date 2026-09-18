@@ -116,6 +116,15 @@ permalink: /categories/transportation/air-collisions-2026/
 
 ### 2026 September
 
+2026-09-01 A plane crash landed near a Lebanon Tennessee school playground. 
+
+[https://www.wkrn.com/news/local-news/plane-crash-landed-near-lebanon-school-playground/](https://www.wkrn.com/news/local-news/plane-crash-landed-near-lebanon-school-playground/)
+
+[https://www.wbir.com/article/news/local/nashville/lebanon-police-release-body-camera-footage-plane-crash-near-elementary-school/51-1e094b21-4636-4429-87ea-788820d6bcb4](https://www.wbir.com/article/news/local/nashville/lebanon-police-release-body-camera-footage-plane-crash-near-elementary-school/51-1e094b21-4636-4429-87ea-788820d6bcb4)
+
+[https://www.newschannel5.com/news/small-aircraft-down-in-lebanon-area-emergency-crews-advise-to-avoid-the-area-officials](https://www.newschannel5.com/news/small-aircraft-down-in-lebanon-area-emergency-crews-advise-to-avoid-the-area-officials)
+
+
 2026-09-06 Five people were injured and 5 more were killed after an Amazon cargo plane overturned the Miami runway. 
 
 [https://www.youtube.com/watch?v=gwXcePXD3sw&list=WL&index=3](https://www.youtube.com/watch?v=gwXcePXD3sw&list=WL&index=3)
@@ -129,3 +138,12 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.youtube.com/watch?v=nnpcQgjPNvs&list=WL&index=2](https://www.youtube.com/watch?v=nnpcQgjPNvs&list=WL&index=2)
 
 [https://www.nbclosangeles.com/news/local/nbc4-and-telemundo-52-statement-on-chatsworth-helicopter-crash/3942829/](https://www.nbclosangeles.com/news/local/nbc4-and-telemundo-52-statement-on-chatsworth-helicopter-crash/3942829/)
+
+2026-09-17 A Texas F16 fighter jet crashed into a residential area of Michigan. 
+
+[https://www.nbcnews.com/news/us-news/f-16-fighter-jet-crashes-residential-area-northern-michigan-rcna598451](https://www.nbcnews.com/news/us-news/f-16-fighter-jet-crashes-residential-area-northern-michigan-rcna598451)
+
+[https://apnews.com/article/michigan-small-plane-crash-blair-township-c57560049adbe6145f99317b6459bf38](https://apnews.com/article/michigan-small-plane-crash-blair-township-c57560049adbe6145f99317b6459bf38)
+
+[https://www.usatoday.com/story/news/nation/2026/09/17/fighter-jet-crashes-michigan/91813994007/](https://www.usatoday.com/story/news/nation/2026/09/17/fighter-jet-crashes-michigan/91813994007/)
+

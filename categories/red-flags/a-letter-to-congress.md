@@ -463,3 +463,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-13 Trump’s proposed Space Force uniforms were designed after the movie Starship Troopers. The Starship Troopers movie designed those uniforms after Nazi SS troops.
 
 2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 
+
+2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
