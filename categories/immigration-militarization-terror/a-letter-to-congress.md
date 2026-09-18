@@ -957,3 +957,5 @@ Next
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
 
 2026-09-14 A federal judge blocked Trump from enforcing VISA limit lengths on international students in Massachusetts.
+
+2026-09-14 Mamdani filed a lawsuit to block a Public Charge Rule which would give immigration officials wide discretion to deny green cards, visas, or admissions if the applicants might need food stamps or housing vouchers. 

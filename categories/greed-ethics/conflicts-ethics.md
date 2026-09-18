@@ -831,3 +831,8 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 
 [https://www.cbsnews.com/news/donald-trump-jr-wife-wedding-russian-umar-kremlev/](https://www.cbsnews.com/news/donald-trump-jr-wife-wedding-russian-umar-kremlev/)
 
+2026-09-16 A committee confirmed Trump made more stock trades in 17 months than all of Congress combined. 
+
+[https://www.yahoo.com/news/politics/articles/trump-made-more-stock-trades-012706814.html](https://www.yahoo.com/news/politics/articles/trump-made-more-stock-trades-012706814.html)
+
+[https://www.democracynow.org/2026/9/16/headlines/bloomberg_trump_made_nearly_28_700_stock_trades_in_17_month_more_than_all_of_congress](https://www.democracynow.org/2026/9/16/headlines/bloomberg_trump_made_nearly_28_700_stock_trades_in_17_month_more_than_all_of_congress)

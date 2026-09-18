@@ -86,3 +86,11 @@ SUB WALL [https://www.politico.com/news/2025/04/06/kennedy-support-measles-vacci
 
 PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/](https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsylvania-disputed-rfk-jr-josh-shapiro-feud/)
 
+### 2026 September
+
+2026-09-16 Pennsylvania reported the fourth measles-related death in the month
+
+[https://www.statnews.com/2026/09/15/fourth-measles-death-pennsylvania-acute-disseminated-encephalomyelitis/](https://www.statnews.com/2026/09/15/fourth-measles-death-pennsylvania-acute-disseminated-encephalomyelitis/)
+
+[https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles](https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles)
+

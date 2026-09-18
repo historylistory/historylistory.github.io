@@ -465,3 +465,11 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 
 
 2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
+
+2026-09-16 The US House of Representatives voted to end the war in Iran. 
+
+2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
+
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. 
+
+2026-09-16 US Space Force launched weapons into orbit.

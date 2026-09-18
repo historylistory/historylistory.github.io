@@ -67,3 +67,13 @@ permalink: /categories/climate-change/ai-impacts/
 2026-05-22 More reports linked data centers to major environmental damage.
 
 [https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s](https://www.youtube.com/watch?v=J3vMidXgWoQ&list=WL&index=10&t=82s)
+
+### 2026 September
+
+2026-09-16 The Equinox Data Center in New Jersey had a fuel leak and contaminated nearby rivers. 
+
+[https://gothamist.com/news/broken-valves-caused-a-data-center-to-spill-5k-gallons-of-diesel-in-njs-meadowlands](https://gothamist.com/news/broken-valves-caused-a-data-center-to-spill-5k-gallons-of-diesel-in-njs-meadowlands)
+
+[https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J](https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J)
+
+[https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/](https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/)

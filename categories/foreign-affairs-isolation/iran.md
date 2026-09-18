@@ -2208,6 +2208,15 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 
 SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191](https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-01069191)
 
+2026-09-13 Trump officials secretly met with Houthi representatives in Oman. 
+
+[https://www.reuters.com/world/middle-east/us-officials-met-iran-backed-houthis-oman-over-weekend-sources-say-2026-09-16/](https://www.reuters.com/world/middle-east/us-officials-met-iran-backed-houthis-oman-over-weekend-sources-say-2026-09-16/)
+
+[https://www.france24.com/en/trump-declines-to-back-saudi-arabia-as-us-officials-reportedly-meet-iran-backed-houthis-in-oman](https://www.france24.com/en/trump-declines-to-back-saudi-arabia-as-us-officials-reportedly-meet-iran-backed-houthis-in-oman)
+
+[https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
+
+
 2026-09-14 Iran was blocked from joining UN talks in Vienna.
 
 [https://www.jpost.com/middle-east/iran-news/article-908489](https://www.jpost.com/middle-east/iran-news/article-908489)
@@ -2221,3 +2230,10 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.iranintl.com/en/202609141692](https://www.iranintl.com/en/202609141692)
 
 TIMESTAMP 3:45 [https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s](https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s)
+
+2026-09-16 The US House of Representatives voted to end the war in Iran. 
+
+[https://www.aljazeera.com/news/2026/9/16/us-house-votes-to-end-iran-war-7-republicans-join-in-favour](https://www.aljazeera.com/news/2026/9/16/us-house-votes-to-end-iran-war-7-republicans-join-in-favour)
+
+[https://www.pbs.org/newshour/politics/iowa-republicans-in-battleground-house-races-join-vote-to-halt-the-iran-war](https://www.pbs.org/newshour/politics/iowa-republicans-in-battleground-house-races-join-vote-to-halt-the-iran-war)
+

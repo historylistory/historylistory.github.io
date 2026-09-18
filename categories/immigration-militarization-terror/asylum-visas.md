@@ -305,3 +305,12 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 [https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/](https://www.statnews.com/2026/09/14/court-halts-dhs-visa-limits-foreign-scholars/)
 
 [https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists](https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists)
+
+2026-09-14 Mamdani filed a lawsuit to block a Public Charge Rule which would give immigration officials wide discretion to deny green cards, visas, or admissions if the applicants might need food stamps or housing vouchers. 
+
+[https://www.youtube.com/watch?v=GudnBCrXrJQ&list=WL&index=3](https://www.youtube.com/watch?v=GudnBCrXrJQ&list=WL&index=3)
+
+[https://www.nydailynews.com/2026/09/18/fighting-back-on-trumps-cruel-public-charge-plan/](https://www.nydailynews.com/2026/09/18/fighting-back-on-trumps-cruel-public-charge-plan/)
+
+[https://www.nyc.gov/mayors-office/news/2026/09/new-york-city-leads-cities-and-counties-in-lawsuit-challenging-f](https://www.nyc.gov/mayors-office/news/2026/09/new-york-city-leads-cities-and-counties-in-lawsuit-challenging-f)
+

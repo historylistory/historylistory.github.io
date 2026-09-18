@@ -438,3 +438,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
 
 2026-09-14 Donald Trump Jr’s Bahama destination wedding was bankrolled by Russian oligarchs. 
+
+2026-09-16 A committee confirmed Trump made more stock trades in 17 months than all of Congress combined. 

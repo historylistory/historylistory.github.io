@@ -143,3 +143,23 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.youtube.com/watch?v=9wDr2dec474&list=WL&index=3&t=191s](https://www.youtube.com/watch?v=9wDr2dec474&list=WL&index=3&t=191s)
 
 [https://www.wxyz.com/news/voices/neighbors-say-noise-from-michigan-data-center-is-24-7-and-upending-their-lives\](https://www.wxyz.com/news/voices/neighbors-say-noise-from-michigan-data-center-is-24-7-and-upending-their-lives)
+
+### 2026 September
+
+2026-09-16 The Equinox Data Center in New Jersey had a fuel leak and contaminated nearby rivers. 
+
+[https://gothamist.com/news/broken-valves-caused-a-data-center-to-spill-5k-gallons-of-diesel-in-njs-meadowlands](https://gothamist.com/news/broken-valves-caused-a-data-center-to-spill-5k-gallons-of-diesel-in-njs-meadowlands)
+
+[https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J](https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J)
+
+[https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/](https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/)
+
+2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.
+
+[https://www.youtube.com/watch?v=GSJdxKBSebQ&list=WL&index=5](https://www.youtube.com/watch?v=GSJdxKBSebQ&list=WL&index=5)
+
+[https://www.politico.com/news/2026/09/16/house-passes-bill-data-center-power-costs-01076743](https://www.politico.com/news/2026/09/16/house-passes-bill-data-center-power-costs-01076743)
+
+[https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html](https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html)
+
+[https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/](https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/)

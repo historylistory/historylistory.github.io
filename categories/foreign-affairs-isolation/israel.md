@@ -729,3 +729,9 @@ FROM 2025 [https://www.nyclu.org/press-release/cuny-must-release-investment-reco
 [https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report](https://www.theguardian.com/world/ng-interactive/2026/sep/14/israel-palestinian-living-conditions-eliminated-west-bank-human-rights-report)
 
 [https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank](https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank)
+
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. 
+
+[https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel](https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel)
+
+[https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/](https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/)

@@ -547,3 +547,7 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/](https://time.com/article/2026/09/06/what-the-pentagon-s-sweeping-polygraph-hunt-has-revealed/)
 
 PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html](https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygraph-tests.html)
+
+2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
+
+TIMESTAMP 1:43: [https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4](https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4)

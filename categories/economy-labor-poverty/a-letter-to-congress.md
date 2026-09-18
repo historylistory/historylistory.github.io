@@ -1221,3 +1221,6 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-12 Laura Ingraham asked Trump why he wouldn’t issue the $5000 now instead of pledging to wait until after the election. Trump blamed that on Democrats. After the pledge, Trump told CBS Texas he didn’t think the payments would require Congressional approval. 
 
 2026-09-12 Ted Cruz was booed during his appearance at ESPN’s College GameDay as he tried to push a new college sports act aimed to set new rules, give antitrust exemptions, and ban unions. Disney also lobbied for the new legislation. 
+
+
+2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.

@@ -511,3 +511,12 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 
 [https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists](https://www.theguardian.com/us-news/2026/sep/15/judge-blocks-trump-limits-foreign-students-journalists)
 
+2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.
+
+[https://www.youtube.com/watch?v=GSJdxKBSebQ&list=WL&index=5](https://www.youtube.com/watch?v=GSJdxKBSebQ&list=WL&index=5)
+
+[https://www.politico.com/news/2026/09/16/house-passes-bill-data-center-power-costs-01076743](https://www.politico.com/news/2026/09/16/house-passes-bill-data-center-power-costs-01076743)
+
+[https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html](https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html)
+
+[https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/](https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/)

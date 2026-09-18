@@ -506,3 +506,15 @@ MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-fa
 [https://www.forbes.com/sites/petersuciu/2026/09/07/proposed-us-space-force-uniforms-earn-sci-fi-fascist-comparisons/](https://www.forbes.com/sites/petersuciu/2026/09/07/proposed-us-space-force-uniforms-earn-sci-fi-fascist-comparisons/)
 
 PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html](https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html)
+
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. 
+
+[https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel](https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel)
+
+[https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/](https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/)
+
+2026-09-16 US Space Force launched weapons into orbit.
+
+[https://www.military.com/us-space-force-confirms-weapons-orbit-heres-what-they-could-include](https://www.military.com/us-space-force-confirms-weapons-orbit-heres-what-they-could-include)
+
+[https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence](https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence)

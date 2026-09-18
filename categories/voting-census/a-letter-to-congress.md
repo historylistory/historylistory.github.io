@@ -558,3 +558,6 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 
 2026-09-14 SCOTUS blocked Trump’s effort to restrict mail-in voting ahead of midterms.
+
+
+2026-09-16 Kash Patel said he might be sending federal agents to polling places for the midterms. He said, “We have election crisis coordinators manned at all 56 field offices. Election integrity is of paramount importance. This FBI is not going to shy away from that effort.”

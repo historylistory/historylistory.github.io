@@ -461,3 +461,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-09-08 A National Guard member was arrested for pulling a gun on a fellow soldier. 
 
 2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
+
+2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 

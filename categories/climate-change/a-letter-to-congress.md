@@ -522,3 +522,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-14 The EPA scrapped coal and gas plant carbon emission standards during a G20 meeting in Houston. 
 
 2026-09-15 Air pollution spiked after the Trump administration ended embassy monitoring. 
+
+2026-09-16 The Equinox Data Center in New Jersey had a fuel leak and contaminated nearby rivers. 

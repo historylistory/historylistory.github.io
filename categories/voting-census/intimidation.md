@@ -147,4 +147,12 @@ THAT INTERVIEW, SUB WALL: [https://www.nytimes.com/2026/01/11/us/trump-voting-ma
 ABOUT LETTER FROM Gen. Dan Caine to Sen. Slotkin [https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/](https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/)
 
 FROM 2025 [https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places](https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places)
- 
+
+### 2026 September
+
+2026-09-16 Kash Patel said he might be sending federal agents to polling places for the midterms. He said, “We have election crisis coordinators manned at all 56 field offices. Election integrity is of paramount importance. This FBI is not going to shy away from that effort.”
+
+[https://time.com/article/2026/09/16/midterms-democrats-election-interference-voter-intimidation-trump-administration-concerns/](https://time.com/article/2026/09/16/midterms-democrats-election-interference-voter-intimidation-trump-administration-concerns/)
+
+[https://www.pbs.org/newshour/politics/watch-patel-grilled-on-whether-hell-send-agents-to-the-polls-in-november](https://www.pbs.org/newshour/politics/watch-patel-grilled-on-whether-hell-send-agents-to-the-polls-in-november)
+

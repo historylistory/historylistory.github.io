@@ -710,3 +710,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-09-08 Mamdani released 170,000 newly uncovered documents of the September 11th attacks showed air quality contamination reports were hidden and only recently found last year. Juliani attacked Mamdani on Newsmax, claiming Mamdani was part of an alleged Muslim plot aimed at taking over America. 
 
 2026-09-11 Ebola cases in the DRC surpassed 7000. 
+
+2026-09-16 Pennsylvania reported the fourth measles-related death in the month
