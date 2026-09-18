@@ -392,3 +392,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
+
+2026-09-17 Nine children were killed and more than 57,000 children displaced in Yemen. 

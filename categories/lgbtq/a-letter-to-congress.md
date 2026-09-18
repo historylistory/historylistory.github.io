@@ -282,3 +282,5 @@ The following sections outline my concerns in greater detail. Some of the inform
 2026-09-04 A disruptive passenger on American Airlines flight 618 was detained and duct taped to his chair after he became erratic, shouting racist and homophobic slurs and tried to assault other passengers. 
 
 2026-09-14 In Turkey authorities detained 162 people in a series of raids on LGBTQ bars and homes as part of a homophobic campaign called “Keep My Family Safe”. 
+
+2026-09-17 Wake county parents want to opt their kids out of music class because the teacher is transgender. The parents are also threatening lawsuits.

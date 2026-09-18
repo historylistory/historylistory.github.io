@@ -470,6 +470,6 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
 
-2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. 
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. In response to Trump’s $2.8BN weapons package to Israel, Congressmember Gregory Meeks of New York stated, “The Trump administration has not provided sufficient assurances that these weapons will be used by the Netanyahu government in accordance with US law and with appropriate protections for civilians. I therefore will not clear this sale at this time”. 
 
 2026-09-16 US Space Force launched weapons into orbit.

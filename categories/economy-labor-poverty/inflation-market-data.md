@@ -502,3 +502,12 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 [https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury](https://www.axios.com/2026/09/10/bessent-bonds-buyback-treasury)
 
 [https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html](https://finance.yahoo.com/economy/policy/articles/treasury-secretary-scott-bessent-tripling-112601376.html)
+
+2026-09-17 The Federal Reserve voted unanimously to hike interest rates.
+
+[https://finance.yahoo.com/economy/policy/article/fed-raises-interest-rates-by-a-quarter-point-in-unanimous-decision-marking-first-hike-in-3-years-171212149.html](https://finance.yahoo.com/economy/policy/article/fed-raises-interest-rates-by-a-quarter-point-in-unanimous-decision-marking-first-hike-in-3-years-171212149.html)
+
+[https://www.wsj.com/economy/central-banking/fed-raises-rates-for-first-time-in-three-years-08539fbe](https://www.wsj.com/economy/central-banking/fed-raises-rates-for-first-time-in-three-years-08539fbe)
+
+[https://www.cnbc.com/2026/09/16/fed-rate-decision-september-2026.html](https://www.cnbc.com/2026/09/16/fed-rate-decision-september-2026.html)
+

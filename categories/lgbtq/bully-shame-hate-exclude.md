@@ -258,3 +258,15 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html](https://sports.yahoo.com/articles/not-everyone-gonna-caitlin-clark-223422870.html)
 
 [https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba](https://www.theguardian.com/sport/2026/jul/03/caitlin-clark-alyssa-thomas-online-harassment-wnba)
+
+### 2026 September
+
+2026-09-17 Wake county parents want to opt their kids out of music class because the teacher is transgender. The parents are also threatening lawsuits.
+
+[https://www.youtube.com/watch?v=lW7eJkNdnGE&list=WL&index=1](https://www.youtube.com/watch?v=lW7eJkNdnGE&list=WL&index=1)
+
+[https://www.cbs17.com/news/local-news/wake-county-news/wake-county-parents-threaten-lawsuit-over-option-to-remove-kids-from-transgender-teachers-class/](https://www.cbs17.com/news/local-news/wake-county-news/wake-county-parents-threaten-lawsuit-over-option-to-remove-kids-from-transgender-teachers-class/)
+
+[https://www.newsobserver.com/news/local/education/article317127864.html](https://www.newsobserver.com/news/local/education/article317127864.html)
+
+[https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/](https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/)

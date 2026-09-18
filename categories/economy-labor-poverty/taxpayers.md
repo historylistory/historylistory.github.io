@@ -729,3 +729,14 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
+
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. In response to Trump’s $2.8BN weapons package to Israel, Congressmember Gregory Meeks of New York stated, “The Trump administration has not provided sufficient assurances that these weapons will be used by the Netanyahu government in accordance with US law and with appropriate protections for civilians. I therefore will not clear this sale at this time”. 
+
+[https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel](https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel)
+
+[https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/](https://novaramedia.com/2026/09/17/trump-to-send-40k-bombs-to-israel-in-2-8bn-deal/)
+
+[https://www.democracynow.org/2026/9/17/headlines/democratic_rep_meeks_refuses_to_clear_trump_s_28_billion_arms_sale_to_israel](https://www.democracynow.org/2026/9/17/headlines/democratic_rep_meeks_refuses_to_clear_trump_s_28_billion_arms_sale_to_israel)
+
+[https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/](https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/)
+

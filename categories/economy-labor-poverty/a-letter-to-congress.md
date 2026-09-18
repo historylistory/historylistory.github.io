@@ -1222,5 +1222,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-09-12 Ted Cruz was booed during his appearance at ESPN’s College GameDay as he tried to push a new college sports act aimed to set new rules, give antitrust exemptions, and ban unions. Disney also lobbied for the new legislation. 
 
+2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. In response to Trump’s $2.8BN weapons package to Israel, Congressmember Gregory Meeks of New York stated, “The Trump administration has not provided sufficient assurances that these weapons will be used by the Netanyahu government in accordance with US law and with appropriate protections for civilians. I therefore will not clear this sale at this time”. 
+
 
 2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.
+
+2026-09-17 The Federal Reserve voted unanimously to hike interest rates.

@@ -265,3 +265,9 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 [https://www.france24.com/en/trump-declines-to-back-saudi-arabia-as-us-officials-reportedly-meet-iran-backed-houthis-in-oman](https://www.france24.com/en/trump-declines-to-back-saudi-arabia-as-us-officials-reportedly-meet-iran-backed-houthis-in-oman)
 
 [https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
+
+2026-09-17 Nine children were killed and more than 57,000 children displaced in Yemen. 
+
+[https://news.un.org/en/story/2026/09/1168354](https://news.un.org/en/story/2026/09/1168354)
+
+[https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)

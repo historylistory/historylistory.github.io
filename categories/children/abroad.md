@@ -339,3 +339,10 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735](https://apnews.com/article/iran-us-war-strike-wedding-casualties-0b8dbb60863eb28e3dde59ff59e88735)
 
 [https://www.bbc.com/news/articles/cj06q4ynpmjo](https://www.bbc.com/news/articles/cj06q4ynpmjo)
+
+2026-09-17 Nine children were killed and more than 57,000 children displaced in Yemen. 
+
+[https://news.un.org/en/story/2026/09/1168354](https://news.un.org/en/story/2026/09/1168354)
+
+[https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
+

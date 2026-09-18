@@ -264,3 +264,14 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 [https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape](https://www.cnn.com/2026/09/04/us/disruptive-passenger-duct-tape)
 
 [https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2](https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2)
+
+2026-09-17 Wake county parents want to opt their kids out of music class because the teacher is transgender. The parents are also threatening lawsuits.
+
+[https://www.youtube.com/watch?v=lW7eJkNdnGE&list=WL&index=1](https://www.youtube.com/watch?v=lW7eJkNdnGE&list=WL&index=1)
+
+[https://www.cbs17.com/news/local-news/wake-county-news/wake-county-parents-threaten-lawsuit-over-option-to-remove-kids-from-transgender-teachers-class/](https://www.cbs17.com/news/local-news/wake-county-news/wake-county-parents-threaten-lawsuit-over-option-to-remove-kids-from-transgender-teachers-class/)
+
+[https://www.newsobserver.com/news/local/education/article317127864.html](https://www.newsobserver.com/news/local/education/article317127864.html)
+
+[https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/](https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/)
+
