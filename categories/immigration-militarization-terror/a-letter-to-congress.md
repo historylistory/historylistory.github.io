@@ -959,3 +959,5 @@ Next
 2026-09-14 A federal judge blocked Trump from enforcing VISA limit lengths on international students in Massachusetts.
 
 2026-09-14 Mamdani filed a lawsuit to block a Public Charge Rule which would give immigration officials wide discretion to deny green cards, visas, or admissions if the applicants might need food stamps or housing vouchers. 
+
+2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 

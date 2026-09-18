@@ -314,3 +314,9 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 
 [https://www.nyc.gov/mayors-office/news/2026/09/new-york-city-leads-cities-and-counties-in-lawsuit-challenging-f](https://www.nyc.gov/mayors-office/news/2026/09/new-york-city-leads-cities-and-counties-in-lawsuit-challenging-f)
 
+2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 
+
+[https://thehill.com/homenews/administration/6096022-trump-denies-plo-pa-visas/](https://thehill.com/homenews/administration/6096022-trump-denies-plo-pa-visas/)
+
+[https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee](https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee)
+

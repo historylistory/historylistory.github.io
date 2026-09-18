@@ -394,3 +394,5 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
 2026-09-17 Nine children were killed and more than 57,000 children displaced in Yemen. 
+
+2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 

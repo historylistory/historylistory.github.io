@@ -730,6 +730,14 @@ FROM 2025 [https://www.nyclu.org/press-release/cuny-must-release-investment-reco
 
 [https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank](https://www.aljazeera.com/news/2026/9/14/how-israel-systematically-dismantles-palestinian-life-in-occupied-west-bank)
 
+2026-09-15 Palestinian rights attorney Noura Erakat was arrested in Florida for speaking out against Israel bonds at a town hall. 
+
+[https://www.miaminewtimes.com/news/human-rights-lawyer-arrested-in-palm-beach-over-1b-israel-bond-protest-40585573/](https://www.miaminewtimes.com/news/human-rights-lawyer-arrested-in-palm-beach-over-1b-israel-bond-protest-40585573/)
+
+[https://www.theguardian.com/us-news/2026/sep/16/noura-erakat-palestinian-arrested-florida](https://www.theguardian.com/us-news/2026/sep/16/noura-erakat-palestinian-arrested-florida)
+
+[https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/](https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/)
+
 2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. In response to Trump’s $2.8BN weapons package to Israel, Congressmember Gregory Meeks of New York stated, “The Trump administration has not provided sufficient assurances that these weapons will be used by the Netanyahu government in accordance with US law and with appropriate protections for civilians. I therefore will not clear this sale at this time”. 
 
 [https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel](https://www.aljazeera.com/news/2026/9/16/trump-administration-plans-2-8bn-sale-of-2000-pound-bombs-to-israel)
@@ -740,3 +748,8 @@ FROM 2025 [https://www.nyclu.org/press-release/cuny-must-release-investment-reco
 
 [https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/](https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/)
 
+2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 
+
+[https://thehill.com/homenews/administration/6096022-trump-denies-plo-pa-visas/](https://thehill.com/homenews/administration/6096022-trump-denies-plo-pa-visas/)
+
+[https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee](https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee)

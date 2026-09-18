@@ -352,7 +352,8 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 
 [https://www.youtube.com/watch?v=crzxR8enx6o](https://www.youtube.com/watch?v=crzxR8enx6o)
 
-2026-01-21 Trump pardoned Ross Ulbricht, founder of the Silk Road marketplace, which facilitated the sale of over 13,000 illegal substances online.
+2026-01-21 Trump pardoned Ross Ulbricht, founder of the Silk Road marketplace, which facilitated the sale of over 13,000 illegal substances online. This fetanyl pusher was later invited as guest speaker at the midterm RNC. 
+
 
 [https://www.justice.gov/pardon/media/1386096/dl?inline](https://www.justice.gov/pardon/media/1386096/dl?inline)
 
@@ -453,6 +454,15 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/](https://lda.senate.gov/filings/public/filing/0b403252-56bd-49e5-befd-96836711eb2d/print/)
 
 ### 2026 September
+
+2026-09-10 Convicted narcotics pusher and founder of the dark web drug market Silk Road Ross Ulbricht was invited to be guest speaker at the midterm RNC. Trump pardoned this person the same time he bombed so-called drug boats in international waters. 
+
+[https://www.youtube.com/watch?v=_cakAFOp9dw](https://www.youtube.com/watch?v=_cakAFOp9dw)
+
+[https://www.phoenixnewtimes.com/news/arizona-gop-operative-helped-ross-ulbricht-get-trump-pardon-21221553/](https://www.phoenixnewtimes.com/news/arizona-gop-operative-helped-ross-ulbricht-get-trump-pardon-21221553/)
+
+[https://www.theblaze.com/news/ross-ulbricht-rnc-2026](https://www.theblaze.com/news/ross-ulbricht-rnc-2026)
+
 
 2026-09-13 Pardon brokers and lobbyists were caught on hidden camera selling their ties to Trump for large fees to those seeking pardons. 
 

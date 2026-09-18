@@ -474,3 +474,11 @@ ROBERT KRAFT PROSTITUTION BUST [https://www.tmz.com/2026/02/08/jordon-hudson-rob
 
 HYPOCRISY AFTER KRAFT LET KANYE WEST SING HEIL HITLER [https://www.ms.now/opinion/macklemore-ed-sheeran-robert-kraft-free-palestine](https://www.ms.now/opinion/macklemore-ed-sheeran-robert-kraft-free-palestine)
 
+2026-09-15 Palestinian rights attorney Noura Erakat was arrested in Florida for speaking out against Israel bonds at a town hall. 
+
+[https://www.miaminewtimes.com/news/human-rights-lawyer-arrested-in-palm-beach-over-1b-israel-bond-protest-40585573/](https://www.miaminewtimes.com/news/human-rights-lawyer-arrested-in-palm-beach-over-1b-israel-bond-protest-40585573/)
+
+[https://www.theguardian.com/us-news/2026/sep/16/noura-erakat-palestinian-arrested-florida](https://www.theguardian.com/us-news/2026/sep/16/noura-erakat-palestinian-arrested-florida)
+
+[https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/](https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/)
+

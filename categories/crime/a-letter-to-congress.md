@@ -495,7 +495,8 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-01-20 Trump pardoned Honduras president Juan Orlando Hernandez who was convicted in 2024 of a violent narco-trafficking scheme. He helped flood the U.S. with over 400 tons of cocaine. He ran Honduras as a narco state and accepted millions of dollars in bribes. He said, allegedly, “We are going to stuff the drugs up the gringos’ noses, and they’re never even going to know it”. Trump also threatened to cut off aid to Honduras if voters elected one of Hernandez’s rivals and threatened there would be “Hell to Pay” if the Honduras presidential election results were changed. In May 2026 leaked audio revealed that the US, Israel and Honduras were involved in a joint scheme together to target leftist governments in Latin America. 
 
-2026-01-21 Trump pardoned Ross Ulbricht, founder of the Silk Road marketplace, which facilitated the sale of over 13,000 illegal substances online.
+2026-01-21 Trump pardoned Ross Ulbricht, founder of the Silk Road marketplace, which facilitated the sale of over 13,000 illegal substances online. This fetanyl pusher was later invited as guest speaker at the midterm RNC. 
+
 
 2026-01-22 Trump criticized Special Counsel Jack Smith on Truth Social. Smith had prosecuted Trump in cases involving election interference and classified documents at Mar-a-Lago.
 
@@ -750,5 +751,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-09-01 GOP representative Chuck Edwards was formally censured over harassment allegations. 
 
 2026-09-01 According to a lawsuit, Trump’s “Freedom Fuel” allegedly sold nearly $4M in stolen fuel. 
+
+2026-09-10 Convicted narcotics pusher and founder of the dark web drug market Silk Road Ross Ulbricht was invited to be guest speaker at the midterm RNC. Trump pardoned this person the same time he bombed so-called drug boats in international waters. 
 
 2026-09-13 Pardon brokers and lobbyists were caught on hidden camera selling their ties to Trump for large fees to those seeking pardons. 

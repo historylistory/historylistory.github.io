@@ -179,3 +179,12 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 
 [https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/](https://www.slashgear.com/2250088/freedom-fuel-stolen-gas-lawsuit/)
 
+
+2026-09-10 Convicted narcotics pusher and founder of the dark web drug market Silk Road Ross Ulbricht was invited to be guest speaker at the midterm RNC. Trump pardoned this person the same time he bombed so-called drug boats in international waters. 
+
+[https://www.youtube.com/watch?v=_cakAFOp9dw](https://www.youtube.com/watch?v=_cakAFOp9dw)
+
+[https://www.phoenixnewtimes.com/news/arizona-gop-operative-helped-ross-ulbricht-get-trump-pardon-21221553/](https://www.phoenixnewtimes.com/news/arizona-gop-operative-helped-ross-ulbricht-get-trump-pardon-21221553/)
+
+[https://www.theblaze.com/news/ross-ulbricht-rnc-2026](https://www.theblaze.com/news/ross-ulbricht-rnc-2026)
+

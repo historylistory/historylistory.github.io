@@ -464,6 +464,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-14 The Israel human rights group B’Tselem published a report called The Elimination Project, condemning Israel for intentionally “eliminating” Palestinians. 
 
+2026-09-15 Palestinian rights attorney Noura Erakat was arrested in Florida for speaking out against Israel bonds at a town hall. 
+
 2026-09-16 After Representative Thomas Massie introduced 8 articles of impeachment on Pete Hegseth, Speaker Mike Johnson adjourned the House a week early and sent everyone home to avoid the impeachment vote. 
 
 2026-09-16 The US House of Representatives voted to end the war in Iran. 
@@ -473,3 +475,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-16 Trump approved a $2.8BN package deal to sell bombs to Israel. In response to Trump’s $2.8BN weapons package to Israel, Congressmember Gregory Meeks of New York stated, “The Trump administration has not provided sufficient assurances that these weapons will be used by the Netanyahu government in accordance with US law and with appropriate protections for civilians. I therefore will not clear this sale at this time”. 
 
 2026-09-16 US Space Force launched weapons into orbit.
+
+2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 
+
+2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 

@@ -346,3 +346,12 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 
 [https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
 
+2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
+
+[https://www.democracynow.org/2026/9/17/headlines/interfaith_coalition_unveils_330_foot_memorial_shroud_bearing_names_of_children_killed_in_gaza](https://www.democracynow.org/2026/9/17/headlines/interfaith_coalition_unveils_330_foot_memorial_shroud_bearing_names_of_children_killed_in_gaza)
+
+[https://www.middleeastmonitor.com/20260917-330-foot-shroud-bearing-names-of-20000-gaza-children-killed-by-israel-displayed-at-un-church-center/?amp](https://www.middleeastmonitor.com/20260917-330-foot-shroud-bearing-names-of-20000-gaza-children-killed-by-israel-displayed-at-un-church-center/?amp)
+
+[https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642](https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642)
+
+TIMESTAMP 6:12 [https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s](https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s)
