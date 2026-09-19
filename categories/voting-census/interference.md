@@ -14,6 +14,16 @@ permalink: /categories/voting-census/interference/
 
 {% include youtubePlayer.html id="KgH7Lv2gQdk" %}
 
+### 2016
+
+2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
+
+[https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal](https://en.wikipedia.org/wiki/Facebook%E2%80%93Cambridge_Analytica_data_scandal)
+
+[https://committees.parliament.uk/work/6330/disinformation-and-fake-news/news/103673/evidence-from-christopher-wylie-cambridge-analytica-whistleblower-published/](https://committees.parliament.uk/work/6330/disinformation-and-fake-news/news/103673/evidence-from-christopher-wylie-cambridge-analytica-whistleblower-published/)
+
+[https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf](https://data.parliament.uk/writtenevidence/committeeevidence.svc/evidencedocument/digital-culture-media-and-sport-committee/fake-news/oral/79388.pdf)
+
 ### 2017
 
 2017-01-25 Allegedly Steve Bannon, Tiffany Trump and Steven Mnuchin were all registered to vote in more than one state.

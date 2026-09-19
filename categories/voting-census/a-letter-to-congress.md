@@ -82,6 +82,10 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 ## 2016 
 
+### 2016
+
+2016-01-01 A Cambridge Analytica whistleblower revealed harvested Facebook data was used by Trump’s 2016 campaign to build psychographic voter profiles.
+
 2016-01-23 Trump said, “I could stand in the middle of 5th Avenue and shoot somebody, okay, and I wouldn’t lose any voters, okay?”.
 
 2016-02-03 Trump accused Ted Cruz of fraud and claimed the Iowa Caucus was rigged. 
