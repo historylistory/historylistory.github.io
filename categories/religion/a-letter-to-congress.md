@@ -127,6 +127,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2021-11-11 Heritage Foundation’s Scott Yenor said, “Every effort must be made not to recruit women into engineering, but rather to recruit and demand more of men who become engineers. Ditto for med school and the law and every trade…If every Nobel Prize winner is a man, that’s not a failure. It’s kind of a cause for celebration. Why can’t our celebration of male excellence in sports be translated into all facets of life? More successful men will mean more happy citizenry and a stronger nation…Such medicated, quarrelsome, and meddlesome women gain their meaning through the seeming participation in the global project. They are agents of the new world – but not new life. Such women are now the backbone of every left-wing cosmopolitan party in the Western world. From the Greens in Germany to the Democratic party in America. And if our ideal woman is a childless media scold or a barren bureaucratic apparatchik, there is no question whether we can have a future. We can’t. There is a question of whether we deserve one”.
 
+2021-11-15 Far-right national security advisor Michael Flyhn stated the United States must be “one nation under ONE god”. 
+
 ## 2022 
 
 2022-01-01 PragerU announced they would “go toe-to-toe” with PBS Kids and Disney to promote conservative-only content.

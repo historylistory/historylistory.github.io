@@ -684,3 +684,12 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 
 [https://www.nbcnews.com/business/media/fox-news-maria-bartiromo-rcna595954](https://www.nbcnews.com/business/media/fox-news-maria-bartiromo-rcna595954)
 
+2026-09-18 Three-term Republican Congresswoman Maria Saslazar publicly denounced Trump for betraying Hispanic voters. 
+
+[https://www.youtube.com/watch?v=m4MY3JgxthM&list=WL&index=3](https://www.youtube.com/watch?v=m4MY3JgxthM&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=p0sGyeFurNc](https://www.youtube.com/watch?v=p0sGyeFurNc)
+
+[https://www.ms.now/opinion/trump-immigration-maria-elvira-salazar-ad-florida](https://www.ms.now/opinion/trump-immigration-maria-elvira-salazar-ad-florida)
+
+SUB WALL [https://www.nytimes.com/2026/09/17/us/politics/salazar-florida-republican-immigration-trump.html](https://www.nytimes.com/2026/09/17/us/politics/salazar-florida-republican-immigration-trump.html)

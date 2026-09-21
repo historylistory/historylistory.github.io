@@ -550,3 +550,14 @@ SUB WALL [https://www.politico.com/news/2026/08/06/fcc-plows-ahead-with-scrappin
 [https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/](https://www.rollingstone.com/tv-movies/tv-movie-news/jimmy-kimmel-james-talarico-interview-wont-air-fcc-threats-1235624321/)
 
 THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.com/watch?v=WLDE9LrGpNk)
+
+2026-09-18 Trump banned MS Now, CNN and Politico from the White House. 
+
+[https://www.youtube.com/watch?v=SDGNP14EnNw&list=WL&index=4](https://www.youtube.com/watch?v=SDGNP14EnNw&list=WL&index=4)
+
+[https://www.cnbc.com/2026/09/21/trump-lawsuit-white-house-ban-ms-now-cnn-politico.html](https://www.cnbc.com/2026/09/21/trump-lawsuit-white-house-ban-ms-now-cnn-politico.html)
+
+[https://www.cnn.com/2026/09/21/politics/cnn-politico-msnow-sue-white-house-access](https://www.cnn.com/2026/09/21/politics/cnn-politico-msnow-sue-white-house-access)
+
+[https://www.npr.org/2026/09/19/nx-s1-5974854/trump-cnn-msnow-politico-ban](https://www.npr.org/2026/09/19/nx-s1-5974854/trump-cnn-msnow-politico-ban)
+

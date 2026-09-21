@@ -167,6 +167,8 @@ The following sections outline my concerns in greater detail. Some of the inform
 
 2025-03-20 Trump suspended $175M in funding to the University of Pennsylvania for allowing a transgender athlete on the women’s swim team. In July, Trump released $175M in funding back to University of Pennsylvania only after they agreed to remove transgender Lia Thomas’ records and issue an apology.
 
+2025-03-29 Laura Loomer launched a smear campaign against CIA veteran Julia Curlee. Curlee was forced to leave CIA campus to use bathrooms, her passport was tampered with, publicly threatened, and then fired from the CIA with no cause. 
+
 ## 2025 April 
 
 2025-04-22 In Mahmood v. Montgomery county, plaintiffs argued that parents should have the right to opt their children out of curriculum that conflicts with their religious beliefs. During the arguments Justice Samuel Alito cited the book Uncle Bobby’s Wedding and his opinion about its moral message. 

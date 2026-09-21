@@ -571,3 +571,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-14 After rapper Macklemore defended Palestinian rights Ed Sheeran kicked him off the tour after pressure from stadium owner Robert Kraft. 
 
 2026-09-15 Palestinian rights attorney Noura Erakat was arrested in Florida for speaking out against Israel bonds at a town hall. 
+
+2026-09-18 Trump banned MS Now, CNN and Politico from the White House. 

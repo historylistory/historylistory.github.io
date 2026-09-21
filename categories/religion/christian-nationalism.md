@@ -16,6 +16,15 @@ permalink: /categories/religion/christian-nationalism/
 
 [https://wusf.org/text/health-news-florida/2025-10-31/at-the-hollow-in-venice-the-medical-freedom-movement-finds-its-base-camp](https://wusf.org/text/health-news-florida/2025-10-31/at-the-hollow-in-venice-the-medical-freedom-movement-finds-its-base-camp)
 
+2021-11-15 Far-right national security advisor Michael Flyhn stated the United States must be “one nation under ONE god”. 
+
+[https://lieu.house.gov/media-center/in-the-news/ex-trump-adviser-michael-flynns-call-one-religion-us-garners-swift](https://lieu.house.gov/media-center/in-the-news/ex-trump-adviser-michael-flynns-call-one-religion-us-garners-swift)
+
+[https://www.pbs.org/newshour/politics/former-trump-adviser-michael-flynn-at-the-center-of-new-movement-based-on-conspiracies-and-christian-nationalism](https://www.pbs.org/newshour/politics/former-trump-adviser-michael-flynn-at-the-center-of-new-movement-based-on-conspiracies-and-christian-nationalism)
+
+[https://www.theguardian.com/us-news/2021/nov/15/trump-ally-michael-flynn-condemned-call-one-religion](https://www.theguardian.com/us-news/2021/nov/15/trump-ally-michael-flynn-condemned-call-one-religion)
+
+
 
 ### 2022
 

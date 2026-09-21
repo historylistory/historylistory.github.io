@@ -701,3 +701,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-09-08 A National Guard member was arrested for pulling a gun on a fellow soldier. 
 
 2026-09-10 During the midterm RNC JD Vance delivered a divisive and combative speech calling Democrats the party of hatred. Ted Cruz also delivered a speech calling political opponents Islamists and Communists. In the background of one of the videos you can hear the crowd yelling "He should be shot", speaking of both Al Sayed and Talarico. 
+
+2026-09-18 Three-term Republican Congresswoman Maria Saslazar publicly denounced Trump for betraying Hispanic voters. 

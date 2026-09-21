@@ -165,6 +165,20 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 
 [https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten](https://www.mediamatters.org/michael-knowles/project-2025-partner-event-called-surrogacy-and-ivf-crime-evil-and-most-rotten)
 
+### 2025 March
+
+2025-03-29 Laura Loomer launched a smear campaign against CIA veteran Julia Curlee. Curlee was forced to leave CIA campus to use bathrooms, her passport was tampered with, publicly threatened, and then fired from the CIA with no cause. 
+
+[https://www.yahoo.com/news/politics/articles/trans-ex-cia-officer-says-025352958.html](https://www.yahoo.com/news/politics/articles/trans-ex-cia-officer-says-025352958.html)
+
+[https://www.ms.now/news/julia-curlee-cia-national-security-trump](https://www.ms.now/news/julia-curlee-cia-national-security-trump)
+
+[https://www.advocate.com/politics/national/julia-curlee-transgender-cia](https://www.advocate.com/politics/national/julia-curlee-transgender-cia)
+
+[https://www.lgbtqnation.com/2026/08/trans-cia-analyst-explains-how-laura-loomer-got-her-fired-from-her-job-briefing-officials/](https://www.lgbtqnation.com/2026/08/trans-cia-analyst-explains-how-laura-loomer-got-her-fired-from-her-job-briefing-officials/)
+
+[https://www.pbs.org/newshour/show/ousted-transgender-cia-officer-warns-white-house-politics-undermining-u-s-intelligence](https://www.pbs.org/newshour/show/ousted-transgender-cia-officer-warns-white-house-politics-undermining-u-s-intelligence)
+
 
 ### 2025 April
 

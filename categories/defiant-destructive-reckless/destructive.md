@@ -409,3 +409,14 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/](https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/)
 
 [https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html](https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html)
+
+2026-09-20 Trump announced he will expand the Triumphal Arch project to be a top military-grade complex. 
+
+[https://www.youtube.com/watch?v=OhJvl4dre3E&list=WL&index=2](https://www.youtube.com/watch?v=OhJvl4dre3E&list=WL&index=2)
+
+[https://www.youtube.com/watch?v=-wiIUghIdTE&list=WL&index=1](https://www.youtube.com/watch?v=-wiIUghIdTE&list=WL&index=1)
+
+[https://www.politico.com/news/2026/09/20/trump-arch-top-grade-military-complex-01085460](https://www.politico.com/news/2026/09/20/trump-arch-top-grade-military-complex-01085460)
+
+[https://www.military.com/trump-plans-turn-washington-arch-into-military-complex-with-drones-snipers-ammunition](https://www.military.com/trump-plans-turn-washington-arch-into-military-complex-with-drones-snipers-ammunition)
+
