@@ -483,3 +483,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 
 
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
+
+2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 

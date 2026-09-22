@@ -497,6 +497,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.
 
+2026-09-21 After the US scrambled to intercept a Chinese ship in the Middle East, they learned last minute an intelligence assessment relied on false information from an AI chatbot. 
+
 
 
 

@@ -400,3 +400,7 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 2026-09-17 Nine children were killed and more than 57,000 children displaced in Yemen. 
 
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
+
+2026-09-21 Israel blocked Australian charities from delivering wheelchairs to children injured in the genocide. The UN reported in 2025 that Gaza has the highest concentration of child amputees in the world because of the attacks by Israel, with at least 4000 children having to have limbs removed since 2023. 
+
+2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 

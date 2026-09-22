@@ -144,3 +144,6 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 [https://thenextweb.com/news/deepseek-v4-1-flash-launch-v4-pro-retired-price-cut](https://thenextweb.com/news/deepseek-v4-1-flash-launch-v4-pro-retired-price-cut)
 
+2026-09-21 After the US scrambled to intercept a Chinese ship in the Middle East, they learned last minute an intelligence assessment relied on false information from an AI chatbot. 
+
+[https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east](https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east)

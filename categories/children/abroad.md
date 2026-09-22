@@ -374,3 +374,15 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642](https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642)
 
 TIMESTAMP 6:12 [https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s](https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s)
+
+2026-09-21 Israel blocked Australian charities from delivering wheelchairs to children injured in the genocide. The UN reported in 2025 that Gaza has the highest concentration of child amputees in the world because of the attacks by Israel, with at least 4000 children having to have limbs removed since 2023. 
+
+[https://www.commondreams.org/news/israel-blocking-wheelchairs](https://www.commondreams.org/news/israel-blocking-wheelchairs)
+
+2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 
+
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
+TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s](https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s)
+
+

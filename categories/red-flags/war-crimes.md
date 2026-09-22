@@ -805,4 +805,8 @@ TIMESTAMP 1:43: [https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4](ht
 TIMESTAMP 6:12 [https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s](https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s)
 
 
+2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 
 
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
+TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s](https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s)

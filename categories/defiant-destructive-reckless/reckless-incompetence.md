@@ -993,3 +993,8 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 [https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment](https://www.cnn.com/2026/09/16/politics/house-early-recess-hegseth-impeachment)
 
 [https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/](https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/)
+
+2026-09-21 After the US scrambled to intercept a Chinese ship in the Middle East, they learned last minute an intelligence assessment relied on false information from an AI chatbot. 
+
+[https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east](https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east)
+

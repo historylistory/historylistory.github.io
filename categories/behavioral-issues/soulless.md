@@ -1208,3 +1208,7 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
 [https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)
+
+
+
+
