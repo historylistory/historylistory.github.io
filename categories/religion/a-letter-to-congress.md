@@ -161,6 +161,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2024-11-05 Kenneth Copeland frequently meddled in elections, ordering the viewers of his America Stands organization on how to vote. 
 
+2024-12-02 MAGA pastor Joel Webbon stated that Jews cannot, quote, “serve in public office in my nation”. 
+
 ## 2025 January 
 
 2025-01-20 During the inauguration Reverend Mariann Edgar Budde begged for mercy on behalf of immigrants and LGBTQ+ people.  Both Fox News and Charlie Kirk condemned Bishop Budde, calling her a “disgrace” and an “embarrassment”. Trump demanded an apology from Reverend Mariann Edgar Budde.

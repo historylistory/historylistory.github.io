@@ -551,3 +551,10 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
 
 TIMESTAMP 1:43: [https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4](https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4)
+
+2026-09-18 Five US officials told the news that at least 22 troops have been killed, 4 more than what appears in the Pentagon casualty database. A sixth official reported 23 dead. 
+
+[https://www.reuters.com/world/middle-east/us-troop-deaths-iran-war-exceed-pentagon-count-by-least-four-washington-post-2026-09-18/](https://www.reuters.com/world/middle-east/us-troop-deaths-iran-war-exceed-pentagon-count-by-least-four-washington-post-2026-09-18/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/](https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/)
+

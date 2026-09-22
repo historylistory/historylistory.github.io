@@ -252,3 +252,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-09-16 An NBC chopper crashed in Los Angeles. 
 
 2026-09-17 A Texas F16 fighter jet crashed into a residential area of Michigan. 
+
+2026-09-21 More than a thousand flights were cancelled and 6000 more delayed for eight hours due to an airport equipment outage. 

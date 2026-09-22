@@ -43,6 +43,14 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 [https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter](https://www.theguardian.com/us-news/2026/jan/06/ice-trump-democrats-letter)
 
 
+### 2025 May
+
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
+
+
 ### 2025 July
 
 2025-07-01 A UCLA Fielding research study showed that DOGE’s dismantling USAID will lead to more than 14M preventable deaths including more than 4M children under the age of 5 
@@ -58,6 +66,17 @@ UNVERIFIED GOOGLE FILE USE CAUTION [https://drive.google.com/file/d/0B_6gbFPjVDo
 [https://www.aljazeera.com/news/2025/7/16/usaid-food-for-nearly-30000-hungry-kids-to-be-destroyed-official](https://www.aljazeera.com/news/2025/7/16/usaid-food-for-nearly-30000-hungry-kids-to-be-destroyed-official)
 
 [https://www.reuters.com/world/us/us-aid-workers-lobbied-weeks-save-food-stocks-destruction-after-trump-cuts-2025-07-16/](https://www.reuters.com/world/us/us-aid-workers-lobbied-weeks-save-food-stocks-destruction-after-trump-cuts-2025-07-16/)
+
+### 2025 August
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
+
+[https://news.un.org/en/story/2025/08/1165713](https://news.un.org/en/story/2025/08/1165713)
+
+[https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza](https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza)
+
+[https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide](https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide)
+
 
 ### 2025 October
 

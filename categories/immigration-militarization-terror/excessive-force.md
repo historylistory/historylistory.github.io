@@ -482,3 +482,10 @@ PAY WALL [https://www.nytimes.com/2026/08/12/us/politics/ice-chicago-agent-guilt
 
 HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
 
+2026-09-20 ICE agents in Dallas shot 28-year-old door dash driver Wilber Rafael Garces Perez. DHS said they would wait for Perez’s release from the hospital and planned to detain him, despite a bullet remaining lodged in his back near his spinal cord. 
+
+[https://www.inkl.com/news/the-tragic-paradox-of-venezuelans-in-the-u-s-ice-shoots-one-of-their-own-as-chavista-delcy-rodriguez-arrives-in-new-york](https://www.inkl.com/news/the-tragic-paradox-of-venezuelans-in-the-u-s-ice-shoots-one-of-their-own-as-chavista-delcy-rodriguez-arrives-in-new-york)
+
+[https://www.valleycentral.com/news/state-news/man-shot-by-ice-officer-in-texas-back-in-hospital-attorney-says/](https://www.valleycentral.com/news/state-news/man-shot-by-ice-officer-in-texas-back-in-hospital-attorney-says/)
+
+[https://www.nbcnews.com/news/us-news/ice-shooting-austin-texas-rcna598870](https://www.nbcnews.com/news/us-news/ice-shooting-austin-texas-rcna598870)

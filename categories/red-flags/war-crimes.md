@@ -86,6 +86,12 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 
 [https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics](https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics)
 
+### 2025 May
+
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
 ### 2025 July
 
 2025-07-13 The United States and Israel pursued joint efforts to relocate Palestinians to Sudan or Libya.
@@ -93,6 +99,14 @@ LEARN SOMETHING NEW [https://www.youtube.com/watch?v=hePRA9yVdQE&list=WL&index=9
 [https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html](https://www.the-independent.com/news/world/middle-east/gaza-palestinians-relocation-south-sudan-netanyahu-b2806609.html)
 
 ### 2025 August 
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
+
+[https://news.un.org/en/story/2025/08/1165713](https://news.un.org/en/story/2025/08/1165713)
+
+[https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza](https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza)
+
+[https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide](https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide)
 
 2025-08-28 Genocide deniers 
 

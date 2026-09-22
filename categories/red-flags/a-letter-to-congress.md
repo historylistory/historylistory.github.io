@@ -163,6 +163,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-05-12 Steve Bannon declared the Era of Trump “like it or not”, referenced the “steal of 2020”, and said there were multiple workarounds to serving a third term.
 
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
 ## 2025 June 
 
 2025-06-03 Allegedly Trump kept a copy of Adolf Hitler speeches next to his bedside.
@@ -176,6 +178,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2025-07-13 The United States and Israel pursued joint efforts to relocate Palestinians to Sudan or Libya.
 
 ## 2025 August 
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
 
 2025-08-25 During an interview Trump quipped “maybe they want a dictator”.
 

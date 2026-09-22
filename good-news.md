@@ -131,6 +131,17 @@ We are fighting the good fight.
 
 ### 2026 February
 
+2026-02-10 Senator Elizabeth Warren introduced SB 3822 Break Up Big Medicine Act to prevent dishonest healthcare systems like United from price gouging or refusing coverage. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/3822](https://www.congress.gov/bill/119th-congress/senate-bill/3822)
+
+[https://www.amcp.org/letters-statements-analysis/legislative-update-senate-introduces-bipartisan-legislation-combat-health-care-consolidation](https://www.amcp.org/letters-statements-analysis/legislative-update-senate-introduces-bipartisan-legislation-combat-health-care-consolidation)
+
+[https://www.govtrack.us/congress/bills/119/s3822](https://www.govtrack.us/congress/bills/119/s3822)
+
+[https://www.youtube.com/watch?v=h1pXm0GjLho](https://www.youtube.com/watch?v=h1pXm0GjLho)
+
+
 2026-02-11 Senator Warren introduced ICE Accountability Act which would create an independent federal watchdog with authority to investigate and enforce reforms involving ICE and Customs and Border Protection
 
 [https://www.warren.senate.gov/newsroom/press-releases/warren-coons-introduce-ice-accountability-act-establishing-strongest-federal-watchdog-to-enforce-reforms-and-stop-ice-violence](https://www.warren.senate.gov/newsroom/press-releases/warren-coons-introduce-ice-accountability-act-establishing-strongest-federal-watchdog-to-enforce-reforms-and-stop-ice-violence)
@@ -520,3 +531,9 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html](https://tech.yahoo.com/general/article/the-house-just-passed-a-bipartisan-data-center-bill-what-the-ratepayer-protection-act-would--and-wouldnt--do-to-protect-consumers-from-rising-energy-costs-130000413.html)
 
 [https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/](https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/)
+
+2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 
+
+[https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms](https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms)
+
+[https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)

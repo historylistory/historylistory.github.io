@@ -2243,3 +2243,10 @@ TIMESTAMP 3:45 [https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s](https://www.yo
 
 [https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
 
+2026-09-21 Iran-backed Houthi fighters launched drones and missiles at Riyad, Saudi Arabia. 
+
+[https://www.democracynow.org/2026/9/21/headlines/yemens_iran_backed_houthis_launch_attack_on_saudi_arabias_capital_riyadh](https://www.democracynow.org/2026/9/21/headlines/yemens_iran_backed_houthis_launch_attack_on_saudi_arabias_capital_riyadh)
+
+[https://www.bbc.com/news/articles/cwly5d9v7r43o](https://www.bbc.com/news/articles/cwly5d9v7r43o)
+
+[https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129](https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129)

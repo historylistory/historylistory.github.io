@@ -961,3 +961,7 @@ Next
 2026-09-14 Mamdani filed a lawsuit to block a Public Charge Rule which would give immigration officials wide discretion to deny green cards, visas, or admissions if the applicants might need food stamps or housing vouchers. 
 
 2026-09-16 The State Department announced it would deny visas for ALL Palestinians, including officials from organizations and UN attendees. 
+
+2026-09-20 ICE agents in Dallas shot 28-year-old door dash driver Wilber Rafael Garces Perez. DHS said they would wait for Perez’s release from the hospital and planned to detain him, despite a bullet remaining lodged in his back near his spinal cord. 
+
+2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 

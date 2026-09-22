@@ -180,6 +180,16 @@ PAY WALL [https://www.forbes.com/sites/lisettevoytko/2020/09/11/pure-evil-report
 
 PAY WALL [https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html](https://www.nytimes.com/2026/05/18/business/trumprx-generic-drugs-mark-cuban.html)
 
+2026-02-10 Senator Elizabeth Warren introduced SB 3822 Break Up Big Medicine Act to prevent dishonest healthcare systems like United from price gouging or refusing coverage. 
+
+[https://www.congress.gov/bill/119th-congress/senate-bill/3822](https://www.congress.gov/bill/119th-congress/senate-bill/3822)
+
+[https://www.amcp.org/letters-statements-analysis/legislative-update-senate-introduces-bipartisan-legislation-combat-health-care-consolidation](https://www.amcp.org/letters-statements-analysis/legislative-update-senate-introduces-bipartisan-legislation-combat-health-care-consolidation)
+
+[https://www.govtrack.us/congress/bills/119/s3822](https://www.govtrack.us/congress/bills/119/s3822)
+
+[https://www.youtube.com/watch?v=h1pXm0GjLho](https://www.youtube.com/watch?v=h1pXm0GjLho)
+
 
 ### 2026 April
 

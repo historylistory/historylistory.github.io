@@ -157,3 +157,10 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 [https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/](https://haitiantimes.com/2026/09/04/us-third-deportation-flight-100-haitian-migrants-tps-ends/)
 
 [https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054](https://www.nbcnews.com/news/us-news/us-deports-100-people-haiti-gang-violence-persists-rcna596054)
+
+2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 
+
+[https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms](https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms)
+
+[https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)
+

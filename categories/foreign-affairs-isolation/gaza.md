@@ -176,6 +176,11 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 [https://www.thefp.com/p/the-gaza-famine-myth](https://www.thefp.com/p/the-gaza-famine-myth)
 
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
+
 ### 2025 July
 
 2025-07-13 The United States and Israel pursued joint efforts to relocate Palestinians to Sudan or Libya.
@@ -200,6 +205,14 @@ permalink: /categories/foreign-affairs-isolation/gaza/
 
 
 ### 2025 August
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
+
+[https://news.un.org/en/story/2025/08/1165713](https://news.un.org/en/story/2025/08/1165713)
+
+[https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza](https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza)
+
+[https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide](https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide)
 
 2025-08-28 Genocide deniers 
 

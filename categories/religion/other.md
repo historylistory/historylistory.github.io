@@ -40,6 +40,13 @@ permalink: /categories/religion/other/
 
 [https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state](https://www.mediamatters.org/charlie-kirk/charlie-kirk-there-no-separation-church-and-state)
 
+### 2024
+
+2024-12-02 MAGA pastor Joel Webbon stated that Jews cannot, quote, “serve in public office in my nation”. 
+
+[https://www.youtube.com/watch?v=aGwo_NoYL6Y&list=WL&index=2](https://www.youtube.com/watch?v=aGwo_NoYL6Y&list=WL&index=2)
+
+
 ### 2025 April
 
 2025-04-21 MTG tweeted “Evil is being defeated by the hand of God” after Pope Francis died.

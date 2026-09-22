@@ -76,6 +76,12 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 
 [https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics](https://www.npr.org/2025/04/20/nx-s1-5370634/israel-releases-findings-of-its-investigation-into-killing-of-15-palestinian-medics)
 
+### 2025 May
+
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
+[https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
+
 
 ### 2025 July
 
@@ -84,6 +90,17 @@ Please visit either the "Children" section or "War Crimes" subsection for detail
 [https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says](https://www.pbs.org/newshour/show/palestinian-american-ambushed-on-family-land-and-killed-by-israeli-settlers-cousin-says)
 
 [https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl](https://www.cnn.com/2025/07/12/middleeast/american-killed-israeli-settlers-west-bank-intl)
+
+### 2025 August
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
+
+[https://news.un.org/en/story/2025/08/1165713](https://news.un.org/en/story/2025/08/1165713)
+
+[https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza](https://www.democracynow.org/2026/9/22/headlines/israeli_attacks_kill_four_palestinians_in_gaza)
+
+[https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide](https://www.unrwa.org/topics/unrwa-commissioner-general-gaza-gaza-now-home-highest-number-child-amputees-capita-worldwide)
+
 
 ### 2025 September
 

@@ -168,3 +168,11 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 
 [https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2](https://www.youtube.com/watch?v=S10iO6DL2Bg&list=WL&index=2)
 
+
+2026-09-21 More than a thousand flights were cancelled and 6000 more delayed for eight hours due to an airport equipment outage. 
+
+[https://abcnews.com/US/northeast-airspace-closing-30-minutes-due-equipment-outage/story?id=136626017](https://abcnews.com/US/northeast-airspace-closing-30-minutes-due-equipment-outage/story?id=136626017)
+
+[https://www.reuters.com/world/us/faa-halts-some-us-east-coast-flights-due-communication-issues-2026-09-21/](https://www.reuters.com/world/us/faa-halts-some-us-east-coast-flights-due-communication-issues-2026-09-21/)
+
+[https://www.pbs.org/newshour/nation/technical-problems-at-a-key-air-traffic-center-disrupt-flights-across-northeast](https://www.pbs.org/newshour/nation/technical-problems-at-a-key-air-traffic-center-disrupt-flights-across-northeast)

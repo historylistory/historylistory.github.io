@@ -67,3 +67,11 @@ permalink: /categories/immigration-militarization-terror/due-process/
 [https://www.commondreams.org/news/dhs-ombudsman-closed](https://www.commondreams.org/news/dhs-ombudsman-closed)
 
 [https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1](https://www.msn.com/en-ca/news/insight/ice-watchdog-office-closed-amid-record-use-of-force/gm-GM34C7CD45?gemSnapshotKey=GM34C7CD45-snapshot-1)
+
+### 2026 September
+
+2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 
+
+[https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms](https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms)
+
+[https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)

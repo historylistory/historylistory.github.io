@@ -506,6 +506,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-02-10 RFK’s RealFood.gov used Grok for nutrition advice, but users reported bizarre and unsafe responses. In one user experience, the platform gave a recommendation to insert food into the rectum.
 
+2026-02-10 Senator Elizabeth Warren introduced SB 3822 Break Up Big Medicine Act to prevent dishonest healthcare systems like United from price gouging or refusing coverage. 
+
 2026-02-12 The CDC continued to lag on tracking measles cases. 
 
 2026-02-16 Healthcare advocates call for RFK to resign after he downplayed the risks of COVID 19 by saying he used to quote, “snort cocaine off of toilet seats” during a podcast interview with Theo Vaugn. He stated, “I’m not scared of a germ. You know, I used to snort cocaine off of toilet seats”. Protect Our Care stated, “Robert F Kennedy Jr continues to lay bare why he is the most dangerous, in over his head, ill-suited person ever to lead such an important federal agency that has life-and-death power”.

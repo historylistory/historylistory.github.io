@@ -342,6 +342,10 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2024-10-28 During the Madison Square Garden Trump rally, Kill-Tony called Puerto Rico a floating pile of garbage.
 
+## 2024 December
+
+2024-12-02 MAGA pastor Joel Webbon stated that Jews cannot, quote, “serve in public office in my nation”. 
+
 ## 2025 January 
 
 2025-01-13 An FBI press release raised alarm about increasing white supremacism. 

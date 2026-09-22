@@ -147,6 +147,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2025-05-06 After Trump cut after school programs, weaponized SNAP, dismantled mental health programs, fired working moms and dads, diverted taxpayer dollars to vanity projects, enriched his family business with foreign entanglements, and held lavish dinners for his billionaire friends, he told Meet the Press girls don’t need to have thirty dolls; they can have two or three. 
 
+2025-05-19 Israeli forces killed 12-year-old Mohammed Saeed al-Bardawil.
+
 2025-05-21 Senate Bill SB10 was introduced to require display of the Ten Commandments in classrooms. Representative James Talarico argued against the measure, “forcing religion down throats is not love”.
 
 ## 2025 July
@@ -172,6 +174,8 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 8. The quote “Facts do not care about your feelings” comes from right-wing influencer and propagandist Ben Shapiro. Ben Shapiro, who accuses public schools of being “almost designed to be anti-Catholic indoctrination centers”.
 
 2025-08-18 Teachers in California, Oklahoma, and New York are now required to pass a PragerU-developed “America First” assessment which promotes partisan ideology and includes questions that push 2020 false electoral claims. 
+
+2025-08-24 Australian newspapers and the UN reported that Gaza has the highest concentration of child amputees in the world. 
 
 2025-08-25 Americans United wrote, “PragerU is no longer a fringe media company. It’s institutionalized and government sanctioned. Right now, PragerU is offered in eight states, including Florida, Louisiana and Texas - all states whose legislatures have been eager to impose religion on public schools.”
 

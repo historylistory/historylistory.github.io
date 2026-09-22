@@ -463,3 +463,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-09-09 Trump claimed two firefighters rescued him from 9/11 rubble. 
 
 2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
+
+2026-09-18 Five US officials told the news that at least 22 troops have been killed, 4 more than what appears in the Pentagon casualty database. A sixth official reported 23 dead. 

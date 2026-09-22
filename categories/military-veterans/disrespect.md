@@ -302,3 +302,10 @@ GENERIC LIST [https://www.cbsnews.com/news/pentagon-4-killed-iran-war-overseas-o
 [https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
 
 SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)
+
+2026-09-18 Five US officials told the news that at least 22 troops have been killed, 4 more than what appears in the Pentagon casualty database. A sixth official reported 23 dead. 
+
+[https://www.reuters.com/world/middle-east/us-troop-deaths-iran-war-exceed-pentagon-count-by-least-four-washington-post-2026-09-18/](https://www.reuters.com/world/middle-east/us-troop-deaths-iran-war-exceed-pentagon-count-by-least-four-washington-post-2026-09-18/)
+
+PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/](https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/)
+
