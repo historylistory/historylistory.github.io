@@ -465,3 +465,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-09-16 A servicemember quoted to CBS, “This is major damage to our bases that hasn’t been communicated to the American public. We’re standing there with our eyes closed getting punched in the face”. 
 
 2026-09-18 Five US officials told the news that at least 22 troops have been killed, 4 more than what appears in the Pentagon casualty database. A sixth official reported 23 dead. 
+
+2026-09-23 A military training fighter jet MK58 crashed off the coast of California. 
+
+2026-09-23 The US Navy reported 8 attempted suicides aboard the USS Abraham Lincoln. 

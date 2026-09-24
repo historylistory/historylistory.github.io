@@ -532,3 +532,11 @@ PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-st
 [https://www.military.com/us-space-force-confirms-weapons-orbit-heres-what-they-could-include](https://www.military.com/us-space-force-confirms-weapons-orbit-heres-what-they-could-include)
 
 [https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence](https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence)
+
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+[https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/](https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/)
+
+[https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
+
+[https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)

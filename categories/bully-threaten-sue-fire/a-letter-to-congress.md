@@ -728,3 +728,4 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.
 
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.

@@ -292,3 +292,13 @@ Citizens of France
 [https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
 
 [https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
+
+### 2026 September
+
+2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 
+
+[https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly](https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly)
+
+[https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un](https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un)
+
+[https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)

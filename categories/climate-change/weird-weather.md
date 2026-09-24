@@ -422,6 +422,15 @@ BUT HERE IS A PDF OF THAT REPORT FROM 2021 [https://19january2021snapshot.epa.go
 
 [https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood](https://www.cnn.com/2026/08/31/world/live-news/nepal-china-flood)
 
+2026-08-28 El Nino had become the worst in 1000 years. 
+
+[https://www.theguardian.com/environment/2026/sep/21/super-el-nino-temperature-record](https://www.theguardian.com/environment/2026/sep/21/super-el-nino-temperature-record)
+
+[https://www.insurancebusinessmag.com/uk/news/catastrophe/the-strongest-el-nino-in-recorded-history-is-building--insurers-are-already-paying-the-price-590644.aspx](https://www.insurancebusinessmag.com/uk/news/catastrophe/the-strongest-el-nino-in-recorded-history-is-building--insurers-are-already-paying-the-price-590644.aspx)
+
+[https://news.ucsb.edu/2026/022779/el-nino-has-become-more-intense-over-last-40-years-previous-1000-years](https://news.ucsb.edu/2026/022779/el-nino-has-become-more-intense-over-last-40-years-previous-1000-years)
+
+
 2026-08-29 Two people died and several people went missing at Grand Canyon National Park after flash floods 
 
 [https://time.com/article/2026/08/31/grand-canyon-flash-flood/](https://time.com/article/2026/08/31/grand-canyon-flash-flood/)

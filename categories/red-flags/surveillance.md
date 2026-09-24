@@ -1,9 +1,9 @@
 ---
 layout: subcategory
-title: Big Brother
+title: Surveillance
 category_slug: red-flags
-subcategory_slug: big-brother
-permalink: /categories/foreign-affairs-isolation/big-brother/
+subcategory_slug: surveillance
+permalink: /categories/foreign-affairs-isolation/surveillance/
 ---
 
 ### 1967
@@ -233,6 +233,13 @@ TIKTOK TIMELINE [https://www.reuters.com/legal/litigation/tiktoks-journey-global
 [https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/](https://www.washingtonpost.com/national-security/2026/01/14/washington-post-reporter-search/)
 
 {% include youtubePlayer.html id="hZtNjijS5bo" %}
+
+2026-01-16 Flock CEO Garrett Langley went on a rant about so-called Antifa and claimed tracking flock cameras is an act of terrorism. 
+
+[https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-ceo-goes-ballistic](https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-ceo-goes-ballistic)
+
+[https://www.yahoo.com/news/politics/articles/flock-safety-ceo-calls-citizens-130000971.html](https://www.yahoo.com/news/politics/articles/flock-safety-ceo-calls-citizens-130000971.html)
+
 
 2026-01-27 After TikTok’s forced sale, users reported censorship of anti-Trump, ICE, and Epstein-related content.
 

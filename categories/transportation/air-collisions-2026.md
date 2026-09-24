@@ -147,3 +147,10 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.usatoday.com/story/news/nation/2026/09/17/fighter-jet-crashes-michigan/91813994007/](https://www.usatoday.com/story/news/nation/2026/09/17/fighter-jet-crashes-michigan/91813994007/)
 
+2026-09-23 A military training fighter jet MK58 crashed off the coast of California. 
+
+[https://abcnews.com/US/pilot-rescued-after-hawker-hunter-plane-crashes-pacific/story?id=136701671](https://abcnews.com/US/pilot-rescued-after-hawker-hunter-plane-crashes-pacific/story?id=136701671)
+
+[https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk](https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk)
+
+[https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/](https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/)

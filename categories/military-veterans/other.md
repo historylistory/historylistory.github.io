@@ -353,3 +353,12 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 [https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/](https://www.thedailybeast.com/trump-deployed-guardsmen-turn-on-each-other-in-bizarre-clash-over-hair/)
 
 [https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/](https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/)
+
+2026-09-23 A military training fighter jet MK58 crashed off the coast of California. 
+
+[https://abcnews.com/US/pilot-rescued-after-hawker-hunter-plane-crashes-pacific/story?id=136701671](https://abcnews.com/US/pilot-rescued-after-hawker-hunter-plane-crashes-pacific/story?id=136701671)
+
+[https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk](https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk)
+
+[https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/](https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/)
+

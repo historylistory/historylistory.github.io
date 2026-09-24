@@ -226,3 +226,14 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 [https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
 
 FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)
+
+### 2026 September
+
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+[https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/](https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/)
+
+[https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
+
+[https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)
+

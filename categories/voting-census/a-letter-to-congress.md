@@ -565,3 +565,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 
 
 2026-09-16 Kash Patel said he might be sending federal agents to polling places for the midterms. He said, “We have election crisis coordinators manned at all 56 field offices. Election integrity is of paramount importance. This FBI is not going to shy away from that effort.”
+
+2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 

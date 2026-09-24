@@ -2250,3 +2250,11 @@ TIMESTAMP 3:45 [https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s](https://www.yo
 [https://www.bbc.com/news/articles/cwly5d9v7r43o](https://www.bbc.com/news/articles/cwly5d9v7r43o)
 
 [https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129](https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129)
+
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+[https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/](https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/)
+
+[https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
+
+[https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)

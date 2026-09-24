@@ -122,3 +122,15 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 [https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66](https://www.thetimes.com/us/news-today/article/sailor-jumped-uss-lincoln-disciplinary-charges-5mwfvrf66)
 
+### 2026 September
+
+2026-09-23 The US Navy reported 8 attempted suicides aboard the USS Abraham Lincoln. 
+
+[https://www.youtube.com/watch?v=CWqkWKFII7M&list=WL&index=1](https://www.youtube.com/watch?v=CWqkWKFII7M&list=WL&index=1)
+
+[phttps://www.cnn.com/2026/09/23/politics/eight-sailors-lincoln-carrier-group-iran-war-attempted-suicide](https://www.cnn.com/2026/09/23/politics/eight-sailors-lincoln-carrier-group-iran-war-attempted-suicide)
+
+[https://www.stripes.com/branches/navy/2026-09-24/suicide-lincoln-middle-east-cao-22949419.html](https://www.stripes.com/branches/navy/2026-09-24/suicide-lincoln-middle-east-cao-22949419.html)
+
+[https://www.military.com/eight-uss-abraham-lincoln-sailors-attempted-suicide-during-deployment-in-iran-war-navy-secretary](https://www.military.com/eight-uss-abraham-lincoln-sailors-attempted-suicide-during-deployment-in-iran-war-navy-secretary)
+

@@ -143,6 +143,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2025-01-15 Pam Bondi claimed about the DOJ during her confirmation hearing, “I will not politicize that office.  I will not target people simply because of their political affiliation. Justice will be administered even-handedly throughout this country. Yet she addressed the DOJ staff two weeks later, stating, “We are so proud to work at the directive of Donald Trump”. 
 
+2026-01-16 Flock CEO Garrett Langley went on a rant about so-called Antifa and claimed tracking flock cameras is an act of terrorism. 
+
 2025-01-27 Elon Musk attended a far-right rally in Germany.
 
 ## 2025 February 
@@ -485,3 +487,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
 
 2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 
+
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 

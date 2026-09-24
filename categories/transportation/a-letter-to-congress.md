@@ -254,3 +254,5 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-09-17 A Texas F16 fighter jet crashed into a residential area of Michigan. 
 
 2026-09-21 More than a thousand flights were cancelled and 6000 more delayed for eight hours due to an airport equipment outage. 
+
+2026-09-23 A military training fighter jet MK58 crashed off the coast of California. 

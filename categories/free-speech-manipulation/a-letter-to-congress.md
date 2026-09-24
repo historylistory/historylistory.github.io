@@ -573,3 +573,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-15 Palestinian rights attorney Noura Erakat was arrested in Florida for speaking out against Israel bonds at a town hall. 
 
 2026-09-18 Trump banned MS Now, CNN and Politico from the White House. 
+
+2026-09-22 After Trump’s media ban, the White House launched “Trump TV” which was an immediate failure. 

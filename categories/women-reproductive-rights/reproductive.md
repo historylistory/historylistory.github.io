@@ -813,3 +813,12 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
 
+2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 
+
+[https://www.youtube.com/watch?v=Ractr1Q2l4Y&list=WL&index=5&t=81s](https://www.youtube.com/watch?v=Ractr1Q2l4Y&list=WL&index=5&t=81s)
+
+[https://www.theguardian.com/us-news/2026/sep/17/michigan-school-period-policy](https://www.theguardian.com/us-news/2026/sep/17/michigan-school-period-policy)
+
+[https://www.cbsnews.com/detroit/news/st-clair-shores-lakeview-high-school-gym-class-policy/](https://www.cbsnews.com/detroit/news/st-clair-shores-lakeview-high-school-gym-class-policy/)
+
+[https://www.wsfa.com/2026/09/17/parents-shocked-by-gym-class-syllabus-asking-high-schoolers-share-info-their-periods/](https://www.wsfa.com/2026/09/17/parents-shocked-by-gym-class-syllabus-asking-high-schoolers-share-info-their-periods/)

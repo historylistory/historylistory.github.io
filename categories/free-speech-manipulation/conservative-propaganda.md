@@ -640,3 +640,12 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 
 THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.com/watch?v=WLDE9LrGpNk)
 
+2026-09-22 After Trump’s media ban, the White House launched “Trump TV” which was an immediate failure. 
+
+[https://www.npr.org/2026/09/22/nx-s1-5977768/trump-tv-media-ban-white-house](https://www.npr.org/2026/09/22/nx-s1-5977768/trump-tv-media-ban-white-house)
+
+[https://www.axios.com/2026/09/22/trump-trumptv-white-house-live-news-network](https://www.axios.com/2026/09/22/trump-trumptv-white-house-live-news-network)
+
+[https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/](https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/)
+
+[https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3](https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3)

@@ -39,3 +39,11 @@ permalink: /categories/red-flags/foreign-psyops/
 [https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel](https://www.democracynow.org/2026/9/4/headlines/33_democrats_join_gop_lawmakers_to_pass_bill_stripping_funds_from_schools_that_boycott_israel)
 
 [https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/](https://www.jewishtimes.com/us-house-passes-bill-stripping-federal-funds-from-universities-that-boycott-israel/)
+
+2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 
+
+[https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly](https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly)
+
+[https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un](https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un)
+
+[https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)

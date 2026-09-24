@@ -457,3 +457,5 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 ## 2026 September
 
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
+
+2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 

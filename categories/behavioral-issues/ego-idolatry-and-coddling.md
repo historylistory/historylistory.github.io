@@ -467,3 +467,11 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747](https://www.abqjournal.com/news/trumps-idea-satire-a-joke-or-wishful-thinking/3116747)
 
 [https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/](https://thehill.com/homenews/administration/6074249-trump-posts-map-labeling-new-mexico-as-new-america-after-online-hoax/)
+
+2026-09-23 Allegedly Trump tried to put his name on the Ford Theater.
+
+[https://www.forbes.com/sites/siladityaray/2026/09/24/trump-dismisses-report-on-talks-to-add-his-name-to-fords-theatre-where-lincoln-was-assassinated/](https://www.forbes.com/sites/siladityaray/2026/09/24/trump-dismisses-report-on-talks-to-add-his-name-to-fords-theatre-where-lincoln-was-assassinated/)
+
+[https://www.ms.now/news/trump-fords-theatre-name-kennedy-center](https://www.ms.now/news/trump-fords-theatre-name-kennedy-center)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html](https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html)

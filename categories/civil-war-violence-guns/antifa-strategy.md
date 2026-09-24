@@ -133,6 +133,12 @@ LINK REMOVED? [https://www.whitehouse.gov/briefings-statements/remarks-president
 
 SUB WALL [https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html](https://www.nytimes.com/2026/01/12/us/politics/trump-shooting-renee-good-ice.html)
 
+2026-01-16 Flock CEO Garrett Langley went on a rant about so-called Antifa and claimed tracking flock cameras is an act of terrorism. 
+
+[https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-ceo-goes-ballistic](https://www.aclu.org/news/privacy-technology/tracking-alpr-cameras/flock-ceo-goes-ballistic)
+
+[https://www.yahoo.com/news/politics/articles/flock-safety-ceo-calls-citizens-130000971.html](https://www.yahoo.com/news/politics/articles/flock-safety-ceo-calls-citizens-130000971.html)
+
 ### 2026 February
 
 2026-02-02 Former Army Ranger Ian Austin was arrested at a protest and charged with terrorism-related offenses. 

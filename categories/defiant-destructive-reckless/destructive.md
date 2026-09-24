@@ -420,3 +420,10 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.military.com/trump-plans-turn-washington-arch-into-military-complex-with-drones-snipers-ammunition](https://www.military.com/trump-plans-turn-washington-arch-into-military-complex-with-drones-snipers-ammunition)
 
+2026-09-23 Allegedly Trump tried to put his name on the Ford Theater.
+
+[https://www.forbes.com/sites/siladityaray/2026/09/24/trump-dismisses-report-on-talks-to-add-his-name-to-fords-theatre-where-lincoln-was-assassinated/](https://www.forbes.com/sites/siladityaray/2026/09/24/trump-dismisses-report-on-talks-to-add-his-name-to-fords-theatre-where-lincoln-was-assassinated/)
+
+[https://www.ms.now/news/trump-fords-theatre-name-kennedy-center](https://www.ms.now/news/trump-fords-theatre-name-kennedy-center)
+
+[https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html](https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html)

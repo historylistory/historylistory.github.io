@@ -737,3 +737,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
 2026-09-17 Trump threatened to tear down the Kennedy Center if a judge won’t let him put his name on it. 
+
+2026-09-23 Allegedly Trump tried to put his name on the Ford Theater.

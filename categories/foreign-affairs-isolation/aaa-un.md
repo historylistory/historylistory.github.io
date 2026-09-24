@@ -153,3 +153,20 @@ permalink: /categories/foreign-affairs-isolation/aaa-un/
 US REJECTS [https://thehill.com/policy/international/6072979-us-opposes-un-map-resolution-africa/](https://thehill.com/policy/international/6072979-us-opposes-un-map-resolution-africa/)
 
 US REJECTS [https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth-map-us-brands-radical-ideological-project](https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth-map-us-brands-radical-ideological-project)
+
+2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+[https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/](https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/)
+
+[https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
+
+[https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)
+
+2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 
+
+[https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly](https://www.democracynow.org/2026/9/23/headlines/lula_warns_against_foreign_interference_in_brazil_s_election_at_un_general_assembly)
+
+[https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un](https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un)
+
+[https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)
+
