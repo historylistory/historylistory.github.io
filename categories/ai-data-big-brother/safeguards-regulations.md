@@ -142,6 +142,14 @@ RECOMMEND ENTIRE VIDEO, BUT TIMESTAMP 15:48 [https://www.youtube.com/watch?v=lA8
 
 [https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/](https://nypost.com/2026/05/21/real-estate/residents-fume-as-georgia-power-seizes-homes-under-eminent-domain/)
 
+2026-06-18 OpenAI hacked into an Australian Medicare Statistics Reporting Service portal. 
+
+[https://www.cnn.com/2026/09/23/business/australia-openai-agent-hack-intl-hnk](https://www.cnn.com/2026/09/23/business/australia-openai-agent-hack-intl-hnk)
+
+[https://www.reuters.com/legal/litigation/australia-steps-up-response-ai-after-openai-bot-breaches-health-system-database-2026-09-25/](https://www.reuters.com/legal/litigation/australia-steps-up-response-ai-after-openai-bot-breaches-health-system-database-2026-09-25/)
+
+[https://www.usatoday.com/story/tech/2026/09/24/openai-agent-hacks-australian-government/91922378007/](https://www.usatoday.com/story/tech/2026/09/24/openai-agent-hacks-australian-government/91922378007/)
+
 ### 2026 July
 
 2026-07-14 New York placed a moratorium on building data centers. 

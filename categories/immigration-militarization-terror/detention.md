@@ -569,3 +569,12 @@ VIDEO [https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested
 [https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding](https://www.theguardian.com/us-news/2026/sep/05/cuban-hunger-striker-ice-force-feeding)
 
 HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
+
+2026-09-23 Only a few short days after hospitalization, DoorDash driver Wilber Garces Perez was pulled out the hospital by ICE to be sent to an ICE detention center. Perez still was in a wheelchair and still has the bullet hole in his back. 
+
+[https://www.texastribune.org/2026/09/22/texas-austin-ice-shooting-medical-care](https://www.texastribune.org/2026/09/22/texas-austin-ice-shooting-medical-care)
+
+[https://www.nbcnews.com/news/us-news/congressman-says-venezuelan-man-shot-ice-taken-custody-told-needs-surg-rcna599627](https://www.nbcnews.com/news/us-news/congressman-says-venezuelan-man-shot-ice-taken-custody-told-needs-surg-rcna599627)
+
+[https://www.bbc.com/news/articles/cr6241825757o](https://www.bbc.com/news/articles/cr6241825757o)
+

@@ -965,3 +965,5 @@ Next
 2026-09-20 ICE agents in Dallas shot 28-year-old door dash driver Wilber Rafael Garces Perez. DHS said they would wait for Perez’s release from the hospital and planned to detain him, despite a bullet remaining lodged in his back near his spinal cord. 
 
 2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 
+
+2026-09-23 Only a few short days after hospitalization, DoorDash driver Wilber Garces Perez was pulled out the hospital by ICE to be sent to an ICE detention center. Perez still was in a wheelchair and still has the bullet hole in his back. 

@@ -249,6 +249,15 @@ SUB WALL [https://www.thenational.scot/news/26028483.peter-thiel-sets-sights-med
 
 [https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602](https://www.nbcnews.com/tech/tech-news/florida-sues-openai-sam-altman-saying-put-profit-safety-rcna347602)
 
+
+2026-06-18 OpenAI hacked into an Australian Medicare Statistics Reporting Service portal. 
+
+[https://www.cnn.com/2026/09/23/business/australia-openai-agent-hack-intl-hnk](https://www.cnn.com/2026/09/23/business/australia-openai-agent-hack-intl-hnk)
+
+[https://www.reuters.com/legal/litigation/australia-steps-up-response-ai-after-openai-bot-breaches-health-system-database-2026-09-25/](https://www.reuters.com/legal/litigation/australia-steps-up-response-ai-after-openai-bot-breaches-health-system-database-2026-09-25/)
+
+[https://www.usatoday.com/story/tech/2026/09/24/openai-agent-hacks-australian-government/91922378007/](https://www.usatoday.com/story/tech/2026/09/24/openai-agent-hacks-australian-government/91922378007/)
+
 ### 2026 July
 
 2026-07-09 Meta AI tool Muse Image can render images of other peoples’ profiles without user consent now. This comes at a time when Grok is being investigated for sharing non-consensual AI images of real people, revenge porn, and CSAM. IMPORTANT: You may be able to OPT OUT by locating the Sharing settings in your profile and de-select anything pertaining to allowing people to use your content. 
@@ -339,3 +348,5 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 [https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/0](https://www.wired.com/story/openais-hugging-face-hack-debrief-raises-more-questions-than-it-answers/)
 
 [https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/](https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/)
+
+

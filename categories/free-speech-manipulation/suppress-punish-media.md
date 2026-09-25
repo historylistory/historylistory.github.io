@@ -570,3 +570,22 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/](https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/)
 
 [https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3](https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3)
+
+2026-09-23 Courts blocked Trump’s media ban. 
+
+[https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban](https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban)
+
+[https://thehill.com/homenews/administration/6104767-trump-deflects-media-ban-legal-fight/](https://thehill.com/homenews/administration/6104767-trump-deflects-media-ban-legal-fight/)
+
+2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
+
+[https://www.yahoo.com/news/politics/articles/trump-melts-down-over-lack-214411143.html](https://www.yahoo.com/news/politics/articles/trump-melts-down-over-lack-214411143.html)
+
+[https://www.newsweek.com/major-tv-networks-skip-trumps-xi-welcome-amid-white-house-press-ban-12480999](https://www.newsweek.com/major-tv-networks-skip-trumps-xi-welcome-amid-white-house-press-ban-12480999)
+
+[https://www.abc27.com/national/trump-complains-cnn-ms-now-didnt-cover-made-for-television-xi-visit/](https://www.abc27.com/national/trump-complains-cnn-ms-now-didnt-cover-made-for-television-xi-visit/)
+
+[https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/](https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/)
+
+THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://truthsocial.com/@realDonaldTrump/posts/117327988960070739](https://truthsocial.com/@realDonaldTrump/posts/117327988960070739) 
+

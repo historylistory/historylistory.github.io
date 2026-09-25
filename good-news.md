@@ -537,3 +537,10 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms](https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms)
 
 [https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)
+
+2026-09-23 Courts blocked Trump’s media ban. 
+
+[https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban](https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban)
+
+[https://thehill.com/homenews/administration/6104767-trump-deflects-media-ban-legal-fight/](https://thehill.com/homenews/administration/6104767-trump-deflects-media-ban-legal-fight/)
+

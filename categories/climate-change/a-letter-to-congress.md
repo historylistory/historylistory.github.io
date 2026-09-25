@@ -526,3 +526,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-15 Air pollution spiked after the Trump administration ended embassy monitoring. 
 
 2026-09-16 The Equinox Data Center in New Jersey had a fuel leak and contaminated nearby rivers. 
+
+2026-09-24 Hawaii residents prepared for the onslaught of Tropical storm Nolo as weather services planned to measure rainfall in feet rather than inches. 

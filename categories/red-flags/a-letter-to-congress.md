@@ -491,3 +491,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
 
 2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 
+
+2026-09-24 Dozens of world leaders walked out on Netanyahu during the UN summit.

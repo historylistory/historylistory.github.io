@@ -1006,3 +1006,14 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 
 [https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html](https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html)
 
+2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
+
+[https://www.yahoo.com/news/politics/articles/trump-melts-down-over-lack-214411143.html](https://www.yahoo.com/news/politics/articles/trump-melts-down-over-lack-214411143.html)
+
+[https://www.newsweek.com/major-tv-networks-skip-trumps-xi-welcome-amid-white-house-press-ban-12480999](https://www.newsweek.com/major-tv-networks-skip-trumps-xi-welcome-amid-white-house-press-ban-12480999)
+
+[https://www.abc27.com/national/trump-complains-cnn-ms-now-didnt-cover-made-for-television-xi-visit/](https://www.abc27.com/national/trump-complains-cnn-ms-now-didnt-cover-made-for-television-xi-visit/)
+
+[https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/](https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/)
+
+THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://truthsocial.com/@realDonaldTrump/posts/117327988960070739](https://truthsocial.com/@realDonaldTrump/posts/117327988960070739) 

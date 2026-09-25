@@ -575,3 +575,7 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-18 Trump banned MS Now, CNN and Politico from the White House. 
 
 2026-09-22 After Trump’s media ban, the White House launched “Trump TV” which was an immediate failure. 
+
+2026-09-23 Courts blocked Trump’s media ban. 
+
+2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 

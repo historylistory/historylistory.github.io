@@ -505,3 +505,12 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 [https://www.democracynow.org/2026/9/11/headlines/study_warns_climate_feedback_loops_could_worsen_global_heating_by_30](https://www.democracynow.org/2026/9/11/headlines/study_warns_climate_feedback_loops_could_worsen_global_heating_by_30)
 
 [https://phys.org/news/2026-09-unaccounted-climate-feedback-loops-amplify.html](https://phys.org/news/2026-09-unaccounted-climate-feedback-loops-amplify.html)
+
+2026-09-24 Hawaii residents prepared for the onslaught of Tropical storm Nolo as weather services planned to measure rainfall in feet rather than inches. 
+
+[https://www.staradvertiser.com/2026/09/24/breaking-news/tropical-storm-nolo-strengthens-as-hurricane-warning-looms/](https://www.staradvertiser.com/2026/09/24/breaking-news/tropical-storm-nolo-strengthens-as-hurricane-warning-looms/)
+
+[https://apnews.com/video/tourists-react-as-tropical-storm-nolo-bears-down-on-hawaii-b41d4e90bb86430386b357b11c41fd81](https://apnews.com/video/tourists-react-as-tropical-storm-nolo-bears-down-on-hawaii-b41d4e90bb86430386b357b11c41fd81)
+
+[https://www.yahoo.com/news/weather-news/article/3-hurricanes-are-churning-in-the-pacific-as-nolo-threatens-hawaii-with-catastrophic-flooding-142840761.html](https://www.yahoo.com/news/weather-news/article/3-hurricanes-are-churning-in-the-pacific-as-nolo-threatens-hawaii-with-catastrophic-flooding-142840761.html)
+

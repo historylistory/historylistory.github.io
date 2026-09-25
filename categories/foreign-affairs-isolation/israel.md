@@ -780,3 +780,11 @@ FROM 2025 [https://www.nyclu.org/press-release/cuny-must-release-investment-reco
 [https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre](https://www.middleeasteye.net/news/israeli-forces-kill-palestinian-boy-who-witnessed-rafah-medics-massacre)
 
 TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s](https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s)
+
+2026-09-24 Dozens of world leaders walked out on Netanyahu during the UN summit.
+
+[https://www.reuters.com/world/middle-east/dozens-delegates-walk-out-un-hall-start-netanyahu-speech-2026-09-24/](https://www.reuters.com/world/middle-east/dozens-delegates-walk-out-un-hall-start-netanyahu-speech-2026-09-24/)
+
+[https://www.lemonde.fr/en/international/article/2026/09/24/dozens-of-un-envoys-walk-out-of-israeli-pm-netanyahu-s-speech_6757912_4.html](https://www.lemonde.fr/en/international/article/2026/09/24/dozens-of-un-envoys-walk-out-of-israeli-pm-netanyahu-s-speech_6757912_4.html)
+
+[https://www.bbc.com/news/videos/cmvgy95g0n3lo](https://www.bbc.com/news/videos/cmvgy95g0n3lo)
