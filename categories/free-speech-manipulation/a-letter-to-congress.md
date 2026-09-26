@@ -579,3 +579,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-23 Courts blocked Trump’s media ban. 
 
 2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
+
+2026-09-24 Trump launched a series of taxpayer-funded propaganda ads. 

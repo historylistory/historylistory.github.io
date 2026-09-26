@@ -740,3 +740,14 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/](https://forward.com/fast-forward/850601/key-house-democrat-refuses-to-clear-2-8-billion-bomb-sale-to-israel/)
 
+2026-09-24 Trump launched a series of taxpayer-funded propaganda ads. 
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-propaganda-ad-commercial-midterms-taxpayer-public-money](https://www.ms.now/rachel-maddow-show/maddowblog/trump-propaganda-ad-commercial-midterms-taxpayer-public-money)
+
+[https://www.youtube.com/watch?v=WmRHejPrkKs](https://www.youtube.com/watch?v=WmRHejPrkKs)
+
+[https://www.cbs17.com/news/ap-pro-trump-tv-ad-paid-for-by-us-government-continues-airing-with-higher-spend/](https://www.cbs17.com/news/ap-pro-trump-tv-ad-paid-for-by-us-government-continues-airing-with-higher-spend/)
+
+[https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/](https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/)
+
+[https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2](https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2)

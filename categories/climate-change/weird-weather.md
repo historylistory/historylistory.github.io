@@ -514,3 +514,10 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 
 [https://www.yahoo.com/news/weather-news/article/3-hurricanes-are-churning-in-the-pacific-as-nolo-threatens-hawaii-with-catastrophic-flooding-142840761.html](https://www.yahoo.com/news/weather-news/article/3-hurricanes-are-churning-in-the-pacific-as-nolo-threatens-hawaii-with-catastrophic-flooding-142840761.html)
 
+2026-09-25 The Eastern part of the US braced for a major nor’easter. 
+
+[https://www.youtube.com/watch?v=SqX9t13j7Os&list=WL&index=1&t=9s](https://www.youtube.com/watch?v=SqX9t13j7Os&list=WL&index=1&t=9s)
+
+[https://www.nbcnews.com/weather/storms/rare-september-noreaster-set-to-slam-east-coast-rcna599592](https://www.nbcnews.com/weather/storms/rare-september-noreaster-set-to-slam-east-coast-rcna599592)
+
+[https://www.cbsnews.com/news/east-coast-noreaster-severe-flooding-winds-evacuations/](https://www.cbsnews.com/news/east-coast-noreaster-severe-flooding-winds-evacuations/)

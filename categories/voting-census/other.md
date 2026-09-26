@@ -290,3 +290,11 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un](https://www.aljazeera.com/news/2026/9/22/lula-warns-against-foreign-interference-defends-brazils-sovereignty-at-un)
 
 [https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)
+
+2026-09-24 Republican sheriff Chad Bianco out of Riverside County California illegally seized voter ballots, claiming fraud without any evidence. 
+
+[https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/](https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/)
+
+[https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco](https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco)
+
+[https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/](https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/)

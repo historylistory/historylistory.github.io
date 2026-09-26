@@ -101,6 +101,18 @@ permalink: /categories/children/health/
 
 [https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760](https://www.huffpost.com/entry/rfk-jr-tanning-beds-teen-access_l_69fbe0f3e4b06e786e3c3760)
 
+### 2026 June
+
+2026-06-26 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+
+[https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding](https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding)
+
+[https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294](https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294)
+
+[https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/](https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/)
+
+
 ### 2026 August
 
 2026-08-07 Trump signed an Executive Order which both links vaccines to autism and reduces or separates vaccine recommendations. In an efford to fearmonger Trump stated, "...where they have a vaccination thing that looks like the size of a bottle of soda poured into a little child's body, and bad things happen in many ca, in too many cases, because this an explosion. This is an epidemic". 
@@ -132,3 +144,14 @@ TIMESTAMP 4:41 [https://www.youtube.com/watch?v=3rQYNOb2nh8&list=WL&index=1&t=26
 [https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations](https://www.democracynow.org/2026/8/11/headlines/trump_issues_executive_order_reducing_childhood_vaccinations)
 
 [https://www.aap.org/](https://www.aap.org/)
+
+### 2026 September
+
+2026-09-24 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+
+[https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding](https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding)
+
+[https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294](https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294)
+
+[https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/](https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/)

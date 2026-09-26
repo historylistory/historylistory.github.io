@@ -738,6 +738,15 @@ GREAT VIDEO [https://www.youtube.com/watch?v=0xi-oCvqouA&list=WL&index=5](https:
 
 [https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/](https://www.binnews.com/content/2026-06-26-black-woman-sues-texas-hospitals-over-denied-miscarriage-care/)
 
+2026-06-26 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+
+[https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding](https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding)
+
+[https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294](https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294)
+
+[https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/](https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/)
+
 ### 2026 August
 
 2026-08-04 During a faith-based White House call with religious anti-abortion group Intercessors for America, Todd Blanche pledged to “make Dobbs permanent”. Tina Smith of Minnesota said, “Todd Blanche made clear in these secret calls with anti-choice activists that he wants to resurrect the Comstock Act, an antiquated anti-vice law from before women had the right to vote, to ban sending medication abortion in the mail”. 
@@ -822,3 +831,12 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://www.cbsnews.com/detroit/news/st-clair-shores-lakeview-high-school-gym-class-policy/](https://www.cbsnews.com/detroit/news/st-clair-shores-lakeview-high-school-gym-class-policy/)
 
 [https://www.wsfa.com/2026/09/17/parents-shocked-by-gym-class-syllabus-asking-high-schoolers-share-info-their-periods/](https://www.wsfa.com/2026/09/17/parents-shocked-by-gym-class-syllabus-asking-high-schoolers-share-info-their-periods/)
+
+2026-09-24 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+
+[https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding](https://www.npr.org/2026/09/24/nx-s1-5974336/teen-pregnancy-prevention-unspent-funding)
+
+[https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294](https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294)
+
+[https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/](https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/)

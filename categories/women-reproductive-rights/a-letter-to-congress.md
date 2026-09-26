@@ -424,6 +424,9 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-06-22 Texas resident Lynn Callaway was denied critical medical care during a miscarriage due to anti-abortion laws.
 
+2026-06-26 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+
 ## 2026 July 
 
 2026-07-01 Nick Fuentes said, “Islam is not right about a lot of things, but it is right about women should really not be allowed to travel by themselves, cuz, what are you travelling for? What is a girl going to college for”, “Freedom of movement should not exist for women”.  
@@ -459,3 +462,7 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
 
 2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 
+
+2026-09-24 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
+budget untouched through the end of 2026. 
+

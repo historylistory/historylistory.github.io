@@ -649,3 +649,16 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/](https://www.dailykos.com/stories/2026/9/22/800101679/media/trump-tv-immediate-failure/)
 
 [https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3](https://www.youtube.com/watch?v=umG8z65bpdI&list=WL&index=3)
+
+2026-09-24 Trump launched a series of taxpayer-funded propaganda ads. 
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/trump-propaganda-ad-commercial-midterms-taxpayer-public-money](https://www.ms.now/rachel-maddow-show/maddowblog/trump-propaganda-ad-commercial-midterms-taxpayer-public-money)
+
+[https://www.youtube.com/watch?v=WmRHejPrkKs](https://www.youtube.com/watch?v=WmRHejPrkKs)
+
+[https://www.cbs17.com/news/ap-pro-trump-tv-ad-paid-for-by-us-government-continues-airing-with-higher-spend/](https://www.cbs17.com/news/ap-pro-trump-tv-ad-paid-for-by-us-government-continues-airing-with-higher-spend/)
+
+[https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/](https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/)
+
+[https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2](https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2)
+

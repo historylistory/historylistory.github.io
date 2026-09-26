@@ -449,3 +449,14 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 [https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary](https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary)
 
 [https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/](https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/)
+
+### 2026 September
+
+2026-09-24 Republican sheriff Chad Bianco out of Riverside County California illegally seized voter ballots, claiming fraud without any evidence. 
+
+[https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/](https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/)
+
+[https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco](https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco)
+
+[https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/](https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/)
+
