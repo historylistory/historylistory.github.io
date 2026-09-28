@@ -538,6 +538,13 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 
 [https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)
 
+2026-09-22 the MAGA Patriots Day Freedom Fest in Kentucky featuring Kid Rock was cancelled due to low ticket sales. 
+
+[https://www.detroitnews.com/story/entertainment/music/2026/09/22/kentucky-freedom-fest-cancels-kid-rock-led-event-sold-just-6-vip-tix/91894761007/](https://www.detroitnews.com/story/entertainment/music/2026/09/22/kentucky-freedom-fest-cancels-kid-rock-led-event-sold-just-6-vip-tix/91894761007/)
+
+[https://www.usatoday.com/story/entertainment/music/2026/09/22/freedom-fest-cancelled-low-vip-ticket-sales/91894276007/](https://www.usatoday.com/story/entertainment/music/2026/09/22/freedom-fest-cancelled-low-vip-ticket-sales/91894276007/)
+
+
 2026-09-23 Courts blocked Trump’s media ban. 
 
 [https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban](https://www.npr.org/2026/09/23/nx-s1-5978614/doj-defend-white-house-media-ban)

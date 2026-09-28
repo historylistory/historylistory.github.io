@@ -581,3 +581,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
 
 2026-09-24 Trump launched a series of taxpayer-funded propaganda ads. 
+
+2026-09-24 Despite a judge’s orders to lift the media ban, security guards at the White House claimed they had no idea the ban was lifted and continued to bar media outlets form entering the press pool. 

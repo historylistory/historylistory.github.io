@@ -865,3 +865,11 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://www.lemonde.fr/en/international/article/2026/09/24/dozens-of-un-envoys-walk-out-of-israeli-pm-netanyahu-s-speech_6757912_4.html](https://www.lemonde.fr/en/international/article/2026/09/24/dozens-of-un-envoys-walk-out-of-israeli-pm-netanyahu-s-speech_6757912_4.html)
 
 [https://www.bbc.com/news/videos/cmvgy95g0n3lo](https://www.bbc.com/news/videos/cmvgy95g0n3lo)
+
+2026-09-26 The Republic of Ireland’s Men’s National Football Team wore black armbands during the UEFA Nations League match against Israel in protest against the genocide in Gaza. 
+
+[https://www.bbc.com/sport/football/articles/ckddvv5dn4eyo](https://www.bbc.com/sport/football/articles/ckddvv5dn4eyo)
+
+[https://www.espn.com/soccer/story/_/id/50045283/republic-ireland-israel-handshakes-nations-league-anthem-armbands](https://www.espn.com/soccer/story/_/id/50045283/republic-ireland-israel-handshakes-nations-league-anthem-armbands)
+
+[https://www.abc.net.au/news/2026-09-28/ireland-black-armbands-no-handshakes-with-israel-football-team/107202736](https://www.abc.net.au/news/2026-09-28/ireland-black-armbands-no-handshakes-with-israel-football-team/107202736)

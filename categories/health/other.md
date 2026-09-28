@@ -177,3 +177,10 @@ permalink: /categories/health/other/
 
 [https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4](https://www.youtube.com/watch?v=bcXyq_sE39M&list=WL&index=4)
 
+2026-09-21 Researchers found some GLP-1 drugs caused blindness. 
+
+JULY 2026 [https://www.rutgers.edu/news/researchers-find-small-increased-risk-sudden-vision-loss-associated-glp-1-medications](https://www.rutgers.edu/news/researchers-find-small-increased-risk-sudden-vision-loss-associated-glp-1-medications)
+
+[https://www.usatoday.com/story/news/health/2026/09/21/glp-1-blindness-lawsuits-rare-cases/91877381007/](https://www.usatoday.com/story/news/health/2026/09/21/glp-1-blindness-lawsuits-rare-cases/91877381007/)
+
+[https://abcnews.com/US/glp-1-users-potential-risk-rare-type-vision/story?id=136635318](https://abcnews.com/US/glp-1-users-potential-risk-rare-type-vision/story?id=136635318)

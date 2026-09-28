@@ -271,3 +271,16 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 [https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
 
 [https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight](https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight)
+
+2026-09-22 the MAGA Patriots Day Freedom Fest in Kentucky featuring Kid Rock was cancelled due to low ticket sales. 
+
+[https://www.detroitnews.com/story/entertainment/music/2026/09/22/kentucky-freedom-fest-cancels-kid-rock-led-event-sold-just-6-vip-tix/91894761007/](https://www.detroitnews.com/story/entertainment/music/2026/09/22/kentucky-freedom-fest-cancels-kid-rock-led-event-sold-just-6-vip-tix/91894761007/)
+
+[https://www.usatoday.com/story/entertainment/music/2026/09/22/freedom-fest-cancelled-low-vip-ticket-sales/91894276007/](https://www.usatoday.com/story/entertainment/music/2026/09/22/freedom-fest-cancelled-low-vip-ticket-sales/91894276007/)
+
+2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
+
+[https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/](https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/)
+
+[https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms](https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms)
+

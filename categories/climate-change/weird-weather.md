@@ -521,3 +521,10 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 [https://www.nbcnews.com/weather/storms/rare-september-noreaster-set-to-slam-east-coast-rcna599592](https://www.nbcnews.com/weather/storms/rare-september-noreaster-set-to-slam-east-coast-rcna599592)
 
 [https://www.cbsnews.com/news/east-coast-noreaster-severe-flooding-winds-evacuations/](https://www.cbsnews.com/news/east-coast-noreaster-severe-flooding-winds-evacuations/)
+
+2026-09-26 Hurricanes Polo and Odalys ripped through California’s and Mexico’s coasts. 
+
+[https://www.reuters.com/business/environment/category-5-hurricane-polo-threatens-mexicos-coast-landfall-expected-monday-2026-09-26/](https://www.reuters.com/business/environment/category-5-hurricane-polo-threatens-mexicos-coast-landfall-expected-monday-2026-09-26/)
+
+[https://ktla.com/weather/hurricanes-polo-odalys-to-send-powerful-waves-to-already-battered-southern-california-coast/](https://ktla.com/weather/hurricanes-polo-odalys-to-send-powerful-waves-to-already-battered-southern-california-coast/)
+

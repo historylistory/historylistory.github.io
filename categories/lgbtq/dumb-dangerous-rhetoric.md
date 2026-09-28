@@ -289,3 +289,8 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 
 [https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/](https://www.wral.com/news/education/law-firm-sends-demand-letter-to-wake-schools-over-transgender-teacher-hire-september-2026/)
 
+2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
+
+[https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/](https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/)
+
+[https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms](https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms)

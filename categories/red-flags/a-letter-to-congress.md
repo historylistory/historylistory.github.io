@@ -493,3 +493,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-22 During the UN assembly Brazil warned any foreign countries not to interfere with their elections. 
 
 2026-09-24 Dozens of world leaders walked out on Netanyahu during the UN summit.
+
+2026-09-26 The Republic of Ireland’s Men’s National Football Team wore black armbands during the UEFA Nations League match against Israel in protest against the genocide in Gaza. 

@@ -531,3 +531,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 
 2026-09-25 The Eastern part of the US braced for a major nor’easter. 
+
+2026-09-26 Hurricanes Polo and Odalys ripped through California’s and Mexico’s coasts. 

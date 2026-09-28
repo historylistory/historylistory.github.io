@@ -714,3 +714,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-09-11 Ebola cases in the DRC surpassed 7000. 
 
 2026-09-16 Pennsylvania reported the fourth measles-related death in the month
+
+2026-09-21 Researchers found some GLP-1 drugs caused blindness. 

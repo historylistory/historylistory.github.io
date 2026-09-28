@@ -291,6 +291,13 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 
 [https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)
 
+2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
+
+[https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/](https://reason.com/2026/09/23/bro-we-need-your-vote-matt-gaetz-and-a-desperate-gop-wrestle-with-trumps-unpopularity/)
+
+[https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms](https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms)
+
+
 2026-09-24 Republican sheriff Chad Bianco out of Riverside County California illegally seized voter ballots, claiming fraud without any evidence. 
 
 [https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/](https://www.democracydocket.com/news-alerts/california-attorney-general-vows-legal-consequences-for-gop-sheriff-who-seized-ballots/)

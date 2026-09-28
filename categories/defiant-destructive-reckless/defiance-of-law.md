@@ -674,3 +674,8 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/](https://thehill.com/homenews/house/6094033-house-gop-exit-massie-hegseth-impeachment/)
 
+2026-09-24 Despite a judge’s orders to lift the media ban, security guards at the White House claimed they had no idea the ban was lifted and continued to bar media outlets form entering the press pool. 
+
+[https://www.nbcnews.com/politics/trump-administration/judge-ruling-white-house-restore-access-media-ban-cnn-politico-ms-now-rcna599391](https://www.nbcnews.com/politics/trump-administration/judge-ruling-white-house-restore-access-media-ban-cnn-politico-ms-now-rcna599391)
+
+[https://apnews.com/article/white-house-press-corps-ban-783de2e95a51c9514cf00d64e41da8a1](https://apnews.com/article/white-house-press-corps-ban-783de2e95a51c9514cf00d64e41da8a1)
