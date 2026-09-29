@@ -540,3 +540,16 @@ PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-st
 [https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
 
 [https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)
+
+2026-09-27 Trump offered to sell arms to China, but then administration officials denied it. 
+
+[https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html](https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html)
+
+[https://abcnews.com/Politics/us-officials-deny-plans-sell-weapons-china/story?id=136823372](https://abcnews.com/Politics/us-officials-deny-plans-sell-weapons-china/story?id=136823372)
+
+[https://fortune.com/2026/09/28/trump-us-arms-sale-china-xi-jinping-summit-national-security-threats-taiwan-weapons-package/](https://fortune.com/2026/09/28/trump-us-arms-sale-china-xi-jinping-summit-national-security-threats-taiwan-weapons-package/)
+
+[https://www.scmp.com/news/china/diplomacy/article/3368996/trump-asked-xi-if-beijing-wanted-us-weapons-joke-gambit-or-something-more](https://www.scmp.com/news/china/diplomacy/article/3368996/trump-asked-xi-if-beijing-wanted-us-weapons-joke-gambit-or-something-more)
+
+PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html](https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html)
+

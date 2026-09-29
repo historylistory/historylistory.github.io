@@ -679,3 +679,13 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.nbcnews.com/politics/trump-administration/judge-ruling-white-house-restore-access-media-ban-cnn-politico-ms-now-rcna599391](https://www.nbcnews.com/politics/trump-administration/judge-ruling-white-house-restore-access-media-ban-cnn-politico-ms-now-rcna599391)
 
 [https://apnews.com/article/white-house-press-corps-ban-783de2e95a51c9514cf00d64e41da8a1](https://apnews.com/article/white-house-press-corps-ban-783de2e95a51c9514cf00d64e41da8a1)
+
+2026-09-26 The White House blocked CNN from Air Force One despite judge orders. 
+
+[https://www.democracynow.org/2026/9/28/headlines/white_house_blocks_cnn_from_air_force_one](https://www.democracynow.org/2026/9/28/headlines/white_house_blocks_cnn_from_air_force_one)
+
+[https://www.usatoday.com/story/news/politics/2026/09/27/todd-blanche-cnn-air-force-one-trump/91975635007/](https://www.usatoday.com/story/news/politics/2026/09/27/todd-blanche-cnn-air-force-one-trump/91975635007/)
+
+[https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now](https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now)
+
+[https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475](https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475)

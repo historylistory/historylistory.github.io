@@ -25,6 +25,18 @@ permalink: /categories/j6/other/
 PAY WALL [https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html](https://www.nytimes.com/2023/05/02/business/media/tucker-carlson-text-message-white-men.html)
 
 
+### 2022 
+
+2022-12-31 Brazil had its own J6-style insurrection after Bolsonaro decreed false election claims and incited a military coup and planned assassination. 
+
+[https://en.wikipedia.org/wiki/2022%E2%80%932023_Brazilian_coup_plot](https://en.wikipedia.org/wiki/2022%E2%80%932023_Brazilian_coup_plot)
+
+[https://www.npr.org/2024/11/27/nx-s1-5207832/brazil-bolsonaro-coup-election](https://www.npr.org/2024/11/27/nx-s1-5207832/brazil-bolsonaro-coup-election)
+
+[https://www.lemonde.fr/en/international/article/2024/12/27/behind-the-scenes-of-jair-bolsonaro-s-attempted-coup-d-etat-in-brazil-in-2022_6736496_4.html](https://www.lemonde.fr/en/international/article/2024/12/27/behind-the-scenes-of-jair-bolsonaro-s-attempted-coup-d-etat-in-brazil-in-2022_6736496_4.html)
+
+[https://www.reuters.com/world/americas/supporters-brazils-bolsonaro-try-invade-federal-police-headquarters-2022-12-13/](https://www.reuters.com/world/americas/supporters-brazils-bolsonaro-try-invade-federal-police-headquarters-2022-12-13/)
+
 
 ### 2023 
 

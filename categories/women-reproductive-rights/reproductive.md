@@ -822,6 +822,17 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
 
+2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
+
+[https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1](https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1)
+
+[https://www.peoplefor.org/rightwingwatch/anti-choice-activist-seth-gruber-advocates-death-penalty-women-who-get-abortions](https://www.peoplefor.org/rightwingwatch/anti-choice-activist-seth-gruber-advocates-death-penalty-women-who-get-abortions)
+
+VIDEO AT CAVALRY TUCSON [https://www.youtube.com/watch?v=LOC-KuOg-qo](https://www.youtube.com/watch?v=LOC-KuOg-qo)
+
+PAY WALL [https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html](https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html)
+
+
 2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 
 
 [https://www.youtube.com/watch?v=Ractr1Q2l4Y&list=WL&index=5&t=81s](https://www.youtube.com/watch?v=Ractr1Q2l4Y&list=WL&index=5&t=81s)

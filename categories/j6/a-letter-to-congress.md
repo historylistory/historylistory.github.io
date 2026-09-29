@@ -82,6 +82,8 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2022-10-22 Oath Keepers members testified about a cache of weapons stashed at a hotel for potential Jan 6 violence.
 
+2022-12-31 Brazil had its own J6-style insurrection after Bolsonaro decreed false election claims and incited a military coup and planned assassination. 
+
 ## 2023 
 
 2023-03-03 The J6 Prison Choir debuted for the first time, and their recording featured Donald Trump reciting the pledge of allegiance, which he recorded by phone from his Mar-a-Lago estate.

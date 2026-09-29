@@ -305,3 +305,10 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco](https://www.theguardian.com/us-news/2026/sep/24/california-sheriff-ballots-chad-bianco)
 
 [https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/](https://calmatters.org/politics/2026/09/supreme-court-ruling-sheriff-ballot-seizure/)
+
+
+2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 
+
+[https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5](https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5)
+
+[https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371](https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371)

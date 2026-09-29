@@ -1228,3 +1228,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-17 The House passed the Ratepayer Protection Act to keep data center costs off consumers’ electric bills. It is currently stalled in the Senate.
 
 2026-09-17 The Federal Reserve voted unanimously to hike interest rates.
+
+2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 

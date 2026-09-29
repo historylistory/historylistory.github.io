@@ -501,6 +501,7 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-21 After the US scrambled to intercept a Chinese ship in the Middle East, they learned last minute an intelligence assessment relied on false information from an AI chatbot. 
 
+2026-09-25 OpenAI hacked into the Education Department, Commerce Department, and Securities and Exchange Commission. 
 
 
 

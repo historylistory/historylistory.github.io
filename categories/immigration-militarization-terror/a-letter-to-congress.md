@@ -967,3 +967,9 @@ Next
 2026-09-20 A federal judge ruled Trump cannot deport immigrants to third-world countries in which they have no ties. Attorney Trina Realmuto stated, “This decision confirms that due process and the protections Congress enacted against persecution and torture cannot be circumvented by putting someone on a plane to a country that was never part of their removal proceedings”. 
 
 2026-09-23 Only a few short days after hospitalization, DoorDash driver Wilber Garces Perez was pulled out the hospital by ICE to be sent to an ICE detention center. Perez still was in a wheelchair and still has the bullet hole in his back. 
+
+2026-09-25 The Broadview Six attorneys resigned in protest after felony charges of six ICE protesters were dropped and gross misconduct charges of the proceedings emerged. 
+
+2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 
+
+2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 

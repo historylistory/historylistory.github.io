@@ -164,3 +164,10 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 
 [https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)
 
+2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 
+
+[https://www.youtube.com/watch?v=eHAmfBWpyD0&list=WL&index=3](https://www.youtube.com/watch?v=eHAmfBWpyD0&list=WL&index=3)
+
+[https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/](https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/)
+
+[https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/](https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/)

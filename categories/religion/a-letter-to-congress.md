@@ -408,4 +408,7 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1)
 
+2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
+
+
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 

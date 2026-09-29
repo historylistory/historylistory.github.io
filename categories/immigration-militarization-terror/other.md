@@ -197,3 +197,24 @@ PAY WALL [https://www.wsj.com/lifestyle/careers/ice-scours-social-media-to-unmas
 
 MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951](https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-far-right/video-79158951)
 
+2026-09-25 The Broadview Six attorneys resigned in protest after felony charges of six ICE protesters were dropped and gross misconduct charges of the proceedings emerged. 
+
+[https://abc7chicago.com/post/federal-prosecutor-botched-broadview-case-assistant-us-attorney-sheri-mecklenburg-retires-protest-resignation-letter/19873279/](https://abc7chicago.com/post/federal-prosecutor-botched-broadview-case-assistant-us-attorney-sheri-mecklenburg-retires-protest-resignation-letter/19873279/)
+
+[https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/](https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/)
+
+[https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters](https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters)
+
+2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 
+
+[https://www.youtube.com/watch?v=eHAmfBWpyD0&list=WL&index=3](https://www.youtube.com/watch?v=eHAmfBWpyD0&list=WL&index=3)
+
+[https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/](https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/)
+
+[https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/](https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/)
+
+2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 
+
+[https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5](https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5)
+
+[https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371](https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371)

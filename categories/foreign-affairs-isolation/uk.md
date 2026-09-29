@@ -82,3 +82,12 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 
 [https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
 
+2026-09-27 Five men were arrested on suspicion of terrorism at the RAF Fairford military base. 
+
+[https://www.reuters.com/world/uk/uk-police-question-five-men-held-airbase-used-by-us-attack-iran-2026-09-28/](https://www.reuters.com/world/uk/uk-police-question-five-men-held-airbase-used-by-us-attack-iran-2026-09-28/)
+
+[https://www.bbc.com/news/live/c65y7nl29k0et](https://www.bbc.com/news/live/c65y7nl29k0et)
+
+[https://www.aljazeera.com/news/2026/9/28/terror-incident-near-raf-base-used-for-iran-war-what-we-know](https://www.aljazeera.com/news/2026/9/28/terror-incident-near-raf-base-used-for-iran-war-what-we-know)
+
+PAY WALL [https://www.bbc.com/news/articles/c85ydnwqpzyzo](https://www.bbc.com/news/articles/c85ydnwqpzyzo)

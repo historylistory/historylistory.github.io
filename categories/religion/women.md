@@ -132,3 +132,14 @@ THE CALL WAS POSTED THEN TAKEN DOWN [https://www.youtube.com/watch?v=GSgPBOlRyuU
 
 DOBBS V JACKSON WOMENS HEALTH [https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/](https://thehill.com/homenews/administration/5491726-barrett-defends-abortion-decision/)
 
+### 2026 September
+
+2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
+
+[https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1](https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1)
+
+[https://www.peoplefor.org/rightwingwatch/anti-choice-activist-seth-gruber-advocates-death-penalty-women-who-get-abortions](https://www.peoplefor.org/rightwingwatch/anti-choice-activist-seth-gruber-advocates-death-penalty-women-who-get-abortions)
+
+VIDEO AT CAVALRY TUCSON [https://www.youtube.com/watch?v=LOC-KuOg-qo](https://www.youtube.com/watch?v=LOC-KuOg-qo)
+
+PAY WALL [https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html](https://www.nytimes.com/2026/06/24/us/politics/abortion-prosecution-women.html)

@@ -371,3 +371,6 @@ TIMESTAMP 15:34 [https://www.youtube.com/watch?v=x9U71_dAEC8&t=6s](https://www.y
 
 SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420](https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2026-election-01064420)
 
+2026-09-17 Now 1 in 10 Americans are in a new house district. 
+
+[https://www.democracydocket.com/news-alerts/trump-redistricting-war/](https://www.democracydocket.com/news-alerts/trump-redistricting-war/)

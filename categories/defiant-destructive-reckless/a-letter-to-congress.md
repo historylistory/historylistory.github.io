@@ -596,3 +596,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-09-23 Allegedly Trump tried to put his name on the Ford Theater.
 
 2026-09-24 Despite a judge’s orders to lift the media ban, security guards at the White House claimed they had no idea the ban was lifted and continued to bar media outlets form entering the press pool. 
+
+2026-09-26 The White House blocked CNN from Air Force One despite judge orders. 

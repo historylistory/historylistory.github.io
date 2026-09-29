@@ -213,3 +213,5 @@ Congress must restore agricultural and conservation funding, protect independent
 ## 2026 September
 
 2026-09-07 Many cattle ranchers who were hit by drought and high costs started selling their herds. 
+
+2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 

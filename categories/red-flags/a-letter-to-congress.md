@@ -107,6 +107,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2022-12-03 Trump posted, “So, with the revelation of MASSIVE & WIDESPREAD FRAUD & DECEPTION in working closely with Big Tech Companies, the DNC, & the Democrat Parter, do you throw the Presidential Election Results of 2020 OUT and declare the RIGHTFUL WINNER, or do you have a NEW ELECTION? A Massive Fraud of this type and magnitude allows for the termination of all rules, regulations, and articles, even those found in the Constitution. Our great “Founders” did not want, and would not condone, False & Fraudulent Elections!”.
 
+2022-12-31 Brazil had its own J6-style insurrection after Bolsonaro decreed false election claims and incited a military coup and planned assassination. 
+
 ## 2023 
 
 2023-01-01 Netanyahu has repeatedly tried to overhaul the judiciary, give the ruling coalition power to pick their own judges, and prohibit courts form striking down “unreasonable” decisions. 
@@ -495,3 +497,9 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-09-24 Dozens of world leaders walked out on Netanyahu during the UN summit.
 
 2026-09-26 The Republic of Ireland’s Men’s National Football Team wore black armbands during the UEFA Nations League match against Israel in protest against the genocide in Gaza. 
+
+2026-09-27 Trump offered to sell arms to China, but then administration officials denied it. 
+
+2026-09-28 Bolsonaro’s son was running the lead in Brazil’s elections. 
+
+

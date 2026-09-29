@@ -350,3 +350,15 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 [https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/](https://www.technologyreview.com/2026/08/31/1143180/hugging-face-hack-could-indicate-cultural-issues-at-openai/)
 
 
+2026-09-25 OpenAI hacked into the Education Department, Commerce Department, and Securities and Exchange Commission. 
+
+[https://www.npr.org/2026/09/26/nx-s1-5981971/openai-says-its-ai-agents-probed-federal-websites-without-the-companys-knowledge](https://www.npr.org/2026/09/26/nx-s1-5981971/openai-says-its-ai-agents-probed-federal-websites-without-the-companys-knowledge)
+
+[https://www.npr.org/2026/09/26/nx-s1-5981979/openai-us-government-websites-misbehavior](https://www.npr.org/2026/09/26/nx-s1-5981979/openai-us-government-websites-misbehavior)
+
+[https://www.cnn.com/2026/09/26/tech/openai-agents-rogue-government-websites](https://www.cnn.com/2026/09/26/tech/openai-agents-rogue-government-websites)
+
+[https://www.usatoday.com/story/tech/2026/09/25/openai-models-accessed-government-websites/91945179007/](https://www.usatoday.com/story/tech/2026/09/25/openai-models-accessed-government-websites/91945179007/)
+
+[https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/](https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/)
+

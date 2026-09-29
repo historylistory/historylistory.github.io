@@ -571,3 +571,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
 
 2026-09-24 Republican sheriff Chad Bianco out of Riverside County California illegally seized voter ballots, claiming fraud without any evidence. 
+
+2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 

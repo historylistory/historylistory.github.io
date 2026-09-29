@@ -461,6 +461,8 @@ budget untouched through the end of 2026.
 
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
 
+2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
+
 2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 
 
 2026-09-24 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 

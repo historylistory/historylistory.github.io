@@ -482,3 +482,10 @@ HYPOCRISY AFTER KRAFT LET KANYE WEST SING HEIL HITLER [https://www.ms.now/opinio
 
 [https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/](https://www.cair.com/press_releases/cair-cair-fl-internationalist-law-center-condemn-arrest-of-human-rights-lawyer-noura-erakat-at-a-palm-beach-county-hearing-for-speaking-against-israel-bonds/)
 
+2026-09-25 The Broadview Six attorneys resigned in protest after felony charges of six ICE protesters were dropped and gross misconduct charges of the proceedings emerged. 
+
+[https://abc7chicago.com/post/federal-prosecutor-botched-broadview-case-assistant-us-attorney-sheri-mecklenburg-retires-protest-resignation-letter/19873279/](https://abc7chicago.com/post/federal-prosecutor-botched-broadview-case-assistant-us-attorney-sheri-mecklenburg-retires-protest-resignation-letter/19873279/)
+
+[https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/](https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/)
+
+[https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters](https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters)

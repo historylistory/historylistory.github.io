@@ -193,3 +193,16 @@ PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-amer
 2026-09-21 After the US scrambled to intercept a Chinese ship in the Middle East, they learned last minute an intelligence assessment relied on false information from an AI chatbot. 
 
 [https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east](https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east)
+
+2026-09-27 Trump offered to sell arms to China, but then administration officials denied it. 
+
+[https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html](https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html)
+
+[https://abcnews.com/Politics/us-officials-deny-plans-sell-weapons-china/story?id=136823372](https://abcnews.com/Politics/us-officials-deny-plans-sell-weapons-china/story?id=136823372)
+
+[https://fortune.com/2026/09/28/trump-us-arms-sale-china-xi-jinping-summit-national-security-threats-taiwan-weapons-package/](https://fortune.com/2026/09/28/trump-us-arms-sale-china-xi-jinping-summit-national-security-threats-taiwan-weapons-package/)
+
+[https://www.scmp.com/news/china/diplomacy/article/3368996/trump-asked-xi-if-beijing-wanted-us-weapons-joke-gambit-or-something-more](https://www.scmp.com/news/china/diplomacy/article/3368996/trump-asked-xi-if-beijing-wanted-us-weapons-joke-gambit-or-something-more)
+
+PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html](https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html)
+
