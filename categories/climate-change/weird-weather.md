@@ -528,3 +528,10 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 
 [https://ktla.com/weather/hurricanes-polo-odalys-to-send-powerful-waves-to-already-battered-southern-california-coast/](https://ktla.com/weather/hurricanes-polo-odalys-to-send-powerful-waves-to-already-battered-southern-california-coast/)
 
+2026-09-29 Life-threatening flash floods hit the Southwest. 
+
+[https://weather.com/2026/09/29/forecast/regional/hurricane-polo-southwest-plains-flash-flooding](https://weather.com/2026/09/29/forecast/regional/hurricane-polo-southwest-plains-flash-flooding)
+
+[https://www.yahoo.com/news/weather-news/articles/life-threatening-flash-floods-may-215840844.html](https://www.yahoo.com/news/weather-news/articles/life-threatening-flash-floods-may-215840844.html)
+
+

@@ -597,4 +597,10 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-09-24 Despite a judge’s orders to lift the media ban, security guards at the White House claimed they had no idea the ban was lifted and continued to bar media outlets form entering the press pool. 
 
+2026-09-25 The FBI was hacked by ShinyHunters after the group warned the FBI to remove misinformation about them. 
+
 2026-09-26 The White House blocked CNN from Air Force One despite judge orders. 
+
+
+2026-09-28 The Pentagon was hacked, exposing data on more than 3 million people. 
+

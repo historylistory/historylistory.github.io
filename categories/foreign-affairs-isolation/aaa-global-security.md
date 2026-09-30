@@ -135,3 +135,21 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 
 [https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting](https://www.scmp.com/news/world/united-states-canada/article/3367485/us-blocks-irans-nuclear-chief-vienna-meeting)
 
+2026-09-25 The FBI was hacked by ShinyHunters after the group warned the FBI to remove misinformation about them. 
+
+[https://www.nbcnews.com/tech/security/fbi-warns-shinyhunters-crime-group-hacked-agent-data-arrest-rcna600480](https://www.nbcnews.com/tech/security/fbi-warns-shinyhunters-crime-group-hacked-agent-data-arrest-rcna600480)
+
+[https://www.pcmag.com/news/despite-threats-shinyhunters-backs-off-leaking-stolen-fbi-data](https://www.pcmag.com/news/despite-threats-shinyhunters-backs-off-leaking-stolen-fbi-data)
+
+[https://www.reuters.com/world/shinyhunters-hackers-say-they-stole-psychiatric-medical-records-fbi-staff-2026-09-25/](https://www.reuters.com/world/shinyhunters-hackers-say-they-stole-psychiatric-medical-records-fbi-staff-2026-09-25/)
+
+[https://www.youtube.com/watch?v=zseybmU2PIk](https://www.youtube.com/watch?v=zseybmU2PIk)
+
+2026-09-28 The Pentagon was hacked, exposing data on more than 3 million people. 
+
+[https://abcnews.com/Politics/pentagon-breach-exposed-sensitive-data-3-million-people/story?id=136832909](https://abcnews.com/Politics/pentagon-breach-exposed-sensitive-data-3-million-people/story?id=136832909)
+
+[https://federalnewsnetwork.com/defense-main/2026/09/more-than-3-million-people-affected-by-military-data-breach/](https://federalnewsnetwork.com/defense-main/2026/09/more-than-3-million-people-affected-by-military-data-breach/)
+
+[https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers](https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers)
+
