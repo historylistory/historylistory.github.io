@@ -309,3 +309,10 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/](https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/)
 
+2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
+
+[https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/](https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/)
+
+[https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
+
+[https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)

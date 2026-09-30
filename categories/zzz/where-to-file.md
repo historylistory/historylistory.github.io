@@ -92,3 +92,10 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 [https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php](https://www.houstonchronicle.com/sports/college/longhorns/article/ted-cruz-booed-college-gameday-texas-ohio-state-22428816.php)
 
 [https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/](https://www.motherjones.com/politics/2026/09/ted-cruz-espn-austin-texas-ncaa-sports-bill-booooooo/)
+
+2026-09-22 Susan Collins was in the news for several topics. 
+
+[https://www.propublica.org/article/fbi-susan-collins-navatek-campaign-donations-investigation](https://www.propublica.org/article/fbi-susan-collins-navatek-campaign-donations-investigation)
+
+[https://thehill.com/policy/healthcare/6115908-democrats-attack-collins-medicaid-cuts/](https://thehill.com/policy/healthcare/6115908-democrats-attack-collins-medicaid-cuts/)
+

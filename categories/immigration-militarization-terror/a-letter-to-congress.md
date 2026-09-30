@@ -973,3 +973,7 @@ Next
 2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 
 
 2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 

@@ -281,3 +281,9 @@ PAY WALL [https://www.bbc.com/news/articles/cg73l2d079ko](https://www.bbc.com/ne
 [https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642](https://www.aa.com.tr/en/vg/video-gallery/330-foot-shroud-bearing-names-of-20-000-gaza-children-killed-by-israel-displayed-at-un-church-center/155642)
 
 TIMESTAMP 6:12 [https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s](https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s)
+
+2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 
+
+[https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails](https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails)
+
+[https://nocampsca.com/](https://nocampsca.com/)

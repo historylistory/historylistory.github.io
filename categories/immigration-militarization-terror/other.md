@@ -218,3 +218,11 @@ MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-fa
 [https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5](https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5)
 
 [https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371](https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371)
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+[https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/](https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/)
+
+[https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html](https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html)
+
+[https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)

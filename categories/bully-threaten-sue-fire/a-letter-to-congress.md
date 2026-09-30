@@ -187,6 +187,8 @@ Manhattan grand jury in the hush-money case.
 
 2025-01-07 Trump threatened to use "economic force" to annex Canada, prompting Canadian officials to take the comments more seriously
 
+2025-01-22 During a congressional hearing Russ Vought argued that the Impoundment Control Act of 1974 was unconstitutional. 
+
 ## 2025 February
 
 2025-02-03 Courts delayed White House efforts to freeze roughly $3 trillion in federal spending and identify FBI personnel involved in the January 6 investigations
@@ -729,3 +731,7 @@ Manhattan grand jury in the hush-money case.
 2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.
 
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
+
+2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 

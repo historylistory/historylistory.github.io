@@ -140,6 +140,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2025-01-20 Trump rescinded Executive Order 14143 Providing for the Appointment of Alumni of AmeriCorps to the Competitive Service.
 
+2025-01-22 During a congressional hearing Russ Vought argued that the Impoundment Control Act of 1974 was unconstitutional. 
+
 2025-01-26 The United States Air Force was forced to remove training courses referencing the Tuskegee Airmen or the Women Air Force Service Pilots (WACS) because they are “DEI”.
 
 2025-01-29 Trump issued Executive Order Ending Racial Indoctrination in K-12 Schooling.

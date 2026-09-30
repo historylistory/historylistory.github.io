@@ -66,6 +66,15 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-retaliation/
 
 [https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy#:~:text=The%20Gulf%20of%20Mexico%20has,Trump%20on%20January%2020%2C%202025](https://en.wikipedia.org/wiki/Gulf_of_Mexico_naming_controversy).
 
+2025-01-22 During a congressional hearing Russ Vought argued that the Impoundment Control Act of 1974 was unconstitutional. 
+
+[https://www.conference-board.org/research/policy-backgrounders/adiministration-view-on-impoundment](https://www.conference-board.org/research/policy-backgrounders/adiministration-view-on-impoundment)
+
+[https://www.politico.com/live-updates/2026/09/29/congress/pocket-rescission-gao-unconstitutional-01096965](https://www.politico.com/live-updates/2026/09/29/congress/pocket-rescission-gao-unconstitutional-01096965)
+
+[https://www.youtube.com/watch?v=UYXghO3TpZA](https://www.youtube.com/watch?v=UYXghO3TpZA)
+
+
 ### 2025 February
 
 2025-02-03 Courts delayed White House efforts to freeze roughly $3 trillion in federal spending and identify FBI personnel involved in the January 6 investigations

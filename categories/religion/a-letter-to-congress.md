@@ -412,3 +412,5 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 
 
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
+
+2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 

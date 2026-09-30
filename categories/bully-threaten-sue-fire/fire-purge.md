@@ -469,3 +469,10 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://www.nbcnews.com/politics/trump-administration/white-house-report-brands-smithsonian-leadership-radical-activists-can-rcna353090](https://www.nbcnews.com/politics/trump-administration/white-house-report-brands-smithsonian-leadership-radical-activists-can-rcna353090)
 
+2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
+
+[https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/](https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/)
+
+[https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
+
+[https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)

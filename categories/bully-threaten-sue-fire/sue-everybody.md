@@ -279,3 +279,14 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 [https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342](https://www.politico.com/news/2026/05/20/trump-weaponization-fund-lawsuit-jan-6-00929342)
 
 [https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund](https://www.ms.now/rachel-maddow-show/maddowblog/former-capitol-police-officer-harry-dunn-files-suit-to-block-trumps-slush-fund)
+
+### 2026 September
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+[https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/](https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/)
+
+[https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html](https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html)
+
+[https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)
+

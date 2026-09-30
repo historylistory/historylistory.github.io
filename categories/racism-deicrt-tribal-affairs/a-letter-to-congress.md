@@ -819,3 +819,5 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-09-14 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
 
 2026-09-21 A man in Vermont was convicted of attempted second-degree murder on 3 Palestinian students at University of Vermont campus. In the attempt one victim was left paralyzed from the waist down. Jason Eaton shot at all three men from the porch of his house. 
+
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 

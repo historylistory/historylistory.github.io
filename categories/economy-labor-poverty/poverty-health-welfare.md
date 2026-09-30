@@ -784,3 +784,11 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work](https://www.pbs.org/newshour/politics/trump-promised-5000-checks-if-republicans-win-the-midterms-how-would-that-work)
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
+
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 
+
+[https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters](https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters)
+
+[https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/](https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/)
+
+[https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/](https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/)

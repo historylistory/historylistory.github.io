@@ -143,3 +143,14 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 [https://www.justice.gov/opa/pr/justice-department-investigation-determines-yales-medical-school-discriminated-based-race](https://www.justice.gov/opa/pr/justice-department-investigation-determines-yales-medical-school-discriminated-based-race)
 
 [https://president.yale.edu/posts/2026-07-13-message-from-the-president](https://president.yale.edu/posts/2026-07-13-message-from-the-president)
+
+### 2026 September
+
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 
+
+[https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters](https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters)
+
+[https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/](https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/)
+
+[https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/](https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/)
+

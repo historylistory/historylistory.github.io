@@ -127,3 +127,13 @@ PAY WALL [https://www.latimes.com/california/story/2026-06-07/president-trump-st
 [https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/](https://www.atlantanewsfirst.com/2026/08/27/nearly-200-teachers-being-questioned-after-walking-out-cobb-county-superintendents-speech/)
 
 FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALLY NEUTRAL: [https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/](https://eastcobbnews.com/cobb-superintendent-our-schools-are-politically-neutral/)
+
+### 2026 September
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+[https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/](https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/)
+
+[https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html](https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html)
+
+[https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)

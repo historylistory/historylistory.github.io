@@ -49,4 +49,11 @@ permalink: /categories/foreign-affairs-isolation/iraq/
 
 [https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/](https://www.cbsnews.com/news/us-saudi-arabia-strike-iran-proxies-iraq-after-attacks-on-american-forces/)
 
+### 2026 September
+
+2026-09-30 The last US forces were pulled out of Iraq. 
+
+[https://www.pbs.org/newshour/world/u-s-military-says-its-withdrawal-of-troops-from-iraq-for-islamic-state-fight-is-complete](https://www.pbs.org/newshour/world/u-s-military-says-its-withdrawal-of-troops-from-iraq-for-islamic-state-fight-is-complete)
+
+[https://abcnews.com/International/us-troops-expected-leave-iraq-wednesday-12-year/story?id=136871869](https://abcnews.com/International/us-troops-expected-leave-iraq-wednesday-12-year/story?id=136871869)
 

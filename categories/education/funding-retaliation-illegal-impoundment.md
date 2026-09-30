@@ -30,6 +30,16 @@ permalink: /categories/education/funding-retaliation-illegal-impoundment/
 
 [https://www.politico.com/live-updates/2024/04/24/congress/johnson-demands-columbia-prez-resign-00154063](https://www.politico.com/live-updates/2024/04/24/congress/johnson-demands-columbia-prez-resign-00154063)
 
+### 2025 January
+
+2025-01-22 During a congressional hearing Russ Vought argued that the Impoundment Control Act of 1974 was unconstitutional. 
+
+[https://www.conference-board.org/research/policy-backgrounders/adiministration-view-on-impoundment](https://www.conference-board.org/research/policy-backgrounders/adiministration-view-on-impoundment)
+
+[https://www.politico.com/live-updates/2026/09/29/congress/pocket-rescission-gao-unconstitutional-01096965](https://www.politico.com/live-updates/2026/09/29/congress/pocket-rescission-gao-unconstitutional-01096965)
+
+[https://www.youtube.com/watch?v=UYXghO3TpZA](https://www.youtube.com/watch?v=UYXghO3TpZA)
+
 
 ### 2025 February
 

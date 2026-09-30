@@ -587,3 +587,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-09-25 The Broadview Six attorneys resigned in protest after felony charges of six ICE protesters were dropped and gross misconduct charges of the proceedings emerged. 
 
 2026-09-26 The White House blocked CNN from Air Force One despite judge orders. 
+
+2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 

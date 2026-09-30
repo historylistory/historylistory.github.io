@@ -578,3 +578,8 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 [https://www.bbc.com/news/articles/cr6241825757o](https://www.bbc.com/news/articles/cr6241825757o)
 
+2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 
+
+[https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails](https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails)
+
+[https://nocampsca.com/](https://nocampsca.com/)

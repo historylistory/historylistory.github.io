@@ -1025,3 +1025,10 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 
 SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/](https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/)
 
+2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
+
+[https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/](https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/)
+
+[https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
+
+[https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)
