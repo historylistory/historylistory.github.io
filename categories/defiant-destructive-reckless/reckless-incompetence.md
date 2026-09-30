@@ -1016,3 +1016,12 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 [https://federalnewsnetwork.com/defense-main/2026/09/more-than-3-million-people-affected-by-military-data-breach/](https://federalnewsnetwork.com/defense-main/2026/09/more-than-3-million-people-affected-by-military-data-breach/)
 
 [https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers](https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers)
+
+2026-09-28 FBI co-deputy director Andrew Baily resigned. 
+
+[https://abcnews.com/Politics/fbi-deputy-director-andrew-bailey-resigns/story?id=136825203](https://abcnews.com/Politics/fbi-deputy-director-andrew-bailey-resigns/story?id=136825203)
+
+[https://www.nbcnews.com/politics/justice-department/andrew-bailey-joined-fbi-co-deputy-position-leave-bureau-rcna600270](https://www.nbcnews.com/politics/justice-department/andrew-bailey-joined-fbi-co-deputy-position-leave-bureau-rcna600270)
+
+SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/](https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/)
+

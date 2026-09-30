@@ -244,3 +244,27 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 
 [https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/](https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/)
 
+2026-09-28 Mike Johnson spun the narrative that the Chinese were pushing anti-data-center psyops. 
+
+[https://www.newsweek.com/mike-johnson-rejects-ai-data-center-outrage-as-chinese-psyop-12497405](https://www.newsweek.com/mike-johnson-rejects-ai-data-center-outrage-as-chinese-psyop-12497405)
+
+[https://newrepublic.com/post/215930/mike-johnson-public-opinion-data-centers-psyop](https://newrepublic.com/post/215930/mike-johnson-public-opinion-data-centers-psyop)
+
+[https://www.themirror.com/news/politics/deluded-mike-johnson-slammed-view-2043824](https://www.themirror.com/news/politics/deluded-mike-johnson-slammed-view-2043824)
+
+2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
+
+[https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html](https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html)
+
+[https://www.reuters.com/legal/government/trump-host-zuckerberg-anthropics-amodei-other-ai-titans-tuesday-2026-09-29/](https://www.reuters.com/legal/government/trump-host-zuckerberg-anthropics-amodei-other-ai-titans-tuesday-2026-09-29/)
+
+[https://abcnews.com/Politics/top-ai-leaders-meet-trump-white-house-amid/story?id=136832988](https://abcnews.com/Politics/top-ai-leaders-meet-trump-white-house-amid/story?id=136832988)
+
+[https://www.thecentersquare.com/national/article_3ddd70aa-735b-4a19-9c14-027c5d532702.html](https://www.thecentersquare.com/national/article_3ddd70aa-735b-4a19-9c14-027c5d532702.html)
+
+[https://www.cbsnews.com/newyork/video/president-trump-meets-with-ai-executives-at-white-house/](https://www.cbsnews.com/newyork/video/president-trump-meets-with-ai-executives-at-white-house/)
+
+[https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai](https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai)
+
+PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992](https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992)
+

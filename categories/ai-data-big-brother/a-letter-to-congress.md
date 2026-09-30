@@ -504,6 +504,13 @@ Technology should serve the public—not become a tool for political retaliation
 2026-09-25 OpenAI hacked into the Education Department, Commerce Department, and Securities and Exchange Commission. 
 
 
+2026-09-28 Mike Johnson spun the narrative that the Chinese were pushing anti-data-center psyops. 
+
+
+
+2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
+
+
 
 
 

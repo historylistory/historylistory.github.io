@@ -751,3 +751,19 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 [https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/](https://www.thedailybeast.com/trump-goons-launch-absurd-defense-of-crackpot-propaganda-ad/)
 
 [https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2](https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2)
+
+2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
+
+[https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html](https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html)
+
+[https://www.reuters.com/legal/government/trump-host-zuckerberg-anthropics-amodei-other-ai-titans-tuesday-2026-09-29/](https://www.reuters.com/legal/government/trump-host-zuckerberg-anthropics-amodei-other-ai-titans-tuesday-2026-09-29/)
+
+[https://abcnews.com/Politics/top-ai-leaders-meet-trump-white-house-amid/story?id=136832988](https://abcnews.com/Politics/top-ai-leaders-meet-trump-white-house-amid/story?id=136832988)
+
+[https://www.thecentersquare.com/national/article_3ddd70aa-735b-4a19-9c14-027c5d532702.html](https://www.thecentersquare.com/national/article_3ddd70aa-735b-4a19-9c14-027c5d532702.html)
+
+[https://www.cbsnews.com/newyork/video/president-trump-meets-with-ai-executives-at-white-house/](https://www.cbsnews.com/newyork/video/president-trump-meets-with-ai-executives-at-white-house/)
+
+[https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai](https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai)
+
+PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992](https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992)

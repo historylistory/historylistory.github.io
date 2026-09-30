@@ -709,3 +709,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-09-22 the MAGA Patriots Day Freedom Fest in Kentucky featuring Kid Rock was cancelled due to low ticket sales. 
 
 2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
+
+2026-09-28 FBI co-deputy director Andrew Baily resigned. 

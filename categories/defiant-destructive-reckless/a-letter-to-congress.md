@@ -604,3 +604,4 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-09-28 The Pentagon was hacked, exposing data on more than 3 million people. 
 
+2026-09-28 FBI co-deputy director Andrew Baily resigned. 

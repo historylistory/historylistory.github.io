@@ -693,3 +693,12 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://www.ms.now/opinion/trump-immigration-maria-elvira-salazar-ad-florida](https://www.ms.now/opinion/trump-immigration-maria-elvira-salazar-ad-florida)
 
 SUB WALL [https://www.nytimes.com/2026/09/17/us/politics/salazar-florida-republican-immigration-trump.html](https://www.nytimes.com/2026/09/17/us/politics/salazar-florida-republican-immigration-trump.html)
+
+2026-09-28 FBI co-deputy director Andrew Baily resigned. 
+
+[https://abcnews.com/Politics/fbi-deputy-director-andrew-bailey-resigns/story?id=136825203](https://abcnews.com/Politics/fbi-deputy-director-andrew-bailey-resigns/story?id=136825203)
+
+[https://www.nbcnews.com/politics/justice-department/andrew-bailey-joined-fbi-co-deputy-position-leave-bureau-rcna600270](https://www.nbcnews.com/politics/justice-department/andrew-bailey-joined-fbi-co-deputy-position-leave-bureau-rcna600270)
+
+SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/](https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/)
+
