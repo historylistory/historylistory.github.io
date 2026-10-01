@@ -1231,7 +1231,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-09-25 The Kansas Livestock Association along with Texas and Oklahoma released a statement on ICE operations, stating it has had a chilling effect on the ag economy. 
 
-2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. Matt Walsh complained on Truth Social September 28th, “Republicans don’t have the balls to do this ad with Shaniqua as the villain”. Sean Davis wrote, “…the audacity to dishonestly mock young white men as welfare queens”. Dale Partridge wrote, “…she villainizes a White man”. 
 
 2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
 

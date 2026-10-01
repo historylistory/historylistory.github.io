@@ -785,10 +785,12 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
 
-2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. Matt Walsh complained on Truth Social September 28th, “Republicans don’t have the balls to do this ad with Shaniqua as the villain”. Sean Davis wrote, “…the audacity to dishonestly mock young white men as welfare queens”. Dale Partridge wrote, “…she villainizes a White man”. 
 
 [https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters](https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters)
 
 [https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/](https://www.rollingstone.com/politics/politics-news/right-wingers-sarah-sanders-welfare-fraud-ad-1235633178/)
 
 [https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/](https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/)
+
+TIMESTAMP 7:50 [https://www.youtube.com/watch?v=H5VxuVNEn4w&list=WL&index=1](https://www.youtube.com/watch?v=H5VxuVNEn4w&list=WL&index=1)

@@ -820,4 +820,4 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-09-21 A man in Vermont was convicted of attempted second-degree murder on 3 Palestinian students at University of Vermont campus. In the attempt one victim was left paralyzed from the waist down. Jason Eaton shot at all three men from the porch of his house. 
 
-2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. 
+2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. Matt Walsh complained on Truth Social September 28th, “Republicans don’t have the balls to do this ad with Shaniqua as the villain”. Sean Davis wrote, “…the audacity to dishonestly mock young white men as welfare queens”. Dale Partridge wrote, “…she villainizes a White man”. 
