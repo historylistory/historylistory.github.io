@@ -510,7 +510,11 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
 
+2026-09-29 Trump renamed Artificial Intelligence Super Intelligence. 
 
+[https://www.foxnews.com/live-news/ai-leaders-trump-meeting-google-executive-order](https://www.foxnews.com/live-news/ai-leaders-trump-meeting-google-executive-order)
+
+[https://www.cnbc.com/2026/09/29/trump-ai-super-intelligence.html](https://www.cnbc.com/2026/09/29/trump-ai-super-intelligence.html)
 
 
 

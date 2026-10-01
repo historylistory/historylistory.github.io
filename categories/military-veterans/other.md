@@ -362,3 +362,8 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 
 [https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/](https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/)
 
+2026-09-25 Hegseth intentionally upped military physical requirements to weed out women. 
+
+[https://thefulcrum.us/governance-legislation/military-gender-standards](https://thefulcrum.us/governance-legislation/military-gender-standards)
+
+[https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html](https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html)

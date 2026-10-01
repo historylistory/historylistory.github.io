@@ -81,3 +81,10 @@ MARCH, ARMY: [https://www.militarytimes.com/news/pentagon-congress/2026/03/27/he
 
 [https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c](https://apnews.com/article/navy-promotions-women-hegseth-pentagon-e744efae3cc70902732fffce7ee1a69c)
 
+### 2026 September
+
+2026-09-25 Hegseth intentionally upped military physical requirements to weed out women. 
+
+[https://thefulcrum.us/governance-legislation/military-gender-standards](https://thefulcrum.us/governance-legislation/military-gender-standards)
+
+[https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html](https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html)

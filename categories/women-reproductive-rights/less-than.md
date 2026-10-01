@@ -332,3 +332,12 @@ KAITLAN COLLINS [https://www.advocate.com/politics/national/trump-hijacks-corres
 2026-08-20 Steve Deace said, “We’re in a new era now, and I think it’s actually going to have to be the men that end this…men have to decide that they’re done enjoying the acoutermants of feminism…”.
 
 [https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5](https://www.youtube.com/watch?v=PW420DRJzWc&list=WL&index=5)
+
+### 2026 September
+
+2026-09-25 Hegseth intentionally upped military physical requirements to weed out women. 
+
+[https://thefulcrum.us/governance-legislation/military-gender-standards](https://thefulcrum.us/governance-legislation/military-gender-standards)
+
+[https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html](https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html)
+

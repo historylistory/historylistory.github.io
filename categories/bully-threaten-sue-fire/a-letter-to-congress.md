@@ -732,6 +732,11 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
 
+2026-09-27 Two senior FBI counterterrorism officials were demoted after handling threats to Katie Miller. Threats involved protestors writing chalk messages on sidewalks in front of the Millers’ home in Virginia.
+
+
+2026-09-29 Eric Schmitt took a huge, embarrassing blunder when he tried to use misinformation to corner Jack Smith for perjury and was called out by Senator Amy Klobuchar on the Senate floor. 
+
 2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
 
 2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 

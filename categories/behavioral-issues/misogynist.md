@@ -11,6 +11,8 @@ permalink: /categories/behavioral-issues/misogyny/
 This section has been moved to 
 [https://historylistory.com/categories/women-reproductive-rights](https://historylistory.com/categories/women-reproductive-rights)
 
+Some of it can be found under Military/Women
+
 But here's a link for you: 
 
 2016-10-19 Trump’s “grab them by the pussy” full transcript  can be found on BBC’s website.

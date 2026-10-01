@@ -468,3 +468,6 @@ budget untouched through the end of 2026.
 2026-09-24 The Trump administration cancelled most of the teen pregnancy prevention program, then left at least $100M of the prevention 
 budget untouched through the end of 2026. 
 
+2026-09-25 Hegseth intentionally upped military physical requirements to weed out women. 
+
+

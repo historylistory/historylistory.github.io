@@ -1025,6 +1025,17 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 
 SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/](https://www.washingtonpost.com/national-security/2026/09/28/andrew-bailey-no-2-fbi-resigns-latest-shake-up-bureau/)
 
+
+2026-09-29 Eric Schmitt took a huge, embarrassing blunder when he tried to use misinformation to corner Jack Smith for perjury and was called out by Senator Amy Klobuchar on the Senate floor. 
+
+[https://slate.com/news-and-politics/2026/09/watch-republican-eric-schmitt-jack-smith-perjury-hawks.html](https://slate.com/news-and-politics/2026/09/watch-republican-eric-schmitt-jack-smith-perjury-hawks.html)
+
+[https://missouriindependent.com/2026/09/29/eric-schmitts-hawks-hawkeyes-blunder-and-the-politician-hes-become/](https://missouriindependent.com/2026/09/29/eric-schmitts-hawks-hawkeyes-blunder-and-the-politician-hes-become/)
+
+[https://www.ms.now/rachel-maddow-show/maddowblog/eric-schmitt-jack-smith-atlanta-basketball-hearing-embarrassment](https://www.ms.now/rachel-maddow-show/maddowblog/eric-schmitt-jack-smith-atlanta-basketball-hearing-embarrassment)
+
+[https://www.youtube.com/watch?v=cygW3laAL7E](https://www.youtube.com/watch?v=cygW3laAL7E)
+
 2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
 
 [https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/](https://www.cbsnews.com/news/hegseth-20-cut-generals-and-admirals-military-pentagon/)

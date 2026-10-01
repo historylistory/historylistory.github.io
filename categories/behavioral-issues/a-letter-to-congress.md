@@ -741,3 +741,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-09-23 Allegedly Trump tried to put his name on the Ford Theater.
 
 2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
+
+2026-09-27 Two senior FBI counterterrorism officials were demoted after handling threats to Katie Miller. Threats involved protestors writing chalk messages on sidewalks in front of the Millers’ home in Virginia.

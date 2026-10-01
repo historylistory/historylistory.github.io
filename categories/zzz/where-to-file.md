@@ -99,3 +99,16 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 
 [https://thehill.com/policy/healthcare/6115908-democrats-attack-collins-medicaid-cuts/](https://thehill.com/policy/healthcare/6115908-democrats-attack-collins-medicaid-cuts/)
 
+2026-09-30 After pushing forth with an execution, Tennessee had to halt execution of Christa Gail Pike after she survived two lethal injections and had to be hospitalized. 
+
+[https://www.npr.org/2026/10/01/nx-s1-5986822/tennessee-governor-halts-executions](https://www.npr.org/2026/10/01/nx-s1-5986822/tennessee-governor-halts-executions)
+
+[https://www.aljazeera.com/news/2026/10/1/christa-pike-execution-fails-what-next-when-a-lethal-injection-is-botched](https://www.aljazeera.com/news/2026/10/1/christa-pike-execution-fails-what-next-when-a-lethal-injection-is-botched)
+
+[https://www.cbsnews.com/news/what-to-know-christa-pike-first-woman-executed-tennessee-200-years/](https://www.cbsnews.com/news/what-to-know-christa-pike-first-woman-executed-tennessee-200-years/)
+
+[https://www.nbcnews.com/news/us-news/ahead-rare-execution-lone-woman-tennessee-death-row-says-peace-rcna600279](https://www.nbcnews.com/news/us-news/ahead-rare-execution-lone-woman-tennessee-death-row-says-peace-rcna600279)
+
+[https://abcnews.com/US/execution-lone-woman-tennessees-death-row-paused-federal/story?id=136893331](https://abcnews.com/US/execution-lone-woman-tennessees-death-row-paused-federal/story?id=136893331)
+
+PAY WALL [https://www.bbc.com/news/articles/cq8r6rjdvlx6o](https://www.bbc.com/news/articles/cq8r6rjdvlx6o)

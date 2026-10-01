@@ -1017,3 +1017,7 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 [https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/](https://www.thedailybeast.com/trump-melts-down-at-media-he-banned-for-not-covering-him/)
 
 THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://truthsocial.com/@realDonaldTrump/posts/117327988960070739](https://truthsocial.com/@realDonaldTrump/posts/117327988960070739) 
+
+2026-09-27 Two senior FBI counterterrorism officials were demoted after handling threats to Katie Miller. Threats involved protestors writing chalk messages on sidewalks in front of the Millers’ home in Virginia.
+
+[https://ktul.com/news/nation-world/two-senior-fbi-counterterrorism-officials-demoted-after-handling-threats-to-katie-miller](https://ktul.com/news/nation-world/two-senior-fbi-counterterrorism-officials-demoted-after-handling-threats-to-katie-miller)
