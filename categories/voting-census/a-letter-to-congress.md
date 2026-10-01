@@ -573,3 +573,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-24 Republican sheriff Chad Bianco out of Riverside County California illegally seized voter ballots, claiming fraud without any evidence. 
 
 2026-09-26 A Canadian woman was detained at the US border and interrogated for hours about illegal voting. 
+
+2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
+
+2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 

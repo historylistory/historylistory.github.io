@@ -662,3 +662,30 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 
 [https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2](https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2)
 
+2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
+
+[https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171](https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171)
+
+[https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/](https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/)
+
+[https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/](https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/)
+
+[https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9](https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9)
+
+2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
+
+[https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/](https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/)
+
+2026-09-30 Hegseth launched his own Office of Religious Affairs to further merge church with state. 
+
+[https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/](https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/)
+
+[https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/](https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/)
+
+### 2026 October
+
+2026-10-01 The White House tweaked America.gov to stop answering certain questions about election fraud claims or citing facts after some of the questions answered contradicted Trump’s own false claims. 
+
+[https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3](https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2](https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2)

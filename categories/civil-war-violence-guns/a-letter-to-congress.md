@@ -711,3 +711,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-09-23 In response to Trump’s unpopularity, Matt Gaetz implored voters, “Bro, we need your vote”, writing, “I hate the war too. But the Democrats want to trans your kids”. 
 
 2026-09-28 FBI co-deputy director Andrew Baily resigned. 
+
+2026-09-30 Texas GOP declared a statewide disaster over diesel fuel. 

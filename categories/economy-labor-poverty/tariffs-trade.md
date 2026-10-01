@@ -465,3 +465,11 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 [https://home.treasury.gov/news/press-releases/sb0613](https://home.treasury.gov/news/press-releases/sb0613)
 
 [https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe](https://www.aljazeera.com/news/2026/9/1/us-brings-back-russias-siluanov-to-g20-finance-talks-angering-europe)
+
+2026-09-30 Texas GOP declared a statewide disaster over diesel fuel. 
+
+[https://www.youtube.com/watch?v=Nj0fQGtD2qI&list=WL&index=5](https://www.youtube.com/watch?v=Nj0fQGtD2qI&list=WL&index=5)
+
+[https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages](https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages)
+
+[https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/](https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/)

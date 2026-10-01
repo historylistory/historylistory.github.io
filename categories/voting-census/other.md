@@ -312,3 +312,7 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5](https://www.youtube.com/watch?v=eG_fXssxl_w&list=WL&index=5)
 
 [https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371](https://www.cbc.ca/news/canada/british-columbia/canadian-detained-at-bc-border-for-hours-9.7359371)
+
+2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
+
+[https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/](https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/)

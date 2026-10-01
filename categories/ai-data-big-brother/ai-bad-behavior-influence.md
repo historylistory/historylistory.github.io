@@ -362,3 +362,15 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 
 [https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/](https://www.washingtonpost.com/technology/2026/09/25/openais-ai-agents-probed-federal-agencies-including-commerce-department/)
 
+2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
+
+[https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/](https://thehill.com/homenews/administration/6118370-rubio-announces-online-passport-application/)
+
+### 2026 October
+
+2026-10-01 The White House tweaked America.gov to stop answering certain questions about election fraud claims or citing facts after some of the questions answered contradicted Trump’s own false claims. 
+
+[https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3](https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2](https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2)
+

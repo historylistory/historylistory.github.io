@@ -221,3 +221,11 @@ permalink: /categories/religion/christian-nationalism/
 [https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking](https://www.axios.com/local/nw-arkansas/2026/07/15/arkansas-tops-religious-groups-liberty-ranking)
 
 BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s](https://www.youtube.com/watch?v=srru9GK8btU&list=WL&index=4&t=163s)
+
+### 2026 September
+
+2026-09-30 Hegseth launched his own Office of Religious Affairs to further merge church with state. 
+
+[https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/](https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/)
+
+[https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/](https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/)

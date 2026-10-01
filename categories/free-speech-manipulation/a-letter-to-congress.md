@@ -588,4 +588,14 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 
 2026-09-26 The White House blocked CNN from Air Force One despite judge orders. 
 
+2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
+
+2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
+
 2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+2026-09-30 Hegseth launched his own Office of Religious Affairs to further merge church with state. 
+
+## 2026 October
+
+2026-10-01 The White House tweaked America.gov to stop answering certain questions about election fraud claims or citing facts after some of the questions answered contradicted Trump’s own false claims. 

@@ -499,3 +499,12 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f](https://apnews.com/article/trump-mail-voting-executive-order-lawsuit-78a4fbeb48d9c5fd27d1c865529fc65f)
 
 
+2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
+
+[https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171](https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171)
+
+[https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/](https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/)
+
+[https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/](https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/)
+
+[https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9](https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9)

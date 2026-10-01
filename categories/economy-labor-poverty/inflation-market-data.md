@@ -511,3 +511,12 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 
 [https://www.cnbc.com/2026/09/16/fed-rate-decision-september-2026.html](https://www.cnbc.com/2026/09/16/fed-rate-decision-september-2026.html)
 
+### 2026 September
+
+2026-09-30 Texas GOP declared a statewide disaster over diesel fuel. 
+
+[https://www.youtube.com/watch?v=Nj0fQGtD2qI&list=WL&index=5](https://www.youtube.com/watch?v=Nj0fQGtD2qI&list=WL&index=5)
+
+[https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages](https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages)
+
+[https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/](https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/)

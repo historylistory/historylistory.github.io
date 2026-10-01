@@ -752,6 +752,16 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 [https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2](https://www.youtube.com/watch?v=wfsUfT8MnFs&list=WL&index=2)
 
+2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
+
+[https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171](https://www.nbcnews.com/politics/trump-administration/white-house-releases-new-taxpayer-funded-ad-describing-final-battle-rcna600171)
+
+[https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/](https://www.poynter.org/fact-checking/2026/are-trump-taxpayer-funded-ads-legal/)
+
+[https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/](https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/)
+
+[https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9](https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9)
+
 2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
 
 [https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html](https://finance.yahoo.com/technology/article/trump-gathers-with-ai-leaders-floats-self-regulation-as-the-way-to-deal-with-the-technologys-dangers-193745293.html)
