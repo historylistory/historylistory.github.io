@@ -154,3 +154,27 @@ PAY WALL [https://www.bbc.com/news/articles/cn8dedv8w8xo](https://www.bbc.com/ne
 
 [https://www.cnbc.com/2026/09/29/trump-ai-super-intelligence.html](https://www.cnbc.com/2026/09/29/trump-ai-super-intelligence.html)
 
+2026-09-30 Hegseth named Elon Musk, Newt Gingrich and Palmer Lucky heads of the new Project Meridian, a program created for autonomous weaponry. 
+
+[https://www.cnbc.com/2026/09/30/musk-luckey-gingrich-pentagon-hegseth-.html](https://www.cnbc.com/2026/09/30/musk-luckey-gingrich-pentagon-hegseth-.html)
+
+[https://www.snopes.com/news/2026/10/01/hegseth-musk-gingrich-project-meridian/](https://www.snopes.com/news/2026/10/01/hegseth-musk-gingrich-project-meridian/)
+
+[https://media.defense.gov/2026/Sep/30/2004009287/-1/-1/1/COMMISSIONING-OF-PROJECT-MERIDIAN.PDF](https://media.defense.gov/2026/Sep/30/2004009287/-1/-1/1/COMMISSIONING-OF-PROJECT-MERIDIAN.PDF)
+
+[https://www.foxnews.com/politics/elon-musk-lands-new-trump-admin-role-shaping-future-american-warfare](https://www.foxnews.com/politics/elon-musk-lands-new-trump-admin-role-shaping-future-american-warfare)
+
+### 2026 October
+
+2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
+
+[https://www.cbsnews.com/news/china-ai-qwen-artificial-intelligence-bias-analysis/](https://www.cbsnews.com/news/china-ai-qwen-artificial-intelligence-bias-analysis/)
+
+[https://galileo.ai/blog/qwen-ai-models](https://galileo.ai/blog/qwen-ai-models)
+
+[https://cryptobriefing.com/qwen-ai-censorship-bias-removal-research/](https://cryptobriefing.com/qwen-ai-censorship-bias-removal-research/)
+
+[https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory](https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory)
+
+APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/](https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/)
+

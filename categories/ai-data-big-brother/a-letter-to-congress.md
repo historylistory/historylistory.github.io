@@ -515,9 +515,13 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
 
+2026-09-30 Hegseth named Elon Musk, Newt Gingrich and Palmer Lucky heads of the new Project Meridian, a program created for autonomous weaponry. 
+
 ## 2026 October
 
 2026-10-01 The White House tweaked America.gov to stop answering certain questions about election fraud claims or citing facts after some of the questions answered contradicted Trump’s own false claims. 
+
+2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
 
 
 

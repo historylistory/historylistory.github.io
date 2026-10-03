@@ -367,3 +367,22 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 [https://thefulcrum.us/governance-legislation/military-gender-standards](https://thefulcrum.us/governance-legislation/military-gender-standards)
 
 [https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html](https://www.stripes.com/theaters/us/2026-09-29/hegseth-top-leaders-quantico-beardos-fitness-23003166.html)
+
+2026-09-30 Hegseth named Elon Musk, Newt Gingrich and Palmer Lucky heads of the new Project Meridian, a program created for autonomous weaponry. 
+
+[https://www.cnbc.com/2026/09/30/musk-luckey-gingrich-pentagon-hegseth-.html](https://www.cnbc.com/2026/09/30/musk-luckey-gingrich-pentagon-hegseth-.html)
+
+[https://www.snopes.com/news/2026/10/01/hegseth-musk-gingrich-project-meridian/](https://www.snopes.com/news/2026/10/01/hegseth-musk-gingrich-project-meridian/)
+
+[https://media.defense.gov/2026/Sep/30/2004009287/-1/-1/1/COMMISSIONING-OF-PROJECT-MERIDIAN.PDF](https://media.defense.gov/2026/Sep/30/2004009287/-1/-1/1/COMMISSIONING-OF-PROJECT-MERIDIAN.PDF)
+
+[https://www.foxnews.com/politics/elon-musk-lands-new-trump-admin-role-shaping-future-american-warfare](https://www.foxnews.com/politics/elon-musk-lands-new-trump-admin-role-shaping-future-american-warfare)
+
+2026-09-30 Hegseth pitched acreage bids from governors in order to build his FORTRESS. 
+
+[https://www.axios.com/2026/09/30/hegseth-speech-competition-military-base](https://www.axios.com/2026/09/30/hegseth-speech-competition-military-base)
+
+[https://thehill.com/policy/defense/6121389-pete-hegseth-invites-governors-base-bids/](https://thehill.com/policy/defense/6121389-pete-hegseth-invites-governors-base-bids/)
+
+[https://www.foxnews.com/politics/trump-pentagon-launches-competition-americas-next-great-military-base](https://www.foxnews.com/politics/trump-pentagon-launches-competition-americas-next-great-military-base)
+

@@ -162,3 +162,19 @@ TIMESTAMP 19:35 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 TIMESTAMP 6:01 [https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1](https://www.youtube.com/watch?v=we2vucWM6cY&list=WL&index=1)
 
 [https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/](https://religionnews.com/2026/08/25/faith-leaders-democratic-nominee-denounces-new-york-visit-of-hindu-nationalist-leader/)
+
+### 2026 September
+
+2026-09-21 Tesla went to trial for allegations of racially segregating the workplace at its Fremont California plant. Also, Tesla argued the “N” word is okay in some circumstances. 
+
+[https://thedailyrecord.com/2026/09/21/tesla-trial-california-racial-bias-fremont-plant/](https://thedailyrecord.com/2026/09/21/tesla-trial-california-racial-bias-fremont-plant/)
+
+[https://www.lawcommentary.com/articles/tesla-fremont-race-discrimination-trial-california-black-workers](https://www.lawcommentary.com/articles/tesla-fremont-race-discrimination-trial-california-black-workers)
+
+[https://calcivilrights.ca.gov/2026/05/27/state-court-order-clears-path-for-tesla-race-discrimination-case-to-go-to-trial/](https://calcivilrights.ca.gov/2026/05/27/state-court-order-clears-path-for-tesla-race-discrimination-case-to-go-to-trial/)
+
+2026-09-24 Stanford University used AI to alter the races and attractiveness of students in their photo ads. 
+
+[https://abc7ny.com/story/students-outraged-stanford-university-uses-ai-alter-race-appearances-promotional-photo/19865741/](https://abc7ny.com/story/students-outraged-stanford-university-uses-ai-alter-race-appearances-promotional-photo/19865741/)
+
+[https://edsource.org/updates/stanford-apologizes-for-using-ai-to-alter-a-students-race-gender-in-photo](https://edsource.org/updates/stanford-apologizes-for-using-ai-to-alter-a-students-race-gender-in-photo)

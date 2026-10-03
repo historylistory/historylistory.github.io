@@ -206,3 +206,16 @@ PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-amer
 
 PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html](https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-china.html)
 
+### 2026 October
+
+2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
+
+[https://www.cbsnews.com/news/china-ai-qwen-artificial-intelligence-bias-analysis/](https://www.cbsnews.com/news/china-ai-qwen-artificial-intelligence-bias-analysis/)
+
+[https://galileo.ai/blog/qwen-ai-models](https://galileo.ai/blog/qwen-ai-models)
+
+[https://cryptobriefing.com/qwen-ai-censorship-bias-removal-research/](https://cryptobriefing.com/qwen-ai-censorship-bias-removal-research/)
+
+[https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory](https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory)
+
+APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/](https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/)

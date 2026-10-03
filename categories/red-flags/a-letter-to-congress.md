@@ -502,4 +502,11 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-28 Bolsonaro’s son was running the lead in Brazil’s elections. 
 
+2026-09-30 Hegseth named Elon Musk, Newt Gingrich and Palmer Lucky heads of the new Project Meridian, a program created for autonomous weaponry. 
+
+2026-09-30 Hegseth pitched acreage bids from governors in order to build his FORTRESS. 
+
+## 2026 October
+
+2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
 

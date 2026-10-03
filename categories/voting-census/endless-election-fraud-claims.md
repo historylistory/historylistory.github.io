@@ -440,6 +440,13 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020](https://www.aljazeera.com/news/2026/7/15/us-intelligence-director-pick-refuses-to-acknowledge-trump-loss-in-2020)
 
+2026-07-29 In July 2026 Markwayne Mullin falsely claimed that 15903 noncitizens voted in Nevada, which later was walked back to zero. 
+
+[https://www.cnn.com/2026/08/21/politics/markwayne-mullin-voter-fraud-nevada](https://www.cnn.com/2026/08/21/politics/markwayne-mullin-voter-fraud-nevada)
+
+[https://www.democracydocket.com/news-alerts/nevada-demands-dhs-explain-sweeping-noncitizen-voter-roll-claims/](https://www.democracydocket.com/news-alerts/nevada-demands-dhs-explain-sweeping-noncitizen-voter-roll-claims/)
+
+
 ### 2026 August
 
 2026-08-13 Mike Lindell refused to accept election results in the Minnesota gubernatorial primary. 
