@@ -153,3 +153,13 @@ SANTORUM ON NATIVE AMERICANS [https://www.huffpost.com/entry/rick-santorum-nativ
 [https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452](https://people.com/trump-border-wall-damaged-1000-year-old-native-site-11965452)
 
 SUB WALL [https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/](https://www.washingtonpost.com/climate-environment/2026/04/30/border-wall-damage-indigenous-arizona/)
+
+### 2026 September
+
+2026-09-29 Three archive locations of indigenous records are under threat of closure due to Trump administration attack on historic preservation. 
+
+[https://www.youtube.com/watch?v=bLanMjqWTm8&list=WL&index=4](https://www.youtube.com/watch?v=bLanMjqWTm8&list=WL&index=4)
+
+[https://ictnews.org/news/these-records-are-priceless-3-national-archives-locations-set-to-close-without-tribal-consultation/](https://ictnews.org/news/these-records-are-priceless-3-national-archives-locations-set-to-close-without-tribal-consultation/)
+
+[https://thecirclenews.org/planned-archives-closures-raise-alarm-over-tribal-records/](https://thecirclenews.org/planned-archives-closures-raise-alarm-over-tribal-records/)

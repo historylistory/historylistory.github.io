@@ -710,4 +710,12 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 
 [https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/](https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/)
 
+2026-09-30 Leaked audio showed Paxton telling lobbyists that Trump’s midterm convention in Dallas had hurt his Senate campaign, “…when we did that convention it dropped our numbers. Everybody’s numbers dropped. Right now, yeah, not good”. 
 
+[https://abc7news.com/story/ken-paxton-heard-saying-trumps-gop-midterm-convention-hurt-report/19893368/](https://abc7news.com/story/ken-paxton-heard-saying-trumps-gop-midterm-convention-hurt-report/19893368/)
+
+[https://texasstandard.org/stories/paxton-worries-about-drop-in-polling-numbers-after-midterm-gop-convention-in-leaked-audio/](https://texasstandard.org/stories/paxton-worries-about-drop-in-polling-numbers-after-midterm-gop-convention-in-leaked-audio/)
+
+[https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/](https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/)
+
+SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html](https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html)

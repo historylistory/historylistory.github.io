@@ -579,3 +579,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-27 Trump relaunched a campaign ad from January 2024 as part of a taxpayer-funded propaganda campaign ahead of the midterms. 
 
 2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
+
+2026-09-30 Leaked audio showed Paxton telling lobbyists that Trump’s midterm convention in Dallas had hurt his Senate campaign, “…when we did that convention it dropped our numbers. Everybody’s numbers dropped. Right now, yeah, not good”. 

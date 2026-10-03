@@ -416,3 +416,7 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 
 
 2026-09-30 Hegseth launched his own Office of Religious Affairs to further merge church with state. 
+
+## 2026 October
+
+2026-10-01 Some churchgoers stepped away from LifeChurch and LifeSurge after realizing their money-making scheme dressed up as faith. 

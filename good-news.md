@@ -561,3 +561,13 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://www.ms.now/rachel-maddow-show/maddowblog/eric-schmitt-jack-smith-atlanta-basketball-hearing-embarrassment](https://www.ms.now/rachel-maddow-show/maddowblog/eric-schmitt-jack-smith-atlanta-basketball-hearing-embarrassment)
 
 [https://www.youtube.com/watch?v=cygW3laAL7E](https://www.youtube.com/watch?v=cygW3laAL7E)
+
+2026-09-30 Leaked audio showed Paxton telling lobbyists that Trump’s midterm convention in Dallas had hurt his Senate campaign, “…when we did that convention it dropped our numbers. Everybody’s numbers dropped. Right now, yeah, not good”. 
+
+[https://abc7news.com/story/ken-paxton-heard-saying-trumps-gop-midterm-convention-hurt-report/19893368/](https://abc7news.com/story/ken-paxton-heard-saying-trumps-gop-midterm-convention-hurt-report/19893368/)
+
+[https://texasstandard.org/stories/paxton-worries-about-drop-in-polling-numbers-after-midterm-gop-convention-in-leaked-audio/](https://texasstandard.org/stories/paxton-worries-about-drop-in-polling-numbers-after-midterm-gop-convention-in-leaked-audio/)
+
+[https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/](https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/)
+
+SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html](https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html)

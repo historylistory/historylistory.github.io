@@ -373,3 +373,16 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 [https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/](https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/)
 
 [https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/](https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/)
+
+### 2026 October 
+
+2026-10-01 Some churchgoers stepped away from LifeChurch and LifeSurge after realizing their money-making scheme dressed up as faith. 
+
+[https://www.youtube.com/watch?v=zXglHkc_SnY&list=WL&index=1](https://www.youtube.com/watch?v=zXglHkc_SnY&list=WL&index=1)
+
+[https://ministrywatch.com/tebow-groeschel-suspend-ties-to-life-surge-events/](https://ministrywatch.com/tebow-groeschel-suspend-ties-to-life-surge-events/)
+
+[https://www.salon.com/2026/09/26/tim-tebow-sold-trust-life-surge-borrowed-it/](https://www.salon.com/2026/09/26/tim-tebow-sold-trust-life-surge-borrowed-it/)
+
+[https://www.christianpost.com/news/life-surge-sparks-concern-among-some-christians.html](https://www.christianpost.com/news/life-surge-sparks-concern-among-some-christians.html)
+

@@ -535,3 +535,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-26 Hurricanes Polo and Odalys ripped through California’s and Mexico’s coasts. 
 
 2026-09-29 Life-threatening flash floods hit the Southwest. 
+
+2026-09-30 An investigation in New Jersey found Microsoft data centers in Vineland leaked large amounts of toxic pollution for nearly a year before being addressed, including 140 tons of nitrogen oxide. 

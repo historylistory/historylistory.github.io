@@ -543,3 +543,10 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 [https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/](https://virginiabusiness.com/epa-repeal-biden-carbon-emission-limits-power-plants-g20-houston/)
 
 [https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/](https://californiaglobe.com/fr/trump-epa-to-repeal-carbon-rules-for-us-coal-and-gas-power-plants/)
+
+2026-09-30 An investigation in New Jersey found Microsoft data centers in Vineland leaked large amounts of toxic pollution for nearly a year before being addressed, including 140 tons of nitrogen oxide. 
+
+[https://www.nj.com/business/2026/09/njs-largest-ai-data-center-should-shut-down-after-record-1m-fine-activists-say.html](https://www.nj.com/business/2026/09/njs-largest-ai-data-center-should-shut-down-after-record-1m-fine-activists-say.html)
+
+[https://www.tomshardware.com/tech-industry/data-centers/new-jersey-fines-data-center-for-using-unpermitted-power-generators-microsoft-linked-site-also-in-trouble-with-community-for-noise-pollution-other-issues](https://www.tomshardware.com/tech-industry/data-centers/new-jersey-fines-data-center-for-using-unpermitted-power-generators-microsoft-linked-site-also-in-trouble-with-community-for-noise-pollution-other-issues)
+
