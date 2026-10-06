@@ -510,3 +510,4 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
 
+2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 

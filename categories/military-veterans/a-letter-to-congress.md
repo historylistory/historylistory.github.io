@@ -477,3 +477,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-09-30 Hegseth named Elon Musk, Newt Gingrich and Palmer Lucky heads of the new Project Meridian, a program created for autonomous weaponry. 
 
 2026-09-30 Hegseth pitched acreage bids from governors in order to build his FORTRESS. 
+
+## 2026 October
+
+2026-10-04 The USAF abruptly removed all B1 bombers from the RAF Fairford air base in the UK after security threats and a suspected Iran-backed plot targeting the base. 

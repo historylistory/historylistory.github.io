@@ -420,3 +420,5 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 ## 2026 October
 
 2026-10-01 Some churchgoers stepped away from LifeChurch and LifeSurge after realizing their money-making scheme dressed up as faith. 
+
+2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 

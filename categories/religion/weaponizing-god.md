@@ -227,3 +227,15 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 [https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/](https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/)
 
 [https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/](https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/)
+
+### 2026 October
+
+2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 
+
+[https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/](https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/)
+
+[https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism](https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism)
+
+[https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
+
+[https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)

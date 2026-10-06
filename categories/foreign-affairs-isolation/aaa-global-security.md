@@ -153,3 +153,14 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 
 [https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers](https://www.military.com/pentagon-data-breach-exposes-unknown-number-troops-social-security-numbers)
 
+### 2026 October
+
+2026-10-04 The USAF abruptly removed all B1 bombers from the RAF Fairford air base in the UK after security threats and a suspected Iran-backed plot targeting the base. 
+
+[https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran](https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran)
+
+[https://www.bbc.com/news/articles/cwj3413e5m1lo](https://www.bbc.com/news/articles/cwj3413e5m1lo)
+
+[https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
+
+PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)

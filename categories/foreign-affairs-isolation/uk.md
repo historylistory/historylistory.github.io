@@ -91,3 +91,25 @@ PAY WALL [https://www.bbc.com/news/articles/c1l25qd43nro](https://www.bbc.com/ne
 [https://www.aljazeera.com/news/2026/9/28/terror-incident-near-raf-base-used-for-iran-war-what-we-know](https://www.aljazeera.com/news/2026/9/28/terror-incident-near-raf-base-used-for-iran-war-what-we-know)
 
 PAY WALL [https://www.bbc.com/news/articles/c85ydnwqpzyzo](https://www.bbc.com/news/articles/c85ydnwqpzyzo)
+
+### 2026 October
+
+2026-10-04 The USAF abruptly removed all B1 bombers from the RAF Fairford air base in the UK after security threats and a suspected Iran-backed plot targeting the base. 
+
+[https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran](https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran)
+
+[https://www.bbc.com/news/articles/cwj3413e5m1lo](https://www.bbc.com/news/articles/cwj3413e5m1lo)
+
+[https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
+
+PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)
+
+2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 
+
+[https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/](https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/)
+
+[https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism](https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism)
+
+[https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
+
+[https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)

@@ -386,3 +386,14 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 
 [https://www.foxnews.com/politics/trump-pentagon-launches-competition-americas-next-great-military-base](https://www.foxnews.com/politics/trump-pentagon-launches-competition-americas-next-great-military-base)
 
+### 2026 October
+
+2026-10-04 The USAF abruptly removed all B1 bombers from the RAF Fairford air base in the UK after security threats and a suspected Iran-backed plot targeting the base. 
+
+[https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran](https://www.cnn.com/2026/10/04/politics/us-air-force-bombers-removed-fairford-iran)
+
+[https://www.bbc.com/news/articles/cwj3413e5m1lo](https://www.bbc.com/news/articles/cwj3413e5m1lo)
+
+[https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
+
+PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)

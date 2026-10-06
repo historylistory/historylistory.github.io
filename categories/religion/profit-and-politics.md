@@ -386,3 +386,12 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 
 [https://www.christianpost.com/news/life-surge-sparks-concern-among-some-christians.html](https://www.christianpost.com/news/life-surge-sparks-concern-among-some-christians.html)
 
+2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 
+
+[https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/](https://truthout.org/articles/israel-bans-polanski-after-uks-green-party-votes-to-classify-zionism-as-racism/)
+
+[https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism](https://www.democracynow.org/2026/10/5/headlines/uks_green_party_votes_to_classify_zionism_as_a_form_of_racism)
+
+[https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
+
+[https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)

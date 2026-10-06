@@ -202,3 +202,15 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.reuters.com/business/healthcare-pharmaceuticals/ebola-infections-top-7000-congo-virus-spreads-new-province-2026-09-11/](https://www.reuters.com/business/healthcare-pharmaceuticals/ebola-infections-top-7000-congo-virus-spreads-new-province-2026-09-11/)
 
 [https://www.africanews.com/2026/09/14/drc-ebola-outbreak-passes-7000-cases-but-officials-say-spread-may-have-peaked/](https://www.africanews.com/2026/09/14/drc-ebola-outbreak-passes-7000-cases-but-officials-say-spread-may-have-peaked/)
+
+### 2026 October
+
+2026-10-05 A lab worker died of suspected plague amidst Russia’s plague outbreaks. 
+
+[https://www.axios.com/2026/10/04/russia-plague-outbreak-white-house-us](https://www.axios.com/2026/10/04/russia-plague-outbreak-white-house-us)
+
+[https://www.cbsnews.com/news/russia-plague-lab-death-pneumonia-of-unknown-origin/](https://www.cbsnews.com/news/russia-plague-lab-death-pneumonia-of-unknown-origin/)
+
+[https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us](https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us)
+
+[https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559](https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559)
