@@ -583,3 +583,9 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 [https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails](https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails)
 
 [https://nocampsca.com/](https://nocampsca.com/)
+
+### 2026 October
+
+2026-10-06 Detainees at the Folkston ICE processing center in Georgia managed to get a video released showing harsh conditions. 
+
+[https://www.aol.com/articles/folkston-ice-processing-center-launches-172433000.html](https://www.aol.com/articles/folkston-ice-processing-center-launches-172433000.html)

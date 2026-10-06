@@ -689,3 +689,21 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3](https://www.youtube.com/watch?v=dcL8QS_JjT0&list=WL&index=3)
 
 [https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2](https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2)
+
+2026-10-05 Karoline Leavitt started work as a contributor for Fox news. 
+
+[https://edition.cnn.com/2026/10/05/politics/karoline-leavitt-fox-news](https://edition.cnn.com/2026/10/05/politics/karoline-leavitt-fox-news)
+
+[https://variety.com/2026/tv/news/karoline-leavit-fox-news-contrbutor-1236899073/](https://variety.com/2026/tv/news/karoline-leavit-fox-news-contrbutor-1236899073/)
+
+[https://www.cbsnews.com/news/karoline-leavitt-fox-news/](https://www.cbsnews.com/news/karoline-leavitt-fox-news/)
+
+[https://apnews.com/article/karoline-leavitt-fox-news-29678b4186eefe6d4a5bf6fb3706cc43](https://apnews.com/article/karoline-leavitt-fox-news-29678b4186eefe6d4a5bf6fb3706cc43)
+
+[https://www.politico.com/news/2026/10/05/karoline-leavitt-fox-news-01106686](https://www.politico.com/news/2026/10/05/karoline-leavitt-fox-news-01106686)
+
+2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 
+
+[https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/](https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/)
+
+[https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/](https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/)

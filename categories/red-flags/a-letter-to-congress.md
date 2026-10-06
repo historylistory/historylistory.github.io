@@ -511,3 +511,9 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
 
 2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 
+
+2026-10-05 Karoline Leavitt started work as a contributor for Fox news. 
+
+2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 
+
+2026-10-06 The death toll for US killings of Venezuelan people in numerous boat strikes reached 238. 

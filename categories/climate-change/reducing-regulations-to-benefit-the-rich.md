@@ -550,3 +550,11 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 
 [https://www.tomshardware.com/tech-industry/data-centers/new-jersey-fines-data-center-for-using-unpermitted-power-generators-microsoft-linked-site-also-in-trouble-with-community-for-noise-pollution-other-issues](https://www.tomshardware.com/tech-industry/data-centers/new-jersey-fines-data-center-for-using-unpermitted-power-generators-microsoft-linked-site-also-in-trouble-with-community-for-noise-pollution-other-issues)
 
+### 2026 October
+
+2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
+
+[https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247](https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247)
+
+[https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/](https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/)
+

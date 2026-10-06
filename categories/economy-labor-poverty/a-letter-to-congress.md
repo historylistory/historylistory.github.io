@@ -1238,3 +1238,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-29 Trump met with AI leaders, resulting in a decision to ignore warnings about AI safety and further push data center expansion, as well as a taxpayer-funded AI-powered America.gov. 
 
 2026-09-30 Texas GOP declared a statewide disaster over diesel fuel. 
+
+## 2026 October
+
+2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 

@@ -1043,3 +1043,14 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
 
 [https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)
+
+### 2026 October
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
+
+[https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821](https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821)
+
+[https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego](https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego)
+
+[https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)
+

@@ -599,3 +599,10 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 ## 2026 October
 
 2026-10-01 The White House tweaked America.gov to stop answering certain questions about election fraud claims or citing facts after some of the questions answered contradicted Trump’s own false claims. 
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+
+2026-10-06 Trump demanded the arrest of reporters for covering the Ohio rally. 
+
+2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 

@@ -277,3 +277,13 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 2025 [https://www.cnn.com/2025/08/20/weather/noaa-satellites-climate-trump](https://www.cnn.com/2025/08/20/weather/noaa-satellites-climate-trump)
 
 TRACKER [https://www.actonclimate.com/trumptracker/](https://www.actonclimate.com/trumptracker/)
+
+### 2026 October
+
+
+2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
+
+[https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247](https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247)
+
+[https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/](https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/)
+

@@ -743,3 +743,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-09-24 After Trump imposed a media ban, he angrily posted on Truth Social that media didn’t cover the visit from Xi Jinping. 
 
 2026-09-27 Two senior FBI counterterrorism officials were demoted after handling threats to Katie Miller. Threats involved protestors writing chalk messages on sidewalks in front of the Millers’ home in Virginia.
+
+## 2026 October
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.

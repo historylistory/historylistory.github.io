@@ -489,3 +489,16 @@ HYPOCRISY AFTER KRAFT LET KANYE WEST SING HEIL HITLER [https://www.ms.now/opinio
 [https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/](https://www.cbsnews.com/chicago/news/sheri-mecklenburg-resigns-letter-boutros-personally-directed-broadview-6-prosecution/)
 
 [https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters](https://www.democracynow.org/2026/9/28/headlines/federal_prosecutor_resigns_under_protest_over_failed_case_against_broadview_six_ice_protesters)
+
+### 2026 October
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+[https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/](https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/)
+
+[https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/](https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/)
+
+[https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911](https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911)
+
+[https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
+

@@ -840,3 +840,10 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 
 [https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)
 
+2026-10-06 The death toll for US killings of Venezuelan people in numerous boat strikes reached 238. 
+
+[https://news.usni.org/2026/10/05/4-killed-in-u-s-strike-on-alleged-drug-boat-in-caribbean](https://news.usni.org/2026/10/05/4-killed-in-u-s-strike-on-alleged-drug-boat-in-caribbean)
+
+[https://wsvn.com/news/us-world/us-military-drug-strikes/](https://wsvn.com/news/us-world/us-military-drug-strikes/)
+
+[https://www.military.com/us-air-strikes-keep-blowing-up-cocaine-laden-boats-but-the-drugs-keep-flowing](https://www.military.com/us-air-strikes-keep-blowing-up-cocaine-laden-boats-but-the-drugs-keep-flowing)

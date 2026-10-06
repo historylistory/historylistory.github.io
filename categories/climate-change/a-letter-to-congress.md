@@ -537,3 +537,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-09-29 Life-threatening flash floods hit the Southwest. 
 
 2026-09-30 An investigation in New Jersey found Microsoft data centers in Vineland leaked large amounts of toxic pollution for nearly a year before being addressed, including 140 tons of nitrogen oxide. 
+
+## 2026 October
+
+
+2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 

@@ -977,3 +977,8 @@ Next
 2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
 
 2026-09-30 Interfaith clergy conducted a 96-mile pilgrimage in protest of ICE. 
+
+## 2026 October
+
+2026-10-06 Detainees at the Folkston ICE processing center in Georgia managed to get a video released showing harsh conditions. 
+

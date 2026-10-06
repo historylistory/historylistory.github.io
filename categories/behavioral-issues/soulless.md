@@ -1211,4 +1211,13 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 
 
+### 2026 October
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
+
+[https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821](https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821)
+
+[https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego](https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego)
+
+[https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)
 

@@ -740,3 +740,9 @@ Manhattan grand jury in the hush-money case.
 2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
 
 2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
+
+## 2026 October
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.

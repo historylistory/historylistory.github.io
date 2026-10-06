@@ -170,3 +170,15 @@ US REJECTS [https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth
 
 [https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts](https://www.pbs.org/newshour/world/brazils-lula-warns-against-foreign-interference-in-elections-urges-leaders-to-respond-to-global-conflicts)
 
+### 2026 October
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+[https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/](https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/)
+
+[https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/](https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/)
+
+[https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911](https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911)
+
+[https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
+

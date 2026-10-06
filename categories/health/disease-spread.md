@@ -214,3 +214,22 @@ TIMESTAMP 1:26 [https://www.youtube.com/watch?v=BOfmvTbvQHs&list=WL&index=4&t=17
 [https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us](https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us)
 
 [https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559](https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559)
+
+
+2026-10-05 New York declared a state of emergency over the ongoing spread of measles cases. 
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/new-york-declares-disaster-emergency-over-measles-outbreak-2026-10-05/](https://www.reuters.com/business/healthcare-pharmaceuticals/new-york-declares-disaster-emergency-over-measles-outbreak-2026-10-05/)
+
+[https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak](https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak)
+
+PAY WALL [https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html](https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html)
+
+2026-10-06 Ebola spread to Kenya.
+
+[https://www.france24.com/en/kenya-reports-first-ever-ebola-death](https://www.france24.com/en/kenya-reports-first-ever-ebola-death)
+
+[https://apnews.com/article/kenya-congo-ebola-death-nairobi-32ccde1e74048396ad5cb9f9fe47495e](https://apnews.com/article/kenya-congo-ebola-death-nairobi-32ccde1e74048396ad5cb9f9fe47495e)
+
+PAY WALL [https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/](https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/)
+
+SUB WALL [https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html](https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html)

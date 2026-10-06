@@ -604,3 +604,19 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 [https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now](https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now)
 
 [https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475](https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475)
+
+### 2026 October
+
+2026-10-06 Trump demanded the arrest of reporters for covering the Ohio rally. 
+
+[https://www.mediamatters.org/donald-trump/trump-keeps-demanding-criminal-punishment-reporting-he-dislikes-including-about-his](https://www.mediamatters.org/donald-trump/trump-keeps-demanding-criminal-punishment-reporting-he-dislikes-including-about-his)
+
+[https://www.salon.com/2026/10/06/trump-lashes-out-at-fox-news-as-maga-rally-crowds-shrink/](https://www.salon.com/2026/10/06/trump-lashes-out-at-fox-news-as-maga-rally-crowds-shrink/)
+
+[https://thehill.com/homenews/administration/6130397-trump-media-arrests-ohio-rally/](https://thehill.com/homenews/administration/6130397-trump-media-arrests-ohio-rally/)
+
+2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 
+
+[https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/](https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/)
+
+[https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/](https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/)

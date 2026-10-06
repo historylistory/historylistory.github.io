@@ -346,3 +346,13 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.cnn.com/2026/08/06/us/video/ebof-judges-mcconnell-and-salas-threats](https://www.cnn.com/2026/08/06/us/video/ebof-judges-mcconnell-and-salas-threats)
 
 [https://www.yahoo.com/news/videos/judge-reveals-credible-death-threats-194023869.html](https://www.yahoo.com/news/videos/judge-reveals-credible-death-threats-194023869.html)
+
+### 2026 October
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
+
+[https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821](https://www.nbcnews.com/politics/donald-trump/california-newsom-condemn-trump-iran-los-angeles-san-diego-rcna601821)
+
+[https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego](https://www.theguardian.com/us-news/2026/oct/06/trump-suggests-let-iran-take-out-los-angeles-san-diego)
+
+[https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)

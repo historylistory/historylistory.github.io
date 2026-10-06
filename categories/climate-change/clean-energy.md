@@ -163,3 +163,13 @@ SUB WALL [https://www.nytimes.com/2026/03/23/climate/offshore-wind-gas-trump-tot
 [https://www.nbcnews.com/politics/trump-administration/trump-administration-concedes-canceled-research-grants-blue-states-rcna589129](https://www.nbcnews.com/politics/trump-administration/trump-administration-concedes-canceled-research-grants-blue-states-rcna589129)
 
 [https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states](https://www.cnn.com/2026/07/25/politics/trump-administration-grants-democratic-states)
+
+### 2026 October
+
+
+2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
+
+[https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247](https://www.nbcnews.com/politics/supreme-court/new-supreme-court-term-begins-climate-change-case-seeking-hold-energy-rcna600247)
+
+[https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/](https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/)
+

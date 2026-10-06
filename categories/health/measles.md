@@ -94,3 +94,12 @@ PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsyl
 
 [https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles](https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles)
 
+### 2026 October
+
+2026-10-05 New York declared a state of emergency over the ongoing spread of measles cases. 
+
+[https://www.reuters.com/business/healthcare-pharmaceuticals/new-york-declares-disaster-emergency-over-measles-outbreak-2026-10-05/](https://www.reuters.com/business/healthcare-pharmaceuticals/new-york-declares-disaster-emergency-over-measles-outbreak-2026-10-05/)
+
+[https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak](https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak)
+
+PAY WALL [https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html](https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html)

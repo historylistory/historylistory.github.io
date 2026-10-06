@@ -481,3 +481,16 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
 
 [https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)
+
+### 2026 October
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+[https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/](https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/)
+
+[https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/](https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/)
+
+[https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911](https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911)
+
+[https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
+

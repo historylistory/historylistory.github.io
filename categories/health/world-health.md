@@ -232,3 +232,13 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 [https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us](https://www.axios.com/2026/10/05/russia-pneumonic-plague-outbreak-lab-us)
 
 [https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559](https://www.nbcnews.com/world/europe/russia-plague-suspected-lab-worker-dies-200-medical-observation-rcna601559)
+
+2026-10-06 Ebola spread to Kenya.
+
+[https://www.france24.com/en/kenya-reports-first-ever-ebola-death](https://www.france24.com/en/kenya-reports-first-ever-ebola-death)
+
+[https://apnews.com/article/kenya-congo-ebola-death-nairobi-32ccde1e74048396ad5cb9f9fe47495e](https://apnews.com/article/kenya-congo-ebola-death-nairobi-32ccde1e74048396ad5cb9f9fe47495e)
+
+PAY WALL [https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/](https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/)
+
+SUB WALL [https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html](https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html)

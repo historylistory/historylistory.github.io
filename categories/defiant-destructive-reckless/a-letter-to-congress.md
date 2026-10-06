@@ -610,3 +610,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-09-29 Eric Schmitt took a huge, embarrassing blunder when he tried to use misinformation to corner Jack Smith for perjury and was called out by Senator Amy Klobuchar on the Senate floor. 
 
 2026-09-30 Hegseth bragged about dismantling the military by discharging 20% of generals for being too woke, saying, “clowns out, cowboys in”. 
+
+## 2026 October
+
+2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.

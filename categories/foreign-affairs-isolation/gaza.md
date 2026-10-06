@@ -873,3 +873,16 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://www.espn.com/soccer/story/_/id/50045283/republic-ireland-israel-handshakes-nations-league-anthem-armbands](https://www.espn.com/soccer/story/_/id/50045283/republic-ireland-israel-handshakes-nations-league-anthem-armbands)
 
 [https://www.abc.net.au/news/2026-09-28/ireland-black-armbands-no-handshakes-with-israel-football-team/107202736](https://www.abc.net.au/news/2026-09-28/ireland-black-armbands-no-handshakes-with-israel-football-team/107202736)
+
+### 2026 October
+
+2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
+
+[https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/](https://www.reuters.com/world/china/ex-un-director-who-protested-gaza-famine-challenges-his-dismissal-2026-10-02/)
+
+[https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/](https://thehill.com/policy/international/6131572-fao-director-qu-political-activism/)
+
+[https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911](https://www.arabnews.com/middle-east/top-un-food-agency-official-fired-over-gaza-hunger-warnings-3004911)
+
+[https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
+
