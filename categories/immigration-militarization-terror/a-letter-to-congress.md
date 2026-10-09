@@ -982,3 +982,4 @@ Next
 
 2026-10-06 Detainees at the Folkston ICE processing center in Georgia managed to get a video released showing harsh conditions. 
 
+2026-10-08 ICE opened fire on an unarmed suspect in New York and shot him several times in front of his 5-year-old. ICE used a semi-automatic rifle and shot the suspect through his vehicle, claiming once again the suspect “weaponized his vehicle” as they have multiple times before. 

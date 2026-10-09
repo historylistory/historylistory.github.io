@@ -170,6 +170,8 @@ Below are some examples of the J6 timeline, lest we forget.
 
 2026-03-07 A small plaque was quietly installed in the Capitol at 4am without ceremony in honor of the law enforcement agents who lost their lives during the insurrection. It was placed in a location where visitors do not go.
 
+2026-03-20 J6 rioters sued the government for tens-of-millions of dollars. 
+
 2026-03-31 Several January 6 defendants pardoned by Trump were later charged with new offenses, including assault, harassment, and alleged murder plots.
 
 ## 2026 April 

@@ -503,3 +503,16 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 [https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails](https://www.democracynow.org/2026/9/30/headlines/interfaith_clergy_begins_8_day_96_mile_pilgrimage_demanding_shutdown_of_ice_jails)
 
 [https://nocampsca.com/](https://nocampsca.com/)
+
+### 2026 October
+
+2026-10-08 ICE opened fire on an unarmed suspect in New York and shot him several times in front of his 5-year-old. ICE used a semi-automatic rifle and shot the suspect through his vehicle, claiming once again the suspect “weaponized his vehicle” as they have multiple times before. 
+
+[https://www.youtube.com/watch?v=HBYDqUaxVYo&list=WL&index=5&t=40s](https://www.youtube.com/watch?v=HBYDqUaxVYo&list=WL&index=5&t=40s)
+
+[https://www.cnbc.com/2026/10/09/new-york-city-man-shot-in-car-with-child-present-by-ice-agents-mayor.html](https://www.cnbc.com/2026/10/09/new-york-city-man-shot-in-car-with-child-present-by-ice-agents-mayor.html)
+
+[https://www.aljazeera.com/news/2026/10/9/ice-agent-shoots-man-in-car-with-five-year-old-child-in-new-york-mayor](https://www.aljazeera.com/news/2026/10/9/ice-agent-shoots-man-in-car-with-five-year-old-child-in-new-york-mayor)
+
+[https://www.theguardian.com/us-news/2026/oct/08/nyc-shooting-federal-agent](https://www.theguardian.com/us-news/2026/oct/08/nyc-shooting-federal-agent)
+

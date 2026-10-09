@@ -508,3 +508,15 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/](https://thehill.com/homenews/senate/6116565-senate-gop-criticize-government-ads/)
 
 [https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9](https://apnews.com/article/trump-election-campaign-advertisements-bfa8e3c1c9e50de03092b4ec27055da9)
+
+### 2026 October
+
+2026-10-06 The US reportedly interfered in Brazilian elections. 
+
+[https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9](https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9)
+
+[https://www.bbc.com/news/videos/c3eweld0nddeo](https://www.bbc.com/news/videos/c3eweld0nddeo)
+
+[https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
+
+[https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)

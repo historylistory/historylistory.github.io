@@ -63,3 +63,11 @@ permalink: /categories/ai-data-big-brother/data-mining-manipulation/
 [https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing](https://www.theguardian.com/technology/2026/apr/29/maryland-grocery-stores-ban-surveillance-pricing)
 
 [https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products](https://www.multistate.us/insider/2026/4/30/maryland-becomes-first-state-to-ban-surveillance-pricing-on-some-food-products)
+
+### 2026 October
+
+2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 
+
+[https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2](https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2)
+
+[https://groundworkcollaborative.org/work/the-walmart-watchtower/](https://groundworkcollaborative.org/work/the-walmart-watchtower/)

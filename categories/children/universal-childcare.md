@@ -137,3 +137,9 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/](https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/)
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
+
+### 2026 October
+
+2026-10-05 Mamdani created a universal childcare program in New York offering no-cost childcare for children ages 6 weeks to 5 years old. 
+
+[https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low](https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low)

@@ -581,3 +581,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-09-29 Rubio touted the new White House AI chatbot America.gov will offer online passport applications, even though nobody can register online to vote anymore. 
 
 2026-09-30 Leaked audio showed Paxton telling lobbyists that Trump’s midterm convention in Dallas had hurt his Senate campaign, “…when we did that convention it dropped our numbers. Everybody’s numbers dropped. Right now, yeah, not good”. 
+
+
+## 2026 October
+
+2026-10-06 The US reportedly interfered in Brazilian elections. 

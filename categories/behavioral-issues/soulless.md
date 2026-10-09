@@ -1221,3 +1221,14 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 [https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)
 
+2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
+
+[https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4](https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=D0xW8bqIoG4&list=WL&index=3](https://www.youtube.com/watch?v=D0xW8bqIoG4&list=WL&index=3)
+
+[https://www.bbc.com/news/articles/cmy0r96xygx6o](https://www.bbc.com/news/articles/cmy0r96xygx6o)
+
+[https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed](https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed)
+
+[https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/](https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/)

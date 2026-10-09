@@ -150,3 +150,8 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 
 [https://wng.org/sift/u-s-reading-scores-1788968351](https://wng.org/sift/u-s-reading-scores-1788968351)
 
+### 2026 October
+
+2026-10-05 PEN America reported that conservatives banned nearly 12000 books from public schools since 2025, with 8100 of them in Texas and 3200 in Florida.
+
+[https://pen.org/press-release/nearly-12000-school-book-bans-in-2025-2026/](https://pen.org/press-release/nearly-12000-school-book-bans-in-2025-2026/)

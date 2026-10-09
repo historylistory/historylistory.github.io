@@ -57,3 +57,15 @@ permalink: /categories/foreign-affairs-isolation/brazil/
 [https://www.reuters.com/world/americas/run-brazils-presidency-flavio-bolsonaro-tests-staying-power-his-fathers-legacy-2026-09-28/](https://www.reuters.com/world/americas/run-brazils-presidency-flavio-bolsonaro-tests-staying-power-his-fathers-legacy-2026-09-28/)
 
 [https://www.nbcnews.com/world/brazil/bolsonaros-eldest-son-says-ll-run-brazil-presidency-2026-rcna247686](https://www.nbcnews.com/world/brazil/bolsonaros-eldest-son-says-ll-run-brazil-presidency-2026-rcna247686)
+
+### 2026 October
+
+2026-10-06 The US reportedly interfered in Brazilian elections. 
+
+[https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9](https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9)
+
+[https://www.bbc.com/news/videos/c3eweld0nddeo](https://www.bbc.com/news/videos/c3eweld0nddeo)
+
+[https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
+
+[https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)

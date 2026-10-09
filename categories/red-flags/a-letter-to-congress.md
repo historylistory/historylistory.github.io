@@ -517,3 +517,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 
 
 2026-10-06 The death toll for US killings of Venezuelan people in numerous boat strikes reached 238. 
+
+2026-10-06 The US reportedly interfered in Brazilian elections. 
+
+2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 

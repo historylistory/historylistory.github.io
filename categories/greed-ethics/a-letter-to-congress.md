@@ -440,3 +440,7 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 2026-09-14 Donald Trump Jr’s Bahama destination wedding was bankrolled by Russian oligarchs. 
 
 2026-09-16 A committee confirmed Trump made more stock trades in 17 months than all of Congress combined. 
+
+## 2026 October
+
+2026-10-07 Trump’s former fiancée-now-ambassador to Greece Kimberly Guilfoyle pushed a donor to wire her $100K to pay off credit cards. 

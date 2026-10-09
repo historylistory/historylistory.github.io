@@ -116,3 +116,10 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 [https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/](https://www.alreporter.com/2026/09/18/ratepayer-protection-act-stalls-in-senate-after-house-passage/)
 
+### 2026 October
+
+2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 
+
+[https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2](https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2)
+
+[https://groundworkcollaborative.org/work/the-walmart-watchtower/](https://groundworkcollaborative.org/work/the-walmart-watchtower/)

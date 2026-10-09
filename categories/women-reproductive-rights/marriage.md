@@ -80,3 +80,13 @@ permalink: /categories/women-reproductive-rights/marriage/
 [https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut](https://www.peoplefor.org/rightwingwatch/joel-webbon-and-wesley-todd-say-women-need-shut)
 
 [https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)
+
+### 2026 April
+
+2026-04-28 Turning Point USA launched “wife school” to teach women how to submit to their husbands. 
+
+[https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/](https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/)
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive](https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive)
+
+[https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1](https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1)

@@ -345,6 +345,8 @@ No one is arguing against anyone's right to practice their religion. The objecti
 
 2026-04-24 The DOJ pushed expanded capital punishment measures, drawing condemnation from the Vatican and Pope Leo.
 
+2026-04-28 Turning Point USA launched “wife school” to teach women how to submit to their husbands. 
+
 2026-04-29 Trump added his image to U.S. passports.
 
 ## 2026 May 

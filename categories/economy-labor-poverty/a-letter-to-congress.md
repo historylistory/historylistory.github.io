@@ -1242,3 +1242,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 ## 2026 October
 
 2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
+
+2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 

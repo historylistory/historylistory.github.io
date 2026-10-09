@@ -836,3 +836,15 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.yahoo.com/news/politics/articles/trump-made-more-stock-trades-012706814.html](https://www.yahoo.com/news/politics/articles/trump-made-more-stock-trades-012706814.html)
 
 [https://www.democracynow.org/2026/9/16/headlines/bloomberg_trump_made_nearly_28_700_stock_trades_in_17_month_more_than_all_of_congress](https://www.democracynow.org/2026/9/16/headlines/bloomberg_trump_made_nearly_28_700_stock_trades_in_17_month_more_than_all_of_congress)
+
+### 2026 October
+
+2026-10-07 Trump’s former fiancée-now-ambassador to Greece Kimberly Guilfoyle pushed a donor to wire her $100K to pay off credit cards. 
+
+[https://www.youtube.com/watch?v=v_jAoeEFKZg&list=WL&index=8&t=79s](https://www.youtube.com/watch?v=v_jAoeEFKZg&list=WL&index=8&t=79s)
+
+[https://abcnews.com/Politics/trump-donor-accuses-kimberly-guilfoyle-pay-100k-credit/story?id=137094580](https://abcnews.com/Politics/trump-donor-accuses-kimberly-guilfoyle-pay-100k-credit/story?id=137094580)
+
+[https://www.telegraph.co.uk/us/politics/2026/10/08/trump-jr-ex-pressed-donor-100k-credit-card/](https://www.telegraph.co.uk/us/politics/2026/10/08/trump-jr-ex-pressed-donor-100k-credit-card/)
+
+[https://www.wsj.com/politics/policy/guilfoyle-amex-donor-100-000-0e02cdc3](https://www.wsj.com/politics/policy/guilfoyle-amex-donor-100-000-0e02cdc3)

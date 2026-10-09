@@ -523,6 +523,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-10-02 The Chinese government launched its AI model Qwen with propaganda and built-in censorship. 
 
+2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 
+
 
 
 

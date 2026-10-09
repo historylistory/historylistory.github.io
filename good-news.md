@@ -571,3 +571,10 @@ SUB WALL [https://www.politico.com/news/2026/09/03/missouri-gerrymander-paused-2
 [https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/](https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/)
 
 SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html](https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html)
+
+### 2026 October
+
+
+2026-10-05 Mamdani created a universal childcare program in New York offering no-cost childcare for children ages 6 weeks to 5 years old. 
+
+[https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low](https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low)

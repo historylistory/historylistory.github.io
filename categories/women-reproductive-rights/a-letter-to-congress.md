@@ -399,6 +399,8 @@ Women are full and equal citizens. Their health, freedom, safety, and constituti
 
 2026-04-16 An online “rape academy” was exposed by CNN where abusers feature sleeping or medically incapacitated women and unthinkable acts. Most of the victims are married, and the abusers are their own husbands.
 
+2026-04-28 Turning Point USA launched “wife school” to teach women how to submit to their husbands. 
+
 ## 2026 May 
 
 2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 

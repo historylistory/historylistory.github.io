@@ -62,3 +62,13 @@ permalink: /categories/red-flags/foreign-psyops/
 
 APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/](https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/)
 
+2026-10-06 The US reportedly interfered in Brazilian elections. 
+
+[https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9](https://www.youtube.com/watch?v=1XKGLC6v7Ak&list=WL&index=9)
+
+[https://www.bbc.com/news/videos/c3eweld0nddeo](https://www.bbc.com/news/videos/c3eweld0nddeo)
+
+[https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
+
+[https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)
+

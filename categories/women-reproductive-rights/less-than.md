@@ -273,6 +273,15 @@ FOR WOMEN VETERANS [https://foundationforwomenwarriors.org/](https://foundationf
 
 [https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/](https://baptistnews.com/article/yes-there-is-a-movement-to-take-away-womens-right-to-vote/)
 
+2026-04-28 Turning Point USA launched “wife school” to teach women how to submit to their husbands. 
+
+[https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/](https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/)
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive](https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive)
+
+[https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1](https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1)
+
+
 ### 2026 June
 
 

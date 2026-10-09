@@ -90,6 +90,16 @@ AD BLOCKER AND SUBSCRIPTION WALL [https://www.snopes.com/fact-check/heritage-fou
 
 [https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/](https://www.liberalcurrents.com/abuser-politics-christian-male-supremacists-want-women-to-shut-up/)
 
+### 2026 April
+
+2026-04-28 Turning Point USA launched “wife school” to teach women how to submit to their husbands. 
+
+[https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/](https://www.salon.com/2026/09/28/wife-school-cant-fix-maga-husbands/)
+
+[https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive](https://www.theguardian.com/us-news/ng-interactive/2026/apr/28/wife-school-christian-women-submissive)
+
+[https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1](https://www.youtube.com/watch?v=VOSl1ACLdHg&list=WL&index=1)
+
 ### 2026 May
 
 2026-05-01 Christian Nationalist pastor Joel Webbon claimed that the right to vote must be taken away by force, “virtuous, ambitious, masculine men have to climb the ladder of power and forcefully take away from the people that which is their detriment”. 

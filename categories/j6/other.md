@@ -76,6 +76,13 @@ SUB WALL [https://www.cnn.com/2024/12/02/politics/karoline-leavitt-pence-january
 
 [https://apnews.com/article/capitol-riot-plaque-police-officers-delay-27d90c9de3269eb508e0c8d4459f9d7d](https://apnews.com/article/capitol-riot-plaque-police-officers-delay-27d90c9de3269eb508e0c8d4459f9d7d)
 
+2026-03-20 J6 rioters sued the government for tens-of-millions of dollars. 
+
+[https://www.politico.com/news/2026/03/30/jan-6-lawsuit-capitol-police-00850890](https://www.politico.com/news/2026/03/30/jan-6-lawsuit-capitol-police-00850890)
+
+[https://www.nbcnews.com/politics/justice-department/jan-6-officers-sue-18b-pot-call-slush-fund-insurrectionists-rcna346103](https://www.nbcnews.com/politics/justice-department/jan-6-officers-sue-18b-pot-call-slush-fund-insurrectionists-rcna346103)
+
+
 ### 2026 May
 
 2026-05-16 Senator Bill Cassidy, who voted to convict Trump after January 6, lost his Louisiana primary. 

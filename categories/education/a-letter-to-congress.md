@@ -371,3 +371,9 @@ Taken together, these actions represent an effort to politicize education, restr
 2026-09-03 House GOP members and 33 Democrats passed a bill to strip funding from universities that participate in boycotts of Israel. 
 
 2026-09-08 US reading scores fell 14 points since 2022. 
+
+### 2026 October
+
+
+2026-10-05 PEN America reported that conservatives banned nearly 12000 books from public schools since 2025, with 8100 of them in Texas and 3200 in Florida.
+
