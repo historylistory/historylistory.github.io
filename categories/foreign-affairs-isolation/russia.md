@@ -371,3 +371,27 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.rferl.org/amp/germany-russia-drone-hybrid-attack-leipzig/33844978.html](https://www.rferl.org/amp/germany-russia-drone-hybrid-attack-leipzig/33844978.html)
 
 [https://www.stripes.com/theaters/europe/2026-09-02/germany-russia-drones-leipzig-22728517.html](https://www.stripes.com/theaters/europe/2026-09-02/germany-russia-drones-leipzig-22728517.html)
+
+### 2026 October
+
+2026-10-12 Trump claimed Russia and Ukraine agreed to an energy ceasefire. Both countries denied the claim, then Russia bombed a Ukrainian power plant.  
+
+[https://www.axios.com/2026/10/11/trump-russia-ukraine-energy-ceasefire-zelensky](https://www.axios.com/2026/10/11/trump-russia-ukraine-energy-ceasefire-zelensky)
+
+[https://thehill.com/policy/international/6142689-russia-targets-ukraine-energy-ceasefire/](https://thehill.com/policy/international/6142689-russia-targets-ukraine-energy-ceasefire/)
+
+[https://www.nbcnews.com/world/ukraine/trump-russia-ukraine-agree-energy-ceasefire-zelenskyy-diesel-rcna602766](https://www.nbcnews.com/world/ukraine/trump-russia-ukraine-agree-energy-ceasefire-zelenskyy-diesel-rcna602766)
+
+[https://www.bbc.com/news/live/cqe8ry0xxp85t](https://www.bbc.com/news/live/cqe8ry0xxp85t)
+
+[https://abcnews.com/International/russia-strikes-power-plant-ukraine-after-trump-announces/story?id=137178264](https://abcnews.com/International/russia-strikes-power-plant-ukraine-after-trump-announces/story?id=137178264)
+
+[https://www.bbc.com/news/articles/cvlyd4pdlwkxo](https://www.bbc.com/news/articles/cvlyd4pdlwkxo)
+
+2026-10-12 Trump told Ukraine to replace Zelensky, then Trump brokered a fuel deal with Russia. 
+
+[https://www.axios.com/2026/10/10/trump-ukraine-zelensky-replace-putin-diesel](https://www.axios.com/2026/10/10/trump-ukraine-zelensky-replace-putin-diesel)
+
+[https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html](https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html)
+
+[https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846](https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846)

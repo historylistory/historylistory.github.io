@@ -416,3 +416,5 @@ budget untouched through the end of 2026.
 
 2026-10-05 Mamdani created a universal childcare program in New York offering no-cost childcare for children ages 6 weeks to 5 years old. 
 
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 

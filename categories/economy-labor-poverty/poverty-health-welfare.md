@@ -794,3 +794,14 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/](https://thehill.com/opinion/robbys-radar/6120674-sanders-anti-welfare-ad-backlash/)
 
 TIMESTAMP 7:50 [https://www.youtube.com/watch?v=H5VxuVNEn4w&list=WL&index=1](https://www.youtube.com/watch?v=H5VxuVNEn4w&list=WL&index=1)
+
+### 2026 October
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+
+[https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/](https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/)
+
+[https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/](https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/)
+
+[https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards](https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards)
+

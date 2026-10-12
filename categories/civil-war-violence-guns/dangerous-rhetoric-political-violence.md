@@ -575,3 +575,11 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
 
 [https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight](https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight)
+
+### 2026 October
+
+2026-10-08 Arizona congressional candidate Bernadette Placentia reported a politically motivated rape as the assailant called her a “Democratic bitch” during the assault. 
+
+[https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167](https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167)
+
+[https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)

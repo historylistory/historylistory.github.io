@@ -338,3 +338,28 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html](https://www.cnbc.com/2026/09/11/saudi-arabia-shut-down-east-west-crude-oil-pipeline.html)
 
 [https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362](https://www.nbcnews.com/world/middle-east/saudi-arabia-shutdown-key-pipeline-limits-oil-flow-yemen-houthis-rcna597362)
+
+### 2026 October
+
+2026-10-12 Trump claimed Russia and Ukraine agreed to an energy ceasefire. Both countries denied the claim, then Russia bombed a Ukrainian power plant.  
+
+[https://www.axios.com/2026/10/11/trump-russia-ukraine-energy-ceasefire-zelensky](https://www.axios.com/2026/10/11/trump-russia-ukraine-energy-ceasefire-zelensky)
+
+[https://thehill.com/policy/international/6142689-russia-targets-ukraine-energy-ceasefire/](https://thehill.com/policy/international/6142689-russia-targets-ukraine-energy-ceasefire/)
+
+[https://www.nbcnews.com/world/ukraine/trump-russia-ukraine-agree-energy-ceasefire-zelenskyy-diesel-rcna602766](https://www.nbcnews.com/world/ukraine/trump-russia-ukraine-agree-energy-ceasefire-zelenskyy-diesel-rcna602766)
+
+[https://www.bbc.com/news/live/cqe8ry0xxp85t](https://www.bbc.com/news/live/cqe8ry0xxp85t)
+
+[https://abcnews.com/International/russia-strikes-power-plant-ukraine-after-trump-announces/story?id=137178264](https://abcnews.com/International/russia-strikes-power-plant-ukraine-after-trump-announces/story?id=137178264)
+
+[https://www.bbc.com/news/articles/cvlyd4pdlwkxo](https://www.bbc.com/news/articles/cvlyd4pdlwkxo)
+
+
+2026-10-12 Trump told Ukraine to replace Zelensky, then Trump brokered a fuel deal with Russia. 
+
+[https://www.axios.com/2026/10/10/trump-ukraine-zelensky-replace-putin-diesel](https://www.axios.com/2026/10/10/trump-ukraine-zelensky-replace-putin-diesel)
+
+[https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html](https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html)
+
+[https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846](https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846)

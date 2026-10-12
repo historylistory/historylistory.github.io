@@ -268,3 +268,13 @@ THE ARTICLE [https://www.washingtonpost.com/business/2026/08/13/prescription-dru
 
 [https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices](https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices)
 
+### 2026 October
+
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+
+[https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/](https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/)
+
+[https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/](https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/)
+
+[https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards](https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards)

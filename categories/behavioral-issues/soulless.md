@@ -1221,6 +1221,14 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 [https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)
 
+2026-10-07 Right wing commentator Megyn Kelly alleged that the Cornell student Jane Doe rape case victim must have wanted to have sex with seven men and then attacked the victim for being “extremely beefy” and having “cankles”, stating, “I’m just going to be honest, she’s not the most attractive gal”. 
+
+[https://www.ms.now/opinion/megyn-kelly-cornell-jane-doe-hypocrite](https://www.ms.now/opinion/megyn-kelly-cornell-jane-doe-hypocrite)
+
+[https://www.snopes.com/fact-check/megyn-kelly-cornell-case-comments/](https://www.snopes.com/fact-check/megyn-kelly-cornell-case-comments/)
+
+[https://theconversation.com/the-cornell-7-case-proves-were-still-trapped-in-a-rape-culture-deja-vu-293898](https://theconversation.com/the-cornell-7-case-proves-were-still-trapped-in-a-rape-culture-deja-vu-293898)
+
 2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
 
 [https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4](https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4)

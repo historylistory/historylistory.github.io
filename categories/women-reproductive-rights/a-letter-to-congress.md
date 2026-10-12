@@ -473,3 +473,11 @@ budget untouched through the end of 2026.
 2026-09-25 Hegseth intentionally upped military physical requirements to weed out women. 
 
 
+## 2026 October
+
+2026-10-07 Right wing commentator Megyn Kelly alleged that the Cornell student Jane Doe rape case victim must have wanted to have sex with seven men and then attacked the victim for being “extremely beefy” and having “cankles”, stating, “I’m just going to be honest, she’s not the most attractive gal”. 
+
+2026-10-08 Arizona congressional candidate Bernadette Placentia reported a politically motivated rape as the assailant called her a “Democratic bitch” during the assault. 
+
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 

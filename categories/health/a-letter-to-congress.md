@@ -725,3 +725,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-10-05 New York declared a state of emergency over the ongoing spread of measles cases. 
 
 2026-10-06 Ebola spread to Kenya.
+
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 

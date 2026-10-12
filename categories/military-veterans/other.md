@@ -397,3 +397,16 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/08/30/pentagon-s
 [https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
 
 PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)
+
+
+2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
+
+[https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4](https://www.youtube.com/watch?v=tBtzzr3WNNw&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=D0xW8bqIoG4&list=WL&index=3](https://www.youtube.com/watch?v=D0xW8bqIoG4&list=WL&index=3)
+
+[https://www.bbc.com/news/articles/cmy0r96xygx6o](https://www.bbc.com/news/articles/cmy0r96xygx6o)
+
+[https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed](https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed)
+
+[https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/](https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/)

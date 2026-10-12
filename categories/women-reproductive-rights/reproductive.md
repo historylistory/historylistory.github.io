@@ -851,3 +851,14 @@ budget untouched through the end of 2026.
 [https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294](https://www.politico.com/news/2026/08/06/trump-admin-cuts-teen-pregnancy-prevention-funds-01027294)
 
 [https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/](https://stateline.org/2026/06/26/federal-health-agency-cancels-most-of-its-teen-pregnancy-prevention-grants/)
+
+### 2026 October
+
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+
+[https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/](https://www.femtechworld.co.uk/news/fertility-news/maternity-ward-closures-surge-across-us-as-medicaid-cuts-take-effect/)
+
+[https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/](https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/)
+
+[https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards](https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards)

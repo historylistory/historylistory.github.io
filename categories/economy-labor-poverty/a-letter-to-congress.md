@@ -1244,3 +1244,10 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
 
 2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 
+
+2026-10-12 Trump claimed Russia and Ukraine agreed to an energy ceasefire. Both countries denied the claim, then Russia bombed a Ukrainian power plant.  
+
+2026-10-12 Trump told Ukraine to replace Zelensky, then Trump brokered a fuel deal with Russia. 
+
+
+2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 

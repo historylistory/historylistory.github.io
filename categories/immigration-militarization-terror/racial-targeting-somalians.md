@@ -116,3 +116,15 @@ permalink: /categories/immigration-militarization-terror/racial-targeting-somali
 [https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/](https://www.kttc.com/2026/06/26/rep-emmer-criticized-comments-about-somali-minnesotans/)
 
 [https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2](https://www.youtube.com/watch?v=UE-m6Abut8w&list=WL&index=2)
+
+
+### 2026 October 
+
+2026-10-07 The FBI claimed it prevented an attack at the Mall of America by an 18-year-old Somali after the FBI speculated the suspect was going to conduct a mass shooting. 
+
+[https://www.justice.gov/opa/pr/man-arrested-and-charged-role-plotting-conduct-mass-shooting-event-support-isis-mall-america](https://www.justice.gov/opa/pr/man-arrested-and-charged-role-plotting-conduct-mass-shooting-event-support-isis-mall-america)
+
+[https://www.pbs.org/newshour/nation/fbi-says-it-stopped-a-mall-of-america-terror-attack-by-a-teen-after-agents-sold-him-an-assault-rifle](https://www.pbs.org/newshour/nation/fbi-says-it-stopped-a-mall-of-america-terror-attack-by-a-teen-after-agents-sold-him-an-assault-rifle)
+
+[https://www.cnn.com/2026/10/07/us/minnesota-terrorism-arrest-mall-of-america](https://www.cnn.com/2026/10/07/us/minnesota-terrorism-arrest-mall-of-america)
+

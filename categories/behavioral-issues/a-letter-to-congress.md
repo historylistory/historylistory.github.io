@@ -748,4 +748,6 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
 
+2026-10-07 Right wing commentator Megyn Kelly alleged that the Cornell student Jane Doe rape case victim must have wanted to have sex with seven men and then attacked the victim for being “extremely beefy” and having “cankles”, stating, “I’m just going to be honest, she’s not the most attractive gal”. 
+
 2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 

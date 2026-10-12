@@ -715,3 +715,7 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-09-30 Texas GOP declared a statewide disaster over diesel fuel. 
 
 2026-09-30 Leaked audio showed Paxton telling lobbyists that Trump’s midterm convention in Dallas had hurt his Senate campaign, “…when we did that convention it dropped our numbers. Everybody’s numbers dropped. Right now, yeah, not good”. 
+
+## 2026 October
+
+2026-10-08 Arizona congressional candidate Bernadette Placentia reported a politically motivated rape as the assailant called her a “Democratic bitch” during the assault. 

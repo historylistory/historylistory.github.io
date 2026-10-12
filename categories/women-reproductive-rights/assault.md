@@ -278,3 +278,20 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 
 [https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations](https://www.theguardian.com/us-news/2026/jul/30/max-miller-ohio-representative-domestic-abuse-allegations)
 
+### 2026 October
+
+2026-10-07 Right wing commentator Megyn Kelly alleged that the Cornell student Jane Doe rape case victim must have wanted to have sex with seven men and then attacked the victim for being “extremely beefy” and having “cankles”, stating, “I’m just going to be honest, she’s not the most attractive gal”. 
+
+[https://www.ms.now/opinion/megyn-kelly-cornell-jane-doe-hypocrite](https://www.ms.now/opinion/megyn-kelly-cornell-jane-doe-hypocrite)
+
+[https://www.snopes.com/fact-check/megyn-kelly-cornell-case-comments/](https://www.snopes.com/fact-check/megyn-kelly-cornell-case-comments/)
+
+[https://theconversation.com/the-cornell-7-case-proves-were-still-trapped-in-a-rape-culture-deja-vu-293898](https://theconversation.com/the-cornell-7-case-proves-were-still-trapped-in-a-rape-culture-deja-vu-293898)
+
+
+2026-10-08 Arizona congressional candidate Bernadette Placentia reported a politically motivated rape as the assailant called her a “Democratic bitch” during the assault. 
+
+[https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167](https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167)
+
+[https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)
+
