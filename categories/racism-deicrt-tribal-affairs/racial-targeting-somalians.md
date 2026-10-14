@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Somalians"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-somalians
-permalink: /categories/immigration-militarization-terror/racial-targeting-somalians/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-somalians/
 ---
 
 ### 2025 November

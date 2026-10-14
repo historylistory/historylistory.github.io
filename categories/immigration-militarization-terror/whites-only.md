@@ -5,7 +5,7 @@ category_slug: immigration-militarization-terror
 subcategory_slug: whites-only
 permalink: /categories/immigration-militarization-terror/whites-only/
 ---
-
+ 
 ### 2025 October
 
 2025-10-15 Trump allegedly considered overhauling the refugee program to favor white people. During a rally at the Mount Airy Casino Resort in Pocono, Pennsylvania Trump lamented that the U.S. was not receiving more immigrants from places like Norway or Sweden.

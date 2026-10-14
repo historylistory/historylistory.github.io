@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Middle East or Asia"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-middle-east-or-asia
-permalink: /categories/immigration-militarization-terror/racial-targeting-middle-east-or-asia/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-middle-east-or-asia/
 ---
 
 ### 2026 April

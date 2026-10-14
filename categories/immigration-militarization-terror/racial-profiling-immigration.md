@@ -1,30 +1,14 @@
 ---
 layout: subcategory
 title: Racial Profiling in Immigration
-category_slug: racism-deicrt-tribal-affairs
+category_slug: immigration-militarization-terror
 subcategory_slug: racial-profiling-immigration
-permalink: /categories/racism-deicrt-tribal-affairs/racial-profiling-immigration/
+permalink: /categories/immigration-militarization-terror/racial-profiling-immigration/
 ---
 
 ### Specific Races
 
-For a specific group being targeted, reference these sections under Immigration:
-
-[Haitians](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-haitians/)
-
-[Hispanics](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-hispanics-see-all-other-posts)
-
-[Islamophobia](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-islamophobia/#commentary)
-
-[Middle East & Asia](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-middle-east-or-asia)
-
-[Muslims](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-muslims)
-
-[Native Americans](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-native-americans)
-
-[Palestinians](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-palestinians)
-
-[Somalians](https://historylistory.com/categories/immigration-militarization-terror/racial-targeting-somalians)
+For a specific group being targeted, reference RACISM section
 
 ### 2025 June
 

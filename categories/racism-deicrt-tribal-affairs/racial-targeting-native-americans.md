@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Native Americans"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-native-americans
-permalink: /categories/immigration-militarization-terror/racial-targeting-native-americans/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-native-americans/
 ---
 
 ### 2025 January

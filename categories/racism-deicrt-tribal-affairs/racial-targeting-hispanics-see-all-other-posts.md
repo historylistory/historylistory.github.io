@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Hispanics (see all other posts)"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-hispanics-see-all-other-posts
-permalink: /categories/immigration-militarization-terror/racial-targeting-hispanics-see-all-other-posts/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-hispanics-see-all-other-posts/
 ---
 
 ### 2025 September

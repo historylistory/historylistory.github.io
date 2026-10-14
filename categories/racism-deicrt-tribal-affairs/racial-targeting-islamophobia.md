@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Islamophobia"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-islamophobia
-permalink: /categories/immigration-militarization-terror/racial-targeting-islamophobia/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-islamophobia/
 ---
 
 ### Commentary

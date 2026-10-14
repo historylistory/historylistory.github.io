@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Palestinians"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-palestinians
-permalink: /categories/immigration-militarization-terror/racial-targeting-palestinians/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-palestinians/
 ---
 
 ### Commentary

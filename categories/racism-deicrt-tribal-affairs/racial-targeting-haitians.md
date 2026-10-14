@@ -1,9 +1,9 @@
 ---
 layout: subcategory
 title: "Racial Targeting: Haitians"
-category_slug: immigration-militarization-terror
+category_slug: racism-deicrt-tribal-affairs
 subcategory_slug: racial-targeting-haitians
-permalink: /categories/immigration-militarization-terror/racial-targeting-haitians/
+permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-haitians/
 ---
 
 ### 2018
