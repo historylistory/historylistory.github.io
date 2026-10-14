@@ -521,3 +521,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-06 The US reportedly interfered in Brazilian elections. 
 
 2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
+
+
+2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 
+
+2026-10-13 Conservative commentator Katie Zacharia was made White House press secretary. Katie Zacharia is known for spreading anti-abortion misinformation including a conspiracy that linked mifepristone to Nazi Germany, posting in November 2025 it was “connected to the manufacturer of the deadly gas Zyklon B”. 

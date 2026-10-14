@@ -1054,3 +1054,10 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 
 [https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/](https://thehill.com/homenews/campaign/6132137-newsom-calls-trump-mentally-ill/)
 
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+[https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1](https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
+
+[https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)

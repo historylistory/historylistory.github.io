@@ -689,3 +689,14 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now](https://www.ms.now/news/trump-white-house-press-cnn-ban-ms-now)
 
 [https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475](https://apnews.com/article/trump-press-ban-white-house-cnn-pool-b46558a5dd0d957f378f56747929f475)
+
+### 2026 October
+
+
+2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 
+
+[https://www.youtube.com/watch?v=Z8aRhWb1J9E&list=WL&index=5](https://www.youtube.com/watch?v=Z8aRhWb1J9E&list=WL&index=5)
+
+[https://www.snopes.com/fact-check/national-guard-ballot-box-dc/](https://www.snopes.com/fact-check/national-guard-ballot-box-dc/)
+
+[https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/](https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/)

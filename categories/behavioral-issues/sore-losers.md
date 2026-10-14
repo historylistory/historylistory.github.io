@@ -79,3 +79,13 @@ permalink: /categories/behavioral-issues/sore-losers/
 [https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary](https://www.theguardian.com/us-news/2026/aug/12/mike-lindell-refuses-concede-minnesota-primary)
 
 [https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/](https://www.usatoday.com/story/news/politics/elections/2026/08/12/mike-lindell-pillow-guy-trump-minnesota-republican-primary/91270669007/)
+
+### 2026 October
+
+2026-10-09 Trump once again complained during a Syracuse NY rally that he was never awarded the Nobel Peace Prize. 
+
+[https://www.youtube.com/watch?v=Z3Wj4LPhXI0&list=WL&index=8](https://www.youtube.com/watch?v=Z3Wj4LPhXI0&list=WL&index=8)
+
+[https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize](https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize)
+
+[https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner](https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner)

@@ -558,3 +558,12 @@ TIMESTAMP 1:43: [https://www.youtube.com/watch?v=GkalPSPLlUY&list=WL&index=4](ht
 
 PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/](https://www.washingtonpost.com/national-security/2026/09/18/more-us-troops-have-died-amid-iran-war-than-pentagon-has-disclosed-publicly/)
 
+### 2026 October
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+[https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1](https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
+
+[https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)

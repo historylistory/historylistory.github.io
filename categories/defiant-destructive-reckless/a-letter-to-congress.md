@@ -614,3 +614,8 @@ Please do not respond with slogans or partisan deflection. The American people d
 ## 2026 October
 
 2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+
+2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 

@@ -707,3 +707,13 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/](https://thehill.com/homenews/administration/6131787-trump-rallies-fox-news-el-sayed-michigan-osborne-nebraska/)
 
 [https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/](https://www.poynter.org/commentary/2026/trump-attacks-fox-news-jessica-tarlov-democrats/)
+
+2026-10-13 Conservative commentator Katie Zacharia was made White House press secretary. Katie Zacharia is known for spreading anti-abortion misinformation including a conspiracy that linked mifepristone to Nazi Germany, posting in November 2025 it was “connected to the manufacturer of the deadly gas Zyklon B”. 
+
+[https://apnews.com/article/trump-zacharia-press-secretary-first-briefing-cba18c265eec807976fcfbbafa39f5f5](https://apnews.com/article/trump-zacharia-press-secretary-first-briefing-cba18c265eec807976fcfbbafa39f5f5)
+
+[https://www.nbcnews.com/politics/white-house/trumps-new-white-house-press-secretary-katie-zacharia-first-briefing-rcna602948](https://www.nbcnews.com/politics/white-house/trumps-new-white-house-press-secretary-katie-zacharia-first-briefing-rcna602948)
+
+[https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary](https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary)
+
+[https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim](https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim)

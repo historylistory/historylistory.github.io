@@ -134,3 +134,20 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 
 [https://www.military.com/eight-uss-abraham-lincoln-sailors-attempted-suicide-during-deployment-in-iran-war-navy-secretary](https://www.military.com/eight-uss-abraham-lincoln-sailors-attempted-suicide-during-deployment-in-iran-war-navy-secretary)
 
+### 2026 October
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+[https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1](https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
+
+[https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)
+
+2026-10-07 A cluster of suicide attempts at Fort Meade Cyber Command prompted Maryland lawmakers to ask for $11M in mental health funding.
+
+[https://www.youtube.com/watch?v=OSIzIF0yOl4&list=WL&index=7&t=19s](https://www.youtube.com/watch?v=OSIzIF0yOl4&list=WL&index=7&t=19s)
+
+[https://www.thebanner.com/community/local-news/fort-meade-cyber-command-suicides-RC6YIRJO6ZBFVHAPAF62ZDIU3M/](https://www.thebanner.com/community/local-news/fort-meade-cyber-command-suicides-RC6YIRJO6ZBFVHAPAF62ZDIU3M/)
+
+[https://www.capitalgazette.com/2026/10/08/fort-meade-suicides-lawmakers-mental-health/](https://www.capitalgazette.com/2026/10/08/fort-meade-suicides-lawmakers-mental-health/)

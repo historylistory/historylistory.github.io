@@ -239,3 +239,11 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 [https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
 
 [https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)
+
+2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
+
+[https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2](https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms](https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms)
+
+[https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/](https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/)

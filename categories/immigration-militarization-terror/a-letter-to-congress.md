@@ -984,4 +984,8 @@ Next
 
 2026-10-07 The FBI claimed it prevented an attack at the Mall of America by an 18-year-old Somali after the FBI speculated the suspect was going to conduct a mass shooting. 
 
+2026-10-07 Leaked documentation showed ICE scoured voter data and considered sending undercover agents to organizations that they suspected were helping noncitizens register to vote. 
+
 2026-10-08 ICE opened fire on an unarmed suspect in New York and shot him several times in front of his 5-year-old. ICE used a semi-automatic rifle and shot the suspect through his vehicle, claiming once again the suspect “weaponized his vehicle” as they have multiple times before. 
+
+2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 

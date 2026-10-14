@@ -276,6 +276,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2025-03-04 Trump falsely claimed over 16 million people aged 100 to 360 were illegally receiving Social Security.
 
+2026-03-04 An HMPV virus with no vaccine or treatment spread across California. 
+
 2025-03-05 Veteran Eric Rodriguez warned that Trump’s cut of 400,000 VA jobs brought the VA back to 2019 staffing levels.
 
 2025-03-05 Millions of Veterans feel that privatized healthcare will rapidly eat into the VA budget.
@@ -726,5 +728,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-10-06 Ebola spread to Kenya.
 
-
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+

@@ -284,3 +284,13 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 
 [https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms](https://www.cnn.com/2026/09/26/politics/republicans-crime-immigration-trans-midterms)
 
+### 2026 October
+
+2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
+
+[https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2](https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms](https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms)
+
+[https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/](https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/)
+

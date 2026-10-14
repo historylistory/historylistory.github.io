@@ -751,3 +751,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-10-07 Right wing commentator Megyn Kelly alleged that the Cornell student Jane Doe rape case victim must have wanted to have sex with seven men and then attacked the victim for being “extremely beefy” and having “cankles”, stating, “I’m just going to be honest, she’s not the most attractive gal”. 
 
 2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
+
+2026-10-09 Trump once again complained during a Syracuse NY rally that he was never awarded the Nobel Peace Prize. 

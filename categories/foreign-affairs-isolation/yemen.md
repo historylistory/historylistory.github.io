@@ -21,3 +21,14 @@ permalink: /categories/foreign-affairs-isolation/yemen/
 [https://news.un.org/en/story/2026/09/1168354](https://news.un.org/en/story/2026/09/1168354)
 
 [https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef](https://www.unicef.org/mena/press-releases/renewed-hostilities-yemen-push-over-12-million-children-deeper-crisis-unicef)
+
+### 2026 October
+
+2026-10-11 Houthi rebels bombed an airport in Riyadh, while Saudi troops bombed an airport in Yemen. 
+
+[https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say](https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say)
+
+[https://www.bbc.com/news/videos/cj4g17wz7gv0o](https://www.bbc.com/news/videos/cj4g17wz7gv0o)
+
+[https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488](https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488)
+

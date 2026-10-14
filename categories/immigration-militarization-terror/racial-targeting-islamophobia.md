@@ -98,3 +98,12 @@ PAY WALL [https://www.nytimes.com/2026/09/11/nyregion/mamdani-sept-11.html](http
 [https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention](https://www.theguardian.com/us-news/2026/sep/10/jd-vance-republican-midterm-convention)
 
 [https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight](https://www.france24.com/en/americas/20260911-vance-tries-label-democrats-as-party-of-hatred-seizes-maga-spotlight)
+
+### 2026 October
+
+2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 
+
+TIMESTAMP 10:58 [https://www.youtube.com/watch?v=vzFTF7UVovU&list=WL&index=3](https://www.youtube.com/watch?v=vzFTF7UVovU&list=WL&index=3)
+
+[https://nz.news.yahoo.com/mohammed-el-sayed-trump-says-201331569.html](https://nz.news.yahoo.com/mohammed-el-sayed-trump-says-201331569.html)
+

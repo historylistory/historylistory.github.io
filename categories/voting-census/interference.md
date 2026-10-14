@@ -520,3 +520,14 @@ SUB WALL [https://www.politico.com/news/2026/09/09/trump-iran-war-end-midterms-0
 [https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
 
 [https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)
+
+2026-10-07 Leaked documentation showed ICE scoured voter data and considered sending undercover agents to organizations that they suspected were helping noncitizens register to vote. 
+
+[https://www.youtube.com/watch?v=ghWNakZtiDg&list=WL&index=4&t=108s](https://www.youtube.com/watch?v=ghWNakZtiDg&list=WL&index=4&t=108s)
+
+[https://www.cnn.com/2026/10/07/politics/dhs-ice-voter-fraud-investigation-undercover](https://www.cnn.com/2026/10/07/politics/dhs-ice-voter-fraud-investigation-undercover)
+
+[https://www.wbaltv.com/article/ice-viewed-millions-voter-records-noncitizen-voters/74063981](https://www.wbaltv.com/article/ice-viewed-millions-voter-records-noncitizen-voters/74063981)
+
+[https://www.democracydocket.com/news-alerts/ice-probed-hundreds-of-voter-registration-groups-across-the-u-s/](https://www.democracydocket.com/news-alerts/ice-probed-hundreds-of-voter-registration-groups-across-the-u-s/)
+

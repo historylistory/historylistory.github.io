@@ -281,3 +281,14 @@ SUB WALL [https://www.wsj.com/world/middle-east/uae-ai-chips-iran-war-26c10d77](
 
 [https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129](https://abcnews.com/Politics/houthis-escalating-attacks-saudi-arabia-give-iran-leverage/story?id=136621129)
 
+### 2026 October
+
+2026-10-11 Houthi rebels bombed an airport in Riyadh, while Saudi troops bombed an airport in Yemen. 
+
+[https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say](https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say)
+
+[https://www.bbc.com/news/videos/cj4g17wz7gv0o](https://www.bbc.com/news/videos/cj4g17wz7gv0o)
+
+[https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488](https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488)
+
+

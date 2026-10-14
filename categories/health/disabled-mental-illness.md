@@ -139,3 +139,13 @@ permalink: /categories/health/disabled-mental-illness/
 [https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5](https://www.youtube.com/watch?v=GA515_xy5s4&list=WL&index=5)
 
 [https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/](https://www.motherjones.com/politics/2026/06/duckworth-democrats-doj-olmstead-institutionalization-psychiatric-memo-opinion/)
+
+### 2026 October
+
+2026-10-07 A cluster of suicide attempts at Fort Meade Cyber Command prompted Maryland lawmakers to ask for $11M in mental health funding.
+
+[https://www.youtube.com/watch?v=OSIzIF0yOl4&list=WL&index=7&t=19s](https://www.youtube.com/watch?v=OSIzIF0yOl4&list=WL&index=7&t=19s)
+
+[https://www.thebanner.com/community/local-news/fort-meade-cyber-command-suicides-RC6YIRJO6ZBFVHAPAF62ZDIU3M/](https://www.thebanner.com/community/local-news/fort-meade-cyber-command-suicides-RC6YIRJO6ZBFVHAPAF62ZDIU3M/)
+
+[https://www.capitalgazette.com/2026/10/08/fort-meade-suicides-lawmakers-mental-health/](https://www.capitalgazette.com/2026/10/08/fort-meade-suicides-lawmakers-mental-health/)

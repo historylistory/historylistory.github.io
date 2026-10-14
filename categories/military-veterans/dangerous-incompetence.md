@@ -163,3 +163,12 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 [https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/](https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/)
 
+### 2026 October
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+[https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1](https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
+
+[https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)

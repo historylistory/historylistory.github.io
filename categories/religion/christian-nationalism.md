@@ -229,3 +229,13 @@ BE SURE TO CHECK OUT THE ISLAMOPHOBIA COMMENTS HERE [https://www.youtube.com/wat
 [https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/](https://www.motherjones.com/politics/2026/10/what-to-know-about-hegseths-new-office-of-religious-affairs/)
 
 [https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/](https://www.usatoday.com/story/news/nation/2026/09/30/pentagon-office-of-religious-affairs-hegseth/92028693007/)
+
+### 2026 October
+
+2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
+
+[https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2](https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms](https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms)
+
+[https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/](https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/)

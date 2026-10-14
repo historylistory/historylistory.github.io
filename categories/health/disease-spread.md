@@ -56,6 +56,13 @@ PAY WALL [https://www.washingtonpost.com/politics/2025/02/26/elon-musk-ebola-pre
 
 ### 2026 March
 
+2026-03-04 An HMPV virus with no vaccine or treatment spread across California. 
+
+[https://www.youtube.com/watch?v=OyCPq9KOOW8&list=WL&index=6](https://www.youtube.com/watch?v=OyCPq9KOOW8&list=WL&index=6)
+
+[https://health.ucdavis.edu/news/headlines/a-little-known-respiratory-virus-human-metapneumovirus-surging-in-northern-california/2026/03](https://health.ucdavis.edu/news/headlines/a-little-known-respiratory-virus-human-metapneumovirus-surging-in-northern-california/2026/03)
+
+
 2026-03-27 A new COVID variant Cicada – which was discovered originally in November 2024 in South Africa – had now hit 23 countries. According to some sources, this is the virus’ 75th mutation. 
 
 [https://news.northeastern.edu/2026/03/27/new-covid-19-cicada-variant/](https://news.northeastern.edu/2026/03/27/new-covid-19-cicada-variant/)

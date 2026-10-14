@@ -586,3 +586,8 @@ The right to vote is not a privilege granted by a president, a political party, 
 ## 2026 October
 
 2026-10-06 The US reportedly interfered in Brazilian elections. 
+
+2026-10-07 Leaked documentation showed ICE scoured voter data and considered sending undercover agents to organizations that they suspected were helping noncitizens register to vote. 
+
+
+2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 

@@ -546,3 +546,11 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.yahoo.com/news/politics/articles/trump-implies-ken-paxton-ugly-160909138.html](https://www.yahoo.com/news/politics/articles/trump-implies-ken-paxton-ugly-160909138.html)
 
 [https://newrepublic.com/post/215068/donald-trump-vote-ken-paxton-dumb-ugly](https://newrepublic.com/post/215068/donald-trump-vote-ken-paxton-dumb-ugly)
+
+### 2026 October
+
+2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 
+
+TIMESTAMP 10:58 [https://www.youtube.com/watch?v=vzFTF7UVovU&list=WL&index=3](https://www.youtube.com/watch?v=vzFTF7UVovU&list=WL&index=3)
+
+[https://nz.news.yahoo.com/mohammed-el-sayed-trump-says-201331569.html](https://nz.news.yahoo.com/mohammed-el-sayed-trump-says-201331569.html)

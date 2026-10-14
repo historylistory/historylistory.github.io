@@ -226,3 +226,15 @@ MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-fa
 [https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html](https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html)
 
 [https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)
+
+### 2026 October
+
+2026-10-07 Leaked documentation showed ICE scoured voter data and considered sending undercover agents to organizations that they suspected were helping noncitizens register to vote. 
+
+[https://www.youtube.com/watch?v=ghWNakZtiDg&list=WL&index=4&t=108s](https://www.youtube.com/watch?v=ghWNakZtiDg&list=WL&index=4&t=108s)
+
+[https://www.cnn.com/2026/10/07/politics/dhs-ice-voter-fraud-investigation-undercover](https://www.cnn.com/2026/10/07/politics/dhs-ice-voter-fraud-investigation-undercover)
+
+[https://www.wbaltv.com/article/ice-viewed-millions-voter-records-noncitizen-voters/74063981](https://www.wbaltv.com/article/ice-viewed-millions-voter-records-noncitizen-voters/74063981)
+
+[https://www.democracydocket.com/news-alerts/ice-probed-hundreds-of-voter-registration-groups-across-the-u-s/](https://www.democracydocket.com/news-alerts/ice-probed-hundreds-of-voter-registration-groups-across-the-u-s/)

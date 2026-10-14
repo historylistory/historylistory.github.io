@@ -481,3 +481,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 ## 2026 October
 
 2026-10-04 The USAF abruptly removed all B1 bombers from the RAF Fairford air base in the UK after security threats and a suspected Iran-backed plot targeting the base. 
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+2026-10-07 A cluster of suicide attempts at Fort Meade Cyber Command prompted Maryland lawmakers to ask for $11M in mental health funding.

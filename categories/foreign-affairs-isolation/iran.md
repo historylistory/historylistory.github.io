@@ -2270,3 +2270,20 @@ TIMESTAMP 3:45 [https://www.youtube.com/watch?v=oMtQOx4-uIk&t=3s](https://www.yo
 [https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
 
 PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)
+
+2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
+
+[https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1](https://www.youtube.com/watch?v=kCgU_0qPQrg&list=WL&index=1)
+
+[https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
+
+[https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)
+
+2026-10-11 Houthi rebels bombed an airport in Riyadh, while Saudi troops bombed an airport in Yemen. 
+
+[https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say](https://www.npr.org/2026/10/10/g-s1-147682/attack-on-riyadh-airport-killed-12-people-and-wounded-over-300-more-saudi-authorities-say)
+
+[https://www.bbc.com/news/videos/cj4g17wz7gv0o](https://www.bbc.com/news/videos/cj4g17wz7gv0o)
+
+[https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488](https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488)
+

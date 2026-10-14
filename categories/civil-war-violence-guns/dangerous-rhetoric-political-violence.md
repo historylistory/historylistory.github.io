@@ -583,3 +583,11 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167](https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167)
 
 [https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)
+
+2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
+
+[https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2](https://www.youtube.com/watch?v=ycL98aBM59U&list=WL&index=2)
+
+[https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms](https://www.peoplefor.org/rightwingwatch/maga-pastor-hank-kunneman-calls-god-shatter-agenda-hell-midterms)
+
+[https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/](https://www.anarchistfederation.net/maga-pastor-hank-kunneman-calls-on-god-to-shatter-the-agenda-of-hell-in-the-midterms/)

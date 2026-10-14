@@ -746,3 +746,5 @@ Manhattan grand jury in the hush-money case.
 2026-10-02 Benjamin Davis was fired from the UN food agency for highlighting famine in Gaza. 
 
 2026-10-05 During a rally in Grand Island Nebraska Trump dared Iran to “take out” San Francisco and Los Angeles. Newsom called for the 25th Amendment in response.
+
+2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 

@@ -1021,3 +1021,14 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 2026-09-27 Two senior FBI counterterrorism officials were demoted after handling threats to Katie Miller. Threats involved protestors writing chalk messages on sidewalks in front of the Millers’ home in Virginia.
 
 [https://ktul.com/news/nation-world/two-senior-fbi-counterterrorism-officials-demoted-after-handling-threats-to-katie-miller](https://ktul.com/news/nation-world/two-senior-fbi-counterterrorism-officials-demoted-after-handling-threats-to-katie-miller)
+
+### 2026 October
+
+2026-10-09 Trump once again complained during a Syracuse NY rally that he was never awarded the Nobel Peace Prize. 
+
+[https://www.youtube.com/watch?v=Z3Wj4LPhXI0&list=WL&index=8](https://www.youtube.com/watch?v=Z3Wj4LPhXI0&list=WL&index=8)
+
+[https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize](https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize)
+
+[https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner](https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner)
+
