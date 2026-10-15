@@ -395,3 +395,14 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html](https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html)
 
 [https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846](https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846)
+
+2026-10-14 Trump pulled vital military assistance from Ukraine. 
+
+[https://www.economist.com/europe/2026/10/14/donald-trump-is-squeezing-ukraines-military-lifeline](https://www.economist.com/europe/2026/10/14/donald-trump-is-squeezing-ukraines-military-lifeline)
+
+2026-10-14 Elon Musk’s Starlink system stalled long enough for Russia to bomb Kiev. 
+
+[https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473](https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473)
+
+[https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412](https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412)
+

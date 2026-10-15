@@ -48,3 +48,13 @@ permalink: /categories/agriculture/other/
 [https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time](https://www.cnn.com/2026/07/14/politics/house-vote-daylight-savings-time)
 
 [https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681](https://www.today.com/video/house-passes-bill-to-stop-changing-the-clocks-266708037681)
+
+### 2026 October
+
+2026-10-13 A new Gallup poll showed Americans no longer trust food safety. 
+
+[https://www.yahoo.com/news/us/articles/gallup-poll-shows-food-safety-152833813.html](https://www.yahoo.com/news/us/articles/gallup-poll-shows-food-safety-152833813.html)
+
+[https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/](https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/)
+
+[https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/](https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/)

@@ -715,6 +715,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-09-11 Ebola cases in the DRC surpassed 7000. 
 
+2026-09-14 The US suffered severe drug shortages, particularly for cancer treatment. 
+
 2026-09-16 Pennsylvania reported the fourth measles-related death in the month
 
 2026-09-21 Researchers found some GLP-1 drugs caused blindness. 
@@ -729,4 +731,6 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-10-06 Ebola spread to Kenya.
 
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+
+2026-10-13 A new Gallup poll showed Americans no longer trust food safety. 
 

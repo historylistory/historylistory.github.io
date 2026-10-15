@@ -6,6 +6,15 @@ subcategory_slug: ukraine
 permalink: /categories/foreign-affairs-isolation/ukraine/
 ---
 
+### 2019 
+
+2019-10-17 Trump withheld aid from Ukraine. 
+
+[https://publicintegrity.org/national-security/timeline-how-trump-withheld-ukraine-aid/](https://publicintegrity.org/national-security/timeline-how-trump-withheld-ukraine-aid/)
+
+[https://www.reuters.com/article/world/white-house-acknowledges-strings-attached-in-trump-withholding-ukraine-aid-idUSKBN1WW1C8/](https://www.reuters.com/article/world/white-house-acknowledges-strings-attached-in-trump-withholding-ukraine-aid-idUSKBN1WW1C8/)
+
+
 ### 2023
 
 2023-03-04 A CNN article listed the 53 times Trump promised he would end the war between Russia and the Ukraine within 24 hours.
@@ -342,3 +351,13 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html](https://www.yahoo.com/news/world/articles/time-ukraine-president-says-trump-173225104.html)
 
 [https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846](https://www.newsweek.com/who-could-replace-zelensky-4-contenders-as-trump-calls-for-change-12553846)
+
+2026-10-14 Trump pulled vital military assistance from Ukraine. 
+
+[https://www.economist.com/europe/2026/10/14/donald-trump-is-squeezing-ukraines-military-lifeline](https://www.economist.com/europe/2026/10/14/donald-trump-is-squeezing-ukraines-military-lifeline)
+
+2026-10-14 Elon Musk’s Starlink system stalled long enough for Russia to bomb Kiev. 
+
+[https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473](https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473)
+
+[https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412](https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412)

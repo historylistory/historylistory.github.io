@@ -340,3 +340,14 @@ SUB WALL [https://www.politico.com/news/2026/07/31/trump-minnesota-water-hacks-i
 [https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/](https://www.motherjones.com/politics/2026/09/drinking-water-mississippi-lawsuit/)
 
 [https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200](https://jp.ibtimes.com/trump-appointed-judge-leads-ruling-that-us-constitution-guarantees-no-right-clean-water-truthful-104200)
+
+### 2026 October
+
+2026-10-13 A new Gallup poll showed Americans no longer trust food safety. 
+
+[https://www.yahoo.com/news/us/articles/gallup-poll-shows-food-safety-152833813.html](https://www.yahoo.com/news/us/articles/gallup-poll-shows-food-safety-152833813.html)
+
+[https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/](https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/)
+
+[https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/](https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/)
+

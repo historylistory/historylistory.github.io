@@ -827,3 +827,7 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. Matt Walsh complained on Truth Social September 28th, “Republicans don’t have the balls to do this ad with Shaniqua as the villain”. Sean Davis wrote, “…the audacity to dishonestly mock young white men as welfare queens”. Dale Partridge wrote, “…she villainizes a White man”. 
 
 2026-09-29 Three archive locations of indigenous records are under threat of closure due to Trump administration attack on historic preservation. 
+
+## 2026 October
+
+2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 

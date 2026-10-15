@@ -128,3 +128,14 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-somalians/
 
 [https://www.cnn.com/2026/10/07/us/minnesota-terrorism-arrest-mall-of-america](https://www.cnn.com/2026/10/07/us/minnesota-terrorism-arrest-mall-of-america)
 
+2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
+
+FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-feds-raid-ilhan-omar-dc-home](https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-feds-raid-ilhan-omar-dc-home)
+
+[https://www.theguardian.com/us-news/2026/oct/14/ilhan-omar-phone-seized-relatives-subpoenaed](https://www.theguardian.com/us-news/2026/oct/14/ilhan-omar-phone-seized-relatives-subpoenaed)
+
+[https://omar.house.gov/media/press-releases/office-rep-ilhan-omar-statement-dhs-raid](https://omar.house.gov/media/press-releases/office-rep-ilhan-omar-statement-dhs-raid)
+
+[https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion](https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion)
+
+[https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950](https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950)

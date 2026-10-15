@@ -268,6 +268,17 @@ THE ARTICLE [https://www.washingtonpost.com/business/2026/08/13/prescription-dru
 
 [https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices](https://www.theguardian.com/us-news/2026/aug/15/trump-washington-post-drug-prices)
 
+### 2026 September
+
+2026-09-14 The US suffered severe drug shortages, particularly for cancer treatment. 
+
+[https://www.ashp.org/drug-shortages/current-shortages/drug-shortages-list?248b0a25_page=3&sort=2&loginreturnUrl=SSOCheckOnly](https://www.ashp.org/drug-shortages/current-shortages/drug-shortages-list?248b0a25_page=3&sort=2&loginreturnUrl=SSOCheckOnly)
+
+[https://www.beckershospitalreview.com/pharmacy/8-new-drugs-in-shortage-3/](https://www.beckershospitalreview.com/pharmacy/8-new-drugs-in-shortage-3/)
+
+[https://www.nccn.org/docs/default-source/oncology-policy-program/nccn-drug-shortages-survey-september-2026.pdf](https://www.nccn.org/docs/default-source/oncology-policy-program/nccn-drug-shortages-survey-september-2026.pdf)
+
+
 ### 2026 October
 
 
