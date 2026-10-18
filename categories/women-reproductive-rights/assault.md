@@ -295,3 +295,22 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 
 [https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)
 
+2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 
+
+[https://www.france24.com/en/fake-ai-images-of-protester-go-viral-after-woman-punched-at-trump-s-ohio-rally](https://www.france24.com/en/fake-ai-images-of-protester-go-viral-after-woman-punched-at-trump-s-ohio-rally)
+
+[https://www.nbcnews.com/news/us-news/trump-rally-protester-attacked-act-senseless-political-violence-ohio-m-rcna603249](https://www.nbcnews.com/news/us-news/trump-rally-protester-attacked-act-senseless-political-violence-ohio-m-rcna603249)
+
+[https://abc7.com/post/protester-attacked-multiple-attendees-donald-trump-rally-ohio/19934104/](https://abc7.com/post/protester-attacked-multiple-attendees-donald-trump-rally-ohio/19934104/)
+
+[https://www.wfmj.com/news/local-news/youngstown/potential-investigation-into-incident-involving-protester-at-youngstown-rally/article_6b4c03c7-79bb-447d-b174-f2be67ce5c98.html](https://www.wfmj.com/news/local-news/youngstown/potential-investigation-into-incident-involving-protester-at-youngstown-rally/article_6b4c03c7-79bb-447d-b174-f2be67ce5c98.html)
+
+[https://www.youtube.com/watch?v=iWc7oh5zTjc](https://www.youtube.com/watch?v=iWc7oh5zTjc)
+
+[https://thehill.com/homenews/campaign/6144766-donald-trump-ohio-rally-heckler/](https://thehill.com/homenews/campaign/6144766-donald-trump-ohio-rally-heckler/)
+
+[https://www.cleveland.com/news/2026/10/no-charges-filed-after-protester-punched-during-youngstown-trump-rally.html](https://www.cleveland.com/news/2026/10/no-charges-filed-after-protester-punched-during-youngstown-trump-rally.html)
+
+[https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet](https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet)
+
+[https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president](https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president)

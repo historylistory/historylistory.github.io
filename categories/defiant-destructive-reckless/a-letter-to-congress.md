@@ -619,3 +619,6 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 
 2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 
+
+2026-10-16 New press secretary Katie Zacharia was fired after 5 days. 
+

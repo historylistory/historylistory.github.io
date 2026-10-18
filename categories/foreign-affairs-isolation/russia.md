@@ -289,6 +289,7 @@ SUB WALL [https://www.bbc.com/news/articles/c5ye480kxpmo](https://www.bbc.com/ne
 
 [https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9](https://www.youtube.com/watch?v=L4ZVRQ60hE8&list=WL&index=9)
 
+
 ### 2026 July
 
 2026-07-03 Russia lured Africans onto deadly front lines with deceptive recruitment schemes. 
@@ -406,3 +407,10 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 
 [https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412](https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412)
 
+2026-10-17 Trump announced he would waive sanctions on Moscow. 
+
+[https://www.youtube.com/watch?v=FKfFNiEDwPY&list=WL&index=3](https://www.youtube.com/watch?v=FKfFNiEDwPY&list=WL&index=3)
+
+[https://www.pbs.org/newshour/politics/trumps-decision-to-waive-russian-sanctions-outrages-congress-but-no-quick-counter-seen](https://www.pbs.org/newshour/politics/trumps-decision-to-waive-russian-sanctions-outrages-congress-but-no-quick-counter-seen)
+
+[https://www.politico.com/news/2026/10/16/trump-issues-order-to-bypass-russian-sanctions-in-bill-named-for-late-lindsey-graham-01125220](https://www.politico.com/news/2026/10/16/trump-issues-order-to-bypass-russian-sanctions-in-bill-named-for-late-lindsey-graham-01125220)

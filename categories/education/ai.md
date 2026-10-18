@@ -47,3 +47,13 @@ permalink: /categories/education/ai/
 [https://mashable.com/tech/new-york-school-testing-robot-teacher](https://mashable.com/tech/new-york-school-testing-robot-teacher)
 
 [https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians](https://en.wikipedia.org/wiki/Seneca_Nation_of_Indians)
+
+### 2026 September
+
+2026-09-08 Chicago opened doors to a teacherless, AI-driven school called Alpha. 
+
+[https://www.youtube.com/watch?v=fM634Vb8O2E&list=WL&index=2](https://www.youtube.com/watch?v=fM634Vb8O2E&list=WL&index=2)
+
+[https://www.nbcchicago.com/news/local/first-ai-driven-teacher-free-school-in-chicago-opens-with-55000-annual-tuition/3986851/](https://www.nbcchicago.com/news/local/first-ai-driven-teacher-free-school-in-chicago-opens-with-55000-annual-tuition/3986851/)
+
+[https://abc7chicago.com/post/alpha-chicago-opens-first-ai-school-city-teachers-created-mackenzie-price/19805778/](https://abc7chicago.com/post/alpha-chicago-opens-first-ai-school-city-teachers-created-mackenzie-price/19805778/)

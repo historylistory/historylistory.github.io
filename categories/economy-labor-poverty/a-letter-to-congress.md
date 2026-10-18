@@ -1003,6 +1003,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-06-25 A billion-dollar port in South Carolina was shut down. 
 
+2026-06-28 Trump cut a $1.6B Kazakhstan tungsten mining agreement to enrich his sons. 
+
 2026-06-29 Mike Johnson stated the housing bill would be signed into law without Trump’s signature. 
 
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
@@ -1242,6 +1244,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 ## 2026 October
 
 2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
+
+2026-10-07 Cuts to Medicaid could lead to enforcement of Filial Responsibility laws which require children to be responsible for their parents medical debts, even if estranged. 
 
 2026-10-09 Walmart’s dynamic pricing reportedly became more individualized to build detained consumer profiles on each customer. 
 

@@ -753,3 +753,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-10-08 The Pentagon announced plans to stream a live public execution by firing squad on December 5th. 
 
 2026-10-09 Trump once again complained during a Syracuse NY rally that he was never awarded the Nobel Peace Prize. 
+
+2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 

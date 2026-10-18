@@ -372,6 +372,8 @@ Taken together, these actions represent an effort to politicize education, restr
 
 2026-09-08 US reading scores fell 14 points since 2022. 
 
+2026-09-08 Chicago opened doors to a teacherless, AI-driven school called Alpha. 
+
 ### 2026 October
 
 

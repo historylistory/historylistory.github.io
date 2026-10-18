@@ -162,6 +162,12 @@ Watch: “How Billionaires Cracked the Food Stamp Cheat Code” More Perfect Uni
 
 ### 2026 October
 
+2026-10-07 Cuts to Medicaid could lead to enforcement of Filial Responsibility laws which require children to be responsible for their parents medical debts, even if estranged. 
+
+[https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1](https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1)
+
+[https://en.wikipedia.org/wiki/Filial_responsibility_laws](https://en.wikipedia.org/wiki/Filial_responsibility_laws)
+
 
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
 

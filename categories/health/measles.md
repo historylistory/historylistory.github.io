@@ -94,6 +94,15 @@ PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsyl
 
 [https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles](https://www.theguardian.com/us-news/2026/sep/17/pennsylvania-cdc-help-measles)
 
+2026-09-24 At least six babies were born with congenital measles in Pennsylvania. 
+
+[https://www.youtube.com/watch?v=64uqzFiqttY&list=WL&index=5](https://www.youtube.com/watch?v=64uqzFiqttY&list=WL&index=5)
+
+[https://www.nbcnews.com/health/health-news/congenital-measles-pennsylvania-outbreak-grows-babies-infected-rcna599431](https://www.nbcnews.com/health/health-news/congenital-measles-pennsylvania-outbreak-grows-babies-infected-rcna599431)
+
+[https://www.medicaldaily.com/pennsylvania-babies-born-measles-intensive-care-brain-risks-479204](https://www.medicaldaily.com/pennsylvania-babies-born-measles-intensive-care-brain-risks-479204)
+
+
 ### 2026 October
 
 2026-10-05 New York declared a state of emergency over the ongoing spread of measles cases. 
@@ -103,3 +112,4 @@ PAY WALL [https://www.washingtonpost.com/health/2026/08/28/measles-death-pennsyl
 [https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak](https://www.governor.ny.gov/news/governor-hochul-declares-state-disaster-emergency-response-ongoing-measles-outbreak)
 
 PAY WALL [https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html](https://www.nytimes.com/2026/10/05/nyregion/measles-emergency-new-york-state-hochul.html)
+

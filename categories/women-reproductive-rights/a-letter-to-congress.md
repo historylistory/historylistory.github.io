@@ -482,5 +482,8 @@ budget untouched through the end of 2026.
 
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
 
+2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 
+
 
 2026-10-13 Conservative commentator Katie Zacharia was made White House press secretary. Katie Zacharia is known for spreading anti-abortion misinformation including a conspiracy that linked mifepristone to Nazi Germany, posting in November 2025 it was “connected to the manufacturer of the deadly gas Zyklon B”. 
+

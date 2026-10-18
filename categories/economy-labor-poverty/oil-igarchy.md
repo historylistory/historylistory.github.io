@@ -215,6 +215,13 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 
 ### 2026 June
 
+2026-06-28 Trump cut a $1.6B Kazakhstan tungsten mining agreement to enrich his sons. 
+
+[https://finance.yahoo.com/economy/policy/articles/ossoff-says-trumps-sons-got-212500268.html](https://finance.yahoo.com/economy/policy/articles/ossoff-says-trumps-sons-got-212500268.html)
+
+[https://www.motherjones.com/politics/2026/06/trumps-sons-critical-minerals-tungsten-kazakhstan-nyt/](https://www.motherjones.com/politics/2026/06/trumps-sons-critical-minerals-tungsten-kazakhstan-nyt/)
+
+
 2026-06-30 Trump posted, “Gasoline retailers must get their prices down immediately”.
 
 [https://www.aljazeera.com/economy/2026/6/30/trump-tells-us-petrol-retailers-to-reduce-prices-immediately](https://www.aljazeera.com/economy/2026/6/30/trump-tells-us-petrol-retailers-to-reduce-prices-immediately)

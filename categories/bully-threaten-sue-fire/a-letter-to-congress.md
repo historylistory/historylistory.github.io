@@ -750,3 +750,6 @@ Manhattan grand jury in the hush-money case.
 2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 
 
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
+
+
+2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 

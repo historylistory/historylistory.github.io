@@ -240,3 +240,10 @@ PAY WALL [https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-s
 
 [https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
 
+### 2026 October
+
+2026-10-07 Cuts to Medicaid could lead to enforcement of Filial Responsibility laws which require children to be responsible for their parents medical debts, even if estranged. 
+
+[https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1](https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1)
+
+[https://en.wikipedia.org/wiki/Filial_responsibility_laws](https://en.wikipedia.org/wiki/Filial_responsibility_laws)

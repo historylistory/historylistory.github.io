@@ -1061,3 +1061,9 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
 
 [https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)
+
+2026-10-16 New press secretary Katie Zacharia was fired after 5 days. 
+
+[https://www.reuters.com/world/trump-says-zacharia-should-reconsider-white-house-spokeswoman-role-2026-10-16/](https://www.reuters.com/world/trump-says-zacharia-should-reconsider-white-house-spokeswoman-role-2026-10-16/)
+
+[https://www.cnn.com/2026/10/16/politics/katie-zacharia-press-secretary](https://www.cnn.com/2026/10/16/politics/katie-zacharia-press-secretary)

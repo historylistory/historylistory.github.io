@@ -184,3 +184,11 @@ JULY 2026 [https://www.rutgers.edu/news/researchers-find-small-increased-risk-su
 [https://www.usatoday.com/story/news/health/2026/09/21/glp-1-blindness-lawsuits-rare-cases/91877381007/](https://www.usatoday.com/story/news/health/2026/09/21/glp-1-blindness-lawsuits-rare-cases/91877381007/)
 
 [https://abcnews.com/US/glp-1-users-potential-risk-rare-type-vision/story?id=136635318](https://abcnews.com/US/glp-1-users-potential-risk-rare-type-vision/story?id=136635318)
+
+### 2026 October
+
+2026-10-07 Cuts to Medicaid could lead to enforcement of Filial Responsibility laws which require children to be responsible for their parents medical debts, even if estranged. 
+
+[https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1](https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1)
+
+[https://en.wikipedia.org/wiki/Filial_responsibility_laws](https://en.wikipedia.org/wiki/Filial_responsibility_laws)

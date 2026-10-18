@@ -721,6 +721,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-09-21 Researchers found some GLP-1 drugs caused blindness. 
 
+2026-09-24 At least six babies were born with congenital measles in Pennsylvania. 
+
 ## 2026 October
 
 2026-10-05 A lab worker died of suspected plague amidst Russia’s plague outbreaks. 
@@ -729,6 +731,8 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-10-05 New York declared a state of emergency over the ongoing spread of measles cases. 
 
 2026-10-06 Ebola spread to Kenya.
+
+2026-10-07 Cuts to Medicaid could lead to enforcement of Filial Responsibility laws which require children to be responsible for their parents medical debts, even if estranged. 
 
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
 

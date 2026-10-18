@@ -95,3 +95,12 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 [https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199](https://abcnews.com/GMA/News/us-students-reading-scores-dive-new-data-shows/story?id=136272199)
 
 [https://wng.org/sift/u-s-reading-scores-1788968351](https://wng.org/sift/u-s-reading-scores-1788968351)
+
+2026-09-08 Chicago opened doors to a teacherless, AI-driven school called Alpha. 
+
+[https://www.youtube.com/watch?v=fM634Vb8O2E&list=WL&index=2](https://www.youtube.com/watch?v=fM634Vb8O2E&list=WL&index=2)
+
+[https://www.nbcchicago.com/news/local/first-ai-driven-teacher-free-school-in-chicago-opens-with-55000-annual-tuition/3986851/](https://www.nbcchicago.com/news/local/first-ai-driven-teacher-free-school-in-chicago-opens-with-55000-annual-tuition/3986851/)
+
+[https://abc7chicago.com/post/alpha-chicago-opens-first-ai-school-city-teachers-created-mackenzie-price/19805778/](https://abc7chicago.com/post/alpha-chicago-opens-first-ai-school-city-teachers-created-mackenzie-price/19805778/)
+
