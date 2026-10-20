@@ -463,6 +463,9 @@ budget untouched through the end of 2026.
 
 2026-09-08 The Trump administration planned to redirect funding from a Child Care Subsidy Program toward married couples with a stay-at-home spouse. 
 
+
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
 2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
 
 2026-09-21 A Michigan school announced it would require female students to disclose their menstrual cycles and length. 
@@ -486,4 +489,8 @@ budget untouched through the end of 2026.
 
 
 2026-10-13 Conservative commentator Katie Zacharia was made White House press secretary. Katie Zacharia is known for spreading anti-abortion misinformation including a conspiracy that linked mifepristone to Nazi Germany, posting in November 2025 it was “connected to the manufacturer of the deadly gas Zyklon B”. 
+
+
+2026-10-19 Melania Trump signed an executive order on women’s health research. 
+
 

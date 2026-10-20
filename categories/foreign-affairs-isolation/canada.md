@@ -178,3 +178,13 @@ permalink: /categories/foreign-affairs-isolation/canada/
 
 [https://www.cbc.ca/news/politics/canada-britain-military-expeditionary-force-nato-9.7347144](https://www.cbc.ca/news/politics/canada-britain-military-expeditionary-force-nato-9.7347144)
 
+### 2026 October
+
+2026-10-19 Alberta held a nonbinding referendum on whether they province should secede from Canada. The minority separatist movement has to do with oil production. 
+
+[https://www.youtube.com/watch?v=Ix7e-SrK4FQ&list=WL&index=7](https://www.youtube.com/watch?v=Ix7e-SrK4FQ&list=WL&index=7)
+
+[https://www.cnn.com/2026/10/20/americas/alberta-rejects-independence-referendum-canada-intl-hnk](https://www.cnn.com/2026/10/20/americas/alberta-rejects-independence-referendum-canada-intl-hnk)
+
+[https://www.pbs.org/newshour/world/how-alberta-separatism-went-from-fringe-cause-to-referendum](https://www.pbs.org/newshour/world/how-alberta-separatism-went-from-fringe-cause-to-referendum)
+

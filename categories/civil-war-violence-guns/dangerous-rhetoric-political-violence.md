@@ -611,3 +611,9 @@ Potteiger: "Yes. We want death and new life, right? Um, and if it would not be w
 [https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet](https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet)
 
 [https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president](https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president)
+
+[https://www.youtube.com/watch?v=Ib2KR5cDXrE&list=WL&index=2&t=3s](https://www.youtube.com/watch?v=Ib2KR5cDXrE&list=WL&index=2&t=3s)
+
+[https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3](https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4](https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4)

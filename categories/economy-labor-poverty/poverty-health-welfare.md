@@ -785,6 +785,17 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 
 [https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2](https://www.youtube.com/watch?v=q4NphZBfmnE&list=WL&index=2)
 
+
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
+[https://rogermarshallrecord.com/](https://rogermarshallrecord.com/)
+
+[https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/](https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/)
+
+[https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/](https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/)
+
+PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html](https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html)
+
 2026-09-28 Trump’s former Sarah Sanders Huckabee infuriated her base with an anti-welfare ad that featured a white man. Matt Walsh complained on Truth Social September 28th, “Republicans don’t have the balls to do this ad with Shaniqua as the villain”. Sean Davis wrote, “…the audacity to dishonestly mock young white men as welfare queens”. Dale Partridge wrote, “…she villainizes a White man”. 
 
 [https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters](https://arktimes.com/arkansas-blog/2026/09/28/sarah-sanders-new-ad-is-infuriating-her-most-racist-supporters)

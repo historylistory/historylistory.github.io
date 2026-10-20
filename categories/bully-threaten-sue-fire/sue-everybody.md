@@ -282,6 +282,17 @@ GOOD COMMENTARY VIDEO [https://www.youtube.com/watch?v=WOpAb5iIvCw&list=WL&index
 
 ### 2026 September
 
+
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
+[https://rogermarshallrecord.com/](https://rogermarshallrecord.com/)
+
+[https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/](https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/)
+
+[https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/](https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/)
+
+PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html](https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html)
+
 2026-09-30 The DOJ filed a misconduct complaint against Minnesota judges for not capitulating to the Trump administration’s anti-immigration campaign. 
 
 [https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/](https://www.cbsnews.com/news/justice-department-files-judicial-misconduct-complaint-against-federal-judges-in-minnesota/)

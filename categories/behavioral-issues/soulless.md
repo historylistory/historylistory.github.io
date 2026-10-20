@@ -1204,6 +1204,15 @@ TIMESTAMP 5:20 [https://www.youtube.com/watch?v=qc-3K5eTI6w&list=WL&index=10&t=1
 
 HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike](https://www.pbs.org/newshour/nation/ice-force-feeding-detainees-on-hunger-strike)
 
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
+[https://rogermarshallrecord.com/](https://rogermarshallrecord.com/)
+
+[https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/](https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/)
+
+[https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/](https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/)
+
+PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html](https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html)
 
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
@@ -1261,3 +1270,21 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 [https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet](https://www.foxnews.com/politics/protester-punched-face-trump-supporter-mocked-president-ohio-rally-gotta-go-diet)
 
 [https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president](https://www.aljazeera.com/video/newsfeed/2026/10/13/trump-protester-punched-at-trump-rally-as-theyre-mocked-by-the-president)
+
+[https://www.youtube.com/watch?v=Ib2KR5cDXrE&list=WL&index=2&t=3s](https://www.youtube.com/watch?v=Ib2KR5cDXrE&list=WL&index=2&t=3s)
+
+[https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3](https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3)
+
+[https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4](https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4)
+
+2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 
+
+[https://www.pbs.org/newshour/nation/mississippi-attorney-general-says-officers-force-was-justified-in-death-of-1-year-old-kohen-wiley](https://www.pbs.org/newshour/nation/mississippi-attorney-general-says-officers-force-was-justified-in-death-of-1-year-old-kohen-wiley)
+
+[https://www.newsweek.com/kohen-wiley-attorney-demands-footage-after-ag-says-shooting-justified-12594234](https://www.newsweek.com/kohen-wiley-attorney-demands-footage-after-ag-says-shooting-justified-12594234)
+
+[https://www.theguardian.com/us-news/2026/oct/19/mississippi-attorney-general-kohen-wiley-killing-justified](https://www.theguardian.com/us-news/2026/oct/19/mississippi-attorney-general-kohen-wiley-killing-justified)
+
+[https://www.bbc.com/news/articles/cwj0l72d5pygo](https://www.bbc.com/news/articles/cwj0l72d5pygo)
+
+[https://www.nbcnews.com/news/us-news/mississippi-ag-says-police-shooting-killed-1-year-old-was-justified-rcna604424](https://www.nbcnews.com/news/us-news/mississippi-ag-says-police-shooting-killed-1-year-old-was-justified-rcna604424)

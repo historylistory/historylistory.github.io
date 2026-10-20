@@ -822,6 +822,17 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
 
+
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
+[https://rogermarshallrecord.com/](https://rogermarshallrecord.com/)
+
+[https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/](https://protectborrowers.org/sen-marshall-sued-hundreds-jailed-dozens-of-women-over-medical-debt/)
+
+[https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/](https://www.beckersasc.com/asc-news/81-arrest-warrants-tied-to-physician-lawmakers-patient-debt-cases/)
+
+PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html](https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-doctor-debts.html)
+
 2026-09-12 Activist Seth Gruber advocated for the death penalty for women who get abortions. 
 
 [https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1](https://www.youtube.com/watch?v=fckikghBQ14&list=WL&index=1)
@@ -872,3 +883,11 @@ budget untouched through the end of 2026.
 [https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary](https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary)
 
 [https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim](https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim)
+
+
+2026-10-19 Melania Trump signed an executive order on women’s health research. 
+
+[https://www.youtube.com/watch?v=n3xOLVAqAtQ&list=WL&index=9](https://www.youtube.com/watch?v=n3xOLVAqAtQ&list=WL&index=9)
+
+[https://www.reuters.com/legal/litigation/trump-create-new-nih-division-task-force-womens-health-2026-10-19/](https://www.reuters.com/legal/litigation/trump-create-new-nih-division-task-force-womens-health-2026-10-19/)
+

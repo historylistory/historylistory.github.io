@@ -733,6 +733,7 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-09-07 Detainees continued to face involuntary intubation and force-feeding. 
 
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
 
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
@@ -755,3 +756,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-10-09 Trump once again complained during a Syracuse NY rally that he was never awarded the Nobel Peace Prize. 
 
 2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 
+
+2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 

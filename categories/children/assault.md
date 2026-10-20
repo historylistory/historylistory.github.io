@@ -150,3 +150,18 @@ PAY WALL [https://www.bbc.com/news/articles/cd6l07wwvlpo](https://www.bbc.com/ne
 2026-09-10 Facebook hosted a series of disturbing AI generated child abuse videos for views. 
 
 [https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse](https://futurism.com/artificial-intelligence/facebook-meta-ai-generated-violent-child-abuse)
+
+### 2026 October
+
+2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 
+
+[https://www.pbs.org/newshour/nation/mississippi-attorney-general-says-officers-force-was-justified-in-death-of-1-year-old-kohen-wiley](https://www.pbs.org/newshour/nation/mississippi-attorney-general-says-officers-force-was-justified-in-death-of-1-year-old-kohen-wiley)
+
+[https://www.newsweek.com/kohen-wiley-attorney-demands-footage-after-ag-says-shooting-justified-12594234](https://www.newsweek.com/kohen-wiley-attorney-demands-footage-after-ag-says-shooting-justified-12594234)
+
+[https://www.theguardian.com/us-news/2026/oct/19/mississippi-attorney-general-kohen-wiley-killing-justified](https://www.theguardian.com/us-news/2026/oct/19/mississippi-attorney-general-kohen-wiley-killing-justified)
+
+[https://www.bbc.com/news/articles/cwj0l72d5pygo](https://www.bbc.com/news/articles/cwj0l72d5pygo)
+
+[https://www.nbcnews.com/news/us-news/mississippi-ag-says-police-shooting-killed-1-year-old-was-justified-rcna604424](https://www.nbcnews.com/news/us-news/mississippi-ag-says-police-shooting-killed-1-year-old-was-justified-rcna604424)
+

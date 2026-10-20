@@ -1211,6 +1211,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-09-09 Trump’s oil and gas holdings gained $4.4M since the war started. 
 
 
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
 2026-09-09 Trump told everyone he would issue $5,000 checks if Republicans win the midterms. 
 
 2026-09-10 Bessent announced plans to triple bond buybacks. 

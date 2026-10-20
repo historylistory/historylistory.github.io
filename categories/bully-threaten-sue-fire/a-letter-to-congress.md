@@ -728,6 +728,9 @@ Manhattan grand jury in the hush-money case.
 
 2026-09-09 Lonnie Bunch was bullied out of the Smithsonian. 
 
+
+2026-09-09 Senator Roger Marshall of Kansas sued over 700 of his own patients and put 81 of them in prison over unpaid gynecology bills. 
+
 2026-09-10 Trump repeatedly made remarks about Ken Paxton’s looks and dress.
 
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
