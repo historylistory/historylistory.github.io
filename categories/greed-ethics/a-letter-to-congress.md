@@ -446,3 +446,5 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 ## 2026 October
 
 2026-10-07 Trump’s former fiancée-now-ambassador to Greece Kimberly Guilfoyle pushed a donor to wire her $100K to pay off credit cards. 
+
+2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?

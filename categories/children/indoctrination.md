@@ -185,3 +185,13 @@ h[ttps://www.houstonpublicmedia.org/articles/education/2026/06/26/555733/bible-t
 [https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
 
 [https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
+
+### 2026 October
+
+2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?
+
+[https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html](https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html)
+
+[https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html](https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html)
+
+[https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c](https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c)

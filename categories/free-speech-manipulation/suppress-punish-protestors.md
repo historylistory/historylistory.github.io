@@ -502,3 +502,10 @@ HYPOCRISY AFTER KRAFT LET KANYE WEST SING HEIL HITLER [https://www.ms.now/opinio
 
 [https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
 
+2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 
+
+[https://www.theguardian.com/us-news/2026/oct/18/no-kings-instagram-account-suspended-during-protests](https://www.theguardian.com/us-news/2026/oct/18/no-kings-instagram-account-suspended-during-protests)
+
+[https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension](https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension)
+
+[https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/](https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/)

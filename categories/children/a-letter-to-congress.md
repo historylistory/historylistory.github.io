@@ -420,3 +420,5 @@ budget untouched through the end of 2026.
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
 
 2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 
+
+2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?

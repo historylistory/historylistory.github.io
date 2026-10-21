@@ -36,3 +36,17 @@ See also Social Security for more detail - this is an admitted backdoor for priv
 [https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/](https://thehill.com/homenews/senate/5870394-cruz-trump-accounts-social-security/)
 
 [https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s](https://www.youtube.com/watch?v=HHWRF5XGjf8&list=WL&index=1&t=144s)
+
+### 2026 October
+
+2026-10-13 Trump’s treasury department created Trump Accounts, enrolling more than 60 million children. Families will not be able to reject the individual stocks from Trump supporters and will be required to keep them for five years. Does this set precedence for financial allegiance? 
+
+[https://www.pbs.org/newshour/show/trump-accounts-expand-to-millions-of-children-but-new-rules-raise-questions](https://www.pbs.org/newshour/show/trump-accounts-expand-to-millions-of-children-but-new-rules-raise-questions)
+
+2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?
+
+[https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html](https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html)
+
+[https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html](https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html)
+
+[https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c](https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c)

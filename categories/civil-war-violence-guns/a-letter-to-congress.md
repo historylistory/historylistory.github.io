@@ -723,3 +723,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
 
 2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 
+
+2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 

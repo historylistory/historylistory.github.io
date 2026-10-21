@@ -526,3 +526,5 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 
 
 2026-10-13 Conservative commentator Katie Zacharia was made White House press secretary. Katie Zacharia is known for spreading anti-abortion misinformation including a conspiracy that linked mifepristone to Nazi Germany, posting in November 2025 it was “connected to the manufacturer of the deadly gas Zyklon B”. 
+
+2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 

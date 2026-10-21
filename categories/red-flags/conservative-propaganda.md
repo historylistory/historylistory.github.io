@@ -717,3 +717,11 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary](https://www.democracynow.org/2026/10/12/headlines/conservative_tv_personality_katie_zacharia_appointed_white_house_press_secretary)
 
 [https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim](https://www.thedailybeast.com/trumps-new-press-secretary-busted-peddling-bonkers-nazi-claim)
+
+2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 
+
+[https://www.theguardian.com/us-news/2026/oct/18/no-kings-instagram-account-suspended-during-protests](https://www.theguardian.com/us-news/2026/oct/18/no-kings-instagram-account-suspended-during-protests)
+
+[https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension](https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension)
+
+[https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/](https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/)

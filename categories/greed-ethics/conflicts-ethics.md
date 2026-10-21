@@ -854,3 +854,11 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 [https://www.telegraph.co.uk/us/politics/2026/10/08/trump-jr-ex-pressed-donor-100k-credit-card/](https://www.telegraph.co.uk/us/politics/2026/10/08/trump-jr-ex-pressed-donor-100k-credit-card/)
 
 [https://www.wsj.com/politics/policy/guilfoyle-amex-donor-100-000-0e02cdc3](https://www.wsj.com/politics/policy/guilfoyle-amex-donor-100-000-0e02cdc3)
+
+2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?
+
+[https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html](https://finance.yahoo.com/markets/stocks/articles/elon-musk-says-hell-away-095008135.html)
+
+[https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html](https://www.yahoo.com/news/politics/articles/elon-musks-10-billion-share-105109323.html)
+
+[https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c](https://www.wsj.com/business/musk-vows-to-give-each-u-s-child-a-spacex-share-273bc71c)

@@ -606,3 +606,5 @@ In a Scott Jennings podcast interview, Brendan Carr questioned whether The View 
 2026-10-06 Trump demanded the arrest of reporters for covering the Ohio rally. 
 
 2026-10-06 Trump claimed Fox news gives Democrat candidates more air time. 
+
+2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 
