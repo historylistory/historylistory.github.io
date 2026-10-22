@@ -27,7 +27,7 @@ permalink: /categories/bully-threaten-sue-fire/threats-of-violence-doxxing/
 
 2016-11-21 Turning Point's Charlie Kirk created the "Professor Watchlist" so his followers could outwardly dox any teacher they felt was "woke".
 
-[https://www.professorwatchlist.org/](https://www.professorwatchlist.org/)
+TPUSA has since taken this site down and redirected it to their primary website where they talk about Charlie Kirk's "vision" [https://www.professorwatchlist.org/](https://www.professorwatchlist.org/) 
 
 ### 2021
 

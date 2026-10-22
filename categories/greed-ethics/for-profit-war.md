@@ -59,6 +59,7 @@ SUBSCRIPTION WALL [https://100daysofzohran.thepolisproject.com/levine-signals-re
 [https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html](https://www.vaticannews.va/en/pope/news/2026-04/pope-bamenda-woe-to-those-who-manipulate-religion-military.html)
 
 [https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars](https://www.pbs.org/newshour/show/news-wrap-pope-warns-of-tyrants-spending-billions-on-wars)
+
 [https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/](https://catholicreview.org/us-bishops-doctrine-chair-defends-churchs-just-war-tradition-after-vance-comments/)
 
 SUBSCRIPTION WALL [https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/](https://www.thedailybeast.com/catholic-bishops-deliver-brutal-slap-down-to-convert-jd-vance-after-lecturing-pope-leo-xiv-on-theology/)

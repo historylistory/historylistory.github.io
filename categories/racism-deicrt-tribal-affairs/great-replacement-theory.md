@@ -107,7 +107,10 @@ THIS PAGE WAS REMOVED [https://foreignaffairs.house.gov/hearing/renewing-the-uni
 
 [https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west](https://www.heritage.org/marriage-and-family/commentary/taming-ivfs-wild-west)
 
+[https://www.youtube.com/watch?v=BMTSGFzr4OE](https://www.youtube.com/watch?v=BMTSGFzr4OE
+)
 {% include youtubePlayer.html id="BMTSGFzr4OE" %}
+
 
 ### 2025 October
 
