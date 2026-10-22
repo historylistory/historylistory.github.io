@@ -1257,3 +1257,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 
 2026-10-12 The Trump administration Medicaid cuts caused 52 maternity wards to shut down, with 8 more on the chopping block. 
+
+2026-10-22 France protested soaring cost of living and market pressure. 
+
+2026-10-22 Italian farmers protested over soaring fuel prices. 

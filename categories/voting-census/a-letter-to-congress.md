@@ -593,3 +593,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-10-10 National Guard troops were deployed to ballot drop boxes in DC. 
 
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
+
+2026-10-20 A ProPublica investigation found that Trump appointees at DHS asked CISA to hack voting machines. According to reports, this was not a request for a patch. 

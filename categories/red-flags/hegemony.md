@@ -18,7 +18,7 @@ Cultural Hegemony: A social group or "popular crowd" dictating cultural norms an
 
 Economic Hegemony: The economic power of the U.S. following World War I, influencing global markets. 
 
-### 2026
+### 2026 April
 
 2026-04-18 Palantir published a 22-point manifesto advocating American dominance, nuclear superiority, and autonomous AI weapons; describing some cultures as inferior; calling for reinstatement of the draft; and arguing that postwar constraints on Germany and Japan should be reversed. They wrote that a democratic society needs “hard power to prevail” and called for reinstatement of the draft. 
 
@@ -130,3 +130,11 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/](https://www.cbsnews.com/news/trump-address-united-nations-general-assembly-meetings-world-leaders-iran-ukraine/)
 
 [https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)
+
+### 2026 October
+
+2026-10-20 Bulgarian citizens protested over government isolation and capitulation. 
+
+[https://sofiaglobe.com/2026/10/20/large-turnout-in-bulgaria-for-protest-against-foreign-policy-of-radev-and-yotova/](https://sofiaglobe.com/2026/10/20/large-turnout-in-bulgaria-for-protest-against-foreign-policy-of-radev-and-yotova/)
+
+[https://bnrnews.bg/en/post/544884/protest-under-the-slogan-your-peace-is-capitulation-outside-the-presidency](https://bnrnews.bg/en/post/544884/protest-under-the-slogan-your-peace-is-capitulation-outside-the-presidency)

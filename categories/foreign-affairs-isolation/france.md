@@ -52,3 +52,9 @@ permalink: /categories/foreign-affairs-isolation/france/
 
 [https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank](https://www.theguardian.com/world/2026/sep/09/israelis-welcome-uk-sanctions-on-settlements-palestine-west-bank)
 
+### 2026 October
+
+2026-10-22 France protested soaring cost of living and market pressure. 
+
+[https://www.cnbc.com/2026/10/22/macron-trump-france-protests.html](https://www.cnbc.com/2026/10/22/macron-trump-france-protests.html)
+

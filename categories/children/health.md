@@ -166,3 +166,14 @@ budget untouched through the end of 2026.
 [https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/](https://thegrio.com/2026/10/11/medicaid-cuts-maternity-ward-closures/)
 
 [https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards](https://www.theguardian.com/us-news/2026/oct/11/medicaid-cuts-maternity-wards)
+
+
+2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
+
+[https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s](https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s)
+
+[https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau](https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau)
+
+[https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/](https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/)
+
+[https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers](https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers)

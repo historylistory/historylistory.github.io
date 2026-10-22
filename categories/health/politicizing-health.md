@@ -91,3 +91,15 @@ TIMESTAMP 22:30 [https://www.youtube.com/watch?v=PUPuhlJ3IuE](https://www.youtub
 [https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/](https://www.nytimes.com/athletic/7500092/2026/08/07/trump-patriot-games-schedule-events-lineup/)
 
 [https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/](https://www.thedailybeast.com/trumps-patriot-games-athletes-spill-embarrassing-details/)
+
+### 2026 October
+
+2026-10-21 During a rally Trump pledged to get benefits for Veterans who are victim of Camp Lejeune toxic water ONLY if he wins the midterms. 
+
+[https://www.nbcnews.com/news/us-news/trump-promises-rallies-christina-applegate-ms-morning-rundown-rcna604728](https://www.nbcnews.com/news/us-news/trump-promises-rallies-christina-applegate-ms-morning-rundown-rcna604728)
+
+[https://www.rollingstone.com/politics/politics-news/trump-america-only-do-job-republicans-win-1235646122/](https://www.rollingstone.com/politics/politics-news/trump-america-only-do-job-republicans-win-1235646122/)
+
+[https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/](https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/)
+
+[https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s](https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s)

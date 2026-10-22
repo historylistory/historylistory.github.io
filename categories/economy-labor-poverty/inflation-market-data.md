@@ -520,3 +520,15 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 [https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages](https://www.tpr.org/environment/2026-09-29/gov-greg-abbott-declares-statewide-disaster-proclamation-over-diesel-shortages)
 
 [https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/](https://www.texastribune.org/2026/09/28/texas-gas-diesel-prices-emergency-declaration-war-abbott/)
+
+### 2026 October
+
+
+2026-10-22 France protested soaring cost of living and market pressure. 
+
+[https://www.cnbc.com/2026/10/22/macron-trump-france-protests.html](https://www.cnbc.com/2026/10/22/macron-trump-france-protests.html)
+
+
+2026-10-22 Italian farmers protested over soaring fuel prices. 
+
+[https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/](https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/)

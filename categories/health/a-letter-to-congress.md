@@ -738,3 +738,7 @@ Taken together, these actions and statements suggest a lack of compassion and re
 
 2026-10-13 A new Gallup poll showed Americans no longer trust food safety. 
 
+
+2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
+
+2026-10-21 During a rally Trump pledged to get benefits for Veterans who are victim of Camp Lejeune toxic water ONLY if he wins the midterms. 

@@ -19,3 +19,9 @@ permalink: /categories/foreign-affairs-isolation/italy/
 [https://www.pbs.org/newshour/world/trump-decries-italys-meloni-for-siding-with-the-pope-and-not-supporting-iran-war](https://www.pbs.org/newshour/world/trump-decries-italys-meloni-for-siding-with-the-pope-and-not-supporting-iran-war)
 
 [https://www.foxnews.com/politics/trump-says-meloni-wants-friends-again-after-italy-refused-help-us-amid-iran-war](https://www.foxnews.com/politics/trump-says-meloni-wants-friends-again-after-italy-refused-help-us-amid-iran-war)
+
+### 2026 October
+
+2026-10-22 Italian farmers protested over soaring fuel prices. 
+
+[https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/](https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/)

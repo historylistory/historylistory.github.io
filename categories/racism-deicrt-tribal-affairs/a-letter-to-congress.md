@@ -833,3 +833,6 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
 
 2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 
+
+
+2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 

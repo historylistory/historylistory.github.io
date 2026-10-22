@@ -242,3 +242,14 @@ PAY WALL [https://www.nytimes.com/2026/07/21/health/hiv-trump-cuts-pepfar.html](
 PAY WALL [https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/](https://www.forbes.com/sites/johndrake/2026/10/06/kenyas-first-ebola-patient-flew-to-nairobi-two-days-before-he-died/)
 
 SUB WALL [https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html](https://www.nytimes.com/2026/10/06/world/africa/kenya-case-ebola-outbreak.html)
+
+
+2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
+
+[https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s](https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s)
+
+[https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau](https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau)
+
+[https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/](https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/)
+
+[https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers](https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers)

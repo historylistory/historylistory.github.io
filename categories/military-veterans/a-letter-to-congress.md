@@ -485,3 +485,5 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-10-05 A soldier injured in Iran said troops had to use Google to find the nearest hospital. 
 
 2026-10-07 A cluster of suicide attempts at Fort Meade Cyber Command prompted Maryland lawmakers to ask for $11M in mental health funding.
+
+2026-10-21 During a rally Trump pledged to get benefits for Veterans who are victim of Camp Lejeune toxic water ONLY if he wins the midterms. 

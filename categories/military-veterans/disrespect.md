@@ -316,3 +316,15 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 [https://www.bbc.com/news/articles/crq5xvnq8yzqo](https://www.bbc.com/news/articles/crq5xvnq8yzqo)
 
 [https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1](https://www.youtube.com/watch?v=6bn5jUdg8zw&list=WL&index=1)
+
+### 2026 October
+
+2026-10-21 During a rally Trump pledged to get benefits for Veterans who are victim of Camp Lejeune toxic water ONLY if he wins the midterms. 
+
+[https://www.nbcnews.com/news/us-news/trump-promises-rallies-christina-applegate-ms-morning-rundown-rcna604728](https://www.nbcnews.com/news/us-news/trump-promises-rallies-christina-applegate-ms-morning-rundown-rcna604728)
+
+[https://www.rollingstone.com/politics/politics-news/trump-america-only-do-job-republicans-win-1235646122/](https://www.rollingstone.com/politics/politics-news/trump-america-only-do-job-republicans-win-1235646122/)
+
+[https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/](https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/)
+
+[https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s](https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s)

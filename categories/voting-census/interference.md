@@ -542,3 +542,13 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion](https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion)
 
 [https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950](https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950)
+
+2026-10-20 A ProPublica investigation found that Trump appointees at DHS asked CISA to hack voting machines. According to reports, this was not a request for a patch. 
+
+[https://www.youtube.com/watch?v=H5LcF-I9sgQ&list=WL&index=4&t=198s](https://www.youtube.com/watch?v=H5LcF-I9sgQ&list=WL&index=4&t=198s)
+
+[https://www.propublica.org/article/cisa-election-security-donald-trump](https://www.propublica.org/article/cisa-election-security-donald-trump)
+
+[https://newrepublic.com/post/216847/donald-trump-officials-trying-hack-voting-machine](https://newrepublic.com/post/216847/donald-trump-officials-trying-hack-voting-machine)
+
+[https://www.techtimes.co.uk/trump-administration-secret-cisa-voting-machine-test-1809302](https://www.techtimes.co.uk/trump-administration-secret-cisa-voting-machine-test-1809302)

@@ -719,3 +719,16 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/](https://www.cbsnews.com/news/ken-paxton-leaked-audio-trump-midterm-convention-texas-senate-talarico/)
 
 SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html](https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midterm-convention.html)
+
+### 2026 October
+
+2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswamy using an estranged mother to attack his opponent. 
+
+[https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad](https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad)
+
+[https://thehill.com/homenews/campaign/6163244-vance-criticizes-gop-ramaswamy-ad/](https://thehill.com/homenews/campaign/6163244-vance-criticizes-gop-ramaswamy-ad/)
+
+[https://www.forbes.com/sites/saradorn/2026/10/21/vance-says-hes-disgusted-by-republicans-whining-about-ramaswamys-acton-ad-featuring-her-estranged-mother/](https://www.forbes.com/sites/saradorn/2026/10/21/vance-says-hes-disgusted-by-republicans-whining-about-ramaswamys-acton-ad-featuring-her-estranged-mother/)
+
+[https://www.bbc.com/news/articles/cm98zn3l2rn7o](https://www.bbc.com/news/articles/cm98zn3l2rn7o)
+

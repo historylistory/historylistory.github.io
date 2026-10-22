@@ -578,3 +578,9 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 2026-10-05 Mamdani created a universal childcare program in New York offering no-cost childcare for children ages 6 weeks to 5 years old. 
 
 [https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low](https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low)
+
+2026-10-21 SCOTUS blocked Trump’s attempt to end transgender care for inmates. 
+
+[https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates](https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates)
+
+[https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/](https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/)

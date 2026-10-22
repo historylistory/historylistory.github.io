@@ -82,3 +82,12 @@ permalink: /categories/lgbtq/bills/
 [https://www.foxnews.com/politics/supreme-court-overturns-ban-so-called-conversion-therapy-first-amendment-grounds](https://www.foxnews.com/politics/supreme-court-overturns-ban-so-called-conversion-therapy-first-amendment-grounds)
 
 [https://www.cpr.org/2026/03/31/supreme-court-overturns-colorado-ban-on-conversion-therapy/](https://www.cpr.org/2026/03/31/supreme-court-overturns-colorado-ban-on-conversion-therapy/)
+
+### 2026 October
+
+2026-10-21 SCOTUS blocked Trump’s attempt to end transgender care for inmates. 
+
+[https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates](https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates)
+
+[https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/](https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/)
+

@@ -386,3 +386,15 @@ TIMESTAMP 6:12 [https://www.youtube.com/watch?v=bfBWaLrTnGM&list=WL&index=2&t=6s
 TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s](https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=506s)
 
 
+### 2026 October
+
+
+2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
+
+[https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s](https://www.youtube.com/watch?v=QoSU9uJAVw0&list=WL&index=2&t=204s)
+
+[https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau](https://www.theguardian.com/world/2026/oct/20/rfk-jr-vaccine-researchers-offices-raided-guinea-bissau)
+
+[https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/](https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/)
+
+[https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers](https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers)
