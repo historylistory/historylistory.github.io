@@ -35,7 +35,10 @@ permalink: /categories/behavioral-issues/ego-idolatry-and-coddling/
 
 2019-08-21 Trump referred to himself as "the chosen one".
 
+[https://www.youtube.com/watch?v=lzlxrPC_E_U&t=8s](https://www.youtube.com/watch?v=lzlxrPC_E_U&t=8s)
+
 {% include youtubePlayer.html id="lzlxrPC_E_U" %}
+
 
 ### 2021
 

@@ -56,11 +56,6 @@ permalink: /categories/racism-deicrt-tribal-affairs/racist-commentary-posts/
 
 [https://www.salon.com/2013/12/12/fox_news_megyn_kelly_insists_santa_claus_is_white/](https://www.salon.com/2013/12/12/fox_news_megyn_kelly_insists_santa_claus_is_white/)
 
-### 2015
-
-2015-07-01 Doug Wilson claimed same-sex marriage was a more serious problem than supporting slavery.
-
-[https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html](https://www.patheos.com/blogs/lovejoyfeminism/2015/07/doug-wilson-supporting-marriage-equality-is-a-far-more-serious-problem-than-supporting-slavery.html)
 
 ### 2016
 
