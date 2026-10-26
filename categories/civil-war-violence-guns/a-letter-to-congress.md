@@ -726,4 +726,5 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 
 2026-10-17 Instagram suspended No Kings during the rally in an act of censorship, later issuing an apology and claimed it was AI’s fault. 
 
-2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswamy using an estranged mother to attack his opponent. 
+2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
+

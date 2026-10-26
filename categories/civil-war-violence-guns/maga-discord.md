@@ -722,7 +722,7 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 
 ### 2026 October
 
-2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswamy using an estranged mother to attack his opponent. 
+2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
 
 [https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad](https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad)
 

@@ -494,3 +494,4 @@ budget untouched through the end of 2026.
 2026-10-19 Melania Trump signed an executive order on women’s health research. 
 
 
+2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 

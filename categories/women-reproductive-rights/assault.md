@@ -320,3 +320,13 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3](https://www.youtube.com/watch?v=xvLan1Kd5OU&list=WL&index=3)
 
 [https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4](https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4)
+
+2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
+
+[https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad](https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad)
+
+[https://thehill.com/homenews/campaign/6163244-vance-criticizes-gop-ramaswamy-ad/](https://thehill.com/homenews/campaign/6163244-vance-criticizes-gop-ramaswamy-ad/)
+
+[https://www.forbes.com/sites/saradorn/2026/10/21/vance-says-hes-disgusted-by-republicans-whining-about-ramaswamys-acton-ad-featuring-her-estranged-mother/](https://www.forbes.com/sites/saradorn/2026/10/21/vance-says-hes-disgusted-by-republicans-whining-about-ramaswamys-acton-ad-featuring-her-estranged-mother/)
+
+[https://www.bbc.com/news/articles/cm98zn3l2rn7o](https://www.bbc.com/news/articles/cm98zn3l2rn7o)
