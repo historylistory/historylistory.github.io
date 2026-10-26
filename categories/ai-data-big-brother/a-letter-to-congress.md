@@ -527,4 +527,6 @@ Technology should serve the public—not become a tool for political retaliation
 
 
 
+2026-10-23 Major US banks were detecting unauthorized third-party AI agents in customer accounts. 
+
 

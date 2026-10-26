@@ -759,3 +759,5 @@ Manhattan grand jury in the hush-money case.
 
 2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
 
+2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
+

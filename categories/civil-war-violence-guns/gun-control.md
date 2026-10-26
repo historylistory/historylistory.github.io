@@ -258,3 +258,13 @@ PAY WALL [https://www.nytimes.com/2022/05/25/world/europe/gun-laws-australia-bri
 
 [https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/](https://www.wwnytv.com/2026/09/09/national-guard-member-accused-pulling-gun-fellow-soldier-argument-over-hairstyles/)
 
+### 2026 October
+
+
+2026-10-15 Another school shooting at Silver Rail Elementary School in Bend, Oregon. 
+
+[https://www.cnn.com/2026/10/17/us/bend-oregon-school-shooting-how-it-unfolded](https://www.cnn.com/2026/10/17/us/bend-oregon-school-shooting-how-it-unfolded)
+
+[https://www.nbcnews.com/news/us-news/oregon-school-shooting-elementary-bend-victims-shooter-death-what-know-rcna603793](https://www.nbcnews.com/news/us-news/oregon-school-shooting-elementary-bend-victims-shooter-death-what-know-rcna603793)
+
+[https://www.pbs.org/newshour/show/oregon-school-shooter-attacked-special-education-classroom-police-say](https://www.pbs.org/newshour/show/oregon-school-shooter-attacked-special-education-classroom-police-say)

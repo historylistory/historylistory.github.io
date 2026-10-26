@@ -622,3 +622,4 @@ Please do not respond with slogans or partisan deflection. The American people d
 
 2026-10-16 New press secretary Katie Zacharia was fired after 5 days. 
 
+2026-10-23 Hegseth wanted the historic WWII Eisenhower globe for himself, so he broke it while trying to move it into his office.

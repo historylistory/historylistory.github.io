@@ -93,3 +93,13 @@ Of course I am not going to list all the school shootings, but HERE IS A TRACKER
 [https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california](https://www.theguardian.com/us-news/2026/jun/23/chico-library-shooting-northern-california)
 
 [https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330](https://www.nbcnews.com/news/us-news/shooting-california-library-chico-butte-county-rcna351330)
+
+### 2026 October
+
+2026-10-15 Another school shooting at Silver Rail Elementary School in Bend, Oregon. 
+
+[https://www.cnn.com/2026/10/17/us/bend-oregon-school-shooting-how-it-unfolded](https://www.cnn.com/2026/10/17/us/bend-oregon-school-shooting-how-it-unfolded)
+
+[https://www.nbcnews.com/news/us-news/oregon-school-shooting-elementary-bend-victims-shooter-death-what-know-rcna603793](https://www.nbcnews.com/news/us-news/oregon-school-shooting-elementary-bend-victims-shooter-death-what-know-rcna603793)
+
+[https://www.pbs.org/newshour/show/oregon-school-shooter-attacked-special-education-classroom-police-say](https://www.pbs.org/newshour/show/oregon-school-shooter-attacked-special-education-classroom-police-say)

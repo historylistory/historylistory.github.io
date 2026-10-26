@@ -374,3 +374,11 @@ FROM AUGUST 2025 [https://oecd.ai/en/incidents/2025-08-15-f635](https://oecd.ai/
 
 [https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2](https://www.youtube.com/watch?v=J9n1plL7040&list=WL&index=2)
 
+
+2026-10-23 Major US banks were detecting unauthorized third-party AI agents in customer accounts. 
+
+[https://www.youtube.com/watch?v=aU58pYTcKHg&list=WL&index=1](https://www.youtube.com/watch?v=aU58pYTcKHg&list=WL&index=1)
+
+[https://www.cbsnews.com/news/ai-agents-customer-bank-accounts-security/](https://www.cbsnews.com/news/ai-agents-customer-bank-accounts-security/)
+
+[https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access](https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access)

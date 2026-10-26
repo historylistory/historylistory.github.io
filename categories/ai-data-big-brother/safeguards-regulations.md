@@ -268,3 +268,13 @@ SUB WALL [https://www.politico.com/news/2026/09/14/donald-trump-ai-regulation-pu
 
 PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992](https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992)
 
+### 2026 October
+
+2026-10-23 Major US banks were detecting unauthorized third-party AI agents in customer accounts. 
+
+[https://www.youtube.com/watch?v=aU58pYTcKHg&list=WL&index=1](https://www.youtube.com/watch?v=aU58pYTcKHg&list=WL&index=1)
+
+[https://www.cbsnews.com/news/ai-agents-customer-bank-accounts-security/](https://www.cbsnews.com/news/ai-agents-customer-bank-accounts-security/)
+
+[https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access](https://www.axios.com/2026/10/22/ai-agents-banks-unauthorized-accounts-access)
+

@@ -177,3 +177,17 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion](https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion)
 
 [https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950](https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950)
+
+2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
+
+[https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/](https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/)
+
+[https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit](https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit)
+
+[https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses](https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses)
+
+[https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html](https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html)
+
+[https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race](https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race)
+
+[https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)

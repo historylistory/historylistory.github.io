@@ -301,3 +301,19 @@ PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-do
 
 [https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)
 
+### 2026 October
+
+2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
+
+[https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/](https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/)
+
+[https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit](https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit)
+
+[https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses](https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses)
+
+[https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html](https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html)
+
+[https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race](https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race)
+
+[https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)
+

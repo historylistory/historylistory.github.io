@@ -595,3 +595,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
 
 2026-10-20 A ProPublica investigation found that Trump appointees at DHS asked CISA to hack voting machines. According to reports, this was not a request for a patch. 
+
+2026-10-23 Voter machines in several states were caught switching voter choices from Democrat to Republican candidates. 
+
+2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.

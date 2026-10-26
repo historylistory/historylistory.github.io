@@ -466,3 +466,12 @@ PAY WALL [https://www.nytimes.com/2026/08/13/us/politics/dhs-inquiry-immigration
 
 [https://popular.info/p/the-hidden-dangers-of-musks-votesafeorg](https://popular.info/p/the-hidden-dangers-of-musks-votesafeorg)
 
+2026-09-12 An investigation alleged that LG TV systems were scanning home networks and transcribing conversations even when off. 
+
+[https://arstechnica.com/gadgets/2026/09/lg-tv-shown-capable-of-tracking-user-activity-even-when-offline/](https://arstechnica.com/gadgets/2026/09/lg-tv-shown-capable-of-tracking-user-activity-even-when-offline/)
+
+[https://www.aljazeera.com/news/2026/9/10/lg-defends-smart-tv-features-amid-audio-surveillance-allegations](https://www.aljazeera.com/news/2026/9/10/lg-defends-smart-tv-features-amid-audio-surveillance-allegations)
+
+[https://www.13newsnow.com/article/news/nation-world/lg-smart-tvs-hackable-audio-recording/507-1807f5d1-1504-4b40-adbf-6e505339230b](https://www.13newsnow.com/article/news/nation-world/lg-smart-tvs-hackable-audio-recording/507-1807f5d1-1504-4b40-adbf-6e505339230b)
+
+[https://www.tomshardware.com/tech-industry/big-tech/lg-strongly-denies-tv-security-claims-says-tracking-and-snooping-concerns-not-true-online-investigation-claims-216-000-000-spy-tvs-record-audio](https://www.tomshardware.com/tech-industry/big-tech/lg-strongly-denies-tv-security-claims-says-tracking-and-snooping-concerns-not-true-online-investigation-claims-216-000-000-spy-tvs-record-audio)

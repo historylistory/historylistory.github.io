@@ -188,3 +188,14 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 
 [https://www.theblaze.com/news/ross-ulbricht-rnc-2026](https://www.theblaze.com/news/ross-ulbricht-rnc-2026)
 
+### 2026 October
+
+2026-10-23 Allegations that Jared Kushner was involved in a phone hack scandal. 
+
+[https://www.youtube.com/watch?v=shxLADrzX-A](https://www.youtube.com/watch?v=shxLADrzX-A)
+
+[https://www.cbsnews.com/news/jared-kushner-pushes-back-report-hacked-phone-spies-transfer/](https://www.cbsnews.com/news/jared-kushner-pushes-back-report-hacked-phone-spies-transfer/)
+
+[https://newrepublic.com/post/217052/jared-kushner-threatens-sue-phone-hack-report](https://newrepublic.com/post/217052/jared-kushner-threatens-sue-phone-hack-report)
+
+[https://www.yahoo.com/news/politics/articles/report-alleges-russian-hack-exposed-231508591.html](https://www.yahoo.com/news/politics/articles/report-alleges-russian-hack-exposed-231508591.html)

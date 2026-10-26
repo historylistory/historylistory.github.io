@@ -321,6 +321,17 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 
 [https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4](https://www.youtube.com/watch?v=5GM08WCJXHM&list=WL&index=4)
 
+2026-10-20 A convicted serial rapist was released early. Max Factor heir Andrew Luster was released under California Proposition 57 which allows early parole for non-violent offenders, and because he drugged his victim unconscious the rape was not considered “violent”. 
+
+[https://www.youtube.com/watch?v=-_9T9UpTEEU&list=WL&index=2](https://www.youtube.com/watch?v=-_9T9UpTEEU&list=WL&index=2)
+
+[https://www.newsnationnow.com/prime/max-factor-heir-andrew-luster-released-sparking-outrage/](https://www.newsnationnow.com/prime/max-factor-heir-andrew-luster-released-sparking-outrage/)
+
+[https://www.vcstar.com/story/news/crime/2026/10/19/convicted-in-ventura-county-rapist-andrew-luster-released-in-los-angeles-area-glendora/92328916007/](https://www.vcstar.com/story/news/crime/2026/10/19/convicted-in-ventura-county-rapist-andrew-luster-released-in-los-angeles-area-glendora/92328916007/)
+
+[https://www.newsnationnow.com/crime/max-factor-heir-andrew-luster-released-sparking-outrage/](https://www.newsnationnow.com/crime/max-factor-heir-andrew-luster-released-sparking-outrage/)
+
+
 2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
 
 [https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad](https://www.pbs.org/newshour/politics/watch-vance-says-hes-disgusted-by-republicans-whining-about-ramaswamy-attack-ad)

@@ -222,3 +222,14 @@ SUB WALL [https://www.snopes.com/fact-check/cnn-online-rape-academy/](https://ww
 [https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167](https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167)
 
 [https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)
+
+2026-10-20 A convicted serial rapist was released early. Max Factor heir Andrew Luster was released under California Proposition 57 which allows early parole for non-violent offenders, and because he drugged his victim unconscious the rape was not considered “violent”. 
+
+[https://www.youtube.com/watch?v=-_9T9UpTEEU&list=WL&index=2](https://www.youtube.com/watch?v=-_9T9UpTEEU&list=WL&index=2)
+
+[https://www.newsnationnow.com/prime/max-factor-heir-andrew-luster-released-sparking-outrage/](https://www.newsnationnow.com/prime/max-factor-heir-andrew-luster-released-sparking-outrage/)
+
+[https://www.vcstar.com/story/news/crime/2026/10/19/convicted-in-ventura-county-rapist-andrew-luster-released-in-los-angeles-area-glendora/92328916007/](https://www.vcstar.com/story/news/crime/2026/10/19/convicted-in-ventura-county-rapist-andrew-luster-released-in-los-angeles-area-glendora/92328916007/)
+
+[https://www.newsnationnow.com/crime/max-factor-heir-andrew-luster-released-sparking-outrage/](https://www.newsnationnow.com/crime/max-factor-heir-andrew-luster-released-sparking-outrage/)
+

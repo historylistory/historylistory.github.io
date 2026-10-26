@@ -328,3 +328,12 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 [https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/](https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/)
 
 [https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s](https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s)
+
+2026-10-24 Leaked audio revealed the Pentagon will be denying financial support for Navy families evacuated from Bahrain. 
+
+[https://www.youtube.com/watch?v=afGMaB1FDiU&list=WL&index=3&t=250s](https://www.youtube.com/watch?v=afGMaB1FDiU&list=WL&index=3&t=250s)
+
+[https://www.yahoo.com/news/videos/leaked-audio-shows-pentagon-denied-204057376.html](https://www.yahoo.com/news/videos/leaked-audio-shows-pentagon-denied-204057376.html)
+
+[https://www.ms.now/the-assignment/watch/leaked-audio-shows-pentagon-denied-more-financial-support-for-navy-families-evacuated-from-bahrain-2518469187656](https://www.ms.now/the-assignment/watch/leaked-audio-shows-pentagon-denied-more-financial-support-for-navy-families-evacuated-from-bahrain-2518469187656)
+

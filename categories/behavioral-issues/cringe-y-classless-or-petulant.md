@@ -1032,3 +1032,12 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 
 [https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner](https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner)
 
+2026-10-23 Hegseth wanted the historic WWII Eisenhower globe for himself, so he broke it while trying to move it into his office.
+
+[https://www.newsweek.com/history-of-eisenhowers-globe-amid-claims-pete-hegseths-staff-broke-it-12609098](https://www.newsweek.com/history-of-eisenhowers-globe-amid-claims-pete-hegseths-staff-broke-it-12609098)
+
+[https://www.npr.org/2026/10/23/nx-s1-6012395/hegseths-staff-damages-eisenhowers-wwii-globe-during-move](https://www.npr.org/2026/10/23/nx-s1-6012395/hegseths-staff-damages-eisenhowers-wwii-globe-during-move)
+
+[https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/](https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/)
+
+[https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123](https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123)

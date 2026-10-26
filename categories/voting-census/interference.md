@@ -552,3 +552,35 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://newrepublic.com/post/216847/donald-trump-officials-trying-hack-voting-machine](https://newrepublic.com/post/216847/donald-trump-officials-trying-hack-voting-machine)
 
 [https://www.techtimes.co.uk/trump-administration-secret-cisa-voting-machine-test-1809302](https://www.techtimes.co.uk/trump-administration-secret-cisa-voting-machine-test-1809302)
+
+2026-10-23 Voter machines in several states were caught switching voter choices from Democrat to Republican candidates. 
+
+[https://www.forbes.com/sites/maryroeloffs/2026/10/23/voters-in-tennessee-say-machines-are-defaulting-to-choose-gop-candidate-marsha-blackburn/](https://www.forbes.com/sites/maryroeloffs/2026/10/23/voters-in-tennessee-say-machines-are-defaulting-to-choose-gop-candidate-marsha-blackburn/)
+
+[https://www.cnn.com/2026/10/24/politics/electronic-voting-machines-change-votes-experts](https://www.cnn.com/2026/10/24/politics/electronic-voting-machines-change-votes-experts)
+
+[https://www.newsnationnow.com/entertainment-news/dolly-parton-sister-voting-machine/](https://www.newsnationnow.com/entertainment-news/dolly-parton-sister-voting-machine/)
+
+[https://www.yahoo.com/news/politics/articles/know-claims-early-voters-ballots-062549766.html](https://www.yahoo.com/news/politics/articles/know-claims-early-voters-ballots-062549766.html)
+
+[https://abcnews.com/Politics/wireStory/reported-challenges-touchscreen-voting-machines-signal-election-rigging-137493899](https://abcnews.com/Politics/wireStory/reported-challenges-touchscreen-voting-machines-signal-election-rigging-137493899)
+
+[https://www.youtube.com/watch?v=p1Z4nE_J62I&list=WL&index=6](https://www.youtube.com/watch?v=p1Z4nE_J62I&list=WL&index=6)
+
+[https://www.youtube.com/watch?v=q8KPVCHMSG8&list=WL&index=5](https://www.youtube.com/watch?v=q8KPVCHMSG8&list=WL&index=5)
+
+[https://www.youtube.com/watch?v=7UhYsuGV9J4&list=WL&index=4](https://www.youtube.com/watch?v=7UhYsuGV9J4&list=WL&index=4)
+
+2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
+
+[https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/](https://www.democracydocket.com/news-alerts/democrats-move-to-fight-dojs-attempt-to-preemptively-block-alaska-senate-results-if-republican-loses/)
+
+[https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit](https://www.aljazeera.com/news/2026/10/25/us-attorney-general-todd-blanche-defends-alaska-senate-election-lawsuit)
+
+[https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses](https://www.npr.org/2026/10/25/nx-s1-6016212/blanche-defends-doj-lawsuit-blocking-alaska-senate-results-if-republican-loses)
+
+[https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html](https://www.cnbc.com/2026/10/24/alaska-senate-doj-certification-lawsuit.html)
+
+[https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race](https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race)
+
+[https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)

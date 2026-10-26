@@ -760,6 +760,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 2026-10-08 Arizona congressional candidate Bernadette Placentia reported a politically motivated rape as the assailant called her a “Democratic bitch” during the assault. 
 
-[https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167](https://www.nbcnews.com/news/us-news/arizona-congressional-candidate-says-was-raped-thinks-may-politically-rcna602167)
 
-[https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210](https://abcnews.com/Politics/arizona-congressional-candidate-felt-hypocrite-reporting-rape/story?id=137107210)
+2026-10-20 A convicted serial rapist was released early. Max Factor heir Andrew Luster was released under California Proposition 57 which allows early parole for non-violent offenders, and because he drugged his victim unconscious the rape was not considered “violent”. 
+
+2026-10-23 Allegations that Jared Kushner was involved in a phone hack scandal. 

@@ -427,3 +427,17 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.ms.now/news/trump-fords-theatre-name-kennedy-center](https://www.ms.now/news/trump-fords-theatre-name-kennedy-center)
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html](https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html)
+
+### 2026 October
+
+
+2026-10-23 Hegseth wanted the historic WWII Eisenhower globe for himself, so he broke it while trying to move it into his office.
+
+[https://www.newsweek.com/history-of-eisenhowers-globe-amid-claims-pete-hegseths-staff-broke-it-12609098](https://www.newsweek.com/history-of-eisenhowers-globe-amid-claims-pete-hegseths-staff-broke-it-12609098)
+
+[https://www.npr.org/2026/10/23/nx-s1-6012395/hegseths-staff-damages-eisenhowers-wwii-globe-during-move](https://www.npr.org/2026/10/23/nx-s1-6012395/hegseths-staff-damages-eisenhowers-wwii-globe-during-move)
+
+[https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/](https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/)
+
+[https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123](https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123)
+
