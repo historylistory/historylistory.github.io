@@ -140,6 +140,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2015-09-06 Stephen Miller allegedly recommended “The Camp of the Saints” to Breitbart News. This book a French novel about white genocide and the great replacement theory.
 
+2015-11-11 Peter Oberacker posted a Facebook post honoring his grandfather for fighting in the Nazi regime. 
+
 ## 2016 
 
 2016-03-18 Black Lives Matter co-founder Alicia Garza stated, “We are expected to participate in democracy while receiving conditional citizenship in return”.
@@ -218,6 +220,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2021-06-01 Texas House Bill 3979 restricts race, slavery and current event curriculum in public schools by removing material pertaining to Native American history, Cesar Chavez, Susan B. Anthony, Frederick Douglas and Martin Luther King Jr.
 
+2021-06-29 Congressman Paul Gosar gave the keynote speech at Nick Fuentes’ AFPAC in 2021. 
+
 2021-07-17 Liberty University’s diversity retention officer sued Liberty for discrimination of his race and sexual orientation.  Liberty University is a far-right evangelical private school that has been involved with Trump and funded “The Trump Prophecy” film. 
 
 2021-07-21 Fox News contributor Leo Terrell attacked Critical Race Theory. Trump later appointed him to be Senior Counsel to the Assistant Attorney General for the Civil Rights Division.
@@ -240,17 +244,23 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2022-03-17 JD Vance claimed immigration was an invasion on Fox, “They can’t win re-election in 2022 unless they bring in a large number of new voters to replace the voters that are already here. That’s what this is about. We have an invasion in this country.”
 
+2022-04-01 A Texas congressional candidate made a video of himself and his friend “goose-stepping” to a Nazi marching song. There is also footage of him sharing his copy of Mein Kampf on podcasts. 
+
 2022-04-05 Vance campaigned as an America First Conservative. He said in his ad, “Are YOU a racist? Do you hate Mexicans? The media calls us racist for wanting to build Trump’s wall. They censor us, but it doesn’t change the truth. Joe Biden’s open border is killing Ohioans, with more illegal drugs, and more Democrat voters pouring into this country. This issue is personal. I nearly lost my mother to the poison coming across our border. No child should grow up an orphan.” [approved by JD Vance. Paid for by JD Vance for Senate Inc.]
 
 2022-05-14 A white supremacist walked into a Buffalo NY supermarket, killed 10 Black people and wounded 3 others. Investigators discovered his motives were tied in with the “Great Replacement Theory” conspiracy.
 
 2022-05-25 During an interview on Tucker Carlson Heather MacDonald claimed the Black Lives Matter had a problematic narrative and we don’t have a police brutality problem in the United States.
 
+2022-10-08 Trump invited Kanye West to dine with him. Kanye West posted “…I’m going death con 3 On JEWISH PEOPLE…”
+
 2022-11-25 Trump dined with Nick Fuentes.
 
 2022-12-08 Charlie Kirk said, “If you’re a WNBA, pot-smoking, Black lesbian, do you get treated better than a United States marine?”
 
 ## 2023 
+
+2023-01-01 Podcaster Stu Peters bragged in antisemitic terms his thoughts about the Jewish community. This podcaster has hosted guests like Kari Lake, Kash Patel 8 times, and several sitting Republicans. 
 
 2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
@@ -456,6 +466,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2025-07-11 Tom Homan claimed DHS didn’t need probable cause to detain someone, just reasonable suspicion.
 
+2025-07-15 A Fox panel and Greg Gutfield tried to compare Nazi criticism to the N-word and suggested on The Five they greet each other with “What up, my Nazi”. 
+
 2025-07-19 America First Legal sued Johns Hopkins, accusing them of leveraging disparities from the US Census to help Black and Hispanic households. 
 
 2025-07-23 Trump forced Muir Woods National Monument to remove displays about Native American history, women, and climate change. 
@@ -465,6 +477,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-07-25 Data centers and resource extraction increasingly threaten Indigenous lands and sovereignty.
 
 ## 2025 August 
+
+2025-08-11 DHS posted a Nazi-themed adage “Which Way, American Man” which is a play off the Nazi loyalist book, “Which Way, American Man?”. 
 
 2025-08-19 Trump posted, “Smithsonian is OUT OF CONTROL, where everything discussed is how horrible our Country is, how bad Slavery was”. Then he instructed his attorneys to “go through the Museums, and start the exact same process that has been done with Colleges and Universities”.
 
@@ -541,6 +555,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2025-11-21 The US Coast Guard was ordered to stop classifying nooses and swastikas as hate symbols in its new harassment manual.
 
 2025-11-26 The Trump Administration ended Temporary Protected Status for more than 350,000 Haitian immigrants
+
+2025-11-26 Senator Tommy Tuberville posted, “We must IMMEDIATELY BAN all ISLAM immigrants…”
 
 2025-11-27 Trump claimed Somali refugees were taking over Minnesota and called Minnesota a money-laundering hub. Minnesota Senator Amy Klobuchar said, “This is what he does, and he tries to stoke division and make people hate each other”.
 
@@ -652,6 +668,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-03-12 Trump accused South Africa of white genocide and invited white South Afrikaners to migrate to the US. By March many of the white South Afrikaners returned to South Africa, citing better cost of living, less racism, and less violence. One South Afrikaner stated, “People are being shot in broad daylight. American citizens are being shot and killed. I don’t want to live in a place like this”.
 
+2026-03-16 In the leaked chat of the Young Republicans racist group chat, the Miami Herald reported commentary like, “Nazi heaven”, “watermelon people”, and “Gooning in Agartha”. This is the group chat Vance excused as something “young kids do” and we shouldn’t “ruin their lives” over it. 
+
 2026-03-20 The Trump administration planned to display a statue of a slave owner for America’s 250th anniversary.
 
 2026-03-25 Joel Webbon claimed during a podcast that gender equality is a “Jewish plot” to “eradicate white people” and then went on to say Marxism was, “baked into the fabric of Judaism, which I believe is the root of communism. It is the root of transgenderism, it is the root of Marxism, it is the root of all bitter, baseless envy that just seeks to destroy the world”. 
@@ -659,6 +677,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 2026-03-27 Jay Mitchell launched a campaign ad for “Zero Tolerance for Radical Islam” writing, “and you can Allah Akhbar your butt all the way back to the Middle East.”
 
 2026-03-27 Pete Hegseth removed two Black and two female officers from a promotion list, and Chief of Staff Ricky Buria allegedly told Army Secretary Daniel Driscoll not to assign Major General Antoinette R. Gant command of the Military District of Washington because President Trump wouldn’t want to stand next to a Black female officer at events.
+
+2026-03-30 Attendees at the MAGA CPAC youth movement reported at least 60% of young people at the rally were Nick Fuentes supporters and fans. 
 
 ## 2026 April 
 
@@ -774,6 +794,8 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-07-15 Conservatives objected to The Odyssey for casting non-white members as major characters. 
 
+2026-07-16 GOP Senate candidate Mike Collins has close family ties to White nationalist influencers. 
+
 2026-07-21 The GOP pressed the Smithsonian history director over what they called “woke ideology” in displays. 
 
 2026-07-21 The EEOC’s Republican majority voted 2-to-1 to rescind data collection requirements on US workers. 
@@ -816,7 +838,9 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-09-13 Trump’s proposed Space Force uniforms were designed after the movie Starship Troopers. The Starship Troopers movie designed those uniforms after Nazi SS troops.
 
-2026-09-14 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
+2026-09-13 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
+
+2026-09-14 Florida GOP candidate Marshall Rawson attended the Unite The Right white supremacist rally. 
 
 2026-09-21 A man in Vermont was convicted of attempted second-degree murder on 3 Palestinian students at University of Vermont campus. In the attempt one victim was left paralyzed from the waist down. Jason Eaton shot at all three men from the porch of his house. 
 

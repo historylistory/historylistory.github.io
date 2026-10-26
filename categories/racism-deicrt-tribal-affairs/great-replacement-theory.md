@@ -237,7 +237,9 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 
 ### 2026 September
 
-2026-09-14 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
+
+
+2026-09-13 A Texas GOP candidate made a racist and viral post pointing out that the majority of UT students celebrating Texas’ big win over Ohio State weren’t white, writing, “how many Americans have been displaced by foreigners”. 
 
 [https://www.youtube.com/watch?v=mlZhdBn9LHk&list=WL&index=1](https://www.youtube.com/watch?v=mlZhdBn9LHk&list=WL&index=1)
 
@@ -247,3 +249,6 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 
 [https://www.fox4news.com/news/statewide-gop-nominee-bo-french-sparks-outrage-after-targeting-ut-football-fans-online](https://www.fox4news.com/news/statewide-gop-nominee-bo-french-sparks-outrage-after-targeting-ut-football-fans-online)
 
+[https://cbsaustin.com/news/local/democrat-jon-rosenthal-outraises-bo-french-in-texas-railroad-commission-race-report](https://cbsaustin.com/news/local/democrat-jon-rosenthal-outraises-bo-french-in-texas-railroad-commission-race-report)
+
+[https://www.borderreport.com/hot-topics/bo-french-doubles-down-after-texas-republicans-condemn-ut-austin-student-posts/](https://www.borderreport.com/hot-topics/bo-french-doubles-down-after-texas-republicans-condemn-ut-austin-student-posts/)

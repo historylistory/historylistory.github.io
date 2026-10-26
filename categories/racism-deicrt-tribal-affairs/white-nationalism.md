@@ -22,6 +22,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27](https://www.pbs.org/newshour/politics/law-july-dec08-obamaplot_10_27)
 
+### 2015 
+
+2015-11-11 Peter Oberacker posted a Facebook post honoring his grandfather for fighting in the Nazi regime. 
+
+[https://variety.com/2026/tv/news/john-oliver-urgent-warning-midterm-elections-republicans-nazi-ties-1236930940/](https://variety.com/2026/tv/news/john-oliver-urgent-warning-midterm-elections-republicans-nazi-ties-1236930940/)
+
+[https://www.ajcongress.org/what-we-do/jewish-voter-guide/peter-oberacker](https://www.ajcongress.org/what-we-do/jewish-voter-guide/peter-oberacker)
+
+[https://www.binghamtonhomepage.com/news/top-stories/oberacker-honored-grandfather-who-fought-for-the-nazis/](https://www.binghamtonhomepage.com/news/top-stories/oberacker-honored-grandfather-who-fought-for-the-nazis/)
+
+
 ### 2016
 
 2016-11-03 David Duke and the KKK expressed their support for Donald Trump.
@@ -67,6 +78,19 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://www.bbc.com/news/blogs-trending-43287546](https://www.bbc.com/news/blogs-trending-43287546)
 
+### 2021
+
+2021-06-29 Congressman Paul Gosar gave the keynote speech at Nick Fuentes’ AFPAC in 2021. 
+
+[https://www.washingtonpost.com/politics/2021/06/29/gop-congressman-appears-ally-with-white-nationalists-again/](https://www.washingtonpost.com/politics/2021/06/29/gop-congressman-appears-ally-with-white-nationalists-again/)
+
+[https://standwithus.com/news/standwithus-calls-on-congressman-to-apologize-for-speaking-at-conference-hosted-by-white-supremacist/](https://standwithus.com/news/standwithus-calls-on-congressman-to-apologize-for-speaking-at-conference-hosted-by-white-supremacist/)
+
+[https://abcnews.com/US/gop-congressman-headlines-conference-organizers-push-white-nationalist/story?id=76152780](https://abcnews.com/US/gop-congressman-headlines-conference-organizers-push-white-nationalist/story?id=76152780)
+
+[https://www.nytimes.com/2021/07/05/us/politics/paul-gosar-republicans-congress-extremism.html](https://www.nytimes.com/2021/07/05/us/politics/paul-gosar-republicans-congress-extremism.html)
+
+
 ### 2022
 
 2022-01-01 Stephen Wolfe (who has ties to Doug Wilson) wrote “The Case of Christian Nationalism”. Readers cited messages that ethnicities should not mix, empathy was a sin, women were a threat to the movement, and violence was justified.  
@@ -85,6 +109,20 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://en.wikipedia.org/wiki/America_First_Political_Action_Conference](https://en.wikipedia.org/wiki/America_First_Political_Action_Conference)
 
+2022-04-01 A Texas congressional candidate made a video of himself and his friend “goose-stepping” to a Nazi marching song. There is also footage of him sharing his copy of Mein Kampf on podcasts. 
+
+[https://jewishinsider.com/2024/04/brandon-herrera-gop-tony-gonzales-social-media-influencer-nazi-jokes/](https://jewishinsider.com/2024/04/brandon-herrera-gop-tony-gonzales-social-media-influencer-nazi-jokes/)
+
+[https://www.yahoo.com/news/articles/texas-congressional-frontrunner-bragged-owning-230705932.html](https://www.yahoo.com/news/articles/texas-congressional-frontrunner-bragged-owning-230705932.html)
+
+[https://x.com/HouseMajPAC/status/2029912382244290803](https://x.com/HouseMajPAC/status/2029912382244290803)
+
+2022-10-08 Trump invited Kanye West to dine with him. Kanye West posted “…I’m going death con 3 On JEWISH PEOPLE…”
+
+[https://jhvonline.com/kanye-wests-vows-to-go-death-con-on-jews-p31131-164.htm](https://jhvonline.com/kanye-wests-vows-to-go-death-con-on-jews-p31131-164.htm)
+
+[https://www.bbc.com/news/entertainment-arts-63198991](https://www.bbc.com/news/entertainment-arts-63198991)
+
 
 2022-11-25 Trump dined with Nick Fuentes.
 
@@ -97,6 +135,17 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.axios.com/2022/11/25/trump-nick-fuentes-ye-kanye](https://www.axios.com/2022/11/25/trump-nick-fuentes-ye-kanye)
 
 ### 2023
+
+2023-01-01 Podcaster Stu Peters bragged in antisemitic terms his thoughts about the Jewish community. This podcaster has hosted guests like Kari Lake, Kash Patel 8 times, and several sitting Republicans. 
+
+TIMESTAMP 21:40 [https://www.youtube.com/watch?v=SnsBI4YxwIs](https://www.youtube.com/watch?v=SnsBI4YxwIs)
+
+[https://www.adl.org/resources/article/stew-peters-five-things-know](https://www.adl.org/resources/article/stew-peters-five-things-know)
+
+[https://www.splcenter.org/resources/hatewatch/stew-peters-radio-things-to-know/](https://www.splcenter.org/resources/hatewatch/stew-peters-radio-things-to-know/)
+
+[https://www.rollingstone.com/politics/politics-features/stew-peters-twitter-safe-space-antisemitism-1234905199/](https://www.rollingstone.com/politics/politics-features/stew-peters-twitter-safe-space-antisemitism-1234905199/)
+
 
 2023-03-03 In the same news story, Ken Peters of Patriot Church in Tennessee admonished planned parenthood and transgender people but praised the Proud Boys.
 
@@ -129,9 +178,31 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 ### 2025 July
 
+2025-07-15 A Fox panel and Greg Gutfield tried to compare Nazi criticism to the N-word and suggested on The Five they greet each other with “What up, my Nazi”. 
+
+[https://www.imdb.com/news/ni65381626/](https://www.imdb.com/news/ni65381626/)
+
+[https://www.rollingstone.com/politics/political-commentary/greg-gutfeld-fox-news-1235386916/](https://www.rollingstone.com/politics/political-commentary/greg-gutfeld-fox-news-1235386916/)
+
+[https://www.yahoo.com/entertainment/articles/greg-gutfeld-reclaims-own-n-003404859.html](https://www.yahoo.com/entertainment/articles/greg-gutfeld-reclaims-own-n-003404859.html)
+
+[https://newsone.com/6315702/what-up-my-nazi-fox-news-appropriatin-black-survival/](https://newsone.com/6315702/what-up-my-nazi-fox-news-appropriatin-black-survival/)
+
+
 2025-07-24 During a Jubilee debate, a Trump supporter said he did not mind being called a Nazi and that he believes in an Autocracy so long as it was being ran by Christians.
 
 [https://www.instagram.com/reel/DMf_OS5SfJF/](https://www.instagram.com/reel/DMf_OS5SfJF/)
+
+### 2025 August
+
+2025-08-11 DHS posted a Nazi-themed adage “Which Way, American Man” which is a play off the Nazi loyalist book, “Which Way, American Man?”. 
+
+[https://www.splcenter.org/resources/hatewatch/dhs-white-nationalist-anti-immigrant-social-media/](https://www.splcenter.org/resources/hatewatch/dhs-white-nationalist-anti-immigrant-social-media/)
+
+[https://www.theatlantic.com/national-security/2026/01/social-media-trump-administration-dhs/685659/](https://www.theatlantic.com/national-security/2026/01/social-media-trump-administration-dhs/685659/)
+
+[https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html](https://www.nytimes.com/2026/01/27/us/politics/white-supremacy-trump-administration-social-media.html)
+
 
 ### 2025 September
 
@@ -233,6 +304,11 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 
 [https://abcnews.go.com/Politics/coast-guard-pushes-back-reports-hate-symbol-policy/story?id=127747063](https://abcnews.go.com/Politics/coast-guard-pushes-back-reports-hate-symbol-policy/story?id=127747063)
 
+2025-11-26 Senator Tommy Tuberville posted, “We must IMMEDIATELY BAN all ISLAM immigrants…”
+
+[https://alabamareflector.com/2025/12/16/tommy-tubervilles-anti-muslim-attacks-land-him-on-civil-rights-groups-extremist-list/](https://alabamareflector.com/2025/12/16/tommy-tubervilles-anti-muslim-attacks-land-him-on-civil-rights-groups-extremist-list/)
+
+
 2025-11-29 Katie Miller defended Nick Fuentes on CNN saying Nick Fuentes was a “Hitler admirer”, not an anti-Semite.
 
 [https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html](https://www.yahoo.com/news/articles/katie-miller-straight-asks-abby-162554472.html)
@@ -292,6 +368,16 @@ permalink: /categories/racism-deicrt-tribal-affairs/white-nationalism/
 [https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9](https://www.youtube.com/watch?v=TOytsY_ZvSo&list=WL&index=9)
 
 [https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves](https://www.peoplefor.org/rightwingwatch/people/rebecca-hargraves)
+
+### 2026 March
+
+2026-03-16 In the leaked chat of the Young Republicans racist group chat, the Miami Herald reported commentary like, “Nazi heaven”, “watermelon people”, and “Gooning in Agartha”. This is the group chat Vance excused as something “young kids do” and we shouldn’t “ruin their lives” over it. 
+
+[https://www.miamiherald.com/news/politics-government/article314928484.html](https://www.miamiherald.com/news/politics-government/article314928484.html)
+
+2026-03-30 Attendees at the MAGA CPAC youth movement reported at least 60% of young people at the rally were Nick Fuentes supporters and fans. 
+
+[https://www.nytimes.com/2026/03/30/style/cpac-scene-maga.html](https://www.nytimes.com/2026/03/30/style/cpac-scene-maga.html)
 
 ### 2026 April
 
@@ -424,6 +510,14 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 
 [https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s](https://www.youtube.com/watch?v=dkeRqTlVPe8&list=WL&index=4&t=11s)
 
+
+2026-07-16 GOP Senate candidate Mike Collins has close family ties to White nationalist influencers. 
+
+[https://www.thedailybeast.com/maga-senate-candidate-mike-collins-white-supremacist-family-busted](https://www.thedailybeast.com/maga-senate-candidate-mike-collins-white-supremacist-family-busted)
+
+PAY WALL [https://www.cnn.com/2026/07/16/politics/kfile-mike-collins-georgia-senate-race-son-in-law-white-nationalist-social-media-content](https://www.cnn.com/2026/07/16/politics/kfile-mike-collins-georgia-senate-race-son-in-law-white-nationalist-social-media-content)
+
+
 2026-07-24 A firearm safety training group for Jewish Americans and their allies, Lox and Loaded, were interviewed about firearm use amidst rising antisemitism. 
 
 [https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496](https://abcnews.com/US/bagels-lox-jews-train-antisemitic-violence-bubby-carries/story?id=135027496)
@@ -498,3 +592,8 @@ MAGA BACKED AFD [https://www.dw.com/en/why-maga-supports-germanys-rise-of-the-fa
 
 PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html](https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-starship-troopers.html)
 
+2026-09-14 Florida GOP candidate Marshall Rawson attended the Unite The Right white supremacist rally. 
+
+[https://www.miamiherald.com/news/politics-government/state-politics/article317278547.html](https://www.miamiherald.com/news/politics-government/state-politics/article317278547.html)
+
+PAY WALL [https://www.washingtonpost.com/nation/2026/09/14/florida-candidate-marshall-rawson-marched-alongside-neo-nazis-charlottesville/](https://www.washingtonpost.com/nation/2026/09/14/florida-candidate-marshall-rawson-marched-alongside-neo-nazis-charlottesville/)

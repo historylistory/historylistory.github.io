@@ -16,6 +16,11 @@ I realize I am missing a lot here. I just created this section April 30, 2026.
 
 [https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/](https://www.texastribune.org/2025/11/18/greg-abbott-muslim-land-ownership-ban/)
 
+2025-11-26 Senator Tommy Tuberville posted, “We must IMMEDIATELY BAN all ISLAM immigrants…”
+
+[https://alabamareflector.com/2025/12/16/tommy-tubervilles-anti-muslim-attacks-land-him-on-civil-rights-groups-extremist-list/](https://alabamareflector.com/2025/12/16/tommy-tubervilles-anti-muslim-attacks-land-him-on-civil-rights-groups-extremist-list/)
+
+
 ### 2026 March
 
 2026-03-12 Congressman Randy Fine posted, “We need more Islamophobia, not less. Fear of Islam is rational”.
