@@ -808,3 +808,13 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
 
 [https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)
+
+2026-10-24 Baltimore hardcore punk band Turnstile held a free benefit concert at the National Mall, raising hundreds of thousands of dollars for the victims in Palestine. 
+
+[https://pitchfork.com/story/turnstile-pack-out-washington-monument-for-palestine-sudan-and-lebanon-benefit-show/](https://pitchfork.com/story/turnstile-pack-out-washington-monument-for-palestine-sudan-and-lebanon-benefit-show/)
+
+[https://parade.com/entertainment/turnstiles-national-mall-show-raises-260k-palestine-sudan-lebanon](https://parade.com/entertainment/turnstiles-national-mall-show-raises-260k-palestine-sudan-lebanon)
+
+[https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review](https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review)
+
+[https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show](https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show)

@@ -584,3 +584,14 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates](https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates)
 
 [https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/](https://www.cbsnews.com/news/supreme-court-trump-gender-affirming-care-transgender-inmates/)
+
+
+2026-10-24 Baltimore hardcore punk band Turnstile held a free benefit concert at the National Mall, raising hundreds of thousands of dollars for the victims in Palestine. 
+
+[https://pitchfork.com/story/turnstile-pack-out-washington-monument-for-palestine-sudan-and-lebanon-benefit-show/](https://pitchfork.com/story/turnstile-pack-out-washington-monument-for-palestine-sudan-and-lebanon-benefit-show/)
+
+[https://parade.com/entertainment/turnstiles-national-mall-show-raises-260k-palestine-sudan-lebanon](https://parade.com/entertainment/turnstiles-national-mall-show-raises-260k-palestine-sudan-lebanon)
+
+[https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review](https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review)
+
+[https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show](https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show)

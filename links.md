@@ -124,6 +124,10 @@ permalink: /links/
 
 ---
 
+[GEN Z: SocialSphere](https://www.socialsphere.com/)
+
+---
+
 [GET INVOLVED: The Lincoln Project](https://lincolnproject.us/)
 
 [GET INVOLVED: 1000 Miles to Memphis march](https://1000milestomemphis.com/)
