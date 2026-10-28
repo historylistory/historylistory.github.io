@@ -284,3 +284,9 @@ TIMESTAMP 7:53 [https://www.youtube.com/watch?v=C2p6lUw7Bx0&list=WL&index=1&t=9s
 [https://www.commondreams.org/news/cia-cuba ](https://www.commondreams.org/news/cia-cuba )
 
 SUB WALL [https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html](https://www.nytimes.com/2026/08/05/us/politics/cia-cuba-task-force.html)
+
+### 2026 October
+
+2026-10-28 US Ambassador Mike Waltz got into a shouting match with Cuba’s foreign minister at the UN. 
+
+[https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3](https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3)

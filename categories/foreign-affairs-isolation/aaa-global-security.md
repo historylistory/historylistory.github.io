@@ -164,3 +164,9 @@ PAY WALL [https://www.nytimes.com/2026/09/04/us/politics/pentagon-staff-polygrap
 [https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328](https://abcnews.com/International/us-removes-bombers-uk-base-after-suspected-plot/story?id=136996328)
 
 PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1](https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

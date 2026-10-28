@@ -1261,3 +1261,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-10-22 France protested soaring cost of living and market pressure. 
 
 2026-10-22 Italian farmers protested over soaring fuel prices. 
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+2026-10-26 Food stamps fell 13%, food banks are seeking help, and 47 million people are living in food insecurity nationwide. 

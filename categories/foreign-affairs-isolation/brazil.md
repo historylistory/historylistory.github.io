@@ -69,3 +69,11 @@ permalink: /categories/foreign-affairs-isolation/brazil/
 [https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
 
 [https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)
+
+2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 
+
+[https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl](https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl)
+
+[https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election](https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election)
+
+[https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b](https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b)

@@ -529,4 +529,6 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-10-23 Major US banks were detecting unauthorized third-party AI agents in customer accounts. 
 
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
 

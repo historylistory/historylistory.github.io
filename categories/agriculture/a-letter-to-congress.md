@@ -220,3 +220,4 @@ Congress must restore agricultural and conservation funding, protect independent
 
 2026-10-13 A new Gallup poll showed Americans no longer trust food safety. 
 
+2026-10-26 Food stamps fell 13%, food banks are seeking help, and 47 million people are living in food insecurity nationwide. 

@@ -599,3 +599,11 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-10-23 Voter machines in several states were caught switching voter choices from Democrat to Republican candidates. 
 
 2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
+
+2026-10-26 Voters in Lewiston Maine reported voter intimidation at the polls. 
+
+2026-10-26 The DOJ tried to interfere in elections by setting aside 20,000 California ballots. 
+
+2026-10-26 Trump offered $1M to anyone who could prove voter fraud.
+
+2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 

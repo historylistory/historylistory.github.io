@@ -289,3 +289,10 @@ SUB WALL [https://www.politico.com/news/2026/08/02/rfk-jr-dana-bash-cnn-covid-01
 [https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/](https://www.cbsnews.com/news/kennedy-center-demolished-trump-photos/)
 
 [https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html](https://slate.com/news-and-politics/2026/09/trump-kennedy-center-closure-demolition.html)
+
+### 2026 October
+
+2026-10-28 US Ambassador Mike Waltz got into a shouting match with Cuba’s foreign minister at the UN. 
+
+[https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3](https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3)
+

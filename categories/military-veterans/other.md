@@ -410,3 +410,9 @@ PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1
 [https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed](https://www.pbs.org/newshour/nation/pentagon-says-firing-squad-execution-of-fort-hood-shooter-will-be-livestreamed)
 
 [https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/](https://www.reuters.com/world/us-livestream-army-execution-fort-hood-shooter-pentagon-official-says-2026-10-08/)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

@@ -414,3 +414,9 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.pbs.org/newshour/politics/trumps-decision-to-waive-russian-sanctions-outrages-congress-but-no-quick-counter-seen](https://www.pbs.org/newshour/politics/trumps-decision-to-waive-russian-sanctions-outrages-congress-but-no-quick-counter-seen)
 
 [https://www.politico.com/news/2026/10/16/trump-issues-order-to-bypass-russian-sanctions-in-bill-named-for-late-lindsey-graham-01125220](https://www.politico.com/news/2026/10/16/trump-issues-order-to-bypass-russian-sanctions-in-bill-named-for-late-lindsey-graham-01125220)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

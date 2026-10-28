@@ -361,3 +361,9 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473](https://abcnews.com/Politics/ukraine-faces-loss-key-us-affiliated-satellite-support/story?id=137260473)
 
 [https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412](https://www.nbcnews.com/world/ukraine/ukraine-starlink-restrictions-military-intel-trump-zelenskyy-russia-rcna603412)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

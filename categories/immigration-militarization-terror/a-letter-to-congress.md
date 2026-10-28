@@ -991,3 +991,5 @@ Next
 2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 
 
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
+
+2026-10-26 Courts ruled against Trump’s “indefinite detention” policy towards immigrants. 

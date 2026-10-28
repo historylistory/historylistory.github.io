@@ -1067,3 +1067,9 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.reuters.com/world/trump-says-zacharia-should-reconsider-white-house-spokeswoman-role-2026-10-16/](https://www.reuters.com/world/trump-says-zacharia-should-reconsider-white-house-spokeswoman-role-2026-10-16/)
 
 [https://www.cnn.com/2026/10/16/politics/katie-zacharia-press-secretary](https://www.cnn.com/2026/10/16/politics/katie-zacharia-press-secretary)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

@@ -123,3 +123,11 @@ PAY WALL [https://www.nytimes.com/2026/05/07/business/shell-profit-oil-iran-war.
 2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
 
 [https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit](https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit)
+
+### 2026 October
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

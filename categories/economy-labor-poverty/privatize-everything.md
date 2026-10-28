@@ -121,3 +121,11 @@ TIMESTAMP 5:32 [https://www.youtube.com/watch?v=lDtPiBp3j3Y&list=WL&index=1&t=32
 [https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary](https://www.pbs.org/newshour/politics/watch-trump-discusses-usps-plans-after-howard-lutnick-sworn-in-as-commerce-secretary)
 
 [https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1](https://apnews.com/article/trump-postal-service-usps-what-to-know-672db6c590837411ca3ba36966e374e1)
+
+### 2026 October
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

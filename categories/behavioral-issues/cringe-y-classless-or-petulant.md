@@ -1041,3 +1041,11 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 [https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/](https://www.washingtonpost.com/national-security/2026/10/22/hegseth-wanted-eisenhowers-globe-his-office-his-staff-broke-it/)
 
 [https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123](https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123)
+
+2026-10-26 Trump repeatedly commented about Senator Jon Husted’s & Nicki Minaj’s ass.
+
+[https://thehill.com/homenews/administration/6177091-donald-trump-jon-husted-ohio-gop-midterms-anatomy/](https://thehill.com/homenews/administration/6177091-donald-trump-jon-husted-ohio-gop-midterms-anatomy/)
+
+[https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish](https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish)
+
+[https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted](https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted)

@@ -582,3 +582,10 @@ PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-chin
 [https://www.snopes.com/fact-check/national-guard-ballot-box-dc/](https://www.snopes.com/fact-check/national-guard-ballot-box-dc/)
 
 [https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/](https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
+

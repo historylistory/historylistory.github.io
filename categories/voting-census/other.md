@@ -338,3 +338,17 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/](https://www.opendemocracy.net/brazil-us-lula-bolsonaro-trump-delcy-venezuela-democracy-interference/)
 
 [https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/](https://time.com/article/2026/10/01/trump-brazil-election-interference-accusations-lula-bolsonaro-tensions/)
+
+2026-10-26 Trump offered $1M to anyone who could prove voter fraud.
+
+[https://abcnews.com/Politics/trump-offers-1m-reward-people-report-voter-fraud/story?id=137581908](https://abcnews.com/Politics/trump-offers-1m-reward-people-report-voter-fraud/story?id=137581908)
+
+[https://www.theguardian.com/us-news/2026/oct/26/trump-reward-reporting-voter-fraud](https://www.theguardian.com/us-news/2026/oct/26/trump-reward-reporting-voter-fraud)
+
+[https://www.bbc.com/news/articles/ckeq3vezxlx1o](https://www.bbc.com/news/articles/ckeq3vezxlx1o)
+
+[https://newscord.org/article/donald-trump-offers-1-million-reward-for-voter-fraud-tips-leading-to-conviction--Story_20261027_TrumpsaysUSvoterfrauee3d8bb7](https://newscord.org/article/donald-trump-offers-1-million-reward-for-voter-fraud-tips-leading-to-conviction--Story_20261027_TrumpsaysUSvoterfrauee3d8bb7)
+
+[https://nypost.com/2026/10/26/us-news/trump-offers-1m-for-voter-fraud-reports-8-days-before-midterms/](https://nypost.com/2026/10/26/us-news/trump-offers-1m-for-voter-fraud-reports-8-days-before-midterms/)
+
+[https://www.nbcbayarea.com/elections/trump-reward-voter-fraud-tips-lead-convictions/4164927/](https://www.nbcbayarea.com/elections/trump-reward-voter-fraud-tips-lead-convictions/4164927/)

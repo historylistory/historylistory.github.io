@@ -191,3 +191,8 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race](https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race)
 
 [https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)
+
+2026-10-26 Voters in Lewiston Maine reported voter intimidation at the polls. 
+
+[https://www.youtube.com/watch?v=DKT96oWBD0w&list=WL&index=4](https://www.youtube.com/watch?v=DKT96oWBD0w&list=WL&index=4)
+

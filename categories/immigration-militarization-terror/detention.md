@@ -589,3 +589,10 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 2026-10-06 Detainees at the Folkston ICE processing center in Georgia managed to get a video released showing harsh conditions. 
 
 [https://www.aol.com/articles/folkston-ice-processing-center-launches-172433000.html](https://www.aol.com/articles/folkston-ice-processing-center-launches-172433000.html)
+
+2026-10-26 Courts ruled against Trump’s “indefinite detention” policy towards immigrants. 
+
+[https://www.tucsonsentinel.com/nationworld/report/102726_mandatory_detention/5th-circuit-rules-trump-mandatory-detention-policy-constitutional/](https://www.tucsonsentinel.com/nationworld/report/102726_mandatory_detention/5th-circuit-rules-trump-mandatory-detention-policy-constitutional/)
+
+[https://www.democracynow.org/2026/10/26/headlines/appeals_court_rules_immigrants_jailed_by_ice_have_no_constitutional_right_to_bond](https://www.democracynow.org/2026/10/26/headlines/appeals_court_rules_immigrants_jailed_by_ice_have_no_constitutional_right_to_bond)
+

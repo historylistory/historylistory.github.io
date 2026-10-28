@@ -319,3 +319,13 @@ Citizens of France
 [https://www.reuters.com/world/americas/run-brazils-presidency-flavio-bolsonaro-tests-staying-power-his-fathers-legacy-2026-09-28/](https://www.reuters.com/world/americas/run-brazils-presidency-flavio-bolsonaro-tests-staying-power-his-fathers-legacy-2026-09-28/)
 
 [https://www.nbcnews.com/world/brazil/bolsonaros-eldest-son-says-ll-run-brazil-presidency-2026-rcna247686](https://www.nbcnews.com/world/brazil/bolsonaros-eldest-son-says-ll-run-brazil-presidency-2026-rcna247686)
+
+### 2026 October
+
+2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 
+
+[https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl](https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl)
+
+[https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election](https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election)
+
+[https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b](https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b)

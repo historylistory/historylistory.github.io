@@ -342,3 +342,11 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.techpowerup.com/351018/nvidia-reportedly-raises-gddr6-and-gddr7-memory-kit-prices-for-rtx-gpus](https://www.techpowerup.com/351018/nvidia-reportedly-raises-gddr6-and-gddr7-memory-kit-prices-for-rtx-gpus)
 
 [https://wccftech.com/nvidia-rtx-5060-spikes-75-overnight-in-china-as-memory-kit-hike-ripples-across-the-entire-gpu-market/](https://wccftech.com/nvidia-rtx-5060-spikes-75-overnight-in-china-as-memory-kit-hike-ripples-across-the-entire-gpu-market/)
+
+### 2026 October
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)

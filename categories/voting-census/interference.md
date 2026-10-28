@@ -584,3 +584,13 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race](https://www.pbs.org/newshour/politics/trump-administration-files-lawsuit-to-block-possible-democratic-win-in-alaska-senate-race)
 
 [https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)
+
+
+2026-10-26 The DOJ tried to interfere in elections by setting aside 20,000 California ballots. 
+
+[https://www.cbsnews.com/news/appeals-court-dismisses-doj-trump-california-ballots/](https://www.cbsnews.com/news/appeals-court-dismisses-doj-trump-california-ballots/)
+
+[https://www.theguardian.com/us-news/2026/oct/26/court-california-ballots](https://www.theguardian.com/us-news/2026/oct/26/court-california-ballots)
+
+[https://www.politico.com/news/2026/10/26/california-election-ballots-justice-department-ruling](https://www.politico.com/news/2026/10/26/california-election-ballots-justice-department-ruling)
+

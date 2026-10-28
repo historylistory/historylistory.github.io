@@ -483,3 +483,25 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html](https://www.yahoo.com/news/politics/articles/democrats-ask-judge-dismiss-trump-034505155.html)
 
+2026-10-26 Trump offered $1M to anyone who could prove voter fraud.
+
+[https://abcnews.com/Politics/trump-offers-1m-reward-people-report-voter-fraud/story?id=137581908](https://abcnews.com/Politics/trump-offers-1m-reward-people-report-voter-fraud/story?id=137581908)
+
+[https://www.theguardian.com/us-news/2026/oct/26/trump-reward-reporting-voter-fraud](https://www.theguardian.com/us-news/2026/oct/26/trump-reward-reporting-voter-fraud)
+
+[https://www.bbc.com/news/articles/ckeq3vezxlx1o](https://www.bbc.com/news/articles/ckeq3vezxlx1o)
+
+[https://newscord.org/article/donald-trump-offers-1-million-reward-for-voter-fraud-tips-leading-to-conviction--Story_20261027_TrumpsaysUSvoterfrauee3d8bb7](https://newscord.org/article/donald-trump-offers-1-million-reward-for-voter-fraud-tips-leading-to-conviction--Story_20261027_TrumpsaysUSvoterfrauee3d8bb7)
+
+[https://nypost.com/2026/10/26/us-news/trump-offers-1m-for-voter-fraud-reports-8-days-before-midterms/](https://nypost.com/2026/10/26/us-news/trump-offers-1m-for-voter-fraud-reports-8-days-before-midterms/)
+
+[https://www.nbcbayarea.com/elections/trump-reward-voter-fraud-tips-lead-convictions/4164927/](https://www.nbcbayarea.com/elections/trump-reward-voter-fraud-tips-lead-convictions/4164927/)
+
+2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 
+
+[https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl](https://edition.cnn.com/2026/10/26/americas/brazil-election-results-takeaways-latam-hk-intl)
+
+[https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election](https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election)
+
+[https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b](https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b)
+

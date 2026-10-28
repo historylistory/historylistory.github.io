@@ -182,3 +182,7 @@ US REJECTS [https://www.foxnews.com/world/united-nations-votes-164-1-equal-earth
 
 [https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
 
+2026-10-28 US Ambassador Mike Waltz got into a shouting match with Cuba’s foreign minister at the UN. 
+
+[https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3](https://www.youtube.com/watch?v=YvJkdu9lAag&list=WL&index=3)
+

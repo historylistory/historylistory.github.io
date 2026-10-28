@@ -456,3 +456,11 @@ SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/]
 [https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize](https://www.theguardian.com/us-news/2026/oct/09/trump-nobel-peace-prize)
 
 [https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner](https://globalnews.ca/video/12098628/ive-never-heard-of-the-person-trump-slams-norway-for-not-picking-him-as-nobel-peace-prize-winner)
+
+2026-10-26 Trump repeatedly commented about Senator Jon Husted’s & Nicki Minaj’s ass.
+
+[https://thehill.com/homenews/administration/6177091-donald-trump-jon-husted-ohio-gop-midterms-anatomy/](https://thehill.com/homenews/administration/6177091-donald-trump-jon-husted-ohio-gop-midterms-anatomy/)
+
+[https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish](https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish)
+
+[https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted](https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted)

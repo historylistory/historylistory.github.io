@@ -250,3 +250,11 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/](https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/)
 
 [https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/](https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/)
+
+### 2026 October
+
+2026-10-26 Food stamps fell 13%, food banks are seeking help, and 47 million people are living in food insecurity nationwide. 
+
+[https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms](https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms)
+
+[https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill](https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill)

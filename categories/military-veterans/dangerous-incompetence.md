@@ -172,3 +172,9 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 [https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html](https://www.the-independent.com/news/world/americas/iran-war-kuwait-us-soldiers-military-medical-attention-hegseth-b3061577.html)
 
 [https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071](https://apnews.com/video/soldier-injured-during-iranian-attack-says-colleagues-had-to-google-where-to-find-the-nearest-hospital-b78c08ea109445f79060a21d4fb25071)
+
+2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+[https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
+
+[https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
