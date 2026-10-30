@@ -329,3 +329,11 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 [https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage](https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage)
 
 FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113](https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113)
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.
+
+[https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/](https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/)
+
+[https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter](https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter)
+
+[https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659](https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659)

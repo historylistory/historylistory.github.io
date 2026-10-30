@@ -544,3 +544,7 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-10-05 Companies sued ExxonMobil and Suncor Energy for their roles in climate change. 
 
 2026-10-24 Google illegally fell 250,000 trees in Finland to make way for data centers. Google did not complete environmental impact assessments prior to clearcutting 330 hectares of land. One of the environmental impacts is the acidification of drinking water and runoff of “brown water” into local water sources. 
+
+2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
+
+2026-10-28 The Trump administration rolled back methane emission standards. 

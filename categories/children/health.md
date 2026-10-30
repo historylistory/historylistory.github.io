@@ -185,3 +185,11 @@ budget untouched through the end of 2026.
 [https://www.yahoo.com/news/us/articles/children-mercy-no-longer-part-035101361.html](https://www.yahoo.com/news/us/articles/children-mercy-no-longer-part-035101361.html)
 
 [https://thebeaconnews.org/stories/2026/10/28/childrens-mercy-aca-spat-shows-how-patients-get-caught-in-crossfire/](https://thebeaconnews.org/stories/2026/10/28/childrens-mercy-aca-spat-shows-how-patients-get-caught-in-crossfire/)
+
+2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
+
+[https://www.youtube.com/watch?v=-pjm8epal6o&list=WL&index=1](https://www.youtube.com/watch?v=-pjm8epal6o&list=WL&index=1)
+
+[https://wset.com/news/abc13-investigates/data-center-boom-what-virginia-communities-should-ask-before-saying-yes-october-2026](https://wset.com/news/abc13-investigates/data-center-boom-what-virginia-communities-should-ask-before-saying-yes-october-2026)
+
+[https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/](https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/)

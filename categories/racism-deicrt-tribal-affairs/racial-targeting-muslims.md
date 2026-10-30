@@ -39,3 +39,32 @@ permalink: /categories/racism-deicrt-tribal-affairs/racial-targeting-muslims/
 
 [https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s](https://www.youtube.com/watch?v=s7M8XmaegRA&list=WL&index=5&t=15s)
 
+### 2026 October
+
+2026-10-19 A video of El-Sayed went viral when he shut down a Christian Nationalist heckler. The heckler, among other things, tried to imply El Sayed was part of the Muslim brotherhood and suggested Abdul El Sayed would not hold up American values. El Sayed last stated, “It seems like you don’t want to protect my right to practice as I choose to. So I’m going to ask you, do you disavow any attempt to read any religious doctrine into the laws of our country” to which the heckler replied “I do not” meaning the heckler completely misinterpreted freedom of religion and intended to impose his personal views on everybody else. 
+
+[https://www.youtube.com/watch?v=Z_N5nq50GpY](https://www.youtube.com/watch?v=Z_N5nq50GpY)
+
+[https://www.youtube.com/live/Z_N5nq50GpY?pp=ugUEEgJlbg%3D%3D](https://www.youtube.com/live/Z_N5nq50GpY?pp=ugUEEgJlbg%3D%3D)
+
+[https://www.cnn.com/2026/10/18/politics/video/abdul-el-sayed-challenges-assumptions-behind-muslim-brotherhood-question-vrtc](https://www.cnn.com/2026/10/18/politics/video/abdul-el-sayed-challenges-assumptions-behind-muslim-brotherhood-question-vrtc)
+
+[https://slate.com/news-and-politics/2026/10/abdul-el-sayed-muslim-brotherhood-tommy-heckler.html](https://slate.com/news-and-politics/2026/10/abdul-el-sayed-muslim-brotherhood-tommy-heckler.html)
+
+[https://www.ms.now/opinion/abdul-el-sayed-tommy-muslim-brotherhood-response](https://www.ms.now/opinion/abdul-el-sayed-tommy-muslim-brotherhood-response)
+
+[https://www.thehandbasket.co/p/tommy-teepell-abdul-el-sayed-viral-video-town-hall-josh-hawley](https://www.thehandbasket.co/p/tommy-teepell-abdul-el-sayed-viral-video-town-hall-josh-hawley)
+
+[https://newrepublic.com/post/216777/maga-operative-abdul-el-sayed-viral-campaign-moment-muslim-brotherhood-religion](https://newrepublic.com/post/216777/maga-operative-abdul-el-sayed-viral-campaign-moment-muslim-brotherhood-religion)
+
+[https://www.newsweek.com/tommy-abdul-el-sayed-muslim-brotherhood-michigan-12588556](https://www.newsweek.com/tommy-abdul-el-sayed-muslim-brotherhood-michigan-12588556)
+
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 
+
+[https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos](https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos)
+
+[https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142](https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142)
+
+[https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
+
+[https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)

@@ -607,3 +607,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-10-26 Trump offered $1M to anyone who could prove voter fraud.
 
 2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 
+
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 

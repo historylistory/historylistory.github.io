@@ -192,3 +192,14 @@ JULY 2026 [https://www.rutgers.edu/news/researchers-find-small-increased-risk-su
 [https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1](https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1)
 
 [https://en.wikipedia.org/wiki/Filial_responsibility_laws](https://en.wikipedia.org/wiki/Filial_responsibility_laws)
+
+2026-10-28 The Trump administration rolled back methane emission standards. 
+
+[https://www.nbcnews.com/science/climate-change/trump-methane-rules-leaks-emissions-oil-gas-rcna605983](https://www.nbcnews.com/science/climate-change/trump-methane-rules-leaks-emissions-oil-gas-rcna605983)
+
+[https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html](https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html)
+
+[https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane](https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane)
+
+[https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html](https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html)
+

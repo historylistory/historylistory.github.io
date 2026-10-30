@@ -557,5 +557,13 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 [https://www.aa.com.tr/en/americas/us-congressman-massie-demands-prosecution-of-alleged-epstein-co-conspirators/4043548](https://www.aa.com.tr/en/americas/us-congressman-massie-demands-prosecution-of-alleged-epstein-co-conspirators/4043548)
 
 
+### 2026 October
 
+2026-10-26 Judiciary Democrats accused Todd Blanche of witness tampering when he attempted to coach and talk over Ghislaine Maxwell during a testimony. 
+
+[https://newrepublic.com/post/217232/todd-blanche-coached-ghislaine-maxwell-epstein-interview](https://newrepublic.com/post/217232/todd-blanche-coached-ghislaine-maxwell-epstein-interview)
+
+[https://www.huffpost.com/entry/witness-tampering-democrats-accuse-todd-blanche-of-guiding-ghislaine-maxwell-in-interview_n_6ae23467e4b09cd24b6b0b1a](https://www.huffpost.com/entry/witness-tampering-democrats-accuse-todd-blanche-of-guiding-ghislaine-maxwell-in-interview_n_6ae23467e4b09cd24b6b0b1a)
+
+[https://www.commondreams.org/news/epstein-trump-connection-report](https://www.commondreams.org/news/epstein-trump-connection-report)
 

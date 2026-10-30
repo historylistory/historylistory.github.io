@@ -58,3 +58,11 @@ permalink: /categories/agriculture/other/
 [https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/](https://www.fooddive.com/news/food-safety-consumer-confidence-gallup/832856/)
 
 [https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/](https://truthout.org/articles/americans-confidence-in-food-safety-plummets-amid-summer-of-recalls/)
+
+2026-10-28 The Iowa Farmers Union (IFU) announced they would be endorsing all Democrat candidates. 
+
+[https://www.youtube.com/watch?v=8mYCTR4anuw](https://www.youtube.com/watch?v=8mYCTR4anuw)
+
+[https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/](https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/)
+
+[https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/](https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/)

@@ -426,3 +426,5 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 2026-10-04 The UK Green Party declared Zionism as racism, an “ethno-nationalist political project”, and called on the labor government to end all arms trade with Israel. 
 
 2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
+
+2026-10-19 A video of El-Sayed went viral when he shut down a Christian Nationalist heckler. The heckler, among other things, tried to imply El Sayed was part of the Muslim brotherhood and suggested Abdul El Sayed would not hold up American values. El Sayed last stated, “It seems like you don’t want to protect my right to practice as I choose to. So I’m going to ask you, do you disavow any attempt to read any religious doctrine into the laws of our country” to which the heckler replied “I do not” meaning the heckler completely misinterpreted freedom of religion and intended to impose his personal views on everybody else. 

@@ -199,3 +199,11 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 [https://newrepublic.com/post/217052/jared-kushner-threatens-sue-phone-hack-report](https://newrepublic.com/post/217052/jared-kushner-threatens-sue-phone-hack-report)
 
 [https://www.yahoo.com/news/politics/articles/report-alleges-russian-hack-exposed-231508591.html](https://www.yahoo.com/news/politics/articles/report-alleges-russian-hack-exposed-231508591.html)
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.
+
+[https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/](https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/)
+
+[https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter](https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter)
+
+[https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659](https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659)

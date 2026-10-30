@@ -538,3 +538,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
 
 2026-10-26 Lula beat Bolsonaro in Brazilian elections. Trump-backed Bolsonaro threatened to annul the results. Trump also claimed the elections were rigged. 
+
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.

@@ -77,3 +77,22 @@ permalink: /categories/climate-change/ai-impacts/
 [https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J](https://newjersey.news12.com/2026/09/14/data-center-fuel-leak-sends-diesel-into-creek-connected-to-hackensack-river/3tCYGTdEFvwp5qujnGKO4J)
 
 [https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/](https://fortune.com/2026/09/17/new-jersey-equinix-data-center-diesel-fuel-spill-oil-gas-sector/)
+
+
+### 2026 October 
+
+2026-10-24 Google illegally fell 250,000 trees in Finland to make way for data centers. Google did not complete environmental impact assessments prior to clearcutting 330 hectares of land. One of the environmental impacts is the acidification of drinking water and runoff of “brown water” into local water sources. 
+
+[https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2](https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2)
+
+[https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre](https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre)
+
+[https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/](https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/)
+
+2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
+
+[https://www.youtube.com/watch?v=-pjm8epal6o&list=WL&index=1](https://www.youtube.com/watch?v=-pjm8epal6o&list=WL&index=1)
+
+[https://wset.com/news/abc13-investigates/data-center-boom-what-virginia-communities-should-ask-before-saying-yes-october-2026](https://wset.com/news/abc13-investigates/data-center-boom-what-virginia-communities-should-ask-before-saying-yes-october-2026)
+
+[https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/](https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/)

@@ -764,3 +764,7 @@ These issues strike at the heart of government accountability, the rule of law, 
 2026-10-20 A convicted serial rapist was released early. Max Factor heir Andrew Luster was released under California Proposition 57 which allows early parole for non-violent offenders, and because he drugged his victim unconscious the rape was not considered “violent”. 
 
 2026-10-23 Allegations that Jared Kushner was involved in a phone hack scandal. 
+
+2026-10-26 Judiciary Democrats accused Todd Blanche of witness tampering when he attempted to coach and talk over Ghislaine Maxwell during a testimony. 
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.

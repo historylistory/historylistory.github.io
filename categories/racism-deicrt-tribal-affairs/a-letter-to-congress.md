@@ -858,5 +858,9 @@ How can you support a political movement that repeatedly enables and elevates wh
 
 2026-10-19 A Mississippi AG ruled that the Senatobia officer who fatally shot 1-year-old baby boy Kohen Wiley was justified. This shooting was over a suspected shoplifting for which the department had no evidence. The family representative Ben Crump stated, “This is a department whose chief was fired after reports of racial slurs in his text messages, and whose officer faced a complaint alleging a racially offensive remark two days before he shot Kohen”. 
 
+2026-10-19 A video of El-Sayed went viral when he shut down a Christian Nationalist heckler. The heckler, among other things, tried to imply El Sayed was part of the Muslim brotherhood and suggested Abdul El Sayed would not hold up American values. El Sayed last stated, “It seems like you don’t want to protect my right to practice as I choose to. So I’m going to ask you, do you disavow any attempt to read any religious doctrine into the laws of our country” to which the heckler replied “I do not” meaning the heckler completely misinterpreted freedom of religion and intended to impose his personal views on everybody else. 
+
 
 2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
+
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 

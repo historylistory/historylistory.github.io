@@ -565,3 +565,14 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 [https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre](https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre)
 
 [https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/](https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/)
+
+2026-10-28 The Trump administration rolled back methane emission standards. 
+
+[https://www.nbcnews.com/science/climate-change/trump-methane-rules-leaks-emissions-oil-gas-rcna605983](https://www.nbcnews.com/science/climate-change/trump-methane-rules-leaks-emissions-oil-gas-rcna605983)
+
+[https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html](https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html)
+
+[https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane](https://www.npr.org/2026/10/28/nx-s1-5995910/trump-wants-remove-regulations-planet-heating-methane)
+
+[https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html](https://www.cnbc.com/2026/10/29/trump-methane-rollback-oil-prices-epa.html)
+

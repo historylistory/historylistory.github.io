@@ -505,3 +505,12 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 
 [https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b](https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b)
 
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 
+
+[https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos](https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos)
+
+[https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142](https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142)
+
+[https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
+
+[https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)

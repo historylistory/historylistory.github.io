@@ -744,3 +744,14 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 [https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension](https://www.bloomberg.com/news/articles/2026-10-18/meta-says-claude-ai-tool-triggered-no-kings-instagram-suspension)
 
 [https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/](https://www.reuters.com/technology/meta-apologizes-after-suspending-no-kings-instagram-account-2026-10-19/)
+
+2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 
+
+[https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos](https://www.mprnews.org/story/2026/10/28/james-okeefe-and-cam-higby-charged-with-unlawful-voting-for-youtube-videos)
+
+[https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142](https://www.nbcnews.com/politics/2026-election/james-okeefe-minnesota-unlawful-voting-identity-theft-charges-rcna606142)
+
+[https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
+
+[https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)
+

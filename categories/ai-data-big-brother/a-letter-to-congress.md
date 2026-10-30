@@ -533,4 +533,5 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
 
+2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
 

@@ -77,3 +77,13 @@ permalink: /categories/foreign-affairs-isolation/brazil/
 [https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election](https://www.aljazeera.com/news/2026/10/26/how-did-lula-beat-bolsonaro-after-losing-brazils-first-round-election)
 
 [https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b](https://apnews.com/article/brazil-election-lula-bolsonaro-annul-contested-voting-0ef0b7b949fea74ff119c3f81453416b)
+
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.
+
+[https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/](https://www.nbcmiami.com/news/local/flavio-bolsonaro-flees-brazil-through-argentina-and-is-expected-to-land-in-miami/3878904/)
+
+[https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter](https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter)
+
+[https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659](https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659)
+

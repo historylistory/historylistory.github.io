@@ -429,3 +429,5 @@ budget untouched through the end of 2026.
 2026-10-20 In January of 2026 RFK issued investments into a “clinical trial” to test Hepatitis B vaccines specifically on African infants. Police seized dozens of the vaccine on October 20th. 
 
 2026-10-22 Starting in 2027, the Trump administration healthcare cuts will cause pediatric cancer care services to be left out of network for all ACA insurance plans, disrupting care for pediatric cancer patients. 
+
+2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 

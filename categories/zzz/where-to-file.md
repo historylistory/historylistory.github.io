@@ -112,3 +112,13 @@ From August [https://thehill.com/homenews/campaign/6058289-rnc-midterm-conventio
 [https://abcnews.com/US/execution-lone-woman-tennessees-death-row-paused-federal/story?id=136893331](https://abcnews.com/US/execution-lone-woman-tennessees-death-row-paused-federal/story?id=136893331)
 
 PAY WALL [https://www.bbc.com/news/articles/cq8r6rjdvlx6o](https://www.bbc.com/news/articles/cq8r6rjdvlx6o)
+
+### 2026 October
+
+2026-10-28 The Iowa Farmers Union (IFU) announced they would be endorsing all Democrat candidates. 
+
+[https://www.youtube.com/watch?v=8mYCTR4anuw](https://www.youtube.com/watch?v=8mYCTR4anuw)
+
+[https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/](https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/)
+
+[https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/](https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/)

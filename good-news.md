@@ -579,6 +579,25 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 
 [https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low](https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low)
 
+2026-10-19 A video of El-Sayed went viral when he shut down a Christian Nationalist heckler. The heckler, among other things, tried to imply El Sayed was part of the Muslim brotherhood and suggested Abdul El Sayed would not hold up American values. El Sayed last stated, “It seems like you don’t want to protect my right to practice as I choose to. So I’m going to ask you, do you disavow any attempt to read any religious doctrine into the laws of our country” to which the heckler replied “I do not” meaning the heckler completely misinterpreted freedom of religion and intended to impose his personal views on everybody else. 
+
+[https://www.youtube.com/watch?v=Z_N5nq50GpY](https://www.youtube.com/watch?v=Z_N5nq50GpY)
+
+[https://www.youtube.com/live/Z_N5nq50GpY?pp=ugUEEgJlbg%3D%3D](https://www.youtube.com/live/Z_N5nq50GpY?pp=ugUEEgJlbg%3D%3D)
+
+[https://www.cnn.com/2026/10/18/politics/video/abdul-el-sayed-challenges-assumptions-behind-muslim-brotherhood-question-vrtc](https://www.cnn.com/2026/10/18/politics/video/abdul-el-sayed-challenges-assumptions-behind-muslim-brotherhood-question-vrtc)
+
+[https://slate.com/news-and-politics/2026/10/abdul-el-sayed-muslim-brotherhood-tommy-heckler.html](https://slate.com/news-and-politics/2026/10/abdul-el-sayed-muslim-brotherhood-tommy-heckler.html)
+
+[https://www.ms.now/opinion/abdul-el-sayed-tommy-muslim-brotherhood-response](https://www.ms.now/opinion/abdul-el-sayed-tommy-muslim-brotherhood-response)
+
+[https://www.thehandbasket.co/p/tommy-teepell-abdul-el-sayed-viral-video-town-hall-josh-hawley](https://www.thehandbasket.co/p/tommy-teepell-abdul-el-sayed-viral-video-town-hall-josh-hawley)
+
+[https://newrepublic.com/post/216777/maga-operative-abdul-el-sayed-viral-campaign-moment-muslim-brotherhood-religion](https://newrepublic.com/post/216777/maga-operative-abdul-el-sayed-viral-campaign-moment-muslim-brotherhood-religion)
+
+[https://www.newsweek.com/tommy-abdul-el-sayed-muslim-brotherhood-michigan-12588556](https://www.newsweek.com/tommy-abdul-el-sayed-muslim-brotherhood-michigan-12588556)
+
+
 2026-10-21 SCOTUS blocked Trump’s attempt to end transgender care for inmates. 
 
 [https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates](https://www.pbs.org/newshour/politics/supreme-court-rebuffs-trump-administration-restrictions-on-medical-care-for-transgender-inmates)
@@ -595,3 +614,12 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review](https://stereogum.com/2515552/turnstiles-washington-monument-show-was-a-sight-to-behold/reviews/concert-review)
 
 [https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show](https://www.pastemagazine.com/music/turnstile/turnstile-raises-over-200k-for-palestine-sudan-and-lebanon-with-washington-monument-show)
+
+2026-10-28 The Iowa Farmers Union (IFU) announced they would be endorsing all Democrat candidates. 
+
+[https://www.youtube.com/watch?v=8mYCTR4anuw](https://www.youtube.com/watch?v=8mYCTR4anuw)
+
+[https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/](https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/)
+
+[https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/](https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/)
+

@@ -744,3 +744,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-10-21 During a rally Trump pledged to get benefits for Veterans who are victim of Camp Lejeune toxic water ONLY if he wins the midterms. 
 
 2026-10-22 Starting in 2027, the Trump administration healthcare cuts will cause pediatric cancer care services to be left out of network for all ACA insurance plans, disrupting care for pediatric cancer patients. 
+
+2026-10-28 The Trump administration rolled back methane emission standards. 

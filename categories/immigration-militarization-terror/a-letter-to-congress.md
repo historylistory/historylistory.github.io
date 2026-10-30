@@ -995,3 +995,5 @@ Next
 2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 
 
 2026-10-26 Courts ruled against Trump’s “indefinite detention” policy towards immigrants. 
+
+2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.

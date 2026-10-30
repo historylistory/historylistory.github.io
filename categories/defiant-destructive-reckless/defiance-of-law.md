@@ -700,3 +700,12 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 [https://www.snopes.com/fact-check/national-guard-ballot-box-dc/](https://www.snopes.com/fact-check/national-guard-ballot-box-dc/)
 
 [https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/](https://www.nbcwashington.com/news/local/national-guard-ballot-drop-box-concern-dc/4165777/)
+
+2026-10-26 Judiciary Democrats accused Todd Blanche of witness tampering when he attempted to coach and talk over Ghislaine Maxwell during a testimony. 
+
+[https://newrepublic.com/post/217232/todd-blanche-coached-ghislaine-maxwell-epstein-interview](https://newrepublic.com/post/217232/todd-blanche-coached-ghislaine-maxwell-epstein-interview)
+
+[https://www.huffpost.com/entry/witness-tampering-democrats-accuse-todd-blanche-of-guiding-ghislaine-maxwell-in-interview_n_6ae23467e4b09cd24b6b0b1a](https://www.huffpost.com/entry/witness-tampering-democrats-accuse-todd-blanche-of-guiding-ghislaine-maxwell-in-interview_n_6ae23467e4b09cd24b6b0b1a)
+
+[https://www.commondreams.org/news/epstein-trump-connection-report](https://www.commondreams.org/news/epstein-trump-connection-report)
+

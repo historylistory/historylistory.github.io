@@ -625,3 +625,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-10-23 Hegseth wanted the historic WWII Eisenhower globe for himself, so he broke it while trying to move it into his office.
 
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
+
+2026-10-26 Judiciary Democrats accused Todd Blanche of witness tampering when he attempted to coach and talk over Ghislaine Maxwell during a testimony. 
