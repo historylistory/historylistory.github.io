@@ -6,6 +6,25 @@ subcategory_slug: witch-hunts
 permalink: /categories/bully-threaten-sue-fire/witch-hunts/
 ---
 
+### 2009
+
+2009-09-18 Project Veritas founder James O’Keefe secretly videoed ACORN workers in a scandal to make them look fraudulent. 
+
+[https://www.mississippifreepress.org/filmmaker-behind-acorn-scandal-arrested/](https://www.mississippifreepress.org/filmmaker-behind-acorn-scandal-arrested/)
+
+[https://www.nbcnews.com/id/wbna32909302](https://www.nbcnews.com/id/wbna32909302)
+
+[https://oag.ca.gov/news/press-releases/brown-releases-report-detailing-litany-problems-acorn-no-criminality](https://oag.ca.gov/news/press-releases/brown-releases-report-detailing-litany-problems-acorn-no-criminality)
+
+[https://www.politico.com/story/2010/01/anti-acorn-filmmaker-arrested-032035](https://www.politico.com/story/2010/01/anti-acorn-filmmaker-arrested-032035)
+
+[https://www.latimes.com/local/la-xpm-2013-mar-07-la-me-0308-acorn-20130308-story.html](https://www.latimes.com/local/la-xpm-2013-mar-07-la-me-0308-acorn-20130308-story.html)
+
+[https://www.npr.org/2009/09/16/112904370/acorn-grapples-with-fallout-of-damaging-videos](https://www.npr.org/2009/09/16/112904370/acorn-grapples-with-fallout-of-damaging-videos)
+
+THE VIDEO: [https://www.youtube.com/watch?v=N9MCk6GvQO4](https://www.youtube.com/watch?v=N9MCk6GvQO4)
+
+
 
 ### 2017
 
@@ -308,5 +327,14 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion](https://www.theguardian.com/commentisfree/2026/oct/14/ilhan-omar-raid-dangerous-opinion)
 
 [https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950](https://www.nbcnews.com/politics/trump-administration/rep-ilhan-omar-home-searched-federal-agents-criminal-probe-dhs-rcna602950)
+
+
+2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 
+
+[https://www.yahoo.com/news/politics/articles/rep-ilhan-omar-addresses-marriage-022153979.html](https://www.yahoo.com/news/politics/articles/rep-ilhan-omar-addresses-marriage-022153979.html)
+
+[https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage](https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage)
+
+FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113](https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113)
 
 

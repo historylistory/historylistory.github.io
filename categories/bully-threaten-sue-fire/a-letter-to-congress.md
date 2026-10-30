@@ -47,6 +47,10 @@ The examples below further illustrate these concerns. SOME OF THE CONTENT LISTED
 
 2000-01-01 Trump frequently used derogatory nicknames and insults against political opponents. 
 
+## 2009
+
+2009-09-18 Project Veritas founder James O’Keefe secretly videoed ACORN workers in a scandal to make them look fraudulent. 
+
 ## 2012
 
 2012-01-01 The Trump Organization sued the Scottish government over approval of the European Offshore Wind Deployment Centre, calling it a "monstrous" coastal blight. Trump lost in 2015 and was ordered to pay legal costs
@@ -758,6 +762,8 @@ Manhattan grand jury in the hush-money case.
 2026-10-12 During a Trump rally in Youngstown Ohio several male MAGA supporters assaulted and beat a woman in the crowd for wearing a “Release the Epstein Files” shirt. The attackers punched her in the face and dragged by her hair while the crowd cheered Trump then heckled the woman, calling her a man, a paid protestor, and repeatedly degrading her for her weight. 
 
 2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
+
+2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 
 
 2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
 

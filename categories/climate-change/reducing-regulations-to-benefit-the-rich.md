@@ -558,3 +558,10 @@ From February [https://www.cbsnews.com/news/trump-epa-start-stop-feature-cars-im
 
 [https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/](https://www.reuters.com/sustainability/cop/us-supreme-court-weighs-bid-by-oil-companies-avoid-climate-lawsuit-2026-10-05/)
 
+2026-10-24 Google illegally fell 250,000 trees in Finland to make way for data centers. Google did not complete environmental impact assessments prior to clearcutting 330 hectares of land. One of the environmental impacts is the acidification of drinking water and runoff of “brown water” into local water sources. 
+
+[https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2](https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2)
+
+[https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre](https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre)
+
+[https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/](https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/)

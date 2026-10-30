@@ -529,6 +529,8 @@ Technology should serve the public—not become a tool for political retaliation
 
 2026-10-23 Major US banks were detecting unauthorized third-party AI agents in customer accounts. 
 
+2026-10-24 Google illegally fell 250,000 trees in Finland to make way for data centers. Google did not complete environmental impact assessments prior to clearcutting 330 hectares of land. One of the environmental impacts is the acidification of drinking water and runoff of “brown water” into local water sources. 
+
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
 
 

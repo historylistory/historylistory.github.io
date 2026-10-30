@@ -320,3 +320,12 @@ CNN but PAY WALL [https://www.cnn.com/2026/08/09/us/haitians-tps-fear-arrests](h
 
 [https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee](https://apnews.com/article/palestinians-gaza-war-trump-un-visas-2ab54a7b420dd7fc5aea068d883b5cee)
 
+### 2026 October
+
+2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 
+
+[https://www.yahoo.com/news/politics/articles/rep-ilhan-omar-addresses-marriage-022153979.html](https://www.yahoo.com/news/politics/articles/rep-ilhan-omar-addresses-marriage-022153979.html)
+
+[https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage](https://www.foxnews.com/politics/obama-admin-first-launched-investigation-ilhan-omars-alleged-brother-marriage)
+
+FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113](https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113)

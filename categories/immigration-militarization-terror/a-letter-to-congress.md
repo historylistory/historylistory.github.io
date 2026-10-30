@@ -992,4 +992,6 @@ Next
 
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
 
+2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 
+
 2026-10-26 Courts ruled against Trump’s “indefinite detention” policy towards immigrants. 

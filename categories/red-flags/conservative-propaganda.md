@@ -51,6 +51,25 @@ permalink: /categories/red-flags/conservative-propaganda/
 
 [https://www.nber.org/papers/w12169](https://www.nber.org/papers/w12169)
 
+### 2009
+
+2009-09-18 Project Veritas founder James O’Keefe secretly videoed ACORN workers in a scandal to make them look fraudulent. 
+
+[https://www.mississippifreepress.org/filmmaker-behind-acorn-scandal-arrested/](https://www.mississippifreepress.org/filmmaker-behind-acorn-scandal-arrested/)
+
+[https://www.nbcnews.com/id/wbna32909302](https://www.nbcnews.com/id/wbna32909302)
+
+[https://oag.ca.gov/news/press-releases/brown-releases-report-detailing-litany-problems-acorn-no-criminality](https://oag.ca.gov/news/press-releases/brown-releases-report-detailing-litany-problems-acorn-no-criminality)
+
+[https://www.politico.com/story/2010/01/anti-acorn-filmmaker-arrested-032035](https://www.politico.com/story/2010/01/anti-acorn-filmmaker-arrested-032035)
+
+[https://www.latimes.com/local/la-xpm-2013-mar-07-la-me-0308-acorn-20130308-story.html](https://www.latimes.com/local/la-xpm-2013-mar-07-la-me-0308-acorn-20130308-story.html)
+
+[https://www.npr.org/2009/09/16/112904370/acorn-grapples-with-fallout-of-damaging-videos](https://www.npr.org/2009/09/16/112904370/acorn-grapples-with-fallout-of-damaging-videos)
+
+THE VIDEO: [https://www.youtube.com/watch?v=N9MCk6GvQO4](https://www.youtube.com/watch?v=N9MCk6GvQO4)
+
+
 ### 2010
 
 2010-06-01 James O’Keefe founded far-right group Project Veritas, which is notorious for fabricating “gotcha” material against political opposition.

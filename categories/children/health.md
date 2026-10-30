@@ -177,3 +177,11 @@ budget untouched through the end of 2026.
 [https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/](https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/)
 
 [https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers](https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers)
+
+2026-10-22 Starting in 2027, the Trump administration healthcare cuts will cause pediatric cancer care services to be left out of network for all ACA insurance plans, disrupting care for pediatric cancer patients. 
+
+[https://www.kmbc.com/article/childrens-mercy-insurance-aca-marketplace-kansas-city-families-2027/74209566](https://www.kmbc.com/article/childrens-mercy-insurance-aca-marketplace-kansas-city-families-2027/74209566)
+
+[https://www.yahoo.com/news/us/articles/children-mercy-no-longer-part-035101361.html](https://www.yahoo.com/news/us/articles/children-mercy-no-longer-part-035101361.html)
+
+[https://thebeaconnews.org/stories/2026/10/28/childrens-mercy-aca-spat-shows-how-patients-get-caught-in-crossfire/](https://thebeaconnews.org/stories/2026/10/28/childrens-mercy-aca-spat-shows-how-patients-get-caught-in-crossfire/)

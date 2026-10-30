@@ -187,3 +187,14 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai](https://www.npr.org/2026/09/29/nx-s1-5984657/trump-hosts-tech-executives-as-administration-doubles-down-on-ai)
 
 PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992](https://www.politico.com/news/2026/09/29/trump-signs-executive-order-to-launch-ai-powered-america-gov-01096992)
+
+
+### 2026 October
+
+2026-10-24 Google illegally fell 250,000 trees in Finland to make way for data centers. Google did not complete environmental impact assessments prior to clearcutting 330 hectares of land. One of the environmental impacts is the acidification of drinking water and runoff of “brown water” into local water sources. 
+
+[https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2](https://www.youtube.com/watch?v=aLM5Mli3aF8&list=WL&index=2)
+
+[https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre](https://www.theguardian.com/environment/ng-interactive/2026/oct/22/finland-google-felling-trees-datacentre)
+
+[https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/](https://fortune.com/2026/10/23/google-finland-data-center-250-000-trees-environment/)

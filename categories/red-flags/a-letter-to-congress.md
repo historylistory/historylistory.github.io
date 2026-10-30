@@ -69,6 +69,10 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 1990-01-01 Trump praised the Chinese government for their “strength and paramilitary action” during Tiananmen Square.
 
+## 2009
+
+2009-09-18 Project Veritas founder James O’Keefe secretly videoed ACORN workers in a scandal to make them look fraudulent. 
+
 ## 2014 
 
 2014-07-23 Hungary’s history of media suppression and spyware contracts parallels that of the U.S. in 2025.

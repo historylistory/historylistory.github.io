@@ -137,3 +137,4 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 [https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html](https://www.cnbc.com/2026/09/30/doj-minnesota-judges-complaint.html)
 
 [https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848](https://www.startribune.com/doj-files-complaint-against-minnesotas-federal-judges-over-media-comments/601895848)
+
