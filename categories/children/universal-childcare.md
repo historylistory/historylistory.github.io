@@ -143,3 +143,11 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 2026-10-05 Mamdani created a universal childcare program in New York offering no-cost childcare for children ages 6 weeks to 5 years old. 
 
 [https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low](https://www.nyc.gov/mayors-office/news/2026/10/mayor-mamdani-to-deliver-free-child-care-to-more-than-10-000-low)
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)

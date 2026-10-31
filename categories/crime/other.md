@@ -207,3 +207,12 @@ SUB WALL [https://www.washingtonpost.com/world/2026/07/27/operation-southern-spe
 [https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter](https://meidasnews.com/news/sore-loser-bolsonaro-flees-to-florida-declares-himself-president-anyway-in-pathetic-letter)
 
 [https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659](https://www.dw.com/en/flavio-bolsonaro-lands-in-us-declares-himself-leader-of-brazil/a-79788659)
+
+
+2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+[https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5](https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5)
+
+[https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629](https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629)
+
+[https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html](https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html)

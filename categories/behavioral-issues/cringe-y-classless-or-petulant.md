@@ -1049,3 +1049,31 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 [https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish](https://www.thedailybeast.com/maga-ohio-senate-candidate-jon-husted-caters-to-trumps-weird-fetish)
 
 [https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted](https://www.cnn.com/2026/10/26/politics/trump-nicki-minaj-jon-husted)
+
+2026-10-27 Republican Congressional candidate Brent Taylor of Tennessee was caught sending nude photos. He deeply professed Christian values, called this a “youthful indiscretion” and insisted his wife and God forgives him. 
+
+[https://www.nashvillescene.com/news/pithinthewind/brent-taylors-sexting-problem/article_150e5999-55f6-40a8-9bd6-7da56bfe5d84.html](https://www.nashvillescene.com/news/pithinthewind/brent-taylors-sexting-problem/article_150e5999-55f6-40a8-9bd6-7da56bfe5d84.html)
+
+[https://tennesseelookout.com/2026/10/29/tennessee-congressional-candidate-responds-to-allegations-he-sent-unsolicited-nude-pics/](https://tennesseelookout.com/2026/10/29/tennessee-congressional-candidate-responds-to-allegations-he-sent-unsolicited-nude-pics/)
+
+[https://www.thedailybeast.com/obsessed/daily-show-shames-maga-candidate-over-wild-sexting-excuse](https://www.thedailybeast.com/obsessed/daily-show-shames-maga-candidate-over-wild-sexting-excuse)
+
+[https://ca.rollingstone.com/politics/brent-taylor-blames-sending-nudes-youthful-indiscretion/](https://ca.rollingstone.com/politics/brent-taylor-blames-sending-nudes-youthful-indiscretion/)
+
+2026-10-29 Trump cancelled rallies in Kansas and Iowa. When asked why he cancelled, Trump lashed out at a reporter, “I feel perfect. You are disgusting. Put yourself in shape. You look like hell”. Trump immediately rescheduled both rallies. 
+
+[https://www.youtube.com/watch?v=vhuaJT2oZ58&list=WL&index=4](https://www.youtube.com/watch?v=vhuaJT2oZ58&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=xDIHJNPc8e0](https://www.youtube.com/watch?v=xDIHJNPc8e0)
+
+[https://www.wbaltv.com/article/trump-cancels-rallies-in-kansas-and-iowa/74290875](https://www.wbaltv.com/article/trump-cancels-rallies-in-kansas-and-iowa/74290875)
+
+[https://www.kcci.com/article/trump-to-hold-rally-in-iowa-after-canceling/74295673](https://www.kcci.com/article/trump-to-hold-rally-in-iowa-after-canceling/74295673)
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)

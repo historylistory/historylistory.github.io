@@ -603,3 +603,19 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 [https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
 
 [https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)
+
+2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
+
+[https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/](https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/)
+
+[https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates](https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates)
+
+[https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race](https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race)
+
+2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
+
+[https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/](https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/)
+
+[https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates](https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates)
+
+[https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race](https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race)

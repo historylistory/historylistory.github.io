@@ -496,3 +496,5 @@ budget untouched through the end of 2026.
 2026-10-20 A convicted serial rapist was released early. Max Factor heir Andrew Luster was released under California Proposition 57 which allows early parole for non-violent offenders, and because he drugged his victim unconscious the rape was not considered “violent”. 
 
 2026-10-21 Vance called Republicans “disgusting” for “whining” about the controversial ad campaign from Vivek Ramaswami using an estranged mother to attack his opponent. This is the commercial where Vivek Ramaswami weaponized Amy Acton’s childhood rape. He featured the candidate’s estranged mother who abandoned her as a child and left with the father who was convicted of raping Amy when she was 12. 
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 

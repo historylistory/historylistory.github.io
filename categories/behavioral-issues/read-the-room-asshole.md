@@ -362,3 +362,13 @@ AP VIDEO [https://www.youtube.com/watch?v=8pTOCCTcpQ8](https://www.youtube.com/w
 [https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1](https://www.france24.com/en/trump-claims-firefighters-carried-him-to-safety-right-after-9-11-but-his-account-is-disputed-1)
 
 SUB WALL [https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/](https://www.snopes.com/news/2026/09/11/trump-911-firefighters-rescue/)
+
+### 2026 October
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)

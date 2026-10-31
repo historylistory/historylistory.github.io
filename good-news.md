@@ -623,3 +623,12 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 
 [https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/](https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/)
 
+2026-10-30 A judge put off yet another of Trump’s Comey indictment, citing it was too late to indict Comey over something from 10 years ago. 
+
+[https://www.kcra.com/article/judge-puts-off-decision-comey-case-indictment-against-ex-fbi-head/74300584](https://www.kcra.com/article/judge-puts-off-decision-comey-case-indictment-against-ex-fbi-head/74300584)
+
+[https://www.nbcnews.com/politics/justice-department/james-comey-team-court-seeking-toss-third-doj-case-longtime-trump-foe-rcna606394](https://www.nbcnews.com/politics/justice-department/james-comey-team-court-seeking-toss-third-doj-case-longtime-trump-foe-rcna606394)
+
+[https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147](https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147)
+
+[https://www.bbc.com/news/articles/ckly0xqjnlwvo](https://www.bbc.com/news/articles/ckly0xqjnlwvo)

@@ -1133,6 +1133,9 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-08-06 Senator Cory booker (D-NJ) argued against the SNAP funding proposal within the farm bill, “That rich people get to grift and fraud, but we’re going after a program to try to save a few billion dollars, and nobody wants to talk about fraud and abuse”. 
 
+2026-08-06 Amazon’s & Walmart’s platform features products from outside the USA labelled “Made in the USA”. 
+
+
 2026-08-07 The Federal Communications Commission voted to repeal the national cap on television station ownership. This will lead to greater media consolidation. Free Press announced its plans to challenge the move. 
 
 2026-08-07 A New York judge issued a pause on Mamdani’s Pied-a-Tierre Tax. The tax is meant to target homes valued at $5M or more and co-ops and condos worth $1M or more when the owners do not live there as a primary residence. The surcharge asks those who own second homes valued in the millions to contribute their fair share to the city from which they benefit. 
@@ -1140,6 +1143,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
 
 2026-08-08 Trump’s job report came out in the negative, showing we lost more jobs under Trump than expected. In July we lost 23,000 jobs where economists had earlier predicted a job growth of 80K. 
+
 
 2026-08-09 Abelardo de la Espriella was sworn in as President of Colombia and the US promised $1BN in security aid for a drug crackdown. 
 
@@ -1267,3 +1271,19 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
 
 2026-10-26 Food stamps fell 13%, food banks are seeking help, and 47 million people are living in food insecurity nationwide. 
+
+2026-10-26 China’s AI bubble burst, sending stocks crashing. 
+
+2026-10-29 Amazon stock plummeted. 
+
+2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
+
+2026-10-29 Intel’s shares fell 29%, its worst stock day since the 70’s. 
+
+2026-10-30 Stocks massively crashed, wiping out $1TRN as the AI bubble burst in the US. 
+
+2026-10-30 Alphabet (GOOGL) stocks fell 13%.
+
+2026-10-30 Reddit stock crashed 30%. 
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 

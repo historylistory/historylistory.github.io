@@ -100,3 +100,12 @@ SUB WALL [https://www.politico.com/news/2026/04/21/former-republican-rep-devin-n
 SUB WALL [https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168](https://www.politico.com/news/2025/05/27/trump-social-media-crypto-bitcoin-00370168)
 
 UNVERIFIED SOURCE [https://www.youtube.com/watch?v=rgBGP7r_a8k](https://www.youtube.com/watch?v=rgBGP7r_a8k)
+
+### 2026 October
+
+2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
+
+[https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html](https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html)
+
+[https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto](https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto)
+

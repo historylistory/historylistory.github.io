@@ -627,3 +627,7 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-10-26 The Pentagon has allowed SpaceX access to their most sensitive and confidential satellite data. This follows Elon Musk’s altering of Starlink connections for political agendas in the Ukraine and matches his goal to privatize space travel. 
 
 2026-10-26 Judiciary Democrats accused Todd Blanche of witness tampering when he attempted to coach and talk over Ghislaine Maxwell during a testimony. 
+
+2026-10-29 Trump cancelled rallies in Kansas and Iowa. When asked why he cancelled, Trump lashed out at a reporter, “I feel perfect. You are disgusting. Put yourself in shape. You look like hell”. Trump immediately rescheduled both rallies. 
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 

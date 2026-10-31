@@ -891,3 +891,10 @@ budget untouched through the end of 2026.
 
 [https://www.reuters.com/legal/litigation/trump-create-new-nih-division-task-force-womens-health-2026-10-19/](https://www.reuters.com/legal/litigation/trump-create-new-nih-division-task-force-womens-health-2026-10-19/)
 
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)

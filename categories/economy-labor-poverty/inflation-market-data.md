@@ -479,6 +479,21 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 
 ### 2026 August
 
+2026-08-06 Amazon’s & Walmart’s platform features products from outside the USA labelled “Made in the USA”. 
+
+[https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1](https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1)
+
+[https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef](https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef)
+
+[https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711](https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711)
+
+[https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca](https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca)
+
+2025 FTC warning [https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/](https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/)
+
+2025 FTC warning [https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements](https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements)
+
+
 2026-08-07 Republican senator Dan Crenshaw posted, “Just hearing about this dumb $20 burrito debate. So, just thought I’d make the losers on social media angry before going to bed. Stop whining, get a job, eat ramen like the rest of us did in college on a budget with four roommates. The market doesn’t care what you think something should cost. Only communists care. They set prices, remember? Then everyone starves, remember? Are you a communist, or are you an American adult make capable of handling his own shit?”
 
 [https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/](https://thehill.com/homenews/house/6015958-dan-crenshaw-burrito-debate-affordability/)
@@ -486,6 +501,7 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 [https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it](https://www.foxnews.com/politics/burrito-debate-rips-open-gop-civil-war-affordability-we-lose-deserve-it)
 
 [https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s](https://www.youtube.com/watch?v=lzWBeoChR-s&list=WL&index=1&t=89s)
+
 
 2026-08-20 The national debt surpassed $40TRN. For contrast, the national debt in 2016 was $19TRN.
 
@@ -532,3 +548,47 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 2026-10-22 Italian farmers protested over soaring fuel prices. 
 
 [https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/](https://www.reuters.com/world/italian-retailers-warn-food-shortages-caused-by-truck-drivers-protest-2026-10-21/)
+
+2026-10-26 China’s AI bubble burst, sending stocks crashing. 
+
+[https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/](https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/)
+
+[https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html](https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html)
+
+2026-10-29 Amazon stock plummeted. 
+
+[https://finance.yahoo.com/technology/ai/articles/amazon-shares-sink-spends-heavily-204329843.html](https://finance.yahoo.com/technology/ai/articles/amazon-shares-sink-spends-heavily-204329843.html)
+
+[https://beincrypto.com/amazon-stock-below-lowest-price-target/](https://beincrypto.com/amazon-stock-below-lowest-price-target/)
+
+2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
+
+[https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html](https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html)
+
+[https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto](https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto)
+
+2026-10-29 Intel’s shares fell 29%, its worst stock day since the 70’s. 
+
+[https://www.cnbc.com/2026/10/30/amazon-intel-earnings-big-tech-ai-spending-concerns.html](https://www.cnbc.com/2026/10/30/amazon-intel-earnings-big-tech-ai-spending-concerns.html)
+
+[https://techcrunch.com/2026/10/30/intels-stock-crashes-knocking-12b-from-governments-stake/](https://techcrunch.com/2026/10/30/intels-stock-crashes-knocking-12b-from-governments-stake/)
+
+2026-10-30 Stocks massively crashed, wiping out $1TRN as the AI bubble burst in the US. 
+
+[https://www.youtube.com/watch?v=kId19sUYuic&list=WL&index=3](https://www.youtube.com/watch?v=kId19sUYuic&list=WL&index=3)
+
+[https://www.cbsnews.com/news/nasdaq-futures-tumble-tech-earnings-ai/](https://www.cbsnews.com/news/nasdaq-futures-tumble-tech-earnings-ai/)
+
+[https://www.fastcompany.com/91633436/tech-stocks-and-crypto-are-crashing-against-perfect-storm-as-markets-head-for-their-worst-day-in-months](https://www.fastcompany.com/91633436/tech-stocks-and-crypto-are-crashing-against-perfect-storm-as-markets-head-for-their-worst-day-in-months)
+
+[https://ca.finance.yahoo.com/markets/stocks/losers/](https://ca.finance.yahoo.com/markets/stocks/losers/)
+
+[https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/](https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/)
+
+2026-10-30 Alphabet (GOOGL) stocks fell 13%.
+
+[https://finance.yahoo.com/markets/article/alphabet-heads-for-a-500-billion-drop-in-market-value-the-biggest-in-its-history-134824763.html](https://finance.yahoo.com/markets/article/alphabet-heads-for-a-500-billion-drop-in-market-value-the-biggest-in-its-history-134824763.html)
+
+2026-10-30 Reddit stock crashed 30%. 
+
+[https://www.techbuzz.ai/articles/reddit-stock-crashes-30-on-weak-guidance-login-test](https://www.techbuzz.ai/articles/reddit-stock-crashes-30-on-weak-guidance-login-test)

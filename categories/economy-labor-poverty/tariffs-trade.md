@@ -430,6 +430,20 @@ SUB WALL [https://www.politico.com/news/2026/07/13/donald-trump-strait-of-hormuz
 
 [https://www.bbc.com/news/articles/ckg9d3eyeggo](https://www.bbc.com/news/articles/ckg9d3eyeggo)
 
+2026-08-06 Amazon’s & Walmart’s platform features products from outside the USA labelled “Made in the USA”. 
+
+[https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1](https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1)
+
+[https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef](https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef)
+
+[https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711](https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711)
+
+[https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca](https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca)
+
+2025 FTC warning [https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/](https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/)
+
+2025 FTC warning [https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements](https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements)
+
 2026-08-20 Trump threatened “economic warfare and isolation” via social media towards any countries trading with Iran. 
 
 [https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490](https://www.nbcnews.com/world/iran/trump-warns-economic-consequences-country-supports-iran-rcna593490)

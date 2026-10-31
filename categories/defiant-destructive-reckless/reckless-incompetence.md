@@ -1073,3 +1073,21 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
 
 [https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
+
+2026-10-29 Trump cancelled rallies in Kansas and Iowa. When asked why he cancelled, Trump lashed out at a reporter, “I feel perfect. You are disgusting. Put yourself in shape. You look like hell”. Trump immediately rescheduled both rallies. 
+
+[https://www.youtube.com/watch?v=vhuaJT2oZ58&list=WL&index=4](https://www.youtube.com/watch?v=vhuaJT2oZ58&list=WL&index=4)
+
+[https://www.youtube.com/watch?v=xDIHJNPc8e0](https://www.youtube.com/watch?v=xDIHJNPc8e0)
+
+[https://www.wbaltv.com/article/trump-cancels-rallies-in-kansas-and-iowa/74290875](https://www.wbaltv.com/article/trump-cancels-rallies-in-kansas-and-iowa/74290875)
+
+[https://www.kcci.com/article/trump-to-hold-rally-in-iowa-after-canceling/74295673](https://www.kcci.com/article/trump-to-hold-rally-in-iowa-after-canceling/74295673)
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)

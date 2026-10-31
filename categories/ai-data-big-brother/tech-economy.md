@@ -350,3 +350,27 @@ TIMESTAMP 11:05 [https://www.youtube.com/watch?v=YThcfluu8f8&list=WL&index=5](ht
 [https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
 
 [https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
+
+2026-10-26 China’s AI bubble burst, sending stocks crashing. 
+
+[https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/](https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/)
+
+[https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html](https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html)
+
+2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
+
+[https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html](https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html)
+
+[https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto](https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto)
+
+2026-10-30 Stocks massively crashed, wiping out $1TRN as the AI bubble burst in the US. 
+
+[https://www.youtube.com/watch?v=kId19sUYuic&list=WL&index=3](https://www.youtube.com/watch?v=kId19sUYuic&list=WL&index=3)
+
+[https://www.cbsnews.com/news/nasdaq-futures-tumble-tech-earnings-ai/](https://www.cbsnews.com/news/nasdaq-futures-tumble-tech-earnings-ai/)
+
+[https://www.fastcompany.com/91633436/tech-stocks-and-crypto-are-crashing-against-perfect-storm-as-markets-head-for-their-worst-day-in-months](https://www.fastcompany.com/91633436/tech-stocks-and-crypto-are-crashing-against-perfect-storm-as-markets-head-for-their-worst-day-in-months)
+
+[https://ca.finance.yahoo.com/markets/stocks/losers/](https://ca.finance.yahoo.com/markets/stocks/losers/)
+
+[https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/](https://beincrypto.com/us-stock-market-crash-ai-bubble-bursting/)

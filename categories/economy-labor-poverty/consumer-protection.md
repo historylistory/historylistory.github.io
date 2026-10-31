@@ -103,6 +103,21 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 
 [https://www.youtube.com/watch?v=N_6Um_CW6rs&list=WL&index=5](https://www.youtube.com/watch?v=N_6Um_CW6rs&list=WL&index=5)
 
+### 2026 August
+
+2026-08-06 Amazon’s & Walmart’s platform features products from outside the USA labelled “Made in the USA”. 
+
+[https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1](https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1)
+
+[https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef](https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef)
+
+[https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711](https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711)
+
+[https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca](https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca)
+
+2025 FTC warning [https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/](https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/)
+
+2025 FTC warning [https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements](https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements)
 
 ### 2026 September
 
@@ -123,3 +138,9 @@ permalink: /categories/economy-labor-poverty/consumer-protection/
 [https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2](https://www.youtube.com/watch?v=eLwYS9ITuu4&list=WL&index=2)
 
 [https://groundworkcollaborative.org/work/the-walmart-watchtower/](https://groundworkcollaborative.org/work/the-walmart-watchtower/)
+
+2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
+
+[https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html](https://finance.yahoo.com/markets/crypto/articles/tether-circle-freeze-2-38-222607515.html)
+
+[https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto](https://www.axios.com/2026/10/31/north-korea-hackers-binance-crypto)

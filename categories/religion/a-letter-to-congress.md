@@ -428,3 +428,5 @@ THE VIDEO [https://www.youtube.com/watch?v=RZ2umzGWmQY&list=WL&index=1](https://
 2026-10-11 Christian Nationalist pastor Hank Kunneman led a prayer asking God to “drown every liberal before the midterms”. 
 
 2026-10-19 A video of El-Sayed went viral when he shut down a Christian Nationalist heckler. The heckler, among other things, tried to imply El Sayed was part of the Muslim brotherhood and suggested Abdul El Sayed would not hold up American values. El Sayed last stated, “It seems like you don’t want to protect my right to practice as I choose to. So I’m going to ask you, do you disavow any attempt to read any religious doctrine into the laws of our country” to which the heckler replied “I do not” meaning the heckler completely misinterpreted freedom of religion and intended to impose his personal views on everybody else. 
+
+2026-10-27 Republican Congressional candidate Brent Taylor of Tennessee was caught sending nude photos. He deeply professed Christian values, called this a “youthful indiscretion” and insisted his wife and God forgives him. 

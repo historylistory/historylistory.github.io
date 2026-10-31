@@ -233,3 +233,15 @@ SUB WALL [https://www.ms.now/opinion/trump-pope-leo-criticism-vance-catholic-pea
 2026-08-05 Jordan warned that the Israeli takeover of the Muslim compound in Israel is imminent and could trigger a religious war. 
 
 [https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html](https://www.independent.co.uk/news/world/middle-east/israel-palestine-al-aqsa-mosque-jordan-b3027370.html)
+
+### 2026 October
+
+2026-10-27 Republican Congressional candidate Brent Taylor of Tennessee was caught sending nude photos. He deeply professed Christian values, called this a “youthful indiscretion” and insisted his wife and God forgives him. 
+
+[https://www.nashvillescene.com/news/pithinthewind/brent-taylors-sexting-problem/article_150e5999-55f6-40a8-9bd6-7da56bfe5d84.html](https://www.nashvillescene.com/news/pithinthewind/brent-taylors-sexting-problem/article_150e5999-55f6-40a8-9bd6-7da56bfe5d84.html)
+
+[https://tennesseelookout.com/2026/10/29/tennessee-congressional-candidate-responds-to-allegations-he-sent-unsolicited-nude-pics/](https://tennesseelookout.com/2026/10/29/tennessee-congressional-candidate-responds-to-allegations-he-sent-unsolicited-nude-pics/)
+
+[https://www.thedailybeast.com/obsessed/daily-show-shames-maga-candidate-over-wild-sexting-excuse](https://www.thedailybeast.com/obsessed/daily-show-shames-maga-candidate-over-wild-sexting-excuse)
+
+[https://ca.rollingstone.com/politics/brent-taylor-blames-sending-nudes-youthful-indiscretion/](https://ca.rollingstone.com/politics/brent-taylor-blames-sending-nudes-youthful-indiscretion/)

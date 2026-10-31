@@ -337,4 +337,20 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 
 FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113](https://www.c-span.org/clip/white-house-event/president-trump-weighs-in-on-allegation-rep-omar-was-married-to-her-brother/4808113)
 
+2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
 
+[https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/](https://alaskabeacon.com/2026/10/30/as-alaskans-vote-states-top-federal-prosecutor-confirms-criminal-investigation-of-dem-groups/)
+
+[https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates](https://www.theguardian.com/us-news/live/2026/oct/29/midterm-elections-politics-trump-obama-california-alaska-latest-news-updates)
+
+[https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race](https://www.pbs.org/newshour/show/republicans-seize-on-controversy-in-alaskas-closely-watched-senate-race)
+
+2026-10-30 A judge put off yet another of Trump’s Comey indictment, citing it was too late to indict Comey over something from 10 years ago. 
+
+[https://www.kcra.com/article/judge-puts-off-decision-comey-case-indictment-against-ex-fbi-head/74300584](https://www.kcra.com/article/judge-puts-off-decision-comey-case-indictment-against-ex-fbi-head/74300584)
+
+[https://www.nbcnews.com/politics/justice-department/james-comey-team-court-seeking-toss-third-doj-case-longtime-trump-foe-rcna606394](https://www.nbcnews.com/politics/justice-department/james-comey-team-court-seeking-toss-third-doj-case-longtime-trump-foe-rcna606394)
+
+[https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147](https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147)
+
+[https://www.bbc.com/news/articles/ckly0xqjnlwvo](https://www.bbc.com/news/articles/ckly0xqjnlwvo)

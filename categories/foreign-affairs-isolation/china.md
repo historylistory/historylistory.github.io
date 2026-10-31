@@ -219,3 +219,9 @@ PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-chin
 [https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory](https://www.scmp.com/tech/big-tech/article/3354212/alibaba-unveils-new-qwen-model-custom-chips-bid-become-chinas-ai-factory)
 
 APPLE & ALIBABA, AUGUST [https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/](https://www.reuters.com/business/retail-consumer/apple-trains-its-own-ai-model-china-market-with-alibabas-support-sources-say-2026-08-14/)
+
+2026-10-26 China’s AI bubble burst, sending stocks crashing. 
+
+[https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/](https://www.reuters.com/world/china/china-ai-bubble-has-already-burst-2026-10-26/)
+
+[https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html](https://finance.yahoo.com/markets/stocks/articles/investors-piled-china-ai-boom-171502130.html)

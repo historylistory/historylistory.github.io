@@ -237,3 +237,13 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 
 [https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech](https://www.theguardian.com/us-news/2026/sep/22/donald-trump-unga-speech)
 
+### 2026 October
+
+
+2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+[https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5](https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5)
+
+[https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629](https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629)
+
+[https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html](https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html)

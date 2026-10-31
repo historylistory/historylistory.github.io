@@ -763,4 +763,10 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 
 2026-10-26 Trump repeatedly commented about Senator Jon Husted’s & Nicki Minaj’s ass.
 
+2026-10-27 Republican Congressional candidate Brent Taylor of Tennessee was caught sending nude photos. He deeply professed Christian values, called this a “youthful indiscretion” and insisted his wife and God forgives him. 
+
 2026-10-28 US Ambassador Mike Waltz got into a shouting match with Cuba’s foreign minister at the UN. 
+
+2026-10-29 Trump cancelled rallies in Kansas and Iowa. When asked why he cancelled, Trump lashed out at a reporter, “I feel perfect. You are disgusting. Put yourself in shape. You look like hell”. Trump immediately rescheduled both rallies. 
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 

@@ -767,3 +767,9 @@ Manhattan grand jury in the hush-money case.
 
 2026-10-24 The DOJ threatened to sue Alaska if a Democrat wins the Senate.
 
+
+2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
+
+2026-10-30 A judge put off yet another of Trump’s Comey indictment, citing it was too late to indict Comey over something from 10 years ago. 

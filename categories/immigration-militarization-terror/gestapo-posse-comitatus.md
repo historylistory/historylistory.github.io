@@ -494,3 +494,13 @@ SUB WALL [https://www.thedailybeast.com/trumps-ousted-border-goon-greg-bovino-la
 ABOUT LETTER FROM Gen. Dan Caine to Sen. Slotkin [https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/](https://thehill.com/policy/defense/6062392-caine-denies-military-election-intervention/)
 
 FROM 2025 [https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places](https://www.brennancenter.org/our-work/research-reports/federal-and-state-election-laws-ban-federal-forces-polling-places)
+
+### 2026 October
+
+2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+[https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5](https://www.youtube.com/watch?v=DARTK_rr91Y&list=WL&index=5)
+
+[https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629](https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629)
+
+[https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html](https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html)

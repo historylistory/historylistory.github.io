@@ -228,6 +228,23 @@ PAY WALL [https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-s
 
 [https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/](https://thequantuminsider.com/2026/06/22/trump-administration-executive-order-places-quantum-at-center-of-federal-technology-strategy/)
 
+### 2026 August
+
+2026-08-06 Amazon’s & Walmart’s platform features products from outside the USA labelled “Made in the USA”. 
+
+[https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1](https://www.youtube.com/watch?v=whHypuaLmTU&list=WL&index=1)
+
+[https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef](https://www.wsj.com/cmo-today/amazon-and-walmarts-shopping-bots-downplay-made-in-usa-data-report-says-26f21aef)
+
+[https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711](https://www.esmmagazine.com/technology/amazon-walmart-chatbots-attract-senator-ire-over-made-in-usa-label-snags-321711)
+
+[https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca](https://www.wsj.com/cmo-today/senators-ask-ftc-to-probe-walmart-and-amazon-over-bots-made-in-america-data-f239ebca)
+
+2025 FTC warning [https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/](https://www.usatoday.com/story/money/business/2025/07/09/ftc-amazon-walmart-made-in-usa/84519585007/)
+
+2025 FTC warning [https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements](https://www.ftc.gov/news-events/news/press-releases/2025/07/federal-trade-commission-warns-companies-comply-made-usa-requirements)
+
+
 ### 2026 September
 
 2026-09-08 The UK, France and Canada all announced plans for sanctions on illegal Israeli settlements, accusing Israel of “settler terrorism” and “ethnic cleansing”. 
@@ -247,3 +264,4 @@ PAY WALL [https://www.washingtonpost.com/technology/2025/04/01/rural-broadband-s
 [https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1](https://www.youtube.com/watch?v=erli2iMjfuY&list=WL&index=1)
 
 [https://en.wikipedia.org/wiki/Filial_responsibility_laws](https://en.wikipedia.org/wiki/Filial_responsibility_laws)
+

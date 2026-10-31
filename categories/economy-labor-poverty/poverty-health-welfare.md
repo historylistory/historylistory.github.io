@@ -821,3 +821,11 @@ TIMESTAMP 7:50 [https://www.youtube.com/watch?v=H5VxuVNEn4w&list=WL&index=1](htt
 [https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms](https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms)
 
 [https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill](https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill)
+
+2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+[https://www.youtube.com/watch?v=HGgxXFic3Uo](https://www.youtube.com/watch?v=HGgxXFic3Uo)
+
+[https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
+
+[https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)
