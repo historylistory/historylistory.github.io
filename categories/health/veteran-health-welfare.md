@@ -158,3 +158,7 @@ VETS LOSING JOBS [https://www.afge.org/article/new-report-details-how-trumps-pol
 [https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/](https://www.mediaite.com/media/news/trump-pledges-to-help-camp-lejeune-veterans-made-ill-by-toxic-water-if-republicans-win-the-midterms/)
 
 [https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s](https://www.youtube.com/watch?v=JEABYJLMDKg&list=WL&index=1&t=503s)
+
+2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 
+
+[https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7](https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7)

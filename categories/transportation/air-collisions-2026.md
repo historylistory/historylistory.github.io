@@ -154,3 +154,18 @@ permalink: /categories/transportation/air-collisions-2026/
 [https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk](https://www.cnn.com/2026/09/24/us/pilot-military-training-jet-crash-california-hnk)
 
 [https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/](https://www.cbsnews.com/losangeles/news/military-training-jet-from-point-mugu-crashes-in-morro-bay/)
+
+### 2026 November
+
+2026-11-01 A private jet crashed in Palm Beach County, Florida, killing all 9 passengers. 
+
+[https://www.youtube.com/watch?v=w_LgO-qZcbE&list=WL&index=4](https://www.youtube.com/watch?v=w_LgO-qZcbE&list=WL&index=4)
+
+[https://www.nbcmiami.com/news/local/victims-passengers-pilots-identified-jet-plane-crash-greenacres-florida/3882063/](https://www.nbcmiami.com/news/local/victims-passengers-pilots-identified-jet-plane-crash-greenacres-florida/3882063/)
+
+
+2026-11-03 Two died in a fatal plane crash in Hamburg Iowa. 
+
+[https://www.wowt.com/2026/11/03/ntsb-fremont-county-deputies-investigating-plane-crash-near-hamburg/](https://www.wowt.com/2026/11/03/ntsb-fremont-county-deputies-investigating-plane-crash-near-hamburg/)
+
+[https://www.ketv.com/article/iowa-deadly-plane-crash/74326780](https://www.ketv.com/article/iowa-deadly-plane-crash/74326780)

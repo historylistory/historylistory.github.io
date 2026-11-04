@@ -990,6 +990,8 @@ Next
 
 2026-10-10 During a rally in Tennessee Trump called Michigan Senate candidate Abdul Al-Sayed “Mohammed”, stating, “To me it’s Mohammad. I’m the president. I can call him whatever the hell I want”. 
 
+2026-10-10 An ICE agent in Hartis county deliberately ran over a man with his vehicle. This was caught on video and shared later in the month. The officer was indicted. 
+
 2026-10-12 The Trump administration raided the home of Ilhan Omar and subpoenaed her family members in a pre-midterm witch hunt. 
 
 2026-10-21 The DOJ claimed Ilhan Omar tried to arrange a marriage with her brother to help him obtain US immigration status. 

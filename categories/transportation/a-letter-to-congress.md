@@ -256,3 +256,11 @@ Please put public safety ahead of privatization, retaliation, and political thea
 2026-09-21 More than a thousand flights were cancelled and 6000 more delayed for eight hours due to an airport equipment outage. 
 
 2026-09-23 A military training fighter jet MK58 crashed off the coast of California. 
+
+
+## 2026 November
+
+
+2026-11-01 A private jet crashed in Palm Beach County, Florida, killing all 9 passengers. 
+
+2026-11-03 Two died in a fatal plane crash in Hamburg Iowa. 

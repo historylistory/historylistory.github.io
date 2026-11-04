@@ -746,3 +746,5 @@ Taken together, these actions and statements suggest a lack of compassion and re
 2026-10-22 Starting in 2027, the Trump administration healthcare cuts will cause pediatric cancer care services to be left out of network for all ACA insurance plans, disrupting care for pediatric cancer patients. 
 
 2026-10-28 The Trump administration rolled back methane emission standards. 
+
+2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 

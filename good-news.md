@@ -632,3 +632,29 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147](https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147)
 
 [https://www.bbc.com/news/articles/ckly0xqjnlwvo](https://www.bbc.com/news/articles/ckly0xqjnlwvo)
+
+2026-10-30 A California judge had to issue an order stopping the Trump administration from threatening local election workers. 
+
+[https://www.youtube.com/watch?v=2gkdQUp7Svc&list=WL&index=8](https://www.youtube.com/watch?v=2gkdQUp7Svc&list=WL&index=8)
+
+[https://www.bbc.com/news/articles/c8qln1539y37o](https://www.bbc.com/news/articles/c8qln1539y37o)
+
+[https://www.politico.com/news/2026/10/31/justice-department-election-officials-threats-ruling](https://www.politico.com/news/2026/10/31/justice-department-election-officials-threats-ruling)
+
+### 2026 November
+
+2026-11-03 Democrats won the midterms, taking back control of both the House and the Senate. Mike Johnson will have to step down as Speaker in January. 
+
+[https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats](https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats)
+
+[https://www.cnbc.com/2026/11/03/stock-market-today-live-updates.html](https://www.cnbc.com/2026/11/03/stock-market-today-live-updates.html)
+
+[https://www.forbes.com/sites/saradorn/2026/11/02/final-2026-midterm-polls-democrats-lead-key-senate-races-in-last-new-york-times-poll/?streamIndex=0](https://www.forbes.com/sites/saradorn/2026/11/02/final-2026-midterm-polls-democrats-lead-key-senate-races-in-last-new-york-times-poll/?streamIndex=0)
+
+[https://www.nbcnews.com/politics/2026-elections/senate-results](https://www.nbcnews.com/politics/2026-elections/senate-results)
+
+[https://www.yahoo.com/news/politics/live/midterms-2026-live-updates-election-day-voters-head-to-the-polls-as-democrats-look-to-flip-gop-control-of-the-house-and-senate-110000715.html](https://www.yahoo.com/news/politics/live/midterms-2026-live-updates-election-day-voters-head-to-the-polls-as-democrats-look-to-flip-gop-control-of-the-house-and-senate-110000715.html)
+
+[https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress](https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress)
+
+[https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins](https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins)

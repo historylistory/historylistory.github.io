@@ -516,6 +516,15 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 [https://www.theguardian.com/us-news/2026/oct/08/nyc-shooting-federal-agent](https://www.theguardian.com/us-news/2026/oct/08/nyc-shooting-federal-agent)
 
+2026-10-10 An ICE agent in Hartis county deliberately ran over a man with his vehicle. This was caught on video and shared later in the month. The officer was indicted. 
+
+[https://www.cnn.com/2026/11/02/us/indicted-ice-officer-surrenders-texas](https://www.cnn.com/2026/11/02/us/indicted-ice-officer-surrenders-texas)
+
+[https://www.pbs.org/newshour/nation/ice-agent-charged-with-assault-for-hitting-fleeing-man-with-car-in-houston-will-turn-himself-in-attorney-says](https://www.pbs.org/newshour/nation/ice-agent-charged-with-assault-for-hitting-fleeing-man-with-car-in-houston-will-turn-himself-in-attorney-says)
+
+[https://abc7ny.com/post/ice-agent-indicted-running-man-turns-himself/20008632/](https://abc7ny.com/post/ice-agent-indicted-running-man-turns-himself/20008632/)
+
+
 
 2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
 

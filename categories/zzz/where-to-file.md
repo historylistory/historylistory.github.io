@@ -122,3 +122,29 @@ PAY WALL [https://www.bbc.com/news/articles/cq8r6rjdvlx6o](https://www.bbc.com/n
 [https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/](https://www.desmoinesregister.com/story/news/politics/elections/2026/10/28/zach-lahn-rob-sand-iowa-governor-election-2026-farm-bureau-agriculture/92249581007/)
 
 [https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/](https://iowafarmersunion.org/iowa-farmers-union-endorses-congressional-candidates-for-2026-election/)
+
+### 2026 November
+
+2026-11-01 Democrat Haley Stevens switched endorsements from Abdul El-Sayed to Republican opponent Mike Rogers. 
+
+[https://www.npr.org/2026/11/01/nx-s1-6020993/michigan-senate-race-abdul-el-sayed-haley-stevens-mike-rogers](https://www.npr.org/2026/11/01/nx-s1-6020993/michigan-senate-race-abdul-el-sayed-haley-stevens-mike-rogers)
+
+[https://apnews.com/article/elsayed-michigan-stevens-democrats-unity-midterms-d7053bbd0ed2fd70756896c6e4b66a27](https://apnews.com/article/elsayed-michigan-stevens-democrats-unity-midterms-d7053bbd0ed2fd70756896c6e4b66a27)
+
+[https://www.aljazeera.com/news/2026/11/1/why-did-democrat-haley-stevens-just-endorse-a-republican-for-us-senate](https://www.aljazeera.com/news/2026/11/1/why-did-democrat-haley-stevens-just-endorse-a-republican-for-us-senate)
+
+2026-11-03 Democrats won the midterms, taking back control of both the House and the Senate. Mike Johnson will have to step down as Speaker in January. 
+
+[https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats](https://www.nytimes.com/live/2026/11/04/us/midterm-election-results-democrats)
+
+[https://www.cnbc.com/2026/11/03/stock-market-today-live-updates.html](https://www.cnbc.com/2026/11/03/stock-market-today-live-updates.html)
+
+[https://www.forbes.com/sites/saradorn/2026/11/02/final-2026-midterm-polls-democrats-lead-key-senate-races-in-last-new-york-times-poll/?streamIndex=0](https://www.forbes.com/sites/saradorn/2026/11/02/final-2026-midterm-polls-democrats-lead-key-senate-races-in-last-new-york-times-poll/?streamIndex=0)
+
+[https://www.nbcnews.com/politics/2026-elections/senate-results](https://www.nbcnews.com/politics/2026-elections/senate-results)
+
+[https://www.yahoo.com/news/politics/live/midterms-2026-live-updates-election-day-voters-head-to-the-polls-as-democrats-look-to-flip-gop-control-of-the-house-and-senate-110000715.html](https://www.yahoo.com/news/politics/live/midterms-2026-live-updates-election-day-voters-head-to-the-polls-as-democrats-look-to-flip-gop-control-of-the-house-and-senate-110000715.html)
+
+[https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress](https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress)
+
+[https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins](https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins)

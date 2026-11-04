@@ -337,3 +337,6 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 
 [https://www.ms.now/the-assignment/watch/leaked-audio-shows-pentagon-denied-more-financial-support-for-navy-families-evacuated-from-bahrain-2518469187656](https://www.ms.now/the-assignment/watch/leaked-audio-shows-pentagon-denied-more-financial-support-for-navy-families-evacuated-from-bahrain-2518469187656)
 
+2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 
+
+[https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7](https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7)

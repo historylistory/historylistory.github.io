@@ -196,3 +196,10 @@ FOX TAKE [https://www.foxnews.com/politics/somalis-minnesota-unleash-fury-trump-
 
 [https://www.youtube.com/watch?v=DKT96oWBD0w&list=WL&index=4](https://www.youtube.com/watch?v=DKT96oWBD0w&list=WL&index=4)
 
+2026-10-30 A California judge had to issue an order stopping the Trump administration from threatening local election workers. 
+
+[https://www.youtube.com/watch?v=2gkdQUp7Svc&list=WL&index=8](https://www.youtube.com/watch?v=2gkdQUp7Svc&list=WL&index=8)
+
+[https://www.bbc.com/news/articles/c8qln1539y37o](https://www.bbc.com/news/articles/c8qln1539y37o)
+
+[https://www.politico.com/news/2026/10/31/justice-department-election-officials-threats-ruling](https://www.politico.com/news/2026/10/31/justice-department-election-officials-threats-ruling)

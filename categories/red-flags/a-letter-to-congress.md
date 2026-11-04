@@ -542,3 +542,7 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-10-28 Conservative influencer and Project Veritas founder James O’Keefe was charged with voter fraud and identity theft after he dressed like a Muslim and tried to videotape alleged voter fraud in Minnesota. 
 
 2026-10-28 It was discovered that Flavio Bolsonaro fled to Miami Florida after refusing to surrender his passports and defying a Brazilian Supreme Court order tied to active money laundering and tax evasion investigations. The Trump administration gave him and his family visas.
+
+## 2026 November
+
+2026-11-01 Democrat Haley Stevens switched endorsements from Abdul El-Sayed to Republican opponent Mike Rogers. 
