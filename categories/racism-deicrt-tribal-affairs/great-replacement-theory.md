@@ -252,3 +252,6 @@ JEREMY CARL SAYS GEORGE FLOYD IS IN HELL [https://newrepublic.com/post/200965/tr
 [https://cbsaustin.com/news/local/democrat-jon-rosenthal-outraises-bo-french-in-texas-railroad-commission-race-report](https://cbsaustin.com/news/local/democrat-jon-rosenthal-outraises-bo-french-in-texas-railroad-commission-race-report)
 
 [https://www.borderreport.com/hot-topics/bo-french-doubles-down-after-texas-republicans-condemn-ut-austin-student-posts/](https://www.borderreport.com/hot-topics/bo-french-doubles-down-after-texas-republicans-condemn-ut-austin-student-posts/)
+
+
+### 2026 October
