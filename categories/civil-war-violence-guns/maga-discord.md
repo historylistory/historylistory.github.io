@@ -732,3 +732,5 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 
 [https://www.bbc.com/news/articles/cm98zn3l2rn7o](https://www.bbc.com/news/articles/cm98zn3l2rn7o)
 
+### AND THE RATS JUMP SHIP
+
