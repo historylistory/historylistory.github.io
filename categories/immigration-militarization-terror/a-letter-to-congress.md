@@ -1002,3 +1002,11 @@ Next
 
 
 2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+## 2026 November
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
+
+2026-11-06 ICE agents took a Wisconsin State Trooper into custody. 

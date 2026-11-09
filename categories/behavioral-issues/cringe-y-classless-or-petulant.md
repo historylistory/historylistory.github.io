@@ -1077,3 +1077,13 @@ THE POST: “CNN and MSDNC’s Ratings have dropped considerably…” [https://
 [https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
 
 [https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)
+
+### 2026 November
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/](https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/)
+
+[https://www.bbc.com/news/articles/cmy0eeg101djo](https://www.bbc.com/news/articles/cmy0eeg101djo)
+
+[https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/](https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/)

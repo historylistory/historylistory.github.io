@@ -445,8 +445,14 @@ The examples that follow illustrate the basis for these concerns. Some are inclu
 
 ## 2026 October
 
+2026-10-01 Jared Kushner owns Affinity Partners, which invests in the Israeli company Phoenix, which contracts 9 Israeli military suppliers.
+
 2026-10-07 Trump’s former fiancée-now-ambassador to Greece Kimberly Guilfoyle pushed a donor to wire her $100K to pay off credit cards. 
 
 2026-10-20 Musk vowed to issue SPCX stock to kids, ensuring his company success and support via investments. Does this set precedence for financial allegiance?
 
 2026-10-23 Allegations that Jared Kushner was involved in a phone hack scandal. 
+
+## 2026 November
+
+2026-11-03 In desperation ahead of midterms Trump announced he would end military aid to Israel. 

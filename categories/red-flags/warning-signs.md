@@ -533,6 +533,11 @@ PAY WALL [https://www.nytimes.com/2026/09/08/style/trump-space-force-uniforms-st
 
 [https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence](https://www.space.com/space-exploration/satellites/us-space-force-says-it-operates-weapons-in-orbit-our-aim-is-deterrence)
 
+2026-09-21 China and Russia reported a stronger military alliance. 
+
+[https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission](https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission)
+
+
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
 
 [https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/](https://www.reuters.com/world/middle-east/tehran-hints-hormuz-talks-with-us-leaders-gather-un-2026-09-22/)
@@ -599,3 +604,62 @@ PAY WALL [https://www.nytimes.com/2026/09/27/us/politics/trump-weapons-sale-chin
 
 [https://www.aljazeera.com/news/2026/11/1/why-did-democrat-haley-stevens-just-endorse-a-republican-for-us-senate](https://www.aljazeera.com/news/2026/11/1/why-did-democrat-haley-stevens-just-endorse-a-republican-for-us-senate)
 
+### 2026 November and the rats jump ship 
+
+2026-11-05 Marco Rubio was reportedly on resignation watch. 
+
+[https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html](https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html)
+
+[https://www.bloomberg.com/news/articles/2026-11-05/rubio-considers-leaving-administration-after-gop-s-midterm-loss](https://www.bloomberg.com/news/articles/2026-11-05/rubio-considers-leaving-administration-after-gop-s-midterm-loss)
+
+[https://www.democracynow.org/2026/11/6/headlines/marco_rubio_reportedly_considers_resigning_as_secretary_of_state_ahead_of_presidential_run](https://www.democracynow.org/2026/11/6/headlines/marco_rubio_reportedly_considers_resigning_as_secretary_of_state_ahead_of_presidential_run)
+
+2026-11-05 JD Vance distanced himself from Trump.
+
+[https://www.cleveland.com/news/2026/11/the-first-rat-off-the-sinking-ship-jd-vance-tries-to-escape-trumps-election-wreckage.html](https://www.cleveland.com/news/2026/11/the-first-rat-off-the-sinking-ship-jd-vance-tries-to-escape-trumps-election-wreckage.html)
+
+[https://www.benzinga.com/news/politics/26/11/63028213/ro-khanna-warns-republicans-backing-trump-could-lose-2028-vance-distance](https://www.benzinga.com/news/politics/26/11/63028213/ro-khanna-warns-republicans-backing-trump-could-lose-2028-vance-distance)
+
+[https://www.bostonherald.com/2026/11/09/lucas-in-vance-shades-of-mike-pence/](https://www.bostonherald.com/2026/11/09/lucas-in-vance-shades-of-mike-pence/)
+
+[https://www.bbc.com/news/articles/crz98zqkz7z0o](https://www.bbc.com/news/articles/crz98zqkz7z0o)
+
+[https://www.reuters.com/legal/government/vance-repudiates-iran-war-after-us-electoral-defeat-2026-11-04/](https://www.reuters.com/legal/government/vance-repudiates-iran-war-after-us-electoral-defeat-2026-11-04/)
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+[https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697](https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697)
+
+[https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/](https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/)
+
+[https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down](https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down)
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
+
+[https://www.bbc.com/news/videos/cvze442wdl75o](https://www.bbc.com/news/videos/cvze442wdl75o)
+
+[https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d](https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d)
+
+SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles](https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles)
+
+2026-11-07 Ted Cruz called midterm losses a “Watergate level repudiation”. 
+
+[https://www.nbcnews.com/politics/2026-election/-watergate-level-repudiation-ted-cruz-weighs-midterm-wave-rcna607568](https://www.nbcnews.com/politics/2026-election/-watergate-level-repudiation-ted-cruz-weighs-midterm-wave-rcna607568)
+
+[https://finance.yahoo.com/markets/stocks/articles/ted-cruz-warns-americans-401-113000778.html](https://finance.yahoo.com/markets/stocks/articles/ted-cruz-warns-americans-401-113000778.html)
+
+[https://www.cnn.com/2026/11/08/politics/video/watergate-level-repudiation-1974-gop-wipeout-echoes-through-2026-results](https://www.cnn.com/2026/11/08/politics/video/watergate-level-repudiation-1974-gop-wipeout-echoes-through-2026-results)
+
+[https://thefulcrum.us/ethics-leadership/ted-cruz-texas-election-rhetoric-2028](https://thefulcrum.us/ethics-leadership/ted-cruz-texas-election-rhetoric-2028)
+
+[https://www.thetimes.com/us/american-politics/article/ted-cruz-watergate-republicans-midterm-losses-dp53bc733](https://www.thetimes.com/us/american-politics/article/ted-cruz-watergate-republicans-midterm-losses-dp53bc733)
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+[https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/](https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/)
+
+[https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html](https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html)
+
+[https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
+
+[https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)

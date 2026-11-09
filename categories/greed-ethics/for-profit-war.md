@@ -130,3 +130,21 @@ SUB WALL [https://www.nytimes.com/2026/07/31/business/energy-environment/exxon-c
 2026-08-04 Oil company Saudi Aramco reported it made $33B during this quarter with a 33% jump in profit over last year. 
 
 [https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit](https://www.npr.org/2026/08/04/g-s1-137361/saudia-arabia-oil-aramco-profit)
+
+### 2026 October
+
+2026-10-01 Jared Kushner owns Affinity Partners, which invests in the Israeli company Phoenix, which contracts 9 Israeli military suppliers.
+
+[https://en.wikipedia.org/wiki/Affinity_Partners](https://en.wikipedia.org/wiki/Affinity_Partners)
+
+[https://www.reuters.com/business/finance/kushners-affinitys-assets-jump-48-billion-after-gulf-cash-injection-2025-03-28/](https://www.reuters.com/business/finance/kushners-affinitys-assets-jump-48-billion-after-gulf-cash-injection-2025-03-28/)
+
+[https://www.cnn.com/2026/10/01/us/jared-kushner-israel-gaza-investments-invs-vis](https://www.cnn.com/2026/10/01/us/jared-kushner-israel-gaza-investments-invs-vis)
+
+### 2026 November
+
+2026-11-03 In desperation ahead of midterms Trump announced he would end military aid to Israel. 
+
+[https://www.theguardian.com/us-news/2026/nov/03/donald-trump-usa-end-military-aid-to-israel-end-year-midterms](https://www.theguardian.com/us-news/2026/nov/03/donald-trump-usa-end-military-aid-to-israel-end-year-midterms)
+
+[https://www.reuters.com/world/middle-east/trump-says-us-will-stop-paying-israel-after-year-end-2026-11-03/](https://www.reuters.com/world/middle-east/trump-says-us-will-stop-paying-israel-after-year-end-2026-11-03/)

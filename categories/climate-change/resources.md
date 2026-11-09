@@ -202,4 +202,14 @@ permalink: /categories/climate-change/resources/
 
 [https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s](https://www.youtube.com/watch?v=v8NTPuGezhE&list=WL&index=2&t=9s)
 
+### 2026 November
+
+
+2026-11-08 Due to climate change banana producers face sharp decline in production.
+
+[https://www.theguardian.com/business/2026/nov/08/banana-producers-in-latin-america-want-better-pay-to-cope-with-effects-of-climate-crisis](https://www.theguardian.com/business/2026/nov/08/banana-producers-in-latin-america-want-better-pay-to-cope-with-effects-of-climate-crisis)
+
+[https://www.businessgreen.com/news/4538570/fairtrade-foundation-warns-banana-growers-facing-extreme-climate-shocks](https://www.businessgreen.com/news/4538570/fairtrade-foundation-warns-banana-growers-facing-extreme-climate-shocks)
+
+[https://www.fruitnet.com/eurofruit/asbama-reports-sharp-drop-in-banana-exports-as-cost-and-climate-challenges-bite/273204.article](https://www.fruitnet.com/eurofruit/asbama-reports-sharp-drop-in-banana-exports-as-cost-and-climate-challenges-bite/273204.article)
 

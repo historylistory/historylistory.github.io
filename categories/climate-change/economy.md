@@ -43,3 +43,14 @@ permalink: /categories/climate-change/economy/
 [https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj](https://www.commondreams.org/news/big-oil-takeover-now-complete-watchdog-warns-as-exxon-lawyer-joins-trump-doj)
 
 [https://www.whitehouse.gov/administration/cabinet/](https://www.whitehouse.gov/administration/cabinet/)
+
+### 2026 November
+
+2026-11-08 Due to climate change banana producers face sharp decline in production.
+
+[https://www.theguardian.com/business/2026/nov/08/banana-producers-in-latin-america-want-better-pay-to-cope-with-effects-of-climate-crisis](https://www.theguardian.com/business/2026/nov/08/banana-producers-in-latin-america-want-better-pay-to-cope-with-effects-of-climate-crisis)
+
+[https://www.businessgreen.com/news/4538570/fairtrade-foundation-warns-banana-growers-facing-extreme-climate-shocks](https://www.businessgreen.com/news/4538570/fairtrade-foundation-warns-banana-growers-facing-extreme-climate-shocks)
+
+[https://www.fruitnet.com/eurofruit/asbama-reports-sharp-drop-in-banana-exports-as-cost-and-climate-challenges-bite/273204.article](https://www.fruitnet.com/eurofruit/asbama-reports-sharp-drop-in-banana-exports-as-cost-and-climate-challenges-bite/273204.article)
+

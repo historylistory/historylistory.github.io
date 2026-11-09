@@ -847,3 +847,25 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://wsvn.com/news/us-world/us-military-drug-strikes/](https://wsvn.com/news/us-world/us-military-drug-strikes/)
 
 [https://www.military.com/us-air-strikes-keep-blowing-up-cocaine-laden-boats-but-the-drugs-keep-flowing](https://www.military.com/us-air-strikes-keep-blowing-up-cocaine-laden-boats-but-the-drugs-keep-flowing)
+
+### 2026 November
+
+2026-11-02 Russia bombed a school and humanitarian aid distribution center in Ukraine. 
+
+[https://apnews.com/article/russia-ukraine-war-strike-bomb-humanitarian-aid-e64dd583955f11e4cf08ef5af6eaf35b](https://apnews.com/article/russia-ukraine-war-strike-bomb-humanitarian-aid-e64dd583955f11e4cf08ef5af6eaf35b)
+
+[https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town](https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town)
+
+[https://www.bbc.com/news/articles/cjy56dndlyz0o](https://www.bbc.com/news/articles/cjy56dndlyz0o)
+
+2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+[https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788](https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788)
+
+[https://www.modernghana.com/videonews/nbc/1/748701](https://www.modernghana.com/videonews/nbc/1/748701)
+
+[https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc](https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc)
+
+[https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms](https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms)
+
+[https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8](https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8)

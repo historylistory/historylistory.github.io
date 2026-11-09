@@ -596,3 +596,9 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 
 [https://www.democracynow.org/2026/10/26/headlines/appeals_court_rules_immigrants_jailed_by_ice_have_no_constitutional_right_to_bond](https://www.democracynow.org/2026/10/26/headlines/appeals_court_rules_immigrants_jailed_by_ice_have_no_constitutional_right_to_bond)
 
+### 2026 November
+
+2026-11-06 ICE agents took a Wisconsin State Trooper into custody. 
+
+[https://www.youtube.com/watch?v=_lkIgev4PTk&list=WL&index=3](https://www.youtube.com/watch?v=_lkIgev4PTk&list=WL&index=3)
+

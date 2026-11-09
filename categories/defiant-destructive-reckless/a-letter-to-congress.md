@@ -653,3 +653,9 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-10-29 Trump cancelled rallies in Kansas and Iowa. When asked why he cancelled, Trump lashed out at a reporter, “I feel perfect. You are disgusting. Put yourself in shape. You look like hell”. Trump immediately rescheduled both rallies. 
 
 2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+## 2026 November
+
+2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 

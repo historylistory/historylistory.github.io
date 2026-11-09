@@ -592,3 +592,10 @@ INFLATION 2025 [https://www.whitehouse.gov/releases/2025/10/inflation-remains-lo
 2026-10-30 Reddit stock crashed 30%. 
 
 [https://www.techbuzz.ai/articles/reddit-stock-crashes-30-on-weak-guidance-login-test](https://www.techbuzz.ai/articles/reddit-stock-crashes-30-on-weak-guidance-login-test)
+
+### 2026 November
+
+2026-11-05 The DOW plunged more than 1800 points. 
+
+[https://www.youtube.com/watch?v=FqwnASZACdc&list=WL&index=4&t=20s](https://www.youtube.com/watch?v=FqwnASZACdc&list=WL&index=4&t=20s)
+

@@ -194,6 +194,10 @@ PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-amer
 
 [https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east](https://www.democracynow.org/2026/9/21/headlines/cnn_ai_agent_provides_us_military_with_false_intel_report_on_chinese_ship_in_the_middle_east)
 
+2026-09-21 China and Russia reported a stronger military alliance. 
+
+[https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission](https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission)
+
 2026-09-27 Trump offered to sell arms to China, but then administration officials denied it. 
 
 [https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html](https://www.yahoo.com/news/politics/articles/u-ambassador-china-trump-offered-080901711.html)

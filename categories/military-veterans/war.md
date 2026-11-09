@@ -572,3 +572,10 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 
 [https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7](https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7)
 
+### 2026 November
+
+2026-11-03 The US Space Force declared the far side of the moon a “war fighting domain”. 
+
+[https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain](https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain)
+
+[https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html](https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html)

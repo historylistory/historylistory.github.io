@@ -773,3 +773,9 @@ Manhattan grand jury in the hush-money case.
 2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
 
 2026-10-30 A judge put off yet another of Trump’s Comey indictment, citing it was too late to indict Comey over something from 10 years ago. 
+
+## 2026 November
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 

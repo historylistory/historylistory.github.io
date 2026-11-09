@@ -75,3 +75,13 @@ permalink: /categories/immigration-militarization-terror/due-process/
 [https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms](https://timesofindia.indiatimes.com/world/us/cant-hastily-deport-to-a-third-country-what-us-appeals-court-ruling-says/articleshow/134360265.cms)
 
 [https://www.kansascity.com/news/nation-world/national/article317299382.html](https://www.kansascity.com/news/nation-world/national/article317299382.html)
+
+### 2026 November
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+[https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697](https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697)
+
+[https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/](https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/)
+
+[https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down](https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down)

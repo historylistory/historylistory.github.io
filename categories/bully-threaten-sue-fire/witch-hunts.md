@@ -354,3 +354,17 @@ FROM 2019 [https://www.c-span.org/clip/white-house-event/president-trump-weighs-
 [https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147](https://abcnews.com/US/attorneys-james-comey-return-court-fight-dojs-efforts/story?id=137706147)
 
 [https://www.bbc.com/news/articles/ckly0xqjnlwvo](https://www.bbc.com/news/articles/ckly0xqjnlwvo)
+
+### 2026 November
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+[https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/](https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/)
+
+[https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html](https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html)
+
+[https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
+
+[https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)
+
+

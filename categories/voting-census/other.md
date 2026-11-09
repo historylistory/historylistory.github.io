@@ -362,3 +362,11 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
 
 [https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)
+
+### 2026 November
+
+2026-11-03 In desperation ahead of midterms Trump announced he would end military aid to Israel. 
+
+[https://www.theguardian.com/us-news/2026/nov/03/donald-trump-usa-end-military-aid-to-israel-end-year-midterms](https://www.theguardian.com/us-news/2026/nov/03/donald-trump-usa-end-military-aid-to-israel-end-year-midterms)
+
+[https://www.reuters.com/world/middle-east/trump-says-us-will-stop-paying-israel-after-year-end-2026-11-03/](https://www.reuters.com/world/middle-east/trump-says-us-will-stop-paying-israel-after-year-end-2026-11-03/)

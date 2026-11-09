@@ -247,3 +247,15 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 [https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629](https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629)
 
 [https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html](https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html)
+
+### 2026 November
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+[https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/](https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/)
+
+[https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html](https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html)
+
+[https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
+
+[https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)

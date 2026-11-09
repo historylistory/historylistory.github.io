@@ -494,3 +494,12 @@ SUB WALL [https://www.bbc.com/news/articles/cwy2vw8j0ddo](https://www.bbc.com/ne
 
 [https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza](https://www.theguardian.com/world/2026/oct/06/former-un-food-agency-official-fao-benjamin-davis-hunger-gaza)
 
+### 2026 November
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
+
+[https://www.bbc.com/news/videos/cvze442wdl75o](https://www.bbc.com/news/videos/cvze442wdl75o)
+
+[https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d](https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d)
+
+SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles](https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles)

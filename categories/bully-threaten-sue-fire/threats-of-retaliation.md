@@ -863,3 +863,14 @@ TIMESTAMP 00:01 [https://www.youtube.com/watch?v=eE7c1I6glks&list=WL&index=2](ht
 
 [https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people](https://www.aila.org/library/doj-issues-opinion-that-states-tanf-and-ssi-participation-requires-all-state-agencies-to-report-undocumented-people)
 
+### 2026 November
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+[https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/](https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/)
+
+[https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html](https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html)
+
+[https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
+
+[https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)

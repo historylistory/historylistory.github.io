@@ -148,3 +148,16 @@ PAY WALL [https://www.bbc.com/news/articles/cq8r6rjdvlx6o](https://www.bbc.com/n
 [https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress](https://www.cnn.com/2026/11/04/politics/live-news/midterm-election-congress)
 
 [https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins](https://www.foxbusiness.com/markets/us-stock-futures-mixed-democrats-score-key-midterm-election-wins)
+
+2026-11-05 Democrats reject leadership of Chuck Schumer. 
+
+[https://www.aljazeera.com/news/2026/11/5/division-among-us-democrats-over-schumers-leadership-role](https://www.aljazeera.com/news/2026/11/5/division-among-us-democrats-over-schumers-leadership-role)
+
+[https://www.middleeasteye.net/news/chuck-schumer-dismisses-opposition-to-leadership-from-progressive-democrats](https://www.middleeasteye.net/news/chuck-schumer-dismisses-opposition-to-leadership-from-progressive-democrats)
+
+2026-11-06 Democrats reject leadership of Hakeem Jeffries. 
+
+[https://www.axios.com/2026/11/06/jeffries-speaker-democrats-house-calls-petition](https://www.axios.com/2026/11/06/jeffries-speaker-democrats-house-calls-petition)
+
+[https://truthout.org/articles/petition-urging-dems-to-reject-jeffries-as-house-speaker-passes-1m-signatures/](https://truthout.org/articles/petition-urging-dems-to-reject-jeffries-as-house-speaker-passes-1m-signatures/)
+

@@ -59,3 +59,14 @@ pending - just started building this section May 8 2026 and need to play 'catch 
 
 
 
+### MIDTERMS
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+[https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/](https://www.democracydocket.com/news-alerts/blanche-threatens-congressional-democrats-with-investigations-its-unclear-for-what/)
+
+[https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html](https://www.cnbc.com/2026/11/08/democrats-trump-oversight-blanche-doj-investigations.html)
+
+[https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
+
+[https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)

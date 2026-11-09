@@ -2287,3 +2287,11 @@ PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1
 
 [https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488](https://apnews.com/article/saudi-yemen-houthis-riyadh-airport-40c6ab822df376688ce1a0955a044488)
 
+### 2026 November
+
+2026-11-03 The US struck Iranian islands ahead of midterms during peace negotiations brokered by Quatar. 
+
+[https://apnews.com/article/iran-us-strikes-strait-hormuz-183b3d32d9bf5241f744abb917e6713e](https://apnews.com/article/iran-us-strikes-strait-hormuz-183b3d32d9bf5241f744abb917e6713e)
+
+[https://www.bbc.com/news/articles/cx240mrm3g8vo](https://www.bbc.com/news/articles/cx240mrm3g8vo)
+

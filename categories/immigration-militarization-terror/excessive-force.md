@@ -533,3 +533,13 @@ HAPPENED IN 2019 AS WELL [https://www.pbs.org/newshour/nation/ice-force-feeding-
 [https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629](https://www.nbcnews.com/news/us-news/video-shows-ice-officer-running-puncturing-couples-tires-said-was-terr-rcna606629)
 
 [https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html](https://www.oregonlive.com/politics/2026/10/feds-say-incident-involving-ice-agents-slashing-observers-car-tire-in-hillsboro-is-under-investigation.html)
+
+### 2026 November
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+[https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697](https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697)
+
+[https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/](https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/)
+
+[https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down](https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down)

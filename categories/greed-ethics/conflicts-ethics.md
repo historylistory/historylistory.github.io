@@ -845,6 +845,15 @@ THAT CASE AND CLIMATE RISK [https://www.spencerfane.com/insight/climate-change-o
 
 ### 2026 October
 
+2026-10-01 Jared Kushner owns Affinity Partners, which invests in the Israeli company Phoenix, which contracts 9 Israeli military suppliers.
+
+[https://en.wikipedia.org/wiki/Affinity_Partners](https://en.wikipedia.org/wiki/Affinity_Partners)
+
+[https://www.reuters.com/business/finance/kushners-affinitys-assets-jump-48-billion-after-gulf-cash-injection-2025-03-28/](https://www.reuters.com/business/finance/kushners-affinitys-assets-jump-48-billion-after-gulf-cash-injection-2025-03-28/)
+
+[https://www.cnn.com/2026/10/01/us/jared-kushner-israel-gaza-investments-invs-vis](https://www.cnn.com/2026/10/01/us/jared-kushner-israel-gaza-investments-invs-vis)
+
+
 2026-10-07 Trump’s former fiancée-now-ambassador to Greece Kimberly Guilfoyle pushed a donor to wire her $100K to pay off credit cards. 
 
 [https://www.youtube.com/watch?v=v_jAoeEFKZg&list=WL&index=8&t=79s](https://www.youtube.com/watch?v=v_jAoeEFKZg&list=WL&index=8&t=79s)

@@ -138,3 +138,14 @@ Economic Hegemony: The economic power of the U.S. following World War I, influen
 [https://sofiaglobe.com/2026/10/20/large-turnout-in-bulgaria-for-protest-against-foreign-policy-of-radev-and-yotova/](https://sofiaglobe.com/2026/10/20/large-turnout-in-bulgaria-for-protest-against-foreign-policy-of-radev-and-yotova/)
 
 [https://bnrnews.bg/en/post/544884/protest-under-the-slogan-your-peace-is-capitulation-outside-the-presidency](https://bnrnews.bg/en/post/544884/protest-under-the-slogan-your-peace-is-capitulation-outside-the-presidency)
+
+### 2026 November
+
+2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
+
+[https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583](https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583)
+
+[https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump](https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump)
+
+[https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark](https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark)
+

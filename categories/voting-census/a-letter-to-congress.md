@@ -613,3 +613,7 @@ The right to vote is not a privilege granted by a president, a political party, 
 2026-10-30 The Trump DOJ pursued an investigation into Alaska’s Mary Peltola for an alleged illegal voting scheme. 
 
 2026-10-30 A California judge had to issue an order stopping the Trump administration from threatening local election workers. 
+
+## 2026 November
+
+2026-11-03 In desperation ahead of midterms Trump announced he would end military aid to Israel. 

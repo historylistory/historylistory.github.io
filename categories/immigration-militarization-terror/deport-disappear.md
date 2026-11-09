@@ -171,3 +171,13 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 [https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/](https://san.com/cc/cattle-associations-say-ice-enforcement-has-chilling-effect-on-ag-community-beef-prices/)
 
 [https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/](https://nebraskapublicmedia.org/en/news/news-articles/cattle-industry-groups-say-ice-activity-ripples-through-supply-chains/)
+
+### 2026 November
+
+2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
+
+[https://www.ms.now/news/trump-ice-iranians-deportation-iran-war](https://www.ms.now/news/trump-ice-iranians-deportation-iran-war)
+
+[https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show](https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show)
+
+[https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/](https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/)

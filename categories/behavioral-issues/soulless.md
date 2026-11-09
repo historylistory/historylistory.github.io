@@ -1300,3 +1300,13 @@ PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-do
 2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 
 
 [https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7](https://www.youtube.com/watch?v=lCB9-03xzSg&list=WL&index=7)
+
+### 2026 November
+
+2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
+
+[https://www.ms.now/news/trump-ice-iranians-deportation-iran-war](https://www.ms.now/news/trump-ice-iranians-deportation-iran-war)
+
+[https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show](https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show)
+
+[https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/](https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/)

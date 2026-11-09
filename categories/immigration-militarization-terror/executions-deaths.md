@@ -438,3 +438,22 @@ TIMESTAMP 4:50 [https://www.youtube.com/watch?v=4EL6rRBfTx8&list=WL&index=1](htt
 [https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody](https://www.pbs.org/newshour/world/china-presses-u-s-for-answers-after-a-man-dies-hours-after-entering-ice-custody)
 
 PAY WALL [https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody](https://www.scmp.com/news/china/diplomacy/article/3366287/chinese-american-community-alarmed-after-chinese-national-dies-ice-custody)
+
+### 2026 November
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+[https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697](https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697)
+
+[https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/](https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/)
+
+[https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down](https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down)
+
+2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
+
+[https://www.ms.now/news/trump-ice-iranians-deportation-iran-war](https://www.ms.now/news/trump-ice-iranians-deportation-iran-war)
+
+[https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show](https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show)
+
+[https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/](https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/)
+

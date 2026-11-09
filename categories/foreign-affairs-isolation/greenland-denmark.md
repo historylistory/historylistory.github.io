@@ -103,3 +103,13 @@ permalink: /categories/foreign-affairs-isolation/greenland-denmark/
 
 [https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/](https://truthout.org/articles/trump-appears-to-be-renewing-his-push-for-control-of-greenland/)
 
+
+### 2026 November
+
+2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
+
+[https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583](https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583)
+
+[https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump](https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump)
+
+[https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark](https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark)

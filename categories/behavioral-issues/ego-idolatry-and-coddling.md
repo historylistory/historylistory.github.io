@@ -478,3 +478,13 @@ PAY WALL [https://www.bbc.com/news/articles/cr5pn1ngerpo](https://www.bbc.com/ne
 [https://www.ms.now/news/trump-fords-theatre-name-kennedy-center](https://www.ms.now/news/trump-fords-theatre-name-kennedy-center)
 
 [https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html](https://www.the-independent.com/news/world/americas/us-politics/trump-fords-theater-name-change-b3055050.html)
+
+### 2026 November
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/](https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/)
+
+[https://www.bbc.com/news/articles/cmy0eeg101djo](https://www.bbc.com/news/articles/cmy0eeg101djo)
+
+[https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/](https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/)

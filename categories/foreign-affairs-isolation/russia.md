@@ -373,6 +373,10 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 
 [https://www.stripes.com/theaters/europe/2026-09-02/germany-russia-drones-leipzig-22728517.html](https://www.stripes.com/theaters/europe/2026-09-02/germany-russia-drones-leipzig-22728517.html)
 
+2026-09-21 China and Russia reported a stronger military alliance. 
+
+[https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission](https://www.uscc.gov/press-releases/press-release-new-reports-detail-china-russia-military-cooperation-commission)
+
 ### 2026 October
 
 2026-10-12 Trump claimed Russia and Ukraine agreed to an energy ceasefire. Both countries denied the claim, then Russia bombed a Ukrainian power plant.  
@@ -420,3 +424,13 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
 
 [https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
+
+### 2026 November
+
+2026-11-02 Russia bombed a school and humanitarian aid distribution center in Ukraine. 
+
+[https://apnews.com/article/russia-ukraine-war-strike-bomb-humanitarian-aid-e64dd583955f11e4cf08ef5af6eaf35b](https://apnews.com/article/russia-ukraine-war-strike-bomb-humanitarian-aid-e64dd583955f11e4cf08ef5af6eaf35b)
+
+[https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town](https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town)
+
+[https://www.bbc.com/news/articles/cjy56dndlyz0o](https://www.bbc.com/news/articles/cjy56dndlyz0o)

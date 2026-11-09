@@ -548,3 +548,8 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
 
 2026-10-28 The Trump administration rolled back methane emission standards. 
+
+### 2026 November
+
+
+2026-11-08 Due to climate change banana producers face sharp decline in production.

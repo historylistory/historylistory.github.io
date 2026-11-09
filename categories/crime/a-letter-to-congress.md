@@ -771,3 +771,9 @@ These issues strike at the heart of government accountability, the rule of law, 
 
 
 2026-10-29 ICE agents were caught on camera slashing a couple’s tires and driving off. 
+
+## 2026 November
+
+2026-11-07 Ted Cruz called midterm losses a “Watergate level repudiation”. 
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 

@@ -416,3 +416,31 @@ PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1
 [https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data](https://www.theguardian.com/science/2026/oct/25/spacex-access-sensitive-tracking-data)
 
 [https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data](https://www.democracynow.org/2026/10/26/headlines/us_military_grants_spacex_access_to_pentagons_most_secretive_satellite_tracking_data)
+
+### 2026 November
+
+2026-11-03 The US Space Force declared the far side of the moon a “war fighting domain”. 
+
+[https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain](https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain)
+
+[https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html](https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html)
+
+2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
+
+[https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583](https://www.kmbc.com/article/greenland-security-deal-denmark-us/74323583)
+
+[https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump](https://www.pbs.org/newshour/world/greenland-approves-trilateral-deal-with-denmark-and-u-s-following-pressure-from-trump)
+
+[https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark](https://www.aljazeera.com/news/2026/11/3/greenland-parliament-approves-security-deal-with-us-denmark)
+
+2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+[https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788](https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788)
+
+[https://www.modernghana.com/videonews/nbc/1/748701](https://www.modernghana.com/videonews/nbc/1/748701)
+
+[https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc](https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc)
+
+[https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms](https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms)
+
+[https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8](https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8)

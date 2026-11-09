@@ -709,3 +709,24 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.commondreams.org/news/epstein-trump-connection-report](https://www.commondreams.org/news/epstein-trump-connection-report)
 
+### 2026 November
+
+2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+[https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788](https://www.nbcnews.com/politics/trump-administration/secretary-pete-hegseth-defiant-tone-impeachment-threat-thomas-massie-rcna607788)
+
+[https://www.modernghana.com/videonews/nbc/1/748701](https://www.modernghana.com/videonews/nbc/1/748701)
+
+[https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc](https://www.cnn.com/2026/11/06/politics/video/bolduan-kight-hegseth-impeachment-midterms-cnc)
+
+[https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms](https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms)
+
+[https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8](https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8)
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/](https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/)
+
+[https://www.bbc.com/news/articles/cmy0eeg101djo](https://www.bbc.com/news/articles/cmy0eeg101djo)
+
+[https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/](https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/)

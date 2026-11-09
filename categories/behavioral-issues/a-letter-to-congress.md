@@ -772,3 +772,11 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
 
 2026-10-30 The Pentagon kicked out another US Navy sailor for experiencing a mental health crisis will aboard the USS Abraham Lincoln. 
+
+## 2026 November
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 

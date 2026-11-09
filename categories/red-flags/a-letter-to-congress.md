@@ -494,6 +494,8 @@ Look at these examples and ask yourself whether they represent the principles ou
 
 2026-09-17 An interfaith coalition unveiled a 330-foot memorial shroud bearing the names of 20,000 children killed in Israeli attacks on the Gaza strip since 2023. 
 
+2026-09-21 China and Russia reported a stronger military alliance. 
+
 2026-09-22 Israeli soldiers executed 11-year-old Ismael al-Bardawil. 
 
 2026-09-22 Trump threatened to annihilate Iran during the UN assembly.
@@ -546,3 +548,21 @@ Look at these examples and ask yourself whether they represent the principles ou
 ## 2026 November
 
 2026-11-01 Democrat Haley Stevens switched endorsements from Abdul El-Sayed to Republican opponent Mike Rogers. 
+
+2026-11-02 Russia bombed a school and humanitarian aid distribution center in Ukraine. 
+
+2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
+
+2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+2026-11-05 Marco Rubio was reportedly on resignation watch. 
+
+2026-11-05 JD Vance distanced himself from Trump.
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
+
+2026-11-07 Ted Cruz called midterm losses a “Watergate level repudiation”. 
+
+2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 

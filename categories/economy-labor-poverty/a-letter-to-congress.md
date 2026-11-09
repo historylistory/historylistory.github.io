@@ -1274,6 +1274,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-10-26 China’s AI bubble burst, sending stocks crashing. 
 
+2026-10-28 Utah sued Kalshi, alleging its prediction market is technically gambling. 
+
 2026-10-29 Amazon stock plummeted. 
 
 2026-10-29 Binance lost a record $6.3BN in a crypto heist. 
@@ -1287,3 +1289,8 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-10-30 Reddit stock crashed 30%. 
 
 2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+## 2026 November
+
+2026-11-05 The DOW plunged more than 1800 points. 
+

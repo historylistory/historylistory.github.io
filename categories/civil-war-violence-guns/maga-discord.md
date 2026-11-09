@@ -734,3 +734,38 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 
 ### AND THE RATS JUMP SHIP
 
+2026-11-05 Marco Rubio was reportedly on resignation watch. 
+
+[https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html](https://www.the-independent.com/news/world/americas/us-politics/marco-rubio-donald-trump-resignation-midterms-b3076575.html)
+
+[https://www.bloomberg.com/news/articles/2026-11-05/rubio-considers-leaving-administration-after-gop-s-midterm-loss](https://www.bloomberg.com/news/articles/2026-11-05/rubio-considers-leaving-administration-after-gop-s-midterm-loss)
+
+[https://www.democracynow.org/2026/11/6/headlines/marco_rubio_reportedly_considers_resigning_as_secretary_of_state_ahead_of_presidential_run](https://www.democracynow.org/2026/11/6/headlines/marco_rubio_reportedly_considers_resigning_as_secretary_of_state_ahead_of_presidential_run)
+
+2026-11-05 JD Vance distanced himself from Trump.
+
+[https://www.cleveland.com/news/2026/11/the-first-rat-off-the-sinking-ship-jd-vance-tries-to-escape-trumps-election-wreckage.html](https://www.cleveland.com/news/2026/11/the-first-rat-off-the-sinking-ship-jd-vance-tries-to-escape-trumps-election-wreckage.html)
+
+[https://www.benzinga.com/news/politics/26/11/63028213/ro-khanna-warns-republicans-backing-trump-could-lose-2028-vance-distance](https://www.benzinga.com/news/politics/26/11/63028213/ro-khanna-warns-republicans-backing-trump-could-lose-2028-vance-distance)
+
+[https://www.bostonherald.com/2026/11/09/lucas-in-vance-shades-of-mike-pence/](https://www.bostonherald.com/2026/11/09/lucas-in-vance-shades-of-mike-pence/)
+
+[https://www.bbc.com/news/articles/crz98zqkz7z0o](https://www.bbc.com/news/articles/crz98zqkz7z0o)
+
+[https://www.reuters.com/legal/government/vance-repudiates-iran-war-after-us-electoral-defeat-2026-11-04/](https://www.reuters.com/legal/government/vance-repudiates-iran-war-after-us-electoral-defeat-2026-11-04/)
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+[https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697](https://www.nbcnews.com/politics/justice-department/head-doj-civil-rights-division-resigns-gop-midterms-loss-rcna607697)
+
+[https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/](https://www.cbsnews.com/news/harmeet-dhillon-resigns-doj-civil-rights-division/)
+
+[https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down](https://www.axios.com/2026/11/05/justice-department-midterms-harmeet-dhillon-steps-down)
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
+
+[https://www.bbc.com/news/videos/cvze442wdl75o](https://www.bbc.com/news/videos/cvze442wdl75o)
+
+[https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d](https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d)
+
+SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles](https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles)

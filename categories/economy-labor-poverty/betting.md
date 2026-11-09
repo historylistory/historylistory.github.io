@@ -299,3 +299,11 @@ SUB WALL [https://civicmedia.us/news/2026/08/20/prediction-market-firm-sues-to-e
 
 [https://thehill.com/policy/technology/6061531-kalshi-prediction-market-ban-laurie-buckhout-north-carolina-gop-house-race/](https://thehill.com/policy/technology/6061531-kalshi-prediction-market-ban-laurie-buckhout-north-carolina-gop-house-race/)
 
+### 2026 October
+
+2026-10-28 Utah sued Kalshi, alleging its prediction market is technically gambling. 
+
+[https://attorneygeneral.utah.gov/utah-sues-kalshi/](https://attorneygeneral.utah.gov/utah-sues-kalshi/)
+
+[https://www.reuters.com/legal/government/utah-criminally-charges-kalshi-with-promoting-illegal-gambling-2026-10-28/](https://www.reuters.com/legal/government/utah-criminally-charges-kalshi-with-promoting-illegal-gambling-2026-10-28/)
+

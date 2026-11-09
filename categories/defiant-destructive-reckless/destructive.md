@@ -441,3 +441,13 @@ SUB WALL [https://www.politico.com/news/2026/08/07/appeals-court-ruling-white-ho
 
 [https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123](https://www.nbcnews.com/politics/politics-news/hegseth-staff-damaged-historic-wwii-era-eisenhower-globe-trying-move-o-rcna605123)
 
+### 2026 November
+
+2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+[https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/](https://www.whitehouse.gov/presidential-actions/2026/11/establishment-of-the-oval-office-national-monument/)
+
+[https://www.bbc.com/news/articles/cmy0eeg101djo](https://www.bbc.com/news/articles/cmy0eeg101djo)
+
+[https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/](https://www.reuters.com/world/trump-says-oval-office-become-national-monument-2026-11-05/)
+

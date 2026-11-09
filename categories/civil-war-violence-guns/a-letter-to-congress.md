@@ -751,3 +751,13 @@ OPINION: What he failed to mention was Charlie Kirk’s 503(c) Turning Point is 
 15) UNKNOWN DATE: “If you are still claiming this is a ‘lump of cells’ you’re a retard and a liar…”
 16) UNKNOWN DATE: “Another arrest for the Jan 6 intrusion into the capitol. So strange how SO MANY of them are turning out to be Democrat and BLM, right?...”
 17) PENTAGON STATEMENT, “Mr. Higgins is a valued member of the Secretary’s team and does an outstanding job serving as a Senior Advisor. He has been completely focused on the spiritual health of our troops and the historic establishment of the Office of Religious Affairs”. Sean Parnell
+
+## 2026 November
+
+2026-11-05 Marco Rubio was reportedly on resignation watch. 
+
+2026-11-05 JD Vance distanced himself from Trump.
+
+2026-11-05 Head of the Civil Rights Division Harmeet Dhillon resigned. She was the one responsible for stopping the division from investigating systemic racism and ICE killings under Trump.
+
+2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
