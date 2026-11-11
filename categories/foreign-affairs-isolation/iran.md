@@ -2295,3 +2295,10 @@ PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1
 
 [https://www.bbc.com/news/articles/cx240mrm3g8vo](https://www.bbc.com/news/articles/cx240mrm3g8vo)
 
+2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
+
+[https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/](https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/)
+
+[https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58](https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58)
+
+[https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says](https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says)

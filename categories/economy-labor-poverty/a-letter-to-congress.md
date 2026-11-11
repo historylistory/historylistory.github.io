@@ -1294,3 +1294,7 @@ Taken together, these issues paint a troubling picture of a country where concen
 
 2026-11-05 The DOW plunged more than 1800 points. 
 
+
+2026-11-10 The Proposition 40 bill in California aiming to tax billionaires failed to pass. 
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  

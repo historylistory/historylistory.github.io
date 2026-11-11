@@ -1310,3 +1310,11 @@ PAY WALL [https://www.nytimes.com/2026/09/08/us/politics/roger-marshall-obgyn-do
 [https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show](https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show)
 
 [https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/](https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/)
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
+
+[https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2](https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2)
+
+[https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html](https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html)
+
+[https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761](https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761)

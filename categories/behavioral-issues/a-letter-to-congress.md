@@ -780,3 +780,5 @@ doing your job ‘ then what are you gonna do when Al Qaeda shows up at the airp
 2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
 
 2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  

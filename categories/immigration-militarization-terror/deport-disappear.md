@@ -181,3 +181,14 @@ SUB WALL [https://www.latimes.com/world-nation/story/2026-06-30/venezeula-earthq
 [https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show](https://www.pbs.org/newshour/world/trump-administration-held-talks-with-iran-on-deporting-iranians-during-the-war-court-documents-show)
 
 [https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/](https://www.timesofisrael.com/us-court-docs-show-administration-held-talks-with-iran-on-deporting-iranians-amid-the-war/)
+
+2026-11-10 ICE “lost” an 8-year-old immigrant child. 
+
+[https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5](https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5)
+
+[https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026](https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026)
+
+[https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/](https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/)
+
+[https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/](https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/)
+

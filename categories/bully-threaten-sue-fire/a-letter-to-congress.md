@@ -778,4 +778,7 @@ Manhattan grand jury in the hush-money case.
 
 2026-11-06 Trump tasked Stephen Miller to replace Susie Wiles as Chief of Staff.
 
+2026-11-07 Trump weaponized the DOJ against his political enemies, this time posting about Alyssa Slotkin. 
+
 2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+

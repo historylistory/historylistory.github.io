@@ -259,3 +259,12 @@ FEB 13 2026 ARTICLE WHEN THAT SAME SUPERINTENDENT CLAIMED SCHOOLS ARE POLITICALL
 [https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight](https://www.axios.com/2026/11/08/todd-blanche-doj-prosecuting-democrats-oversight)
 
 [https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump](https://www.ms.now/news/todd-blanche-threat-prosecution-democrats-impeachment-trump)
+
+2026-11-07 Trump weaponized the DOJ against his political enemies, this time posting about Alyssa Slotkin. 
+
+[https://www.youtube.com/watch?v=LP44gcs6JHQ&list=WL&index=9](https://www.youtube.com/watch?v=LP44gcs6JHQ&list=WL&index=9)
+
+[https://www.nbcnews.com/politics/justice-department/slotkin-lawyer-warns-blanche-not-obey-trumps-frivolous-demand-investig-rcna608311](https://www.nbcnews.com/politics/justice-department/slotkin-lawyer-warns-blanche-not-obey-trumps-frivolous-demand-investig-rcna608311)
+
+[https://truthsocial.com/@realDonaldTrump/posts/117576401180733840](https://truthsocial.com/@realDonaldTrump/posts/117576401180733840)
+

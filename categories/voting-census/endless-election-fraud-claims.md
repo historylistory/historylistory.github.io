@@ -514,3 +514,14 @@ WHITE HOUSE DECLASSIFIED DOCS PAGE [https://www.whitehouse.gov/election-integrit
 [https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms](https://www.ms.now/news/news-analysis/james-okeefe-cam-higby-minnesota-charges-election-fraud-midterms)
 
 [https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)
+
+### 2026 November
+
+2026-11-09 Trump trolled on social media that the midterms were not honest, writing, “Does anybody really believe that this “Election” was honest. How could the Polls be so wrong???...”
+
+[https://truthsocial.com/@realDonaldTrump/posts/117587105833579030](https://truthsocial.com/@realDonaldTrump/posts/117587105833579030)
+
+[https://katu.com/news/nation-world/trump-says-hes-not-sure-that-the-midterm-elections-were-honest-truth-social-house-senate-jd-vance](https://katu.com/news/nation-world/trump-says-hes-not-sure-that-the-midterm-elections-were-honest-truth-social-house-senate-jd-vance)
+
+[https://www.bbc.com/news/articles/ck79p9350zp9o](https://www.bbc.com/news/articles/ck79p9350zp9o)
+

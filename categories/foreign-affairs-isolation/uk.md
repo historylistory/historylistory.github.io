@@ -113,3 +113,13 @@ PAY WALL [https://www.huffpost.com/entry/live-updates_n_6ac355f8e4b0bc90e3ffdbb1
 [https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany](https://www.theguardian.com/politics/2026/oct/05/green-party-england-wales-zionism-racism-vote-europe-germany)
 
 [https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/](https://www.reuters.com/world/uk/britains-green-party-votes-class-zionism-form-racism-2026-10-04/)
+
+### 2026 November
+
+2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
+
+[https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/](https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/)
+
+[https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58](https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58)
+
+[https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says](https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says)

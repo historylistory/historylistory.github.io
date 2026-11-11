@@ -136,3 +136,15 @@ VIDEO [https://www.cnn.com/2026/08/21/us/video/five-year-old-and-father-arrested
 
 [https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/](https://www.sacurrent.com/news/ice-refuses-to-let-u-s-rep-joaquin-castro-visit-5-year-old-detained-at-dilley-trailer-prison/)
 
+### 2026 November
+
+2026-11-10 ICE “lost” an 8-year-old immigrant child. 
+
+[https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5](https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5)
+
+[https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026](https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026)
+
+[https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/](https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/)
+
+[https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/](https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/)
+

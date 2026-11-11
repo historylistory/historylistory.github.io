@@ -501,3 +501,7 @@ https://www.politico.com/news/2026/03/23/mattis-ending-iran-war-now-cede-hormuz-
 2026-11-03 Greenland voted 16-to-0 with 7 abstaining to expand US military infrastructure in Greenland under pressure from Trump, while keeping sovereignty under Denmark.
 
 2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
+
+2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
+
+2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 

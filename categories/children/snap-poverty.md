@@ -147,3 +147,13 @@ FROM APRIL [https://www.americanprogress.org/article/trumps-budget-request-cuts-
 [https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/](https://nwlc.org/press-release/breaking-nwlc-on-trump-vance-pronatalist-proposal-to-direct-child-care-funds-to-stay-at-home-parents/)
 
 [https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report](https://www.livenowfox.com/news/trump-administration-drafts-plan-offer-childcare-subsidies-married-stay-at-home-parents-report)
+
+### 2026 November
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
+
+[https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2](https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2)
+
+[https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html](https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html)
+
+[https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761](https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761)

@@ -433,3 +433,9 @@ budget untouched through the end of 2026.
 2026-10-28 A county in Virginia touts the largest concentration of data centers, with one elementary school surrounded by 13 of them. Exhaust from one data center is estimated to equal to 100 18-wheelers. 
 
 2026-10-30 During a Fox town hall, a woman asked JD Vance about affordability and daycare. Tone-deaf Vance pivoted towards a joke about John Husted’s ass. 
+
+## 2026 November
+
+2026-11-10 ICE “lost” an 8-year-old immigrant child. 
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  

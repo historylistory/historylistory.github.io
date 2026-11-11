@@ -579,3 +579,11 @@ PAY WALL [https://www.washingtonpost.com/national-security/2026/09/18/more-us-tr
 [https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain](https://futurism.com/future-society/us-space-force-cislunar-moon-warfighting-domain)
 
 [https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html](https://www.yahoo.com/news/politics/articles/us-space-force-declares-far-215301200.html)
+
+2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 
+
+[https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/](https://www.militarytimes.com/news/your-military/2026/11/10/britain-says-its-bases-are-safe-after-us-refueling-planes-evacuated/)
+
+[https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58](https://www.wsj.com/world/middle-east/u-s-aircraft-evacuated-from-second-u-k-base-due-to-iran-threat-835a8b58)
+
+[https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says](https://www.military.com/us-air-force-evacuates-aircraft-from-a-base-in-england-because-of-a-threat-us-official-says)

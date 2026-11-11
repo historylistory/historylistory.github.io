@@ -258,3 +258,13 @@ INTERVIEW ON CBS TEXAS: [https://www.youtube.com/watch?v=UsM5J0lsNaU&list=WL&ind
 [https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms](https://economictimes.indiatimes.com/world/us/who-is-losing-food-stamps-snap-enrollment-fell-13-in-a-year-which-states-lost-the-most-and-why-the-cbo-expects-more-decline/articleshow/135233590.cms)
 
 [https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill](https://www.democracynow.org/2026/10/26/headlines/number_of_people_on_food_stamps_falls_by_13_after_one_big_beautiful_bill)
+
+### 2026 November
+
+2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
+
+[https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2](https://www.youtube.com/watch?v=1U9-NHFt2Ts&list=WL&index=2)
+
+[https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html](https://nz.news.yahoo.com/trumps-snap-cuts-decimated-food-120018079.html)
+
+[https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761](https://www.whas11.com/video/news/politics/national-politics/trump-administration-proposes-changes-to-snap-benefits/417-9ad27783-bd22-4a66-b0c8-faada3439761)

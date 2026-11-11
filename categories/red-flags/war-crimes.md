@@ -869,3 +869,15 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms](https://timesofindia.indiatimes.com/videos/international/pete-hegseths-tough-guy-impeachment-response-backfires-as-critics-tell-him-to-lawyer-up/videoshow/135598256.cms)
 
 [https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8](https://www.youtube.com/watch?v=IZGlKdfDutg&list=WL&index=8)
+
+2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
+
+[https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s](https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s)
+
+[https://thehill.com/newsletters/morning-report/6212705-house-hegseth-impeachment-vote-blocked-gop-leadership-elections-economy/](https://thehill.com/newsletters/morning-report/6212705-house-hegseth-impeachment-vote-blocked-gop-leadership-elections-economy/)
+
+[https://slate.com/news-and-politics/2026/11/pete-hegseth-trump-massie-impeachment.html](https://slate.com/news-and-politics/2026/11/pete-hegseth-trump-massie-impeachment.html)
+
+[https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress](https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress)
+
+The many ways that Hegseth is a douche: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)

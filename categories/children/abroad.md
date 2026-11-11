@@ -398,3 +398,16 @@ TIMESTAMP 7:48 [https://www.youtube.com/watch?v=eAH1glXJFG4&list=WL&index=1&t=50
 [https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/](https://www.scientificamerican.com/article/a-controversial-u-s-study-of-hepatitis-b-vaccines-will-continue-in-africa/)
 
 [https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers](https://www.cidrap.umn.edu/childhood-vaccines/cdc-awards-16-million-hepatitis-b-vaccine-study-controversial-danish-researchers)
+
+### 2026 November
+
+2026-11-10 ICE “lost” an 8-year-old immigrant child. 
+
+[https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5](https://www.youtube.com/watch?v=or3C56X6fXQ&list=WL&index=5)
+
+[https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026](https://abcnews.com/US/democratic-lawmakers-answers-8-year-haitian-boy-ice/story?id=138019026)
+
+[https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/](https://abc7ny.com/story/8-year-old-haitian-boy-placed-federal-custody-alone-ice-check-advocates-say/20025314/)
+
+[https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/](https://thehill.com/homenews/state-watch/6211050-haitian-boy-detained-california/)
+

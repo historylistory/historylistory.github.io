@@ -197,3 +197,11 @@ TIMESTAMP 10:36 [https://www.youtube.com/watch?v=LmFI8zifRY8&list=WL&index=1&t=1
 
 SUB WALL [https://www.wsj.com/us-news/judge-temporarily-blocks-mamdanis-pied-a-terre-tax-744b0003](https://www.wsj.com/us-news/judge-temporarily-blocks-mamdanis-pied-a-terre-tax-744b0003)
 
+### 2026 November
+
+2026-11-10 The Proposition 40 bill in California aiming to tax billionaires failed to pass. 
+
+[https://calmatters.org/politics/elections/2026/11/prop-40-billionaire-tax-defeated/](https://calmatters.org/politics/elections/2026/11/prop-40-billionaire-tax-defeated/)
+
+[https://www.latimes.com/business/story/2026-11-09/billionaire-tax-prop-40-was-officially-rejected-in-california](https://www.latimes.com/business/story/2026-11-09/billionaire-tax-prop-40-was-officially-rejected-in-california)
+

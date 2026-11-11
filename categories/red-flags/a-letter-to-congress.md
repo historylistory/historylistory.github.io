@@ -566,3 +566,9 @@ Look at these examples and ask yourself whether they represent the principles ou
 2026-11-07 Ted Cruz called midterm losses a “Watergate level repudiation”. 
 
 2026-11-08 Todd Blanche threatened to investigate Democrats for conducting oversight investigations into Trump and his party. 
+
+2026-11-09 Conservative media started separating themselves from Trump. 
+
+2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
+
+2026-11-10 The Pentagon evacuated aircraft from a second base in the United Kingdom. 

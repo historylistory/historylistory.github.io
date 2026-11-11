@@ -659,3 +659,5 @@ Please do not respond with slogans or partisan deflection. The American people d
 2026-11-05 Hegseth posted a defiant video in response to worries of impeachment, bashed DEI and transgender, demanded $360B more for the DoW, claiming it, “…didn’t work against President Trump and it won’t work against me…”.
 
 2026-11-05 Trump signed a proclamation making the Oval Office in its current condition a “historical landmark” so nobody can remove his tacky gold inlay décor. 
+
+2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 

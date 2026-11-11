@@ -207,3 +207,12 @@ PAY WALL [https://www.politico.com/news/2026/09/29/trump-signs-executive-order-t
 
 [https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/](https://www.wral.com/news/investigates/data-center-virginia-tax-revenue-mecklenburg-county-neighbor-concerns-october-2026/)
 
+### 2026 November
+
+2026-11-10 The Senate advanced a bill to speed up permit review for infrastructure projects, like data centers.
+
+[https://www.theguardian.com/us-news/2026/nov/09/senate-advances-bill-energy-projects](https://www.theguardian.com/us-news/2026/nov/09/senate-advances-bill-energy-projects)
+
+[https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html](https://www.cnbc.com/2026/11/09/senate-infrastructure-bill-data-centers.html)
+
+[https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3](https://www.youtube.com/watch?v=u0UOUCQyBbg&list=WL&index=3)

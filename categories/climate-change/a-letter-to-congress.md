@@ -553,3 +553,5 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 
 2026-11-08 Due to climate change banana producers face sharp decline in production.
+
+2026-11-10 The Senate advanced a bill to speed up permit review for infrastructure projects, like data centers.

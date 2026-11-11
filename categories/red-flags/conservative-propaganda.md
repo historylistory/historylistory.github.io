@@ -755,3 +755,10 @@ THE INTERVIEW [https://www.youtube.com/watch?v=WLDE9LrGpNk](https://www.youtube.
 
 [https://www.bbc.com/news/articles/c52e9vnege7eo](https://www.bbc.com/news/articles/c52e9vnege7eo)
 
+### 2026 November
+
+2026-11-09 Conservative media started separating themselves from Trump. 
+
+[https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s](https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s)
+
+[https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s](https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s)

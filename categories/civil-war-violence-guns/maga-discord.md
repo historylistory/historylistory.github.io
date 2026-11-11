@@ -769,3 +769,9 @@ SUB WALL [https://www.nytimes.com/2026/09/30/us/politics/ken-paxton-trump-midter
 [https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d](https://apnews.com/article/susie-wiles-trump-miller-midterms-95690fe076f6bb8cfe2bf77435a1910d)
 
 SUB WALL [https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles](https://www.cnn.com/2026/11/06/politics/stephen-miller-trump-susie-wiles)
+
+2026-11-09 Conservative media started separating themselves from Trump. 
+
+[https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s](https://www.youtube.com/watch?v=wpNbAFWBwrM&list=WL&index=7&t=86s)
+
+[https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s](https://www.youtube.com/watch?v=_89YgzhfW_s&list=WL&index=8&t=371s)

@@ -1114,3 +1114,18 @@ SUB WALL [https://www.washingtonpost.com/national-security/2026/09/28/andrew-bai
 [https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html](https://www.the-independent.com/news/world/americas/us-politics/jd-vance-butt-joke-affordability-husted-b3076355.html)
 
 [https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/](https://www.mediaite.com/media/tv/how-is-this-real-jd-vance-mocked-for-tone-deaf-opener-to-maga-voters-affordability-question/)
+
+### 2026 November
+
+2026-11-10 Eleven Democrats failed to show up to impeach Hegseth. 
+
+[https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s](https://www.youtube.com/watch?v=84HgCeJmWXk&list=WL&index=4&t=181s)
+
+[https://thehill.com/newsletters/morning-report/6212705-house-hegseth-impeachment-vote-blocked-gop-leadership-elections-economy/](https://thehill.com/newsletters/morning-report/6212705-house-hegseth-impeachment-vote-blocked-gop-leadership-elections-economy/)
+
+[https://slate.com/news-and-politics/2026/11/pete-hegseth-trump-massie-impeachment.html](https://slate.com/news-and-politics/2026/11/pete-hegseth-trump-massie-impeachment.html)
+
+[https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress](https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress)
+
+The many ways that Hegseth is a douche: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)
+

@@ -617,3 +617,5 @@ The right to vote is not a privilege granted by a president, a political party, 
 ## 2026 November
 
 2026-11-03 In desperation ahead of midterms Trump announced he would end military aid to Israel. 
+
+2026-11-09 Trump trolled on social media that the midterms were not honest, writing, “Does anybody really believe that this “Election” was honest. How could the Polls be so wrong???...”

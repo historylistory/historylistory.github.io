@@ -1010,3 +1010,5 @@ Next
 2026-11-05 Unsealed court documents revealed the Trump administration had been deporting people back to war-torn Iran where they would face certain death. 
 
 2026-11-06 ICE agents took a Wisconsin State Trooper into custody. 
+
+2026-11-10 ICE “lost” an 8-year-old immigrant child. 
