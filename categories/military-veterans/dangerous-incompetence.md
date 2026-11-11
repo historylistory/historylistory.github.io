@@ -191,4 +191,4 @@ permalink: /categories/military-veterans/dangerous-incompetence/
 
 [https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress](https://www.cnn.com/2026/11/11/politics/live-news/hegseth-impeachment-congress)
 
-The many ways that Hegseth is a douche: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)
+More about Pete Hegseth: [https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6](https://www.youtube.com/watch?v=LO5iHyYa0XM&list=WL&index=6)
