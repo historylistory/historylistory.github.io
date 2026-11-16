@@ -223,3 +223,7 @@ Congress must restore agricultural and conservation funding, protect independent
 2026-10-26 Food stamps fell 13%, food banks are seeking help, and 47 million people are living in food insecurity nationwide. 
 
 2026-10-28 The Iowa Farmers Union (IFU) announced they would be endorsing all Democrat candidates. 
+
+## 2026 November
+
+2026-11-13 Alabama and Louisiana requested a partial waiver for renewable fuel blending obligations in 2027. 

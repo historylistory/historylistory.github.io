@@ -1298,3 +1298,5 @@ Taken together, these issues paint a troubling picture of a country where concen
 2026-11-10 The Proposition 40 bill in California aiming to tax billionaires failed to pass. 
 
 2026-11-11 The Trump administration proposed changes to further remove SNAP benefits and further toughen restrictions.  
+
+2026-11-13 Alabama and Louisiana requested a partial waiver for renewable fuel blending obligations in 2027. 

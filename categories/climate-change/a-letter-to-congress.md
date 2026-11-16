@@ -554,4 +554,12 @@ Americans deserve clean air, safe water, protected public lands, and a governmen
 
 2026-11-08 Due to climate change banana producers face sharp decline in production.
 
+2026-11-09 Global warming shut down a major ocean current (AMOC) which will lead to abrupt climate change impacts. 
+
 2026-11-10 The Senate advanced a bill to speed up permit review for infrastructure projects, like data centers.
+
+2026-11-12 A super El Nino was declared. 
+
+2026-11-13 Alabama and Louisiana requested a partial waiver for renewable fuel blending obligations in 2027. 
+
+2026-11-15 California coasts were hit with heavy surf which led to evacuations. 

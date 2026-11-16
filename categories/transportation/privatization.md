@@ -38,3 +38,7 @@ permalink: /categories/transportation/privatization/
 [https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html](https://www.cnbc.com/2026/11/15/trump-breaks-silence-on-faa-nationwide-ground-stop-blames-biden-.html)
 
 [https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/](https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/)
+
+OPINION & RESEARCH: [https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3](https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3)
+
+OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s](https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s)

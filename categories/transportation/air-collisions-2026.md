@@ -184,3 +184,8 @@ permalink: /categories/transportation/air-collisions-2026/
 
 [https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/](https://www.cbsnews.com/baltimore/video/airlines-and-airports-work-to-return-to-normal-after-nationwide-ground-stop/)
 
+[https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3](https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3)
+
+OPINION & RESEARCH: [https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3](https://www.youtube.com/watch?v=bBqDBl4gatk&list=WL&index=3)
+
+OPINION & RESEARCH: [https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s](https://www.youtube.com/watch?v=BDIraTXGn0A&list=WL&index=1&t=191s)

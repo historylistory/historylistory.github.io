@@ -377,3 +377,11 @@ IRAN AND RUSSIA [https://www.president.gov.ua/en/news/volodimir-zelenskij-doruch
 [https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town](https://www.politico.com/news/2026/11/03/russian-kills-29-in-horrific-attack-during-food-distribution-in-ukrainian-town)
 
 [https://www.bbc.com/news/articles/cjy56dndlyz0o](https://www.bbc.com/news/articles/cjy56dndlyz0o)
+
+2026-11-12 Both Witkoff and Kushner met Putin in Russia to discuss the war in Ukraine. 
+
+[https://www.youtube.com/watch?v=Y5KU8JHhm1k&list=WL&index=4](https://www.youtube.com/watch?v=Y5KU8JHhm1k&list=WL&index=4)
+
+[https://time.com/article/2026/11/12/ukraine-russia-peace-deal-talks-putin-zelensky-witkoff-kushner/](https://time.com/article/2026/11/12/ukraine-russia-peace-deal-talks-putin-zelensky-witkoff-kushner/)
+
+[https://www.politico.com/news/2026/11/12/us-envoys-witkoff-and-kushner-meet-putin-in-moscow](https://www.politico.com/news/2026/11/12/us-envoys-witkoff-and-kushner-meet-putin-in-moscow)

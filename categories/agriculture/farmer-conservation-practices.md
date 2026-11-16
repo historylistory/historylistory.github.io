@@ -41,3 +41,17 @@ WHAT IS IT [https://www.energy.gov/cmei/systems/agrivoltaics-solar-and-agricultu
 [https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill](https://www.canarymedia.com/articles/food-and-farms/trump-blocking-solar-farm-bill)
 
 [https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/](https://iowacapitaldispatch.com/2025/10/05/gop-candidates-for-iowa-governor-voice-their-opposition-to-co2-pipelines/)
+
+### 2026 November
+
+2026-11-13 Alabama and Louisiana requested a partial waiver for renewable fuel blending obligations in 2027. 
+
+[https://www.youtube.com/watch?v=Kt8_6UNaMu0&list=WL&index=6](https://www.youtube.com/watch?v=Kt8_6UNaMu0&list=WL&index=6)
+
+[https://www.agweb.com/news/crops/corn/ethanol-group-calls-governors-rfs-waiver-request-absurd-urges-epa-deny-it](https://www.agweb.com/news/crops/corn/ethanol-group-calls-governors-rfs-waiver-request-absurd-urges-epa-deny-it)
+
+[https://brownfieldagnews.com/news/rfa-urges-epa-to-reject-alabama-louisiana-request-for-2027-rfs-waiver/](https://brownfieldagnews.com/news/rfa-urges-epa-to-reject-alabama-louisiana-request-for-2027-rfs-waiver/)
+
+[https://www.americanagnetwork.com/2026/11/13/rfa-to-zeldin-epa-should-promptly-deny-rfs-waiver-requests/](https://www.americanagnetwork.com/2026/11/13/rfa-to-zeldin-epa-should-promptly-deny-rfs-waiver-requests/)
+
+[https://ethanolproducer.com/articles/alabama-and-louisiana-governors-petition-epa-for-partial-waiver-of-2027-rfs-rvos](https://ethanolproducer.com/articles/alabama-and-louisiana-governors-petition-epa-for-partial-waiver-of-2027-rfs-rvos)

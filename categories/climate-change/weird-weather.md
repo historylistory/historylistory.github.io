@@ -535,3 +535,29 @@ AUGUST 30 [https://www.hawaiinewsnow.com/2026/09/08/hurricane-lowell-passes-just
 [https://www.yahoo.com/news/weather-news/articles/life-threatening-flash-floods-may-215840844.html](https://www.yahoo.com/news/weather-news/articles/life-threatening-flash-floods-may-215840844.html)
 
 
+### 2026 November
+
+2026-11-09 Global warming shut down a major ocean current (AMOC) which will lead to abrupt climate change impacts. 
+
+[https://www.youtube.com/watch?v=39LllrHRx2o&list=WL&index=2](https://www.youtube.com/watch?v=39LllrHRx2o&list=WL&index=2)
+
+[https://www.cbsnews.com/chicago/news/amoc-ocean-current-collapse-chicago-weather-1000-years/](https://www.cbsnews.com/chicago/news/amoc-ocean-current-collapse-chicago-weather-1000-years/)
+
+[https://e360.yale.edu/features/amoc-climate-change](https://e360.yale.edu/features/amoc-climate-change)
+
+2026-11-12 A super El Nino was declared. 
+
+[https://www.youtube.com/watch?v=CzqW7VRDp0w&list=WL&index=5](https://www.youtube.com/watch?v=CzqW7VRDp0w&list=WL&index=5)
+
+[https://www.usatoday.com/videos/news/weather/2026/11/16/el-nino-strengthens-highest-noaa/92806785007/](https://www.usatoday.com/videos/news/weather/2026/11/16/el-nino-strengthens-highest-noaa/92806785007/)
+
+[https://www.cbsnews.com/news/el-nino-effects-weather-worldwide/](https://www.cbsnews.com/news/el-nino-effects-weather-worldwide/)
+
+2026-11-15 California coasts were hit with heavy surf which led to evacuations. 
+
+[https://apnews.com/article/california-extreme-weather-storms-tides-surf-a17af23f100b3ee73c853da50cce22d1](https://apnews.com/article/california-extreme-weather-storms-tides-surf-a17af23f100b3ee73c853da50cce22d1)
+
+[https://oceanblueproject.org/high-surf-wreaks-havoc-along-california-coast/](https://oceanblueproject.org/high-surf-wreaks-havoc-along-california-coast/)
+
+[https://www.nbcbayarea.com/news/california/huge-waves-california-coast-piers-closure/4176499/](https://www.nbcbayarea.com/news/california/huge-waves-california-coast-piers-closure/4176499/)
+
